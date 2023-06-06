@@ -23,37 +23,21 @@ header:
       fr-LU   : *FR
       # @end locale config
     url: /archive.html
-
-  - titles:
-      # @start locale config
-      en      : &EN       About
-      en-GB   : *EN
-      en-US   : *EN
-      en-CA   : *EN
-      en-AU   : *EN
-      zh-Hans : &ZH_HANS  关于
-      zh      : *ZH_HANS
-      zh-CN   : *ZH_HANS
-      zh-SG   : *ZH_HANS
-      zh-Hant : &ZH_HANT  關於
-      zh-TW   : *ZH_HANT
-      zh-HK   : *ZH_HANT
-      ko      : &KO       소개
-      ko-KR   : *KO
-      fr      : &KO       À propos
-      fr-BE   : *FR
-      fr-CA   : *FR
-      fr-CH   : *FR
-      fr-FR   : *FR
-      fr-LU   : *FR
-      # @end locale config
-    url: /about.html
+    
 docs-zh:
-  - title:      导航示例
+  - title: 前言
     children:
-      - title: Welcome
-        url: https://javaboy666.github.io/2018/07/01/welcome.html
-      - title: Post with Header Image
-        url: https://javaboy666.github.io/2018/06/01/header-image.html
-      - title:  Java 搭建 SSM
-        url:    http://springboot.javaboy.org/2019/0528/javassm
+      - title: 本书主要转述的作者
+        url: https://songguo6.github.io/2022/10/30/mind-0/
+  - title: 游戏规则
+    children:
+      - title: 一体性
+        url: 
+      - title: 意识、能量、振动、频率
+        url:      
+      - title: 显化法则
+        url: 
+      - title: 业力
+        url:
+      - title: 阿卡西记录
+        url:                             

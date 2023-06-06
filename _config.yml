@@ -16,12 +16,12 @@
 
 ## => Site Settings
 ##############################
-text_skin: default # "default" (default), "dark", "forest", "ocean", "chocolate", "orange"
+text_skin: ocean # "default" (default), "dark", "forest", "ocean", "chocolate", "orange"
 highlight_theme: default # "default" (default), "tomorrow", "tomorrow-night", "tomorrow-night-eighties", "tomorrow-night-blue", "tomorrow-night-bright"
-url     : http://javaboy666.github.io
+url     : http://songguo6.github.io/book
 baseurl : # does not include hostname
-title   : 江南一点雨
-description: 电子书示例网站，关注微信公众号：江南一点雨 ，回复 2TB 获取超 2TB 免费 Java 教程。
+title   : 人生游戏宝典
+description: 暂无介绍
 
 
 ## => Language and Timezone
@@ -34,18 +34,18 @@ timezone: # see https://en.wikipedia.org/wiki/List_of_tz_database_time_zones for
 ##############################
 author:
   type      : # "person" (default), "organization"
-  name      : 江南一点雨
+  name      : 人生游戏宝典
   url       :
-  avatar    : https://www.javaboy.org/images/sb/javaboy.jpg
-  bio       : I am an amazing person.
-  email     : wangsong0210@gmail.com
-  zhihu     : wang-song-9 # "user_name" the last part of your profile url, e.g. https://www.zhihu.com/people/user_name
-  github    : lenve # "user_name" the last part of your profile url, e.g. https://github.com/user_name
+  avatar    : https://songguo6.github.io/medias/avatar.png
+  bio       : 
+  email     : 
+  zhihu     : # "user_name" the last part of your profile url, e.g. https://www.zhihu.com/people/user_name
+  github    : songguo6 # "user_name" the last part of your profile url, e.g. https://github.com/user_name
 
 
 ## => GitHub Repository (if the site is hosted by GitHub)
 ##############################
-repository: javaboy666/javaboy666.github.io
+repository: songguo6/book
 repository_tree: master
 
 
