@@ -27,17 +27,17 @@ header:
 docs-zh:
   - title: 前言
     children:
-      - title: 本书主要转述的作者
-        url: https://songguo6.github.io/2022/10/30/mind-0/
+      - title:  本书主要转述的作者
+        url:    
   - title: 游戏规则
     children:
-      - title: 一体性
+      - title:  一体性
+        url:    /docs/en/configuration
+      - title:  意识、能量、振动、频率
         url: 
-      - title: 意识、能量、振动、频率
-        url: https://songguo6.github.io/book/2023/06/07/consciousness
-      - title: 显化法则
+      - title:  显化法则
         url: 
-      - title: 业力
+      - title:  业力
         url:
-      - title: 阿卡西记录
+      - title:  阿卡西记录
         url:                             
