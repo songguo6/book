@@ -1,3 +1,7 @@
+<h1>本书引述的主要信息源</h1>
+
+---
+
 ## [双生紫焰](https://www.violet-flames.com)
 
 #### 双生紫焰是谁？
@@ -11,11 +15,17 @@
 - **登出游戏、开悟**：透过觉察一切的现象然后不解释所觉察的现象，而直接穿透现象、体会生命的本体（登出）、登出游戏（开悟）后消化所有信念、消化完毕后电脑关机（回家）。  
 - **成为超级玩家**：在生命故事游戏中，体会一切眼前所见所闻，都是自己信念所显化，进而能掌握信念，在故事里成为玩家来使用角色，玩得尽兴，让框架越来越开阔，生命游戏越来越好玩、有趣、自在无碍。  
 
+#### 双生紫焰出版的书籍
+
+- [《登出鍵》](https://www.books.com.tw/products/0010908956)（2021）
+
 #### 双生紫焰信息源
 
 - 官方网站：[violet-flames.com](https://www.violet-flames.com)
 - Youtube：[雙生紫焰Violet Flames](https://www.youtube.com/@VioletTwinFlames)
 - Facebook：[雙生紫焰](https://www.facebook.com/VioletTwinFlames)
+
+---
 
 ## [梦空细雨](https://mkxy.online)
 
@@ -35,6 +45,17 @@
 
 梦空细雨社全体同仁出于对生命赤诚的爱心，奉献着自己的热忱。我们是一个非营利的公益组织，你们的支持、关注、转发是滋养我们可持续发展的心流能量。
 
+#### 梦空细雨创作的书籍
+
+- [《失忆的归途》](https://mkxy.online/?page_id=147)
+- [《隐秘的医案》](https://mkxy.online/?page_id=151)
+- [《思想的阶梯》](https://mkxy.online/?page_id=57)
+- [《虚空法界框架结构详解》](https://mkxy.online/?page_id=122)
+- [《已知的实相Ⅰ：新世纪中如何理解赛斯书《未知的实相》》](https://mkxy.online/?page_id=135)
+- [《已知的实相Ⅱ：用非线性视角剖析赛斯都说了些什么？》](https://mkxy.online/?page_id=2675)
+- [《已知的实相Ⅲ：全我是如何在多重宇宙中运作的？》](https://mkxy.online/?page_id=8936)
+- [《观影说多维实相》](https://mkxy.online/?page_id=8951)
+
 #### 梦空细雨信息源
 
 - 官方网站：[mkxy.online](https://mkxy.online)
@@ -48,6 +69,8 @@
 - QQ群：**梦空细雨禅修营**（415238798）
 - QQ群：**梦空细雨观影会**（940412676）
 - QQ群：**高维智慧（赛斯细雨资料）**（18001174）
+
+---
 
 ## [Guy Steven Needler（盖伊·斯蒂文·尼德勒）](http://www.guystevenneedler.com/)
 
@@ -69,7 +92,7 @@ GuyNeedler，理学双学位硕士，工商管理硕士，特许工程师，工�
 
 - [《The History of God》](https://www.amazon.com/History-God-Story-Beginning-Everything/dp/1886940169)（2011）中文版：**《源头简史》**
 - [《Beyond the Source - Book 1》](https://www.amazon.com/Beyond-Source-Messages-Co-Creaters-Universe/dp/1886940339)（2012）
-- [《Beyond the Source – Book 2》](https://www.amazon.com/Beyond-Source-Guy-Steven-Needler/dp/1886940444)（2013）
+- [《Beyond the Source - Book 2》](https://www.amazon.com/Beyond-Source-Guy-Steven-Needler/dp/1886940444)（2013）
 - [《Avoiding Karma》](https://www.amazon.com/Avoiding-Karma-Mind-Challenging-Recognize-Truly/dp/1886940460)（2014）中文版：**《回避业力》**
 - [《Origin Speaks》](https://www.amazon.com/Origin-Speaks-Dialogue-Ultimate-Creator/dp/194026510X)（2015）
 - [《Psycho-Spiritual Healing》](https://www.amazon.com/Psycho-Spiritual-Healing-And-Other-Techniques-for-Dysfunctions-Created-by-Who-We-Are-and-How-We-Incarnate/dp/1940265932)（2021）
