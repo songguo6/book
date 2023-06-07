@@ -84,5 +84,5 @@ GuyNeedler，理学双学位硕士，工商管理硕士，特许工程师，工�
 - 官方网站：[beyondthesource.org](http://www.beyondthesource.org/)
 - Youtube：[GuyStevenNeedler](https://www.youtube.com/@GuyStevenNeedler)
 - Twitter：[Guy Steven Needler](https://twitter.com/guystevenneedle)
-- 微信公众号：[盖伊尼德勒的新世界]()
+- 微信公众号：**盖伊尼德勒的新世界**（guyneedler）
 
