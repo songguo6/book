@@ -95,6 +95,8 @@ GuyNeedler，理学双学位硕士，工商管理硕士，特许工程师，工�
 - [《Beyond the Source - Book 2》](https://www.amazon.com/Beyond-Source-Guy-Steven-Needler/dp/1886940444)（2013）
 - [《Avoiding Karma》](https://www.amazon.com/Avoiding-Karma-Mind-Challenging-Recognize-Truly/dp/1886940460)（2014）中文版：**《回避业力》**
 - [《Origin Speaks》](https://www.amazon.com/Origin-Speaks-Dialogue-Ultimate-Creator/dp/194026510X)（2015）
+- [《Anne Dialogues》](https://www.amazon.com/Anne-Dialogues-Communications-Ascended/dp/1940265398)（2016）
+- [《The Curators》](https://www.amazon.com/Curators-Roles-Responsibilities-Maintenance-Entities/dp/B07WDTJS7K)（2019）
 - [《Psycho-Spiritual Healing》](https://www.amazon.com/Psycho-Spiritual-Healing-And-Other-Techniques-for-Dysfunctions-Created-by-Who-We-Are-and-How-We-Incarnate/dp/1940265932)（2021）
 - [《The World Satsanga: The First Ten Years - Book 1》](https://www.amazon.com/World-Satsanga-Questions-Channelled-Answers/dp/B0C63VWFDP)（2023）
 - [《The World Satsanga: The First Ten Years - Book 2》](https://www.amazon.com/World-Satsanga-Questions-Channelled-Answers/dp/B0C5PGB9T9)（2023）
@@ -108,4 +110,4 @@ GuyNeedler，理学双学位硕士，工商管理硕士，特许工程师，工�
 - Youtube：[GuyStevenNeedler](https://www.youtube.com/@GuyStevenNeedler)
 - Twitter：[Guy Steven Needler](https://twitter.com/guystevenneedle)
 - 微信公众号：**盖伊尼德勒的新世界**（guyneedler）
-
+- 微信公众号：**两课身心深频研究院**（my2lesson）
