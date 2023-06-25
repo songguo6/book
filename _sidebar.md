@@ -1,8 +1,11 @@
 * 前言
 
-  * [本书引述的主要信息源](source.md)
+  * [本书引述的主要信息源](from.md)
 
-* 真相和幻相
+* 真相（起源）
 
-  * [起源](origin.md)
-  * [起源的创造](origin-create.md)
+  * [起源](s1-origin.md)
+
+* 幻相（起源的造物）
+
+  * [源实体](s2-source-entity.md)
