@@ -11,3 +11,5 @@
   * [源实体](s2-source-entity.md)
   * [多维宇宙](s2-universe.md)
   * [物理宇宙](s2-physical-universe.md)
+  * [轮回转世](s2-samsara.md)
+  * [人生游戏](s2-life-game.md)
