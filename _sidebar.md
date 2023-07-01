@@ -12,7 +12,6 @@
   * [多维宇宙](s2-universe.md)
   * [存有](s2-beings.md)
   * [载具](s2-carrier.md)
-  * [物理宇宙](s2-physical-universe.md)
   * [轮回转世](s2-samsara.md)
   * [人生游戏](s2-life-game.md)
 
