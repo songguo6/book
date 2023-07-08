@@ -17,7 +17,7 @@
 
 * 领悟
 
-  * [回答哲学三问](s3-three.md)
+  * [人生意义](s3-why.md)
   * [一些概念](s3-conception.md) 
 
 * 实修

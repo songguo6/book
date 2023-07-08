@@ -97,11 +97,12 @@ GuyNeedler，理学双学位硕士，工商管理硕士，特许工程师，工�
 - [《Origin Speaks》](https://www.amazon.com/Origin-Speaks-Dialogue-Ultimate-Creator/dp/194026510X)（2015）
 - [《Anne Dialogues》](https://www.amazon.com/Anne-Dialogues-Communications-Ascended/dp/1940265398)（2016）
 - [《The Curators》](https://www.amazon.com/Curators-Roles-Responsibilities-Maintenance-Entities/dp/B07WDTJS7K)（2019）
-- [《Psycho-Spiritual Healing》](https://www.amazon.com/Psycho-Spiritual-Healing-And-Other-Techniques-for-Dysfunctions-Created-by-Who-We-Are-and-How-We-Incarnate/dp/1940265932)（2021）
+- [《Psycho - Spiritual Healing》](https://www.amazon.com/Psycho-Spiritual-Healing-And-Other-Techniques-for-Dysfunctions-Created-by-Who-We-Are-and-How-We-Incarnate/dp/1940265932)（2021）
 - [《The World Satsanga: The First Ten Years - Book 1》](https://www.amazon.com/World-Satsanga-Questions-Channelled-Answers/dp/B0C63VWFDP)（2023）
 - [《The World Satsanga: The First Ten Years - Book 2》](https://www.amazon.com/World-Satsanga-Questions-Channelled-Answers/dp/B0C5PGB9T9)（2023）
 - [《The World Satsanga: The First Ten Years - Book 3》](https://www.amazon.com/World-Satsanga-Questions-Channelled-Answers/dp/B0C63VWFDP)（2023）
-- [《The OM》](https://www.amazon.com/OM-Guy-Steven-Needler-ebook/dp/B0C4V9PCCZ?ref_=ast_author_dp)（2023）
+- [《The OM – The Uncreated Creations》](https://www.amazon.com/OM-Guy-Steven-Needler-ebook/dp/B0C4V9PCCZ?ref_=ast_author_dp)（2023）
+- 《Beyond the Origin – An Event Space Odyssey》（预计2024）
 
 #### Guy Steven Needler信息源
 
