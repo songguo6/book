@@ -16,14 +16,37 @@
       name: '无限探索',
       repo: '',
       maxLevel: 5,//最大支持渲染的标题层级
-      subMaxLevel: 3,
+      subMaxLevel: 2,
       homepage: 'README.md',
       coverpage: false,//封面
       loadSidebar: true,//开启侧边栏
       auto2top: true,//切换页面后是否自动跳转到页面顶部
+      toc: {
+        tocMaxLevel: 3,
+        target: "h2, h3, h4, h5, h6",
+      },
+      // 字数统计
+      count: {
+        countable: true,
+        position: "top",
+        margin: "10px",
+        float: "right",
+        fontsize: "0.9em",
+        color: "green",
+        language: "chinese",
+        localization: {
+          words: "",
+          minute: "",
+        },
+        isExpected: true,
+      },
     }
   </script>
   <!-- Docsify v4 -->
   <script src="//cdn.jsdelivr.net/npm/docsify@4"></script>
+  <!-- 页面右侧 TOC -->
+  <script src="https://cdn.jsdelivr.net/npm/docsify-plugin-toc@1.1.0/dist/docsify-plugin-toc.min.js"></script>
+  <!-- 字数统计 -->
+  <script src="https://cdn.jsdelivr.net/npm/docsify-count@latest/dist/countable.min.js"></script>  
 </body>
 </html>
