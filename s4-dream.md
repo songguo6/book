@@ -1,4 +1,4 @@
-## 《梦华录——前言》
+## 梦书第一部《梦华录》前言
 
 > 信息源：Jessica，转载自微信公众号：[觉者梦语](https://mp.weixin.qq.com/s/49m8Cw1E1uvHgV2oHxJXNw)
 
