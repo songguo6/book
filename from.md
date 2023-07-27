@@ -114,3 +114,28 @@ GuyNeedler，理学双学位硕士，工商管理硕士，特许工程师，工�
 - Twitter：[Guy Steven Needler](https://twitter.com/guystevenneedle)
 - 微信公众号：**盖伊尼德勒的新世界**（guyneedler）
 - 微信公众号：**两课身心深频研究院**（my2lesson）
+
+---
+
+## [人的解读](http://www.rendejiedu.com/)
+
+#### 人的解读是谁？
+
+人的解读最开始是一个微信公众号，作者**千帆过**从解读埃德加•凯西、魏斯博士的著作开始，深耕身心灵领域，创作原创文章。
+
+目前已创作出认识灵魂、认识经络、认识脉轮、认识气场四大基础的多篇文章，并集结成书。在写作的同时，作者还开设课程、直播，致力于线下疗愈汇和城市行。
+
+正如作者所说，“我希望花几年的时间，把这个公号发展成一门课。这是一门当今教育体系中没有，但必须补上的人生通识课。”
+
+#### 人的解读创作的书籍
+
+- [《认识灵魂》](https://mp.weixin.qq.com/s/anlTfOgEnfFH7KuSY45JMA)
+- [《认识经络》](https://mp.weixin.qq.com/s/anlTfOgEnfFH7KuSY45JMA)
+- [《认识脉轮》](https://mp.weixin.qq.com/s/anlTfOgEnfFH7KuSY45JMA)
+- [《认识气场》](https://mp.weixin.qq.com/s/anlTfOgEnfFH7KuSY45JMA)
+
+#### 人的解读信息源
+
+- 官方网站：[人的解读](rendejiedu.com)
+- 新浪微博：[千帆学苑](https://appbkvsrtru9369.h5.xiaoeknow.com/?channel_id=758628&resource_id=2802993&resource_type=17&app_id=appbkvsrtru9369)
+- 微信公众号：**人的解读**（rendejiedu）
