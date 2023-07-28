@@ -13,7 +13,7 @@
   * [存有](s2-beings.md)
   * [载具](s2-carrier.md)
   * [轮回转世](s2-samsara.md)
-  * [人生游戏](s2-life-game.md)
+  * [地球Online](s2-earth-game.md)
 
 * 领悟
 
@@ -27,4 +27,7 @@
   * [穿越频率](s4-ttf.md)
   * [疗愈](s4-heal.md)
 
+* 经典
+
+  * [书籍推荐](s5-books.md)
 
