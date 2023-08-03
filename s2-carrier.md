@@ -283,11 +283,11 @@ RNA是细胞之间的一种通信介质，它允许细胞的正确定位，以�
 
 脉轮|符号|颜色|梵语名/含义|种子音|小漩涡数|位置|对应身体部位|掌管|功能
 ---|---|---|---|---|---|---|---|---|---
-顶轮|<img src="https://s2.loli.net/2023/08/03/imILDfb7nc1oqNp.png"  style="zoom: 50%;" />|紫色|Sahasrara<br>空|MMMMM|972|百会穴|松果体、上脑、右眼||7：将人格与生命及人类的灵性面整合
-眉心轮/额轮/三眼轮|<img src="https://s2.loli.net/2023/08/03/unlr8VNa7skRYyU.png"  style="zoom: 50%;" />|靛青|Ajna<br>觉知，指挥|OM|96|两眉之间的正中心|脑垂体、下脑、左眼、耳、鼻、神经系统||6A：视觉化的能力、对心智概念的理解<br>6B：将想法付诸实践的能力
+顶轮|<img src="https://s2.loli.net/2023/08/03/imILDfb7nc1oqNp.png"  style="zoom: 50%;" />|紫色|Sahasrara<br>空|OM|972|百会穴|松果体、上脑、右眼||7：将人格与生命及人类的灵性面整合
+眉心轮/额轮/三眼轮|<img src="https://s2.loli.net/2023/08/03/unlr8VNa7skRYyU.png"  style="zoom: 50%;" />|靛青|Ajna<br>觉知，指挥|AUM|96|两眉之间的正中心|脑垂体、下脑、左眼、耳、鼻、神经系统||6A：视觉化的能力、对心智概念的理解<br>6B：将想法付诸实践的能力
 喉轮|<img src="https://s2.loli.net/2023/08/03/3gnTAxuRemGLa1b.png"  style="zoom: 50%;" />|蓝色|Visuddha<br>净化|HAM|16|喉咙的凹陷处|甲状腺、支气管、发声系统、肺、消化道|沟通的中枢|5A：吸收与同化知识<br>5B：在社会里的自我意识和个人职业
 心轮|<img src="https://s2.loli.net/2023/08/03/pKxAd6wefMFE3Ot.png"  style="zoom: 50%;" />|绿色|Anahata<br>两物没有碰撞却发出声音，不受打击、不受伤|YAM|12|胸部的中心|胸腺、心脏、血液、交感神经、循环系统|爱的中心|4A：对他人的内心之爱、对生命的敞开度<br>4B：小我的意志、朝向外在的意志
-脐轮/太阳轮/太阳神经丛|<img src="https://s2.loli.net/2023/08/03/8VxE49muAtMdOrz.png"  style="zoom: 50%;" />|黄色|Manipura<br>宝石所在地|RAM|10|胸骨正下方，胃的中部|胰腺、胃、肝、胆、神经系统|情绪生活、新陈代谢|3A：快乐与广阔、灵性智慧、对生命的普适性以及你在宇宙中是谁的认知<br>3B：疗愈及朝向健康的意愿
+太阳轮/脐轮/太阳神经丛|<img src="https://s2.loli.net/2023/08/03/8VxE49muAtMdOrz.png"  style="zoom: 50%;" />|黄色|Manipura<br>宝石所在地|RAM|10|胸骨正下方，胃的中部|胰腺、胃、肝、胆、神经系统|力量中心、情绪生活、新陈代谢|3A：快乐与广阔、灵性智慧、对生命的普适性以及你在宇宙中是谁的认知<br>3B：疗愈及朝向健康的意愿
 腹轮/生殖轮/性轮|<img src="https://s2.loli.net/2023/08/03/BtKNEOD3XzP9klo.png"  style="zoom: 50%;" />|橙色|Svadhisthana<br>自己的住所，品尝甘甜、快乐|VAM|6|肚脐下约一个手掌距离|耻骨中心、骶骨中心<br>生殖腺、性腺、生殖系统|情绪、感觉、欢乐、行动和滋养|2A：对异性之爱的品质、心理与灵性、给予与接受的快乐<br>2B：性能量的品质
 海底轮/根轮|<img src="https://s2.loli.net/2023/08/03/BVZ3f9CvclmaYJU.png"  style="zoom: 50%;" />|红色|Muladhara<br>根部的支持|LAM|4|会阴|尾骨中心<br>肾上腺、脊柱、双肾|肉体的存在与需求<br>维持生存的基本需求<br>能量的门户|1：物质能量的多少、活着的意志
 
@@ -344,7 +344,7 @@ RNA是细胞之间的一种通信介质，它允许细胞的正确定位，以�
 
 正方形的中心 ，是种子音LAM的象征，据说此音包涵了海底轮的精华。把这个图形摘出来，就是下面的样子。
 
-<img src="https://s2.loli.net/2023/08/03/E1ifMsvwuDehYjr.png"  style="zoom: 25%;" />
+<img src="https://s2.loli.net/2023/08/03/heg2c3zYLJrFVjQ.png"  style="zoom: 7%;" />
 
 进行海底轮冥想时，可以把上述图像和声音运用起来。《脉轮全书》里有这种冥想练习，大家可以试试。
 
@@ -467,7 +467,7 @@ RNA是细胞之间的一种通信介质，它允许细胞的正确定位，以�
 
 在圆圈中心的符号，就是第二脉轮的种子音VAM，摘出来就是下图这样。念诵这个咒语可以打开创造力和灵感的内在源泉。
 
-<img src="https://s2.loli.net/2023/08/03/qi7hYIVKsTDHlB3.png"  style="zoom: 25%;" />
+<img src="https://s2.loli.net/2023/08/03/1HLoSsh4gvuaWYf.png"  style="zoom: 7%;" />
 
 #### 腹轮的位置
 
@@ -614,7 +614,19 @@ RNA是细胞之间的一种通信介质，它允许细胞的正确定位，以�
 
 #### 太阳轮的符号
 
+第三脉轮太阳轮，也叫太阳神经丛轮（Solar Plexus Chakra），梵文名是Manipura，意思是“宝石所在地”。因为它像太阳一样闪烁着光辉，是一个发光发热的能量中心，也是一般所称的“力量中心”。
+
 ![0-1579527481.jpeg](https://s2.loli.net/2023/08/03/u3za4ck5Zh7FteQ.jpg)
+
+就像太阳神经丛这个名字所暗示的，这是一个燃烧的、太阳般的脉轮，带给我们光、温暖、能量。这片区域从胸部下方一直延伸到肚脐，因此有时也被叫作“脐轮” (Navel Chakra) 。
+
+第三脉轮的颜色是黄色，象征符号是十瓣莲花，里面有个倒三角形。
+
+脉轮是由次级结构组成的，次级结构就是小旋涡。第一脉轮只有四个小旋涡，所以形象化为四瓣的莲花。第二脉轮由六个小旋涡组成，是六瓣的莲花。第三脉轮的十瓣莲花，由十个小旋涡组成。不过按照布蓝能的说法，第三脉轮是由八个能量锥，也就是八个小旋涡组成。
+
+倒三角形里面的符号，就是第二脉轮的种子音RAM（/ram/），摘出来就是下图这样。
+
+<img src="https://s2.loli.net/2023/08/03/ftWrBlgpoZ2Ie8j.png"  style="zoom: 7%;" />
 
 #### 太阳轮的位置
 
@@ -633,6 +645,8 @@ RNA是细胞之间的一种通信介质，它允许细胞的正确定位，以�
 
 ![0-1579782460.jpeg](https://s2.loli.net/2023/08/03/5jVG4xKXNOwpZ7F.jpg)
 
+<img src="https://s2.loli.net/2023/08/03/EHuZiRcTpaIfKP7.png"  style="zoom: 7%;" />
+
 #### 心轮的位置
 
 #### 心轮的功能
@@ -649,6 +663,8 @@ RNA是细胞之间的一种通信介质，它允许细胞的正确定位，以�
 #### 喉轮的符号
 
 ![1-1580911023.jpeg](https://s2.loli.net/2023/08/03/GSgIHhdwqY3Ert8.jpg)
+
+<img src="https://s2.loli.net/2023/08/03/Uz4w2CNGO1bIflD.png"  style="zoom: 7%;" />
 
 #### 喉轮的位置
 
@@ -667,6 +683,8 @@ RNA是细胞之间的一种通信介质，它允许细胞的正确定位，以�
 
 ![4-1581427744.jpeg](https://s2.loli.net/2023/08/03/mDzWjEiMLfkGqCv.jpg)
 
+<img src="https://s2.loli.net/2023/08/03/b56r9ZsYvM7gupj.png"  style="zoom: 7%;" />
+
 #### 眉心轮的位置
 
 #### 眉心轮的功能
@@ -683,6 +701,8 @@ RNA是细胞之间的一种通信介质，它允许细胞的正确定位，以�
 #### 顶轮的符号
 
 ![9-1582194826.jpeg](https://s2.loli.net/2023/08/03/2UIu73hPEoYMOfT.jpg)
+
+<img src="https://s2.loli.net/2023/08/03/v8CxZIDhWV3ezUQ.png"  style="zoom: 7%;" />
 
 #### 顶轮的位置
 
