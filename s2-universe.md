@@ -21,9 +21,11 @@
 
 - **相位角**（Phase Angle）：**相位**存在于周期性现象的描述中，常用正弦函数表示周期性，其横轴X可以看成某种位置，就叫相位。可以用360°来表示一个周期，**相位角**是用角度表示的相位。相位是存在于周期性现象中的，对于时钟，相位就是时针的位置，北京时间和伦敦时间就有一个固定的**相位差**。
 
-![](https://s2.loli.net/2023/07/03/CQkueAfXB7ES1s5.png)
+<img src="https://s2.loli.net/2023/07/03/CQkueAfXB7ES1s5.png"  style="zoom: 50%;" />
 
-![](https://s2.loli.net/2023/07/03/kFenTQ352W69Cab.png)
+<br><br>
+
+<img src="https://s2.loli.net/2023/07/03/kFenTQ352W69Cab.png"  style="zoom: 50%;" />
 
 ![](https://s2.loli.net/2023/07/04/ablB31HqJFtZN4S.png)
 
