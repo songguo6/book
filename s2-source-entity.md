@@ -25,7 +25,9 @@
 
 起源和源实体示意图：
 
-![](https://s2.loli.net/2023/07/16/wbfdsWCSjQRG7lv.png)
+<!-- ![](https://s2.loli.net/2023/07/16/wbfdsWCSjQRG7lv.png) -->
+
+![](img/s2-001.png)
 
 起源的自我意识区域和12个源实体的位置：
 
