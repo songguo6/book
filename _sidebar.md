@@ -11,8 +11,8 @@
   * [源实体](s2-source-entity.md)
   * [多维宇宙](s2-universe.md)
   * [存有](s2-beings.md)
+  * [转世轮回](s2-samsara.md)
   * [载具](s2-carrier.md)
-  * [轮回转世](s2-samsara.md)
   * [地球Online](s2-earth-game.md)
 
 * 领悟
