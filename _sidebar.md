@@ -30,4 +30,5 @@
 * 经典
 
   * [书籍推荐](s5-books.md)
+  - [Guy Books](s5-guy.md)
 
