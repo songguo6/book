@@ -1,6 +1,6 @@
-## The World Satsanga: The First Ten Years Book 1
+![](img/s6-001.png)
 
-![](img/s5-002.png)
+**使用[DeepL](https://www.deepl.com/)翻译**
 
 **The World Satsanga: The First Ten Years Book 1** 
 
@@ -8,21 +8,13 @@
 
 **Transcribed, Compiled and Edited By Ulla Sarmiento**
 
-> Copyright © 2023 by Guy Steven Needler All rights reserved. No part of this book, in part or in whole, may be reproduced, transmitted or utilized in any form or by any means, electronic or mechanical without permission in writing from the Author except for brief quotations embodied in literary articles and reviews. 
->
-> Cover Designed by Celia Austen-Potts 
->
-> The base image is one of her paintings, which she remastered digitally and enhanced. The images, across the books, signify going from darkness and confusion into the light, clarity and complexity as one progresses through them.
->
-> ISBN: 9798393790325
+---
 
-With thanks and gratitude to the following people: 
+世界萨桑加：前十年 第 1 册
 
-The World Satsanga participants for their never ending stream of questions and dedication to knowing more about the Greater Reality. They are an inspiration. 
+大现实讲座 作者：盖伊-史蒂文-尼德勒
 
-Ulla Sarmiento for her dedicated focus on disseminating higher levels of knowledge and transcribing, compiling and editing the World Satsanga content over the last ten years, without which, these books would not be possible. 
-
-Celia Austen-Potts for her patience, inspiration, assistance and inexhaustible ability to keep me grounded!
+转录、编译和编辑：乌拉-萨米恩托
 
 ### Table of Contents 
 
@@ -73,6 +65,58 @@ Celia Austen-Potts for her patience, inspiration, assistance and inexhaustible a
 - The Needler Lexicon 
 - About the Author
 
+---
+
+### 目录 
+
+- 大现实简介 
+- 来世 
+- 外星人 
+- 无定形 
+- 天使 
+- 人工智能 
+- 升天 
+- 星界实体 
+- 回填人 
+- 脉轮与能量模板 
+- 气候变化 
+- 阴谋论 
+- 十二人理事会 
+- 馆长 
+- 疾病状况 
+- 梦境 
+- 事件空间（平行） 
+- 向导 
+- 化身 
+- 因果报应 
+- 生命计划 
+- 生命实体 
+- 化身 
+- 大师 
+- 冥想 
+- 形而上学教义 
+- 多元宇宙 
+- 多元宇宙循环 
+- OM 
+- 起源 
+- 物理与精神科学 
+- 物理宇宙 
+- 精神疗法
+- 圣地与金字塔 
+- 自我实现与神的实现 
+- 地球上的有情物种 
+- 灵魂之座与自我 
+- 终点（出口） 
+- 恐怖主义与社会崩溃 
+- 真正的能量自我（TES） 
+- 走进来的灵魂 
+- 白种儿童 
+- 世界周期
+- 后记 
+- 尼德勒词典 
+- 关于作者
+
+
 ### Foreword 
 
 When The History of God was first published, a reader contacted me and expressed an interest in a dialogue. This dialogue continued for some time and resulted in two things. One; a monthly meeting where my readers, or people of like mind, could gain answers to questions not answered in The History of God. And two; me travelling to New Mexico in 2012 and holding a Traversing the Frequencies (TTF) workshop. I was subsequently invited back over the next couple of years and enjoyed the interest in the greater reality. It was at one of these workshops that I met a remarkable lady who was later to become a spiritual/ metaphysical influence in her own right. Her name was Ulla Sarmiento. 
@@ -108,6 +152,44 @@ THANK YOU ULLA FOR BEING HERE ON THIS PLANET AT THIS POINT IN MY EXISTENCE
 Guy Steven Needler 
 
 2nd November 2022
+
+---
+
+### 前言 
+
+《源头简史》刚出版时，一位读者与我联系，表示有兴趣与我对话。这种对话持续了一段时间，产生了两件事。其一，每月举行一次聚会，让我的读者或志同道合的人能够解答《源头简史》中没有回答的问题。其二，我于 2012 年前往新墨西哥州，举办了 "穿越频率（TTF）"研讨会。在接下来的几年里，我再次受邀前往，并对更大的现实产生了浓厚的兴趣。正是在其中的一次研讨会上，我遇到了一位了不起的女士，她后来成为了一位具有精神/形而上学影响力的人物。她的名字叫乌拉-萨米恩托（Ulla Sarmiento）。
+
+每月一次的会议被称为 "世界萨桑加"，通过 Skype 现场直播。每月有 12 到 25 人（Skype 允许的最大人数）参加。会议形式是由我进行演讲，然后进行问答，最后进行会议结束冥想。问题的答案由我 "当场 "传授。Satsanga 将被录制下来，并通过电子邮件提供给与会者或感兴趣的人。我还会在我的网站上发布博客。乌拉是一名常客。
+
+Satsanga 是一个梵语术语，源于两个词根：sat 意为 "真实"，sangha 意为 "社区、公司或协会"。还有许多其他解释，如 Satsang 或 Satsanga 是指与 Satguru（宗教或精神导师）会面，接受宗教指导。它也可以指起源于印度的其他精神运动。不过，"在真理中相聚 "的感觉最能引起我的共鸣。因此，在我心中，"世界胜会 "意味着 "在真理中相聚的世界"。
+
+多年来，"世界胜会 "不断变化，包括预先录制问题和答案，并在传送之前通过电子邮件发送给我。不过，最近它已经稳定下来，变成了预先录制的讲座和冥想，问题和答案通过 Zoom 现场直播。最后的录音将所有内容编辑成一个文件，并在 YouTube 上播放。
+
+2016 年期间，乌拉宣布她将萨班加转录下来供自己参考，并问我是否愿意每月将转录内容与视频/音频文件一起传送。我们都认为这对那些有听力障碍或不太 "联网 "的人来说再好不过了，他们联网的朋友可以打印出来分发。我们认为这是一个完美的解决方案，因此每个月的转录量都很大。
+
+顺便说一句，转录是一项艰苦的工作！
+
+多年来，"世界萨桑加 "广播的参加者或读者/听众会向我提出一些建议，说如果能就其中一些主题写一本书就好了。我会说 "是的"，然后就完全忘了这件事，因为我正沉迷于写我的新书。然而，这种可能性，或者说 "活动空间"，并没有消失。
+
+2021 年，"世界萨班加 "十岁了，乌拉给我发来电子邮件，说她看到同样的问题被提出，同样的答案被重复。在此之前，如果提出同样的问题，我就会传达新的信息。由于 2022 年 1 月将改变形式，恢复现场视频问答，因此我们决定结束转录，因为我的网站上仍有转录，供想要阅读的人使用。
+
+2021 年底，灵感或活动空间突然出现在我们的视野中。是的！我们应该把萨班加会上的演讲、问题和答案写成一本书。现在正是时候。我迅速给乌拉发了电子邮件，她立刻同意这是个好主意。但是，她只抄录了 2016 年以后的萨班加！我有早期的录音吗？我注意到，为了节省网站空间，一些早期录音被删除了，因此我突然有些担心。不过幸运的是，我已经将它们存档，我们有一套完整的录音。
+
+在此期间，乌拉搬了家，搬了国！在开始大量转录早期录音并开始编纂文本之前，她需要整理自己的出版物和网站。当乌拉有空的时候，我们决定最好先做问答，看看这项任务有多大，然后再看讲座。结果，问题和答案需要两本 "大 "书。关于讲义的这本书是一本快速跟进的书，但经过大量编辑，主要是由于多年来讲义主题的重复，我们认为可以编入一本书中。
+
+尽管问答集是先完成的，但我们还是决定，按照世界萨班加的形式，讲座应放在首位，问答集放在第二和第三位，因此这是第一册！
+
+这第一本书是按照 "主题字母顺序 "编纂的，每个主题的讲座材料都放在同一章节，以方便索引和阅读。请注意，如果在同一主题的讲座中播出了补充材料或新材料，那么这些材料也会被收录进来，使其成为一个讲座。
+
+毫无疑问，如果没有乌拉-萨米恩托的帮助、兴趣、动力、直觉、奉献、鼓励、友谊和非常艰苦的工作，第一本《世界萨桑加》和随后的书籍就不会问世。
+
+事实上，没有她，这个特殊的 "活动空间 "也不会存在！亲爱的读者，这一点值得深思！
+
+感谢乌拉，感谢她在我存在的这个时刻来到这个星球上 
+
+盖伊-史蒂文-尼德勒 
+
+2022 年 11 月 2 日
 
 ### Introduction to the Greater Reality 
 
@@ -741,115 +823,3 @@ Origin - The creator of the 12 Source Entities who exist within The Origin, the 
 ### About the Author
 
 Guy Needler MBA, MSc, CEng, MIET, FCMA initially trained as a mechanical engineer and quickly progressed on to be a chartered electrical and electronics engineer. However, throughout this earthly training he was always aware of the greater reality being around him, catching glimpses of the worlds of spirit. This resulted in a period from his teenage to early twenties where he reveled in the spiritual texts of the day and meditated intensively. Being subsequently told by his guides to focus on his earthly contribution for a period he scaled back the intensity of spiritual work until his late thirties where he was re-awakened to his spiritual roles. The next six years saw him gaining his Reiki Master and a four year commitment to learn energy and vibrational therapy techniques from a direct student of the Barbara Brennan School of HealingTM, which also included a personal development undertaking (including psychotherapy). Along with his healing abilities his spiritual associations include being able to channel information from spirit including constant contact with other entities within our multiverse and his higher self and guides. It is the channeling that resulted in his first book, The History of God, followed by Beyond the Source-Books 1& 2, Avoiding Karma, The Origin Speaks, The Anne Dialogues, The Curators, Psycho-Spiritual Healing and The Om— The Uncreated Creations and further work in progress. As a method of grounding Guy practices and teaches Aikido. He is a 6th Dan National Coach with over 40 years experience and is currently working on the use of spiritual energy within the physical side of the art. Guy welcomes questions on the subject of spiritual physics and who and what God is.
-
-
-## The World Satsanga: The First Ten Years Book 2
-
-![](img/s5-003.png)
-
-The World Satsanga: The First Ten Years Book 2 
-
-Questions and Channeled Answers on the Greater Reality By Guy Steven Needler 
-
-Transcribed, Compiled and Edited By Ulla Sarmiento
-
-> Copyright © 2023 by Guy Steven Needler All rights reserved. No part of this book, in part or in whole, may be reproduced, transmitted or utilized in any form or by any means, electronic or mechanical without permission in writing from the Author except for brief quotations embodied in literary articles and reviews. Cover Designed by Celia Austen-Potts The base image is one of her paintings, which she remastered digitally and enhanced. The images, across the books, signify going from darkness and confusion into the light, clarity and complexity as one progresses through them. ISBN: 9798393840099
-
-### Table of Contents 
-
-- Abortion and Miscarriage 
-- Addiction 
-- ADD/ ADHD 
-- Afterlife 
-- Aliens 
-- Amorphous 
-- Angels 
-- Animal Entities 
-- Artificial Intelligence 
-- Ascension 
-- Astral Entities 
-- Autism Spectrum 
-- Backfill People 
-- Bipolarism 
-- Chakras and Energetic Templates 
-- Channeling 
-- Climate Change 
-- Conspiracy Theories 
-- Council of Twelve 
-- Curators (Maintenance Entities) 
-- Disease Conditions 
-- Dreams 
-- Event Space (Parallelism) 
-- Evolutionary Content 
-- Free Will 
-- Guides 
-- Holographic Space 
-- Incarnation 
-- Interdimensional Travel 
-- Karma 
-- Life Plan 
-- Life Review 
-- Living Entity 
-- Manifestation 
-- Masters 
-- Afterword 
-- The Needler Lexicon 
-- About the Author 
-
-With thanks and gratitude to the following people: 
-
-The World Satsanga participants for their never ending stream of questions and dedication to knowing more about the Greater Reality. They are an inspiration. 
-
-Ulla Sarmiento for her dedicated focus on disseminating higher levels of knowledge and transcribing, compiling and editing the World Satsanga content over the last ten years, without which, these books would not be possible. 
-
-Celia Austen-Potts for her patience, inspiration, assistance and inexhaustible ability to keep me grounded!
-
-
-
-
-
-## The World Satsanga: The First Ten Years Book 3
-
-![](img/s5-004.png)
-
-The World Satsanga: The First Ten Years Book 3 
-
-Questions and Channelled Answers on the Greater Reality By Guy Steven Needler 
-
-Transcribed, Compiled and Edited By Ulla Sarmiento
-
-> Copyright © 2023 by Guy Steven Needler All rights reserved. No part of this book, in part or in whole, may be reproduced, transmitted or utilized in any form or by any means, electronic or mechanical without permission in writing from the Author except for brief quotations embodied in literary articles and reviews. Cover Designed by Celia Austen-Potts The base image is one of her paintings, which she remastered digitally and enhanced. The images, across the books, signify going from darkness and confusion into the light, clarity and complexity as one progresses through them. ISBN: 9798393841768
-
-### Table of Contents 
-
-- Meditation 
-- Metaphysical Teachings 
-- Mineral Entities 
-- Multiverse 
-- Multiverse Cycle 
-- Nuclear War 
-- Om Beings 
-- Origin 
-- Pandemic 
-- Physical and Spiritual Science 
-- Physical Universe 
-- Plant Entities 
-- Psycho-Spiritual Healing 
-- Sacred Sites and Pyramids 
-- Self-Realization vs. God Realization 
-- Sentient Species on Earth 
-- Soul Seat vs. Ego 
-- Source Entities 
-- Suicide 
-- Termination Junctures (Exit Points) 
-- Terrorism and Societal Breakdown 
-- Time (Event Space) 
-- True Energetic Self (TES) 
-- Universal Laws 
-- Walk-In Souls 
-- White Children 
-- World Cycle 
-- Afterword 
-- The Needler Lexicon 
-- About the Author
-
