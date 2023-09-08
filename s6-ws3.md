@@ -1,6 +1,6 @@
 ![](img/s6-003.png)
 
-**使用[DeepL](https://www.deepl.com/)翻译**
+**基于[DeepL](https://www.deepl.com/)翻译**
 
 The World Satsanga: The First Ten Years Book 3 
 

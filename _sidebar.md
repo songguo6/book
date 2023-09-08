@@ -26,6 +26,7 @@
   * [解梦案例](s4-dream-explain.md)
   * [穿越频率](s4-ttf.md)
   * [疗愈](s4-heal.md)
+  * [咒语](s4-mantra.md)
 
 * 经典
 
