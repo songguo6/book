@@ -16,6 +16,8 @@
 
 #### 秽迹金刚咒（大力威怒金刚乌刍使摩秽迹明王陀罗尼）
 
+持咒之前发大愿：南无本师释迦牟尼佛，于如来灭后，受持此咒，誓度众生，令佛法不灭，久住于世。
+
 ##### 梵语发音
 
 **Om bhihau-guru maha-bara hun-nahu bucibu himani vikivi ma-nase**       
