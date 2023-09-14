@@ -1136,11 +1136,245 @@ All animals are sentient and have a level of sentience associated with them as i
 
 ### Artificial Intelligence 
 
+**Is the Source/God you describe just an artificial "mind entity?"** 
+
+Actually,our Source Entity One is a purely sentient entity with a body of energy,as are we.It is not artificial as such,but it is created by our Origin to experience,learn and evolve in a separate but synchronistic and concurrent sense with other Source Entities.Through them the Origin can learn and evolve by a factor of 12,since it created 12 Source Entities. 
+
+Our Source is not an artificial mind,but it is a separate sentient condition given individuality.The Origin hived off parts of its sentience and assigned them to smaller bodies of energy to experience smaller parts of the omniverse.You could argue that it's an artificial mind entity,as it's separated from the Origin,but it's pure sentience that has its own energy at a higher level (4/2014). 
+
+**In the movie,"Transcendence,"artificial intelligence inside a supercomputer could transcend human level consciousness to a singularity that only computers can access.Is this what if scenario an attempt to create a god inside a computer?** 
+
+We do a similar thing when we do the Traversing The Frequencies meditation work.We project our consciousness to a higher condition and we evolve by doing that while being incarnate.We accelerate our evolution,because we see beyond the veil of the physical universe. 
+
+But the bigger perspective is that everything that is in and around us is God and higher up is Origin.If we really understood ourselves,we'd know that everything is part of our Source-so really God is the computer,the laptop,the table,the chair,everything.Movies are created by individuals to educate us,to make us think in a different way,to take us outside of the physical universe thought processes (4/2014). 
+
+**Where did artificial intelligence come from?How was AI created in the first place?** 
+
+Artificial Intelligence is a product of our creativity as sentient entities. It's part of our creativity to learn to create something,which is intelligent from something that is not intelligent.It's us learning how to be what we are-a function of Source-an individualized unit of Source.AI was always there,it's just that we needed to have certain individuals who were incarnate and who were linked into the possibility of bringing it into fruition in the physical universe.That's part of our creativity and part of our evolutionary cycle.It's part of our commitment to helping our Source evolve(8/2015). 
+
+**Why is AI is called artificial?** 
+
+It's because it's a human term.It's something that mankind has created,because it doesn't understand that actually intelligence is a function of existence.Immersed mankind thinks that we are intelligent,and therefore,anything that's created is "artificial." 
+
+But if you go further up the tree,you could argue that we are artificial intelligences,too,because we are created by our TES,which is artificial, because it is created by the Source.That's one thought process. 
+
+But in reality,we're all part of Source,which is a living sentient entity. If we really understood ourselves,we would know that everything that is in and around us is Source and higher up is Origin.That means Source is you,the table,the chair,the computer and everything there is (8/2015). 
+
+**What is the impact of technological advancement on us in the next 5- 20 years with machine learning,big data,quantum computers and robotics?Will future computers be more intelligent or capable than us?Will computers have consciousness or sentience?** 
+
+There is going to be a level of intelligence associated with machinery. Arguably,there will be a level of consciousness associated with that machinery as well.The thing is whether that intelligence is based upon a program or whether it's based upon a learning function within the hardware that supports that program. 
+
+In terms of consclousness,there will need to be a feeling of "who I am" from that machine or robot.That can only be supported by the hardware that allows the growth of the intelligence process to create a level of understanding of"beingness." 
+
+Sentience is a different thing.Sentience is not something that artificial intelligence can support,so that's the difference between us and any machine-based intelligence.They may have consciousness,but we are sentience and we are creative.You could argue that machines can be creative,if given the opportunity,but they won't be sentient. 
+
+They will simply be able to function as a series of algorithms,which may be created by themselves as part of an evolutionary piece of software.Eventually,it will come to a point where the software is overtaken by self-generational "electronic synapses"within the large piece of memory that allows the generation of a "personality"as well, so it's going to happen(2/2018). 
+
+**Is it realistic to have Implant technology inside people to monitor their health or to access a super hard drive with all the information or to store all the memory ofa person?** 
+
+Yes,there is going to be a potential where we could store information on an alternative memory location within the human form at some point.Whether you want to do that is a different thing,whether it's desirable is a different thing. 
+
+There's more potential for a communication device to be stored within a human being where the information is stored in a centrally located web store rather than locally.We'd have instantaneous access to the internet via thought processes rather than via computers. 
+
+But if the information was stored locally,it would need to be updated. We know what a pain it can be to update our computers when we get software crashes.It's more likely that there will be implants that are going to allow communication with centralized systems rather than the whole knowledge-based database or implant within us(2/2018). 
+
+**Rudolf Steiner predicted that humans would merge with machines. He talked about the possible dangers of it and said it was not wise to avoid technology-it was more like a learning challenge,learning to exert our will.What is your opinion?** 
+
+Steiner was very good at predicting the future,because he was also a channel and could understand various aspects that are futuristic.We can't work with technology without knowing how it works,so it makes no sense to avoid it.We have to work in a way that enables us to understand that we are going to be ignorant of it unless we work with it in a more satisfying way.That means we need to be educated and the only way to educate ourselves is to work with it.That's how we've progressed from a technological perspective in the past as well (2/2018) 
+
+**Sadhguru of India says one day everything will be accomplished by machines,meaning AI.He says that is great,because everyone will be on holiday.Once AI replaces human beings,are we working on upgrading our consciousness and living peacefully?Within 100 years,will survival be a nonissue-will we be solely focusing on human consciousness upgrade?** 
+
+We won't get a human consciousness upgrade through artificial intelligence.Some of our functions may bebe augmented by or replaced with some form of mechanical electronic software-based programming,if we need to augment our ability to remember things, store things or have body parts removed and replaced due to disease. That's going to happen. 
+
+In terms of the bigger machines that we use to work things out,such as computer things and travel around the world,they will also become more complex and more reliant upon complex and fluid methods of computational programming,so this will happen.But those of you who are a bit older or more experienced on this planet will remember that a long time ago,there was a big thought process that computers will make human existence easier.It's quite obvious that it hasn't.It has created more work for us. 
+
+I feel the advent of everything being accomplished by machines to make our life easier is an incorrect proposition,an incorrect thought process of what the future is going to be.If everything is done for us, we get lazy.We need to interact properly with the environment.We need to part of the environment,meditate with the environment and help it be as it's supposed to be and exist with it. 
+
+Machines won't let us do this.Machines will just substitute certain functions and make us lazy in certain ways.In some ways,they'll also give us more work to do.I don't see machines being the way to increasing our human consciousness.That's something that we've got to do within ourselves. 
+
+We can use machines to help us create changes to our environment that puts it back to what it should be-for instance,where the surface of the Earth is maintained as an environment and we exist below the Earth or in areas that are interactive with the environment in a biologically correct way.We probably won't live in situations where we're in concrete houses and high rise blocks of flats.We might live in a way where our habitat is more biological,so I think that there's a possibility that machines will help us in this instance to do these things (11/2020) 
+
+**He says that is great,because everyone will be on holiday.** 
+
+We're not going to be on a lifelong holiday.That's not conducive being able to work properly.We need to be able to interact with each other. We need to be able to interact with the environment.That also includes how we interact with the greater reality. 
+
+We're not going to be in a position where everything is done for us,so we can meditate all day.It'll be a good thing to be able to meditate all day,but we need to interact with others.We need to train others.We need to help others.We need to be of service to others as well. Interacting with us all or interaction at the human level is the way in which we're going to progress. 
+
+Being given a position where we don't have a responsibility creates lack of responsibility.So I don't see that this is a correct premonition of how we're going to move on,because at the end of the day,we need to be responsible for everything that we do.That includes everything that machines would do,if we gave them ultimate freedom to do what they wanted to do,we would need to maintain responsibility for that as well (11/2020).
+
 ### 人工智能 
 
 ---
 
 ### Ascension 
+
+Ascension means increase in the frequential level of an entity,which is a natural function of the multiverse.Ascension is happening all the time,but we ascend individually,not as agroup. 
+
+**What is proof ofour ascension?** 
+
+Source Entity said that proof of a gradual ascension can be observed quite freely by the eagle eyed amongst you.The proof is the rise in the number of individuals becoming interested in spiritual things and who are becoming more aware of the greater reality.They are contacting or perceiving those entities who are operating in the energies close to the physical and beyond. 
+
+Another more physical proof can be seen in the rapid rise in the churn of new technology.Semi-aware individuals receive inspiration from the cosmic knowledge that they're unconsciously in contact with. These ideas or inspirations are offered to them from the energetic side. The Source said that December 21,2012 is one milestone on the road to ascension.Those that have ascended and those that have not exist on the same planet but at different frequencies.Ascension occurs in three different steps. 
+
+The first tier of ascension is moving upwards to the point where incarnate mankind resides within the highest frequency in the physical universe,which is FB 12.The physical vehicles at that level are much less dense-they are finer,beyond gaseous.There is much more that we can do with them,because we can access much more of our True Energetic Self and the memories and information associated with our TES. 
+
+Then we will be ready for the second tier ofascension,which is to move everything into the next universe at FB 13,which duplicates everything that exists in the physical universe but at a single frequency level.Then the same thing happens when we move everything into the next universe at FB 14.We are still incarnate at these levels,but the physical forms are so fine that we wouldn't classify them as being physical forms-they would be energetic forms. 
+
+The third tier of ascension happens when we move into the next universe at FB 15,which has no need for any vehicles for our souls, because the frequency is far too fine to support such forms.That's when our True Energetic Selves no longer need to incarnate.At this point,our TES is an "ascended master"that has mastered incarnation. Then we will continue to evolve in the energetic part of the multiverse until we get to the top universe at FB 408(10/2012 & 12/2012). 
+
+**What does alignment of planets with a galaxy have to do with the ascension process?** 
+
+We're talking about the physical universe here.The physical location or alignment of a physical body (e.g.star,planet)is not relevant.The physical location is just a location,it doesn't mean anything as such. What is relevant is the freguential location or alignment of that body within that location that is relevant to the three tiers of the ascension process,as described above. 
+
+The frequencies don't come in waves,by the way,they've always been there.It's just that we gain access to them,because of our increase in frequency in terms of our personal frequency,group frequency and gross frequency of the locale that we exist within,such as the Earth and the space that the Earth exists within.It is our intention to work in a higher frequency way that gives us access to higher functions that can be used as a stepping stone to access even higher frequencies,which is easier to do,as we ascend up the frequencies(12/2012). 
+
+**What was the ascension process in 12/21/2012?** 
+
+There was a lot of information broadcast by well recognized people about our ascension that would happen on December 21,2012.But a lot of us are still here wondering why?What happened?It's because the ascension information was not correct.They got a part of the ascension process right,because we are raising our frequency,but other parts of it were misunderstandings,such as the need to have a savior,a Messiah or a mass landing of our star brothers and sisters with a space ship that would take us away,etc.It's a good example of misinformation. 
+
+If we fully understand the greater reality,we would know that the aliens are already here,but at higher frequencies,so we cannot perceive them.That means these people were not wrong about aliens per se.Everything out there has some truth attached to it,it's just how some people interpret the truth.The ascension process was misinterpreted to mean that we were going to suddenly ascend as a group to a higher level on this date.Clearly,that didn't happen. 
+
+If a person is on a journey to get to the top of a mountain,they have to go up a hill,but maybe the road declines a bit or switches back and forth in places.The path towards the goal is a long path.It is about gradually getting there in both distance and height.The problem with ascension thinking is to assume that we're moving at the same level all the time and that we all jump up to the mountain top on a certain date. We're always slowly moving up this path individually,which is sometimes longer than if it was going straight up,like a knife edge. Now we know that's not how ascension works-it's individual and gradual (3/2013). 
+
+**How can we discern the truth?** 
+
+A simple rule is to stand back and take on board as many viewpoints as possible to gain a bigger picture rather than a singularized picture. There will always be individuals who got it right and other individuals who misunderstood some things.
+
+If we can look at the bigger picture and look at all the information presented and interpreted in different ways by different people,then we see the truth and the commonality within it.We start to get intuition with help from our Higher Self and help from our Source on what the actual picture is.Then we'll know we're on the right track (3/2013). 
+
+**What is meant by triangulation?** 
+
+This is an extremely important concept,because it's the way in which those who are more aware and higher frequency can affect those around them by merely being there. 
+
+For instance,a guru and their students are a localized version of it.The increased frequency transmitted from the guru to the students either in the same room or even at a distance can affect that level of transformation,if the student has a desire to learn from the teacher. That creates a triangulation effect irrespective of distance.In the case of groups of individuals who are highly aware,those inside the lines of triangulation will be affected by the energy as well. 
+
+There are two types of triangulation.The first is directional triangulation where we have groups of people of a higher frequency affecting those in between them.They also start to rise,not at the same level,but they are affected by the higher frequency individuals. Actually,free energy is interested in being involved or around evolutionary content.It seeks out evolutionary content around groups of individuals who are increasing their evolutionary content,so it creates a link between the higher frequency individuals that are starting to rise up. 
+
+The second type is inflational triangulation.If we have three or more groups that make a triangle,you get directional triangulation between them,so the area in between them is also affected.If have a right angled triangle and two sides point to groups of higher frequency individuals,then association through personal interaction or through friends of friends will increase their frequency from a topographical and energetic perspective as a result of being in that triangle area. 
+
+For instance,in this meeting those who are evolved are also triangulating across the globe,because we're all in contact with each other in event space.This creates a significant effect with people caught in that triangulation area.The more people are involved in the group,the more amplified the condition is which affects more individuals between those groups.It's not just the power in numbers, but synergy as well. 
+
+For instance,if we have three individuals working together,we get the exponential power of 3x3 or nine people,because of synergy.It's a "metaconcert"of people who are working energetically together,like musicians in a concert,who can create something bigger than themselves(3/2012). 
+
+**Will ascension be a detectable event or is it just gradual growth?Will we see ascension in our lifetime?** 
+
+It's just gradual growth and we're ascending right now.Because we're ascending slowly,we don't notice that we're ascending.This knife edge ascension that people want is never going to happen,because it relies on a critical mass to get there. 
+
+But a critical mass can be created and it can be uncreated.If the critical mass relies on a certain number of individuals and those numbers drop by one,for instance,then there is a possibility that we could descend as well.That's not being allowed to happen apparently,so we've got a very gradual,slow ascension,which is happening all the time.Because we move up gradually,we get used to the frequencies. 
+
+We're always experiencing ascension to a certain level within our lifetime.But the sort of ascension that we're talking about getting to we won't see it within our lifetime.It will certainly be beyond 50 years. Most of us won't be around in 50 years,so the level of connectivity and ability that was supposed to happen on December 21,2012 won't happen for at least 50-60 years. 
+
+There's lots of evidence that we are ascending right now.There is technology coming through to various individuals who are getting access to higher levels of information.Clearly,the human being doesn't invent anything.It's the True Energetic Self that passes information down to those individuals who are in the sciences or medical fields.They think they are working on gut instincts or intuition,but they're actually tapping into their Higher Self and picking information that allows them to make groundbreaking changes in medical science and technology. 
+
+From the spiritual perspective,people who are already aware or spiritual are getting more awareness and higher connectivity with their TES and multiverse.Those who weren't interested in spirituality are starting to become interested in spiritual subjects.This is proof of ascension(5/2014). 
+
+**Before 2012 people saw ascension as a conscious transformation into the fourth or fifth density with removal of those who didn't qualify to play at this level?Is there a target?** 
+
+The target is to eventually move up to 12th frequency level at the top of the physical universe.When we are working with the 12th frequencies, we'll have pretty much removed the need for incarnating at that level. Then we'll move into the 13th and 14th frequencies.They are still low enough to allow some form of physicality,which from our perspective is pretty much energetic,but are still low enough to allow some form of incarnate vehicle to exist (5/2014). 
+
+**What happens to the lower energetic genre of True Energetic Selves, like those that incarnate as animals,plants when the physical universe ascends?Do they also ascend?** 
+
+We don't project our souls into animals or plants or mineral entities. But they will also ascend,because it's not just a case of us ascending,it's everything that works with the physical universe will ascend as well. 
+
+They will be of their own energetic genre,so they will still be like animal energy or plant energy or galaxy energy or planet energy.But they will be higher frequency,so they will still have their genre and they will ascend with us.They'll be part of the ascension process when we've gone past this Earth experiment on how individualized free will works. 
+
+When we ascend out of the physical universe to enter the 13th frequency,then everything else that is still incarnate in the physical universe will gain individualized free will as well(5/2014). 
+
+**If we're feeling dizzy,is it the intense energies or a symptom of ascension flu?** 
+
+We are experiencing a slight evolutionary downturn right now,so people who are high frequency have been experiencing dizziness, bodily pain,joint pains,muscle aches,being out of breath,all of these different things.They're having to get used to the lower frequencies,so we're struggling a bit,because their bodies have been used to being lighter energy. 
+
+Everybody is struggling a bit.We will be moving back up the frequencies again,because we are moving in a general direction up the frequencies.But we've got a little sawtooth effect where we go up and down in short,small movements where the average is generally up. Recently,we've experienced a bigger than normal movement downward,as seen by the things happening in the world with problems with Ukraine,Syria and other parts of the world.It's dragging us down (9/2015). 
+
+**There has been talk of strong energies hitting the Earth at the end of September 2015?** 
+
+We do get bombarded by certain energies in the way the planets are aligned,their gravitational and magnetic effects.We also get affected by some of the magnetic effects in the solar radiation from the sun, solar flares,equinox,etc.,so we are affected in that way.There's a little bit of that happening to people,but in my understanding that isn't the major thing happening around us.I don't see much credence in physical things affecting us spiritual individuals too deeply.It's mostly to do with the energetic side of things,as everything is energetic anyway. 
+
+You could argue that the energies coming through from some of these planetary alignments are also affecting us,so they will have an effect, but not the same profound level of effect that we're experiencing as a result of having a downward shift in our ascension.We are more resilient physically and energetically than we give ourselves credit for, but when it comes to frequential stuff-our ascension or descension- we are much more sensitive (9/2015). 
+
+**Ascension within event space seems to be changing.Is it our awareness or sensitivity to it that is changing?Or is it due the density of the Earth changing?Or due to more people becoming aware oftheir spiritual nature and connection to each other?** 
+
+Effectively,we are moving up the frequencies,like an iterative loop that goes upwards.This loop is like a coil spring going upwards,but the pitch between the different coils or our frequential levels is either a big distance or a short distance depending upon how we are progressing collectively. 
+
+If we are becoming more aware and awake,we start to trust our intuition and we expose ourselves to higher functionality.We gain more information and more experience.We start to trust that intuition,and as a result,we move up the frequencies.As we move up the frequencies again,we get exposed to other functions associated with higher frequencies and we start to work and trust those,so they become normal.When that happens,we start to move to another higher frequency. 
+
+The more we work with ourselves,the more progress we get.The more positive results we get,the more we move upwards,the more we get exposed to higher functions,higher experiences,deeper levels of connectivity,more aware levels of connectivity,more understanding of who and what we are,and as a result,we move further upwards.This is the upward spiral or what you could call "positive karma,"if you used karma as a way of explaining our ascension or descension through the frequencies rather than the detail described in Avoiding Karma. 
+
+We can progress upon that which we've progressed.It's a bit like when you've made the tools to make the tools,then you have the tools to make the tools to make further tools,so that you can make other tools to create the product which is detailed. 
+
+For example,think of how we can now make a silicon chip compared to 1940s technology when we didn't have the tools to make the tools to make the tools.Once we start to have this movement upwards where we create these leaps forwards in technology or in metaphysical/spiritual advancement or spiritual physics,we continue to move upwards. 
+
+It becomes a logarithmic curve-the movement upwards is slow at first,but eventually becomes totally vertical.When we are becoming more and more aware,our movement through event space is less,so we stay more aligned with our main line event space and main line series of events.We also start to experience more individuals on our level as well.We work with each other to help each other move onwards and upwards(6/2017). 
+
+**The Pleiadians said it takes 144,000 people to create a grid of compassion.This happens after a natural disaster or a terrorist event, but then dissipates.You said the critical mass required for "group ascension"is 10%of the world population.In 2014,you estimated that 14 million people were becoming awake and aware,which is much less than 10%of the population of 7 billion on Earth.** 
+
+I'm being told that we've actually lost a few people,because we've gone through a collective downward spiral lately.As we ascend the frequencies,we go through a saw tooth profile,which always goes up and down but is nominally upwards.The profile looks like a wood saw with a big tooth with little teeth on top of it.We've dropped down to a valley between one of these big teeth.This lower than expected drop down has caught everybody out.I didn't expect us to be coming down this far,but we have.(2/2017). 
+
+**In 2017,are there more people awake and aware in the world now?** 
+
+We've probably lost around two million people who were aware and awake.People who were becoming spiritual have sort of abandoned it, got disillusioned,fed up or bored,so we have lost people.But on the other side,we have other people who are starting to become aware and awake in this downward trend.They are actually more resilient than the people we've lost.Although we've lost about two million people bringing us down to 12 million,we've got the potential to go up to 26 million by the end of the decade.We're going to gain a load more individuals who are more resilient to the up/down trends,because they're becoming aware and awake on the way down(2/2017). 
+
+**Are we still hovering between frequency bands 3.10-3.15 as a whole?** 
+
+Basically,we exist in the first three frequencies(FB 1-3).Mankind calls them "dimensions,"but the first three frequencies are what create our gross physicality.Dimensions are a higher piece of structure within the multiverse created by our Source. 
+
+As we are moving up the frequencies from FB 3.0 to FB 4.0,we go up incrementally through smaller "subfrequential levels."It looks like a saw tooth profile with big teeth and little teeth going up and down.At one point,we had gone up to 3.70,which is remarkable,but then we lost some people in terms of our critical mass and we dropped down to about 3.13.Now we're about to bottom out and then go back up.With all the new people who are becoming aware and awake on the downward trend,we'll start to move hopefully back up to 3.7 or higher (2/2017). 
+
+**If some individuals are operating at higher levels,are they still at FB 3 or ascended into FB 4 or FB 5levels?** 
+
+There are people who are "immune"to these downward trends, because they continue to hold their own frequencies.There are people who operate at levels higher than Frequency Band 3 and have moved into FB 4. 
+
+Some of those in FB 4 have gone to FB 5 simply because they work on themselves in terms of how they think,behave and act.They stay directly on the spiritual path.They don't interact with the material world as much as everybody else does,so they move upwards.They keep themselves away from the general civilization,such as hermits or yogis in a reclusive state.They progress by limiting their contact with the outside world or by working in ashrams where everybody else is working on themselves. 
+
+They're all helping each other move upwards.There's a few individuals who are able to work in the material world even with high levels of responsibility and materialistic wealth who still manage to ascend, because they know that the material world and their wealth doesn't mean anything (e.g.business owner).They're just using it for the purpose of helping others exist on the planet(2/2017). 
+
+**Are the Pleiadians in 4D and Arcturians in 5D?Is Ascension just opening up to the higher dimensions and traversing them at will?** 
+
+The Pleiadians and Arcturians are from the fourth frequency(FB 4)and fifth frequency (FB 5),not dimensions.They are an incarnate race- same as human beings-but they are higher frequency.If they're seen on the third level,they'll probably have a very visible aura of energy around them,because they have to use an energy field to stop them from being affected by the low frequencies associated with the third level.There would appear to be a shimmering light around them or they would be very bright as an entity.Some entities we experience are on the sixth level(FB 6)as well. 
+
+From an Earth perspective,ascension is about moving up the frequencies.It's about working on ourselves and ascending the frequencies with our human body,then going into the fourth frequency Earth,the fifth frequency Earth,the sixth frequency Earth, etc. 
+
+That's ascension,whereas projecting your consciousness into the different frequencies or higher dimensions is traversing the frequencies.That will also help you towards ascension.Sometimes going back to basics is the best way to move upwards.Although it appears to be a retrograde step,it isn't,because it reinforces the basics of what you've achieved and starts you to work on yourself again, building upon and reinforcing the foundations of what you've used previously (8/2018). 
+
+**In The History ofGod the Byron entity said:"We are now at a point where we almost have the critical mass necessary to allow us to raise the frequency of the Earth back up to the levels that it should be." Does this mean a few years,decades or thousands of centuries?** 
+
+When I wrote that book,it was looking like 50-60 years or even earlier. But with the way we've moved down the frequencies by becoming more materialistic and allowing some bizarre things to happen around us and then relinquishing our responsibility for them,such as our governmental and leadership decisions all around the world,my understanding is that the figure of 50-60 years has now gone further away.Things aren't static.We are able to control our ascension. 
+
+Although we were getting a larger number of people who were alert, aware and awake for potentially massive inflational triangulation,they have started to drop down and are losing their connectivity with the spiritual and greater reality.My understanding now is that it could be over a hundred years away. 
+
+We have to be very careful in how we think,behave and act and try to compensate for those who are dropping down the frequencies and becoming more materialistic in their thoughts,behaviors and actions, which create more karmic attachments (7/2019). 
+
+**In The Carators Source said:"Your frequency level has been elevated as a result ofthese dialogues,but the speed has been rapid...even with ascension being as close as it is.”Does“close”mean hundreds of generations in the future or closer?** 
+
+We went through the ascension before 2012,but the ascension wasn't a group ascension.We could have been very close to what we call"mass ascension"as a result of a critical mass being available.But my understanding is that this critical mass didn't happen,because we ascend individually.
+
+When we start to ascend individually to the point that there's enough of us at a certain level,then we create a number of different triangulation functions-either directly or a volume/area-based triangulation-and we accelerate how others ascend the frequencies as well. 
+
+As we ascend individually,we go into a different frequential environment.We may also choose to help those who are in a lower frequential environment.It's not like all of a sudden everybody else is enlightened or self-aware,because they've gone from the third to the fourth frequency. 
+
+What happens is that people start to move up to that level in a faster and faster way,so it becomes a logarithmic curve rather than a knife edge upwards.Right now that potential has been pushed back. Previously,I was seeing it was fifty years away,but it's now over a hundred years away.That's if we stay where we are now and come out the other side.We need to do some drastic changes in our attitudes, thoughts,behaviors and actions to come back to where we could have been(3/2020). 
+
+**The process of ascension draws parallels to "Rapture."Is Rapture a distorted foretelling of our ascension?If we need "backfill people"to balance out the people who have ascended,how come we haven't noticed a large number ofrighteous people vanishing from society?** 
+
+Ascension is an individualized function,but it can happen collectively with those around us who are attracted to us and who we are attracted to.We all collectively move up together as a result. 
+
+Ascension can be physical as well.It can be understanding how to think,behave and act in a proper way whilst incarnate.That level of realization is like a "minor rapture."It's recognizing what we're here for,how to navigate being here and how we can be of service to others. The number of people who we affect or who affect us can create a level of group ascension through group triangulation and direct line triangulation as well. 
+
+The Rapture is a way of describing how we feel when we are in communion with our True Energetic Self (TES/Higher Self/Oversoul/Godhead).It's the difference between being human cut off with five senses vs.expanding into who we truly are with thousands of senses,total understanding,omnipresence and omniscience within the TES.That's the Rapture.It's like an understanding that we're all connected through everything.Everything is entangled.Rapture is part of that.It's like a vast understanding on a really deep level all at once. 
+
+That's what's happening with individuals at times and they are disappearing out of view.Some people disappear and they're backfilled. I've noticed a lot more backfill people around the world than there was previously.Some of the backfill people are individuals whose human level soul has moved on and who had a walk-in by a backfill soul-not everybody's body is disappearing.It's the souls that are moving out,so you start to see people who "changed"for better or worse. 
+
+For instance,Greta Thunberg's body was home to a different soul. When that soul had done its job and allowed the body to mature to a certain level,another highly evolved soul walked in to help humanity. I'm starting to feel that this new soul that came into Greta Thunberg is one of the White Children's souls.That's something else that I need to portray to you all(4/2020). 
+
+**How does our ascension benefit Source when its expansion depends on our high entropy actions and behaviors?Doesn't its perpetual expansion depend on keeping us in the lower frequencies (e.g. unresolved traumas,backfill people that lower the overall frequency)?** 
+
+Entropy means lossy,where we sort of lose the benefit of something.It does,but you have to realize that the human civilization is a very small one.There are billions of different incarnate civilizations throughout the physical universe and its frequencies. 
+
+Think about the number of different galaxies in the physical universe in the third frequency that we can see and then multiply it by the number of galaxies that are in the fourth,fifth,sixth,seventh,etc.,up to the twelfth frequency.If you're being very,very conservative and assume that there's only one civilization per galaxy,then you've still got billions times the power of twelve. 
+
+Human interaction is a very,very small thing within this universe.But it is quite special,because we've got this individualized free will.In terms of Source depending upon us,we're just one of very,very,very, very,very,very small components in the overall mechanism that's allowing the Source to expand and increase its own evolutionary content.The ascension from our perspective will happen,but we need to govern ourselves properly first individually and collectively. 
+
+There are lots of other civilizations out there that lots of other souls are incarnating into to experience,learn and evolve.They've all got a part to play in the overall contributions as well.So if you think about our contribution being very,very small,like not even a drop in the ocean, and you divide the ocean,all the oceans in the world by a drop,you'll realize basically how many civilizations are out there helping the Source to evolve(7/2021).
 
 ### 扬升 
 
