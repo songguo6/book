@@ -32,8 +32,9 @@
 
   * [书籍推荐](s5-books.md)
 
-* Guy Books
+* Books
 
+  * [登出键](s6-logout.md)
   * [The World Satsanga: The First Ten Years Book 1](s6-ws1.md)
   * [The World Satsanga: The First Ten Years Book 2](s6-ws2.md)  
   * [The World Satsanga: The First Ten Years Book 3](s6-ws3.md)
