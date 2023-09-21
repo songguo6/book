@@ -35,6 +35,15 @@
 * Books
 
   * [登出键](s6-logout.md)
-  * [The World Satsanga: The First Ten Years Book 1](s6-ws1.md)
-  * [The World Satsanga: The First Ten Years Book 2](s6-ws2.md)  
-  * [The World Satsanga: The First Ten Years Book 3](s6-ws3.md)
+  * [The History of God](s6-guy-god.md)
+  * [Beyond the Source - Book 1](s6-guy-bydsource1.md)
+  * [Beyond the Source - Book 2](s6-guy-bydsource2.md)
+  * [Avoiding Karma](s6-guy-karma.md)
+  * [Origin Speaks](s6-guy-origin.md)
+  * [Anne Dialogues](s6-guy-anne.md)
+  * [The Curators](s6-guy-curators.md)   
+  * [Psycho - Spiritual Healing](s6-guy-psy.md)
+  * [The OM – The Uncreated Creations](s6-guy-om.md)  
+  * [The World Satsanga: The First Ten Years Book 1](s6-guy-ws1.md)
+  * [The World Satsanga: The First Ten Years Book 2](s6-guy-ws2.md)  
+  * [The World Satsanga: The First Ten Years Book 3](s6-guy-ws3.md)
