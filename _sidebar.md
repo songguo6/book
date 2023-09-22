@@ -31,6 +31,7 @@
 * 经典
 
   * [书籍推荐](s5-books.md)
+  * [音乐推荐](s5-music.md)
 
 * Books
 
