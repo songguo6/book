@@ -233,103 +233,203 @@ Note: During the editing of this text for publication (February, 2011), I notice
 
 The extension of my ability resulting from the construction of this scaffold was illustrated during a morning meditation by an old apple tree in our garden, I had grounded myself by taking in Earth hara line energy through my Tan Tien and was opening up all my chakras when I received the impression that I should also open my higher chakras. To do this, I imagined a trap door that opened upwards above my crown chakra, and I would go through it to the next level. Opening and spinning the chakras was a method I was taught as part of my healing training to assist in raising my frequency levels to those of the levels in the aura or chakra I wanted to work with. I counted up, eight, nine, ten, eleven, etc., to the 15th level where I had been before and then had the impression that I could go higher. I continued to count up the chakras to level 20. At this point I could go no further and felt that this was the highest level I could go to at the moment. 
 
+一次在花园老苹果树旁的晨间冥想，说明建造这个连接的脚手架使我的能力得以拓展。我让地球哈拉线能量线通过我的丹田使自己接地，并且打开我的所有脉轮。同时我接受到一种感觉，需要开放我的更高脉轮。为了做到这一点，我想象在顶轮上方有一个向上打开的天窗，我可以通过它到达下一个层级。打开与旋转脉轮是我在疗愈课程中所学的一部分，它能帮助我提升频率，到达我想要运作的能量场或脉轮所在的层级。我不断提升，8、9、10、11，直到我曾到过的第15级，然后我有种感觉我可以去到更高，于是我继续往上计数，将脉轮提升到第20级，这时我无法继续往前，我感到这应该是此时此刻我能达到的最高层级了。
+
 #### A Bypass from the 14th to the 20th Level 
+
+**第14级到第20级之间的支路**
 
 Upon arrival, I thought about the level where the Om came from and realized that I had just gone straight past it (the 14th level is where I first encountered the Om). I then had the impression that I could create a link of pipe between the 14th and 20th levels so that the Om could come up to the 20th level. I then received the impression that they had, in fact, come up the pipe to my level. I also had the impression that this was the way wormholes are used in the physical levels. A pipe goes from one level to another and then back to the original level but in a different location which then allows instantaneous travel between distant points in the same reality. The Om answered. 
 
+到达第20级时，我想着OM是从哪个层级来的，马上就意识到我刚刚经过（我第一次遇到OM是在第14级）。于是我觉得我可以在第14级与第20级之间建立一个连接管道，这样OM就可以直接上到第20级了。然后我感觉到他们其实已经通过管道来到我所在的层级了。我还感觉到这就是物质层面虫洞的使用方式，即管道从一个层级到达另一个层级，然后再从不同位置返回最初的层级，这样就可以实现同一实相内相距遥远的两点之间的瞬间移动。这是OM给我的回答。
+
 Om: Om originally came from the 14th but can go up to the 20th and beyond. The only reason that you first encountered us on the 14th was that we needed to go down to the 14th to meet you. You only just understood that there was a 14th level and didn't even consider that there was a 20th. The 14th level is the lowest we can descend because going lower is painful and energy-depleting for us. Going any lower requires incarnation into the physical bodies relative to that frequency. The Om made a big sacrifice by coming this far down in the frequencies, and because of that, you are special. Although it was a big sacrifice, it was essential to their work here on Earth. 
+
+OM：OM原本是来自第14级的，但也能上升到第20级甚至更高。你之所以会在第14级首次遇到我们，只不过是因为我们需要下降到那个层级才能和你相遇，你那时才刚刚知道有个第14级，连想都没想过还有第20级。第14级是我们能去到的最低层级，因为对我们来说，去的层级越低就越痛苦，也越耗费能量。要降到再低的层级中都需要转世化身为与那个层级频率匹配的物质身体中。为了来到如此之低的频率与你相见，我们做出了巨大牺牲。所以你真的很特殊，尽管牺牲很大，这对我们在地球的工作来说还是很有必要的。
 
 I felt that other beings, including my guides, were present as well. I asked them why I couldn't see any stars or galaxies at this level (the 20th). They said there weren't any as such at this level and that if I dropped down to the 14th level, I would see them again. This I did momentarily, and I again found myself at the far end of the galaxy (the Om were with me). I returned to the 20th. 
 
+我感到还有其他实体，包括我的指导灵也都在场。我问他们为什么这里（第20级）看不到恒星或者星系？他们说在这个层级不会有这些，当然如果我降到第14级，那么我会再次见到它们。一瞬间我就降到了第14级，果然发现自己又站在银河系的尽头了，（OM一直和我在一起），我又返回到第20级。
+
 Om: You are not ready to and are not able to perceive or understand at this level whilst in your earthly body, so the area looks black; however, it serves its purpose. You can get up to that level and communicate without a problem. 
+
+OM：你在地球身体里是无法感知与理解第20级的，所以这个区域看起来一片漆黑。不过它有它存在的意义，现在你可以上升到这个层级，并且无障碍的交流了。
 
 I was then told that this was enough for that day, and I zipped down the levels and back into my body. 
 
+然后我被告知那天的接触已经足够多了，于是我快速穿过那些层级回到身体中。
+
 #### Slipping into Various Dimensions and Universes 
+
+**滑入多样的维度和宇宙**
 
 Another meditation saw me rising up to the 20th level. I looked around in my mind’s eye to see if anyone was there, only to find that I was surrounded by entities. Om and others whom I could not identify were present. They were all pleased and honored to meet me. (I was starting to be embarrassed by this.) I also expected to see many stars and galaxies as I do when I visit the 15th level, but I received the answer that the neutral color I was seeing in place of the stars and galaxies was because I was in all levels and all universes/dimensions at the same time. This surprised me, but it did make sense. I then made sure that I was grounded. When I focused my attention on a star system in a particular galaxy, I found that I could go there at will. Slipping into different dimensions/universes was like slipping through the layers of a spherical Russian doll. On my way to another planet, I saw a couple of space ships; one was like a flying saucer and the other like an orb of light. I went into the ship that was like an orb and found myself in a control room of sorts. There I was met by three beings of humanoid shape with big black eyes who bowed with hands together as if in prayer when they noticed I was with them. They also said that they were pleased to see me. I asked them if they knew why I was on Earth, and they said that I was there to evolve. I then asked what my job on Earth was, and they said it was to help the Earth and its inhabitants to evolve. They said that everything would become apparent when the time was right, when I had learned my lessons and had a firm foundation. I then thought about my task in life, and they said I could do two or three world tasks, including my own evolution, all at once because I am multidimensional. This was funny to me because at that time I had been having the feeling that I had been living three or four lives at once! 
 
+还有一次冥想中，我上升到第20级，我用意识眼环顾四周，看是否有人在这里。我发现自己被一群实体围在中间，OM以及其他我无法辨认的实体都在场，他们对与我相遇都感到高兴和荣幸（这倒让我开始有点不好意思了）。我原本以为我会在第15级看到很多恒星和星系，但是我得到的回答是，在原本恒星和星系所在之处我看到的中性无彩色，是因为我同时处在所有层级、所有宇宙和所有维度。这令我感到惊奇，但确实言之有理。接下来，我确保自己做好了接地。我发现，当我将注意力集中于某一星系的恒星系统，我可以随意去到那里。滑入不同的维度或者宇宙，就好像是在一层层的球形俄罗斯套娃中穿行。在去另一个行星的途中，我看到两艘太空船，其中一艘像是飞碟，而另一艘则像个光球。我进入了那艘像是光球的飞船，发现自己来到一个像控制室一样的地方，我在那里遇到了三个实体，他们是人形的，但有着大大的黑色眼睛。当他们发现我来到他们身边时，就双手合十鞠躬致意，说很高兴见到我。我问他们是否知道我为什么要生活在地球，他们说我在那里是为了进化。接着我问我在地球上的使命是什么，他们说是帮助地球及其居民进化。他们还说，当我完成了自己的功课，有了稳固的根基，时机成熟，一切都会明了。当我思考到自己的人生使命时，他们说，我可以做2或3个世界任务，包括我自己的进化。这些能同时完成，因为我是一个多维度的实体。这很有意思，因为那时我确实有一种感觉，就是我同时过着三四个不同的人生。
+
 Later when walking to my car to go to work, I had the impression that we evolve faster by incarnating here on Earth because of the short life span and subsequent accelerated learning opportunities. I then noticed that I felt a bit spaced out and heady. This I supposed was because of the level that I was working with. It was good that I was grounded! 
+
+后来，当我走向我的车子要去上班的时候，我有了一种感觉，即投胎地球使我们进化更快，是因为人类短暂的生命以及随后的不断加速出现的学习机会。然后我又觉得自己有些恍惚和头晕，我猜这是受到我所去过的能量层级的影响，还好我接地做的不错。
 
 #### The Power of Thought 
 
+**思想的力量**
+
 The next day when I opened my chakras in the same way, I was aware that I was literally bursting my way through the trap doors that allowed access to the higher levels. When I got to level 20, I stopped and looked around. Again I was surrounded by beings, but this time I had the impression it was just the Om. 
+
+第二天，当我以同样的方式开启我的脉轮，我发现自己几乎是迸射着穿过了顶轮的那个顶部天窗，进入了更高层级。当我到达第20级时，我停了下来，环顾四周，这次我仍然是被一堆实体们环绕着，不过这次我觉得他们都是OM。
 
 Om: We are both surprised and pleased in the progress you have made in this short period of time. You are progressing faster than anticipated. 
 
+OM：我们对你在短时间内取得的进展感到惊喜，你进步的比预期要快。
+
 ME: Why do you say “we”? 
+
+我：为什么你说“我们”？
 
 Om: Because We answer collectively, not singularly. 
 
+OM：因为我们是集体在回答，而非以单独个体。
+
 ME: Why are you surprised? 
+
+我：你们为什么会感到惊讶？
 
 Om: Because the 20th level is very high, and you have to be very grounded. You are learning fast; you are awakening fast. It will not be long before you are fully aware. But don't try too hard as this will block your progression. 
 
+OM：因为第20级是非常高的，你必须事先很好的接地。你学得很快，觉醒得也很快，很快你就能彻底觉醒。但是也不要用力过猛，因为这样反倒会阻碍你前进。
+
 ME: So where am I now? 
+
+我：那么我现在是在哪里？
 
 Om: You are everywhere, in all places at once. 
 
+OM：你同时在所有地方，你无处不在。
+
 I looked out at the universe and found that each universe was represented as a separate sphere. 
+
+我朝外望向宇宙，发现每个宇宙都呈现为一个单独的球体。
 
 ME: It must take a long time to travel between the universes? 
 
+我：在宇宙间穿行要花很长时间？
+
 Om: Traveling in a higher frequency is easier because the molecules are further apart and create less friction; therefore, they allow you to travel much faster—as fast as the speed of thought. 
+
+OM：在较高的频率中穿行会比较容易，因为分子之间距离较大，产生的摩擦较小，所以你可以穿行的更快，就像思想的速度那么快。
 
 This confirmed what I had previously received and understood in meditation. 
 
+这也证实了之前我在冥想中所获得与理解的信息。
+
 Om: We use the power of thought a lot. Thought has three parts: thought, intention and action. Thought is the start of the process and initiates the desire. Intention focuses the thought and gives it inertia. Action is the end product, thought taken form. 
+
+OM：我们大量使用思想的力量，思想由三部分组成：思想、意愿和行动。思维是整个过程的起点，它启动了欲求。意愿使思想聚焦，赋予其惯性。而行动是最终的产物，使思想得以显化。
 
 ME: Why do I need to know this? 
 
+我：为什么要知道这些呢？
+
 Om: Because it is a universal process, and it is one that you will need to understand and fully believe in the future. 
+
+OM：因为这是一个普遍的宇宙法则，也是你将来需要理解并全然相信的一点。
 
 #### The Effect of Alcohol on Evolution 
 
+**酒精对进化的影响**
+
 I had been thinking about being able to drink the real ale that I love and how it affects contact with my higher self and other beings, including my ability to rise up to the higher levels. I asked the Om a question on this. 
+
+我一直在想我还能不能喝我喜爱的鲜啤酒，不知道这会如何影响我与我的高我和其他实体的连接，以及对我提升到更高层级能力的影响，我向OM提出了这个问题。
 
 ME: What part does alcohol have with me? 
 
+我：酒精对我会有什么影响？
+
 Om: It clouds the communication between your physical and higher self. It removes your intention and, therefore, your focus. 
+
+OM：会遮蔽你的物质身体与高我之间的交流，它会移除你的意愿，并因此使你失去聚焦。
 
 ME: Do I drink too much? 
 
+我：我算不算喝的太多？
+
 Om: You were on the verge of it. We do not understand this need to poison your bodies, but your method of limitation and extending your “dry days” slowly over a period of time is a good way of removing dependence. 
+
+OM：你算是接近了。我们不理解为什么要毒害自己的身体，但是你所使用的限制饮酒量逐渐延长无酒日的方法，可以很好的戒除对酒精的依赖。
 
 ME: I try to give myself three to four dry days a week now, but I still like a tipple with my friends. 
 
+我：我现在尽量让自己保持一周有三四天不沾酒，但是我仍然喜欢和朋友们一起来两杯。
+
 Om: Poisoning yourself to be sociable is a very foreign concept to us. 
+
+OM：为了社交而毒害自己，对我们来说实在是一个陌生的概念。
 
 I had to go to work then and came down the frequencies by diving down through the trap doors that represented the higher levels until I got to the 7th and my body. The grounding must have worked as I did not feel heady this time. 
 
+我要去上班了，于是我从高频率层级往下俯冲，穿过那个象征更高层级的顶轮天窗，直到第7级，回到我的身体。这次的接地看来起作用了，因为我没有感到头晕。
+
 #### The God Collective 
+
+**神之集体**
 
 Another meditation saw me rising through the levels to the 20th level. I was jumping up the levels in a series of uneven numbers: 7, 9, 12, 13, 15, 17 & 20th. This I found surprising and wondered for a moment why this was. I was suddenly told that this was because of my intention. I was reminded of the three stages of thought: thought, intention, and action. 
 
+在另一次冥想里，我上升到第20级，我是按照随机的级数跳级上去的，第7、9、12、13、15、17，直到第20级。这让我很惊奇，想了一下为何如此突然。有个声音告诉我，这是由于我的意愿。我因此会想起了思想的三个阶段：思想、意愿和行动。
+
 ME: Who am I talking to? One of the Om? 
+
+我：谁在和我讲话？是OM，或是其中的一员吗？
 
 HSME (Higher Self ME): In a figure of speech, yes, but it is you. You are speaking to your higher self and your higher self is Om. 
 
+高我：从修辞角度来说，是的，但其实就是你自己，你在与你的高我对话，而你的高我就是OM。
+
 ME: I wonder what we are going to talk about today? 
+
+我：我好奇今天我们会聊些什么呢？
 
 HSME: We can talk about whatever you like. It depends upon whether you want it to be about mundane or interesting things. 
 
+高我：我们可以聊任何你喜欢的话题，这取决于你想让它单调还是有趣。
+
 ME: Should I wait until I am at my computer before I start to talk to you, so that I can remove the forgetting bits and pieces process. 
+
+我：等我在电脑旁边时，我们再开始对话行吗？这样可以防止我遗忘与你交谈的细节。
 
 HSME: You can if you want, but would you have the time to do it? This works for you and not all of the information you get will be required to be presented in the conversational format. 
 
+高我：如果你想这样做，当然可以，但你来得及吗？这方法虽然管用，但不是所有你获得的信息都必须以对话的形式呈现出来。
+
 ME: Why pick that method? 
+
+我：那为什么还要选择对话方式呢？
 
 HSME: Because it makes it easier to read and, therefore, accessible to everyone, not just the intellectuals. The conversational method is a very good way of conveying the information you will be receiving to the general public. 
 
+高我：因为这样比较方便阅读，因此它适合所有人，而不仅仅是知识分子。对话方式可以很好的向大众传达你将接收到的信息。
+
 I then saw an image of a bacterium, which was round in shape, with billions of small tentacles surrounding its periphery. 
+
+于是我看到一个圆形细菌的画面，它的外围长满了无数细小的触须。
 
 HSME: That’s right. That is a good image to use to describe what we are. We are all tendrils or sensors of the main entity going out to learn information and bring it back to the whole. Some of us want to return, and some want to remain in the learning/experiencing loop or even help other tendrils in their process of learning/experience. Do note that we still retain our singularity even though we are part of a collective, as our knowledge gained is specific to one Source and that Source can be recognized. 
 
+高我：没错，这个图像可以恰到好处的描述出我们是什么，我们就像是主实体的触须或传感器或去获取信息，并把信息带回给整体。我们中有些想要回到源头，有些则想要留在学习和体验的循环中，或者帮助其他在学习和体验中的触须。请注意，尽管我们是集体的一部分，但我们仍然保有自己的独特个性，因为我们所获取的知识对于所属源头来说是独一无二的，这个源头也因此而与众不同。
+
 ME: You just said “we.” I thought we are all one. How can God be “we”? Does that mean there are other Gods? 
+
+我：你刚才说“我们”，我以为我们都是一起的，但神怎么能是“我们”？难道说还有其他神？
 
 I was having difficulty seeing how big this was in terms of how the universes/or continuum could create more than one god-like entity. My limited Earth mental capacity was truly limiting my ability to understand this concept. 
 
+我当时很难想象到，宇宙或者无限连续体要创造出更多神一样的存在，需要多宏大的工程？我这有限的地球心智能力真是限制了我对这个事情的理解。
+
 HSME: If you would take a temporal or dimensional slice of the cake at any one time, you would see Us, we the God collective, as separate entities separated by thin slices of dimensional layers or time. Don't forget that although time is an Earth concept, it will do for this explanation. All you would be doing is seeing parts of Us, We, Me, God (the bigger part of us) through different layers of reality. Separate out all these realities, and you have many Gods/beings. Put them all together, and you get one being, one God that exists in all times, in all spaces, in all dimensions, in all continuums at the same time. Consider the total entity or God as a tall building, the number of floors representing the total number of dimensional realities that I, We, God encompass. Each floor is a reality all of its own with people/civilizations working and living on that one level only. The beings on a particular floor experience Me, We, God only at that one level, that one part of God that covers all of their level of existence, one level of the building. Put all the levels together, and you make a tall building or an entity that covers all of the beings in all of the levels all at the same time. That is what We, You, God is—an entity that is literally everywhere simultaneously. The point is to get as many people in the world questioning their environment and paradigm as possible. 
+
+高我：任何时候你在时间或空间的薄片里都可以看到我们神的集体，我们就像是被维度层或时间薄片分开的单独实体。
 
 ME: I have to go now. I need to get to work, and I am late. I hope I don't forget this stuff. 
 
