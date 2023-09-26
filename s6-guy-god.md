@@ -429,317 +429,627 @@ I was having difficulty seeing how big this was in terms of how the universes/or
 
 HSME: If you would take a temporal or dimensional slice of the cake at any one time, you would see Us, we the God collective, as separate entities separated by thin slices of dimensional layers or time. Don't forget that although time is an Earth concept, it will do for this explanation. All you would be doing is seeing parts of Us, We, Me, God (the bigger part of us) through different layers of reality. Separate out all these realities, and you have many Gods/beings. Put them all together, and you get one being, one God that exists in all times, in all spaces, in all dimensions, in all continuums at the same time. Consider the total entity or God as a tall building, the number of floors representing the total number of dimensional realities that I, We, God encompass. Each floor is a reality all of its own with people/civilizations working and living on that one level only. The beings on a particular floor experience Me, We, God only at that one level, that one part of God that covers all of their level of existence, one level of the building. Put all the levels together, and you make a tall building or an entity that covers all of the beings in all of the levels all at the same time. That is what We, You, God is—an entity that is literally everywhere simultaneously. The point is to get as many people in the world questioning their environment and paradigm as possible. 
 
-高我：任何时候你在时间或空间的薄片里都可以看到我们神的集体，我们就像是被维度层或时间薄片分开的单独实体。
+高我：任何时候，你在时间或空间的薄片里都可以看到我们神的集体，我们就像是被维度层或时间薄片分开的单独实体。不要忘记，虽然时间只是地球上的一个概念，但对于这个解释也是适用的。你将要做的一切就是通过不同层级的实相去看清我们的各部分，你可称之为我们、我或者神，我们更大的那一部分。将所有这些实相分开来，你就得到了许多神或实体。将它们置于一体，你又会拥有一个唯一的实体，一个同时存在于所有时间、所有空间、所有维度、所有连续体的神。你可以把全部实体或神想象成一座高楼，楼层数代表我们和神所包含的所有维度实相的总数。每层楼都是自成一体的实相，其中生活和工作着只属于那一层级的人或者文明。所以某个楼层的实体只会经验那一层的我、我们和神，涵盖了他们所在那一楼层存在的神的那部分神。将所有楼层合在一起，你就得到一个同时包含所有层级的所有存在的建筑或者实体。这就是我们，你们，神之所是，一个真正无时无处不在的实体，要点就是要让世界上尽可能多的人去质疑并检视他们的环境和范式。
 
 ME: I have to go now. I need to get to work, and I am late. I hope I don't forget this stuff. 
 
+我：现在我得走了，我还要去上班，已经迟到了。但愿我别忘了这些内容。
+
 HSME: You won't. I will make sure that you remember. Let’s go over it again in brief indicating topic headings. 
+
+高我：你不会忘记的，我会确保你记得这些。让我们用简短的主题标题把今天的谈话再重温一遍。
 
 This we did, and it only took a few seconds to get some topic datum so that I could remember. I then went back down the frequencies, again missing a couple of levels at a time until I arrived at the physical levels. 
 
+我们只花了几秒钟的时间就弄好了一个主题大纲，这样我比较容易记住。接着，我降低频率，仍然掠过几个层级，直至回到物质层。
+
 I walked to my car and thought, “I hope I don't forget.” 
+
+我边走向我的车边想，“但愿我别忘了”。
 
 “You won't,” came the reply from a distant place in my mind. My higher self was still in communication with me! 
 
+“你会记得的”，一个声音从我内心深处回答道，原来我的高我仍然和我交流着。
+
 #### The Myriad Shapes and Sizes of Galaxies 
+
+**星系的无数形状与大小**
 
 Another meditation saw me once again soaring up through the levels and landing in the 20th level rather like jumping on the edge of a rather comfortable bed. As I sat there, I saw all the other galaxies in the third dimension and was told by an entity that I could change my view at will. I zoomed in on one of the other galaxies rather than the one I was currently close to. I had no idea which galaxy it was; it looked pretty similar to our own Milky Way, but I was told that it wasn't. I was then advised that I could see the galaxies in another dimension, one where the ambient light was actually white rather than the black of interstellar space. In this dimension there were many different shapes and sizes of galaxies: from flat shapes to totally round shapes to shapes that were like a red ball in the middle with two corkscrew-like tendrils of stars trailing off in an upwards and downward fashion, and others looking like they were just pillars of light. I was told that there are as many sizes and shapes of galaxies as there are stars in the galaxy that Earth inhabits. On this note, I descended down the levels to my 7th level home and went to work. 
 
-#### The 27th Level - Meeting the Dragon 
+在另一次冥想中，我再次飞越过若干层级，停在第20级，就像跳落在一张舒适无比的床的边缘。我坐在那里看到了第三维度的所有其他星系。一个实体告诉我说，我可以任意变换我的视野，于是我放大了其中一个圆点的星系，一个我不认识的星系，它看起来和我们的银河系很像，但我被告知这不是银河系。随后那个实体又提议，让我从另一个维度看这个星系，那里的背景光是白色的，而不是像星际空间的这种黑色。在这个维度中有很多不同形状和大小的星系，从扁平到浑圆的都有，有的像是中间一个红球，有两只分别向上和向下间隙的恒星组成的螺旋状触须，还有的看起来就像是光柱。它还告诉我，这里星系的形状和大小多种多样，就像地球所在的银河系里的恒星一般数不胜数。记下这些后，我回落至第7级的家中，然后就去上班了。
+
+#### The 27th Level - Meeting the Dragon
+
+**第27级：与龙相遇**
 
 The next day I was opening my chakras and realized that I was not totally in my body. I was slightly beside and above myself. I raised my level up to the 20th level, this time going one level at a time. When I reached the 20th level, I felt that I could go further because the 21st level felt easy to penetrate. I pushed harder and established that the next levels up to the 27th level were pretty much the same in response. Moving from one level to another was like pushing my hand through an elastic curtain that suddenly gave way when I pushed past its elastic limit. At this point I realized that I needed to be grounded and quickly sent a line down the levels to the Earth plane and imagined that I had placed an anchor in the ground with the line attached to me. When I completed the grounding work and looked around the 27th level, I noticed that there was another being by my side. The level looked black all around me, and I perceived the being as being black on black and rather dragon-shaped. 
 
+第二天当我开启了脉轮，发现自己并没有全然在自己身体里，而是在身体的侧上方，我把自己提升到第20级。这一次是一次一级的升上去的，当我到达第20级时，我感到还能再前进，因为第21级好像挺容易穿越的，于是我更努力推进，结果确认了直到第27级都像前面的一样能被轻易穿过。从一个层级移动到另一个层级，就像用手去推一个有弹性的屏障，当我将它推过弹力极限时，它就会突然松动让路。这时我意识到我需要做好接地，于是我迅速向下将一条线发送到地球层级，并且想象将一只锚放入地面，通过这根线连接着我。当我完成接地工作后，我环顾第27级，发现还有一个实体在我身边，我在这个层级完全被黑暗包围着。我所感受到的这个实体，就像是黑色底上的黑色实体，外形有点像龙。
+
 D: What are you doing here? You shouldn't be here. 
+
+龙：你在这里做什么？你不该在这里的。
 
 ME: Why not? 
 
+我：为什么不能？
+
 D: You are not the right vibration level. 
+
+龙：你的频率与层级不符。
 
 ME: Why is it so black and dark here? I thought that the 27th level was full of light. 
 
+我：为什么这里又黑又暗？我之前一直以为第27级充满了光。
+
 D: It’s black because that is all you can perceive here. 
+
+龙：黑暗是因为你只能在这里感受到这个。
 
 ME: Why are you dragon-shaped? 
 
+我：为什么你看起来像条龙？
+
 D: I am trying to frighten you away, but it obviously didn't work. 
+
+龙：我想要把你吓跑，但显然无效。
 
 ME: I thought everything here was supposed to be good. 
 
+我：我还以为这里的一切都应该是美好的。
+
 D: We are mostly, but you shouldn't be here. 
+
+龙：大部分是的，但你不应该在这里。
 
 ME: If I am not the right vibration level, how did I manage to get here? 
 
+我：如果我与这里的频率不符，那我又怎么能来到这里呢？
+
 D: You just used brute force and pierced the veils between levels. I sense that you are stronger than you could possibly know. 
+
+龙：你是用蛮力穿过了层级之间的屏障，我觉得你比你自以为的要更加强大。
 
 ME: O.K., I must go. I also have things to do on the Earth level (go to work). 
 
+我：好吧，我得走了。我在地球层面还有事情要做（上班）。
+
 #### The Difficulty of Decoupling from Levels Above the 20th Level 
+
+**脱离第20级以上的层级有点难度**
 
 As I descended, I got the impression that it was actually difficult to decouple myself from the levels above the 20th. I felt that I was traveling down a tube with graduations printed on the outside and that the journey down was constrained to being in this tube. I think upon reflection that I had found another shortcut or was allowed to use this shortcut to get me out of the 27th level ASAP. 
 
-#### The 60th Level - The Necessity of Grounding on the 60th Level 
+我往下降频时，我感觉很难与第20级以上的层级相脱离。我觉得我像是在沿着一根管子往下降落，管子外面印着层级的刻度，而下降的路径被限制在这根管子里。我回想起来以前我曾找到或是被允许使用另一条捷径，让我能尽快离开第27级。
+
+#### The 60th Level - The Necessity of Grounding on the 60th Level
+
+**第60级：接地的必要性**
 
 The next day after the trip to the 27th level, I opened all my chakras and decided to go up to the 27th level again just for a look-see. I shot up the levels and hardly saw the numbers in my mind indicating where I was. I noticed that I was missing numbers and that I was leap-frogging levels. When I got to the 20th level, I kept going and noticed that I had accumulated quite alot of momentum and was literally tearing up the levels as I went—so much in fact that I completely missed the 27th level. I had a mere glimpse of the outline of the dragon on the 27th level as I flew past! Surprised, I saw the 30th, 40th and 50th levels go past me before I finally managed to focus my attention on stopping. I finally stopped on the 60th level and realized that I should send out a line to the Earth plane to ground me. I quickly did this as I envisioning a hook truly embedded in the ground and a rope leading up to me. I wondered how I could have gotten so far when the dragon on the 27th level had told me that I shouldn't have been there. I looked around, and it felt like I was on the outer edge of what looked like a very big onion with all the layers representing the levels I had just traversed. A voice then spoke to me. 
 
+从第27级回来后的第二天，我开启所有脉轮，决定再去27级那里查看查看。我像子弹那样被发射出去，向上飞速穿过一个个层级，几乎来不及看清脑海中指示所在层级的编号。我发现我漏掉了计数，开始蛙跳着穿过这些层级。到了第20级时，我继续前进，此时我发现自己已经积累了一股相当大的冲力，直接冲破了若干能量层级。实际上我冲的太过，已经完全与第27级失之交臂了。当我飞跃第27级时，我只来得及瞥了一眼那条龙的轮廓，我惊呆了。我看到第30、40、50级呼啸而过，直到我终于设法集中注意力停下来时，已经是第60级了。这时我意识到应该向地球层面发送一条线让自己接地，于是我立刻就这么做了。想象有一个钩子牢牢嵌入地面，一根绳子连接着它和我。我很奇怪，那条龙说我甚至不该在第27级的，那我现在是怎么跑到这么高层级的地方来的呢？环顾四周，我感觉自己像是在一个巨大无比的洋葱边缘，它的每一层就代表着我刚刚穿越过的那些层级。这时一个声音对我说话。
+
 #### The Author’s Home Base 
+
+**作者的故乡**
 
 V: You got here because you can. 
 
+声音：你来到这里是因为你可以做到。
+
 ME: How can I get to this level when the dragon entity on the 27th said that I shouldn't be there? 
+
+我：可是我又是怎么来到这一层的？第27级的龙说我都不该在那里。
 
 V: Because you live here, you come from here, and you traverse all these levels all of the time. 
 
+声音：因为你生活在这里，你来自这里，而且你一直在所有层级中穿行。
+
 ME: Who are you? Are you my higher self? 
+
+我：你是谁？是我的高我吗？
 
 V: In a way I am you, and you are me. 
 
+声音：在某种意义上，我是你，你也是我。
+
 ME: So you are not my immediate higher self then. 
+
+我：那么你不是我的直接高我了。
 
 V: No, but we are one in the higher sense. 
 
+声音：不，但在更高意义上我们是一体的。
+
 ME: So are you the entity we refer to as God or the Source Entity? 
+
+我：那么你是我们所说的神或者源实体吗？
 
 V: Yes, you could call Me that. 
 
+声音：是的，你可以那么称呼我。
+
 ME: If this is the 60th level, are there any more levels? 
+
+我：如果这是第60级，那么还有比这更高的层级吗？
 
 V: There are many above and below your current position. 
 
+声音：在你目前位置的上方和下方还有很多层级。
+
 ME: Why did the dragon entity not know that I could traverse to his level and stay there? 
+
+我：为什么那条龙不知道我可以穿越到第27级并且待在那里呢？
 
 V: Because it saw you for what you currently are, an incarnate being in the lowest levels. 
 
+声音：因为他只把你看作是你目前所是，一个在最低频率中的化身实体。
+
 ME: Oh, I see. Can I come here again? 
+
+我：我明白了，那我能再来这里吗？
 
 The next response came to me as I typed this. 
 
+我刚一输入这些内容就得到了以下回答。
+
 V: Yes, but remember where you come from and the work you have to do. Don't get distracted. It's easy to get distracted. 
+
+声音：是的，但是你要记得你来自哪里，有什么使命。不要三心二意的，因为分心是很容易的事。
 
 ME: O.K., I will try not to get distracted. I had best be going now—low level work to do. 
 
+我：好的，我会尽量做到不分心。现在我要离开了，低频世界里还有工作要做。
+
 V: Go in peace. 
+
+声音：去吧，一路平安。
 
 As I descended the levels, I noticed that I was again dropping down the levels in decades rather than in single-level numbers. As I passed the 27th level, the dragon entity noticed me passing and issued a friendly word of advice. 
 
+当我下降时，我注意到我一次跳过了几十级，而不是逐级降落的。在第27级，那条龙发现我正经过那里，就给了我善意的建议。
+
 D: Be careful. Don't get lost! 
+
+龙：当心点，别迷路。
 
 ME: I will. Thank you. 
 
+我：我知道，谢谢你。
+
 I then slowed down as I got to the sub-20 levels and finally stopped as I integrated with my Earthly body. This is one trip I didn’t expect. 
+
+低于第20级时，我开始减速，并在与我肉身融为一体时彻底停了下来。这真是一次意料之外的旅程啊。
 
 #### An Explanation of the Levels - Reasons for the Presence of 100 Levels 
 
+**各层级的说明：存在100个层级的原因**
+
 A morning meditation in August 2003 saw me connected with my hara line. I opened up my chakras and wondered what I was going to receive this time. As my thoughts went to the number of levels and the Source Entity’s comment that there were levels above and below the 60th level, I found myself being told that there are 100 levels. I was a bit suspicious of this as it is too round a number. I then heard the voice of the Source Entity in my mind: 
+
+在2003年8月的一次晨间冥想中，我连接了自己的哈拉线并开启了脉轮，想着这次会接收到什么。当我思索着层级的数字以及源实体曾经说过的话，他说在第60级之上和之下还有很多层级，于是我收到一个信息说一共有100层。我对此有点怀疑，因为这个数字也太整了吧。这时我听到源实体的声音在我脑海中响起。
 
 SE: Why not a hundred? It suits my purpose. 
 
+源实体：为什么不能是100呢？它很符合我的目的。
+
 ME: It's a bit of a round number, that’s all. It would provide suspicion. I am surprised that you can contact me at this level (I was only at the 7th, maximum). 
+
+我：它太整了，仅此而已，会让人怀疑。我没想到在这个层级（当时我最多只是在第7级）你也能与我联系。
 
 SE: I can talk to you at any level. 
 
+源实体：我可以在任何层级与你交谈。
+
 My thoughts went to the 27th level and the dragon entity. 
+
+我的思绪飘到了第27级与那条龙。
 
 SE: That entity no longer has the appearance of a dragon, but he will use it when you need to contact him. It will help you to discern/recognize who it is. 
 
+源实体：那个实体已经不再是龙的外形，但是它会在你需要与他联系时使用龙形，这有助于你辨认它。
+
 ME: O.K. Why did you choose 100 levels? Why not 12 or 96? 
+
+我：原来是这样。那你为什么选择100作为层级数，而不是12或者96呢？
 
 SE: I chose 100 because it gives the individual soul something to strive for. I could have had as many levels as there are souls in the multiverse, but 100 sounded like a nice number. It's also a number which is recognized by most of the incarnate beings in the multiverse. Each level gives an increase in possible knowledge, ability, and understanding. A soul can only progress through the levels by the process of experience gained. 
 
+源实体：因为100能够给予每个灵魂奋进的目标。我们可以把层级数设定的像多维宇宙中的灵魂数那么多，但是100这个数字听起来更好一些，它也是多维宇宙中大多数化身实体能够认可的数字。每一层级都在可能的知识能力和理解上有所扩展。灵魂只有通过所获得的体验过程，才能一级一级的进步。
+
 #### Differences Between Levels 
+
+**层级之间的区别**
 
 ME: So what is the difference in the levels? 
 
+我：那么层级之间有什么区别吗？
+
 SE: They are a distance away from Me. The closer a soul gets to returning to me, the higher up the levels it is able to access or live within. Each level is like the differences in the auric and body levels with the exception that once you have evolved past the need to incarnate in the lowest form (what you are in now) or you no longer need to help out in the physical levels, you move upwards and exist in the higher levels, but you are still subject to the need to evolve to get closer to Me. It's just that the evolution is done on a much finer scale. The difference between the levels that you currently exist in (1 to 7) is quite marked. The difference in the levels above, say in the 50s is much more subtle as you are now focusing your evolutionary attention to specific issues, issues that are really the very fine detail. 
+
+源实体：它们代表着距离我的远近。一个灵魂越是回归、接近我，所能到达或居住的层级就越高。每一层级的区别就像你的辉光层（亦称气场或能量场）与肉体（亦称物质身体）之间的不同。除非你进化到不需要转世于你现在所在的最低形式的化身，或者你不再需要在物质层级中帮助别人，你就会上升而存在于更高层级，但你仍然需要不断进化来接近我，只是那时候的进化会在更精细的范围内进行。你当下所处层级1至7级之间的差异是很明显的，再往上的层级之间，比如在50多级之间差异就细微得多。因为这时你的进化关注点会聚焦于一些特别的问题，一些非常具体而微小的细节问题。
 
 #### Relationship of Levels and Dimension 
 
+**层级与维度的关系**
+
 ME: How does this relate to the need for dimensions? 
+
+我：这与维度有什么关系？为什么还需要维度呢？
 
 SE: Dimensions allow for many things to be done at the same time. To put it another way, it allows the individual part of Me, You, the soul to evolve faster as you are learning and experiencing many things at the same time. Call it parallel processing. 
 
+源实体：维度可以使很多事情在同一时间得以完成。用另一种方式表述就是这可以让我的个体部分，你们，也就是灵魂进化的更快。因为你们可以在同一时间学习和经验，许多事情可以称其为平行处理。
+
 ME: Fascinating, so we really are multidimensional. 
+
+我：太棒了，我们真的是多维度的。
 
 SE: Of course. 
 
+源实体：当然。
+
 #### The Mission of Enlightenment 
+
+**开悟使命**
 
 ME: Is it O.K. for me to put this stuff in a book that I propose to write? 
 
+我：把这些内容放进我将要写的书里可以吗?
+
 SE: Yes, of course. It all helps in the mission to enlighten people. I am not saying it will make you famous or make money, but it will fill in some of the gaps that others have left out. It is important for the whole picture to be made available rather than just parts of the picture. Everyone who is helping to accelerate the evolution of humankind on Earth at the moment is one part of the jigsaw; each is just as important as the other. It's just that some will resonate with more people than others, and, as a result, they will become more popular, making the individual writer more money by default. But they all are important; they all add to the whole. Money is NOT the issue here. 
+
+源实体：当然可以。所有这一切都有助于帮人们觉醒。我说的不是它会给你带来名利，而是说它可以弥补一些其他人未顾及到的空缺。重要的是完成整个蓝图，而不只是此图的一些碎片。每一个此刻帮助地球上的人类加速进化的人都是拼图中的一片，每一片拼图都同等重要。只不过有些人也从大众获得更多共鸣，而这些人也会因此变得更多共鸣，自然也会给该作者带来更多金钱收益。但他们都是重要的，他们都在为整体添砖加瓦。金钱并不是此处的问题所在。
 
 ME: O.K., I have to go now. Can I talk to you on this subject again? 
 
+我：好的，现在我该走了。我还能再跟你讨论这个话题吗?
+
 SE: You can talk to Me at any time. You don't need to rise up to the 20th or 60th level to contact Me; all you need is the intention. 
+
+源实体：你任何时候都可以和我讨论，你不必非要上升到第20级或者第60级来找我，你需要的只是意愿。
 
 #### Back to the 27th Level - The Dragon Entity on Helping Others Awaken 
 
+**回到第27级：龙对帮助他人觉醒的见解**
+
 The following day I connected with the hara energy and opened up my chakras and waited a moment before going up the levels. When I eventually decided to move up the levels, I moved straight to the 20th. I thought this was a bit too fast, so I decided to start from the bottom (7th) and work my way up level by level. I have to admit I was surprised by how fast I went to the 20th. Then I decided to move to the 27th level to visit the dragon entity. When I got there, the entity welcomed me and I gave him my love. He then transformed into the light being I had expected to encounter at this level. He had the appearance of a human figure wearing brilliant white robes. His skin and the robes emitted a brilliant white light. Even though he was now transformed, I will still refer to him as the dragon entity for continuity. 
+
+第二天我连接哈拉能量并打开脉轮，等了片刻才出发去更高层级。当我终于决定要向上升时，直接就向第20级飞去。我觉得这有点太快了，因此我决定从底部（第7级）开始一点点往上升。那么快就上升到第20级，我自己都很惊讶。然后我决定去第27级拜访一下那条龙。到了那里，这位实体很欢迎我，我也表达了对他的爱。接着他变成我预想中会在这个层面见到的那种光之实体，他变成了穿着闪闪发光白袍的人形，他的皮肤和袍子散发出灿烂的白光。虽然他现在变化了样貌，为了表达的延续性，我仍会将他称为龙。
 
 D: The Source Entity is pleased with you. 
 
+龙：源实体对你很满意。
+
 ME: Why is that? I haven't done anything special. 
+
+我：为什么？我并没有做什么特殊的事情呀。
 
 D: He was pleased that you were able to contact Him. There are not many people who have managed to do that. Although all are able to, very, very few do. This is because most people are tied up with living their lives and doing what they need to do to evolve; they are totally engrossed with living on the Earth plane. People who contact Him/It are starting to or have already awakened to who they really are. When they do this, they naturally want others to experience the same wonders they are experiencing and then dedicate themselves to the greater task of enlightening the rest of humanity. Their ultimate aim then is to raise the vibration levels to a point where everyone is enlightened or awake again. They do this by spreading the word as you are with this book and discussing this subject with others who are open-minded enough to also spread the word. 
 
+龙：他对你能够与他连接感到高兴。没有多少人可以成功做到这一点，尽管所有人都有这个能力，但极少人能够真正做到，这是因为多数人忙于生活以及完成进化所需的任务，他们完全被地球层面的生活占据了。那些可以与他接触的人都是开始或已经觉醒意识到自己真正是谁的人。当他们达到时，他们自然也想让其他人体验到他们正在经验的美妙事情，因此他们会投身于帮助其他人类觉醒的伟大使命中，他们的终极目标就是提升频率，使所有人都再次觉醒。他们所用的方式就是像你写这本书那样传播觉醒信息，以及与思想开明能跟他们一起传播的人讨论这些话题。
+
 #### The Great Catastrophe 
+
+**大灾难**
 
 ME: Why would they want to do this? 
 
+我：他们为什么想要这么做呢？
+
 D: It is just the same as anyone who has been involved in an accident or a great catastrophe (such as the great forgetting—that was a huge catastrophe!). The survivors naturally help those who are injured with a view to saving their lives because they would want someone to help them if they were in the same situation. 
+
+龙：这就和一个人遭遇意外事故或者大灾难差不多，幸存者很自然想要帮助那些受害者拯救他们的生命，因为他们也希望自己处于同样境地的时候也有人能伸出援手。
 
 ME: So this is the same for those who either are enlightened or in the process of waking up. They naturally want to help others become the same? 
 
+我：所以那些已经觉醒或者正在觉醒的人也是这样，他们很自然的想让其他人一样觉醒，对吗？
+
 D: Yes, and this is why the Source Entity is pleased with you. He now has someone else helping Him/It to get the other parts of Himself/Itself back to Himself/Itself faster. 
+
+龙：是这样的，这就是源实体对你感到满意的原因，现在又多了一个人帮助他，使他的其他部分能更快回归。
 
 ME: Oh, that’s beautiful. 
 
+我：哦，那太美好了。
+
 D: It certainly is. 
+
+龙：确实。
 
 ME: O.K., I must go now. 
 
+我：好的，我得走了。
+
 I started to go down the levels one by one, and as I did so, I heard the dragon entity call to me. 
+
+我开始一级一级的下降，当我这么做时，我听见龙给我发来的讯息。
 
 D: You can go straight to the level you want, you know. All you need is the intention, but you already know this. 
 
+龙：你知道吗？可以直接去到任何你想去的层级，你只需要有意愿就可以了。你已经知道这点了，不是吗？
+
 I dropped down to the Earth plane thinking, “He's right. I don't need to go through each level. I can just pick a number.” 
+
+我下降到地球思考着，“他说的对，我不用穿过每一层级，只需选好要去的层数就行了”。
 
 #### The Source Entity Identifies the Dragon Entity as Byron 
 
+**叫拜伦的龙**
+
 The next meditation was short but nevertheless interesting. I connected with the hara, opened my chakras, and went directly to the 27th level where the dragon entity being was. Again he was radiating a brilliant white light. I then perceived an iridescent golden light in the shape of a sphere next to him (I will refer to this entity in the masculine as it is easier to have one point of reference). I knew instantly that this was the Source Entity. 
+
+接下来这个冥想不长但很有趣，我连接了哈拉开启了脉轮，直接去到了第27级，也就是龙所在的地方。这次他又是放射耀眼白光的样子，我感觉到他旁边有一个散发着彩虹光芒的金色光球（我将以阳性来指代这个实体，因为有一个参照会比较容易理解）。我立刻明白，那就是源实体。
 
 SE: I am gold because this is what people expect to see. Also, it differentiates Me from the other entities when we are together, and I represent Myself as a similar size to My creations. 
 
+源实体：我之所以是金色，是因为这是人们期望看到的。当然，当我和其他实体在一起时，这色彩使我能够与它们分开，并且我会把自己展现为与我的造物相似的大小。
+
 He appeared to be hovering above and to the right of the dragon entity. 
+
+他在空中盘旋了一下，来到龙的右边。
 
 SE: His name is Byron, and he will help you with your questions. This is a better name than the dragon entity, is it not?
 
+源实体：他叫拜伦，他会解答你的问题。这名字比龙好听，对吗？
+
 ME: Yes. I thought I could contact You personally.
+
+我：对，但我原本以为我可以自己和你联系。
 
 SE: You can. You are contacting Me through him through yourself. We are all connected, and We are all one, are We not? He will be your guide. When you need to speak to Me directly, you will. 
 
+源实体：你可以。你此刻就在通过他通过你自己与我联系，我们都是连接在一起的，我们都是互相连接的，我们本是一体，难道不是吗？他会是你的向导，当你需要与我直接对话的时候，你也可以。
+
 ME: I have to go now. 
+
+我：我得走了。
 
 I was late anyway. 
 
+我已经迟到了。
+
 SE: You always need to go, but even these little sessions are useful. 
+
+源实体：你总说要走，不过这些冥想就算很短也是有益的。
 
 #### Characteristics of the Om Entities 
 
+**OM的特征**
+
 The next meditation I had saw me going straight to the 27th level and seeing Byron immediately in my mind’s eye. I was interested in what Byron did in his level, so I asked him. 
+
+在接下来的冥想中，我直接上升到了第27级，我的意识眼立即看到了拜伦。我对拜伦在这个层级所做的事情很感兴趣，于是我询问了他。
 
 ME: Where do you live in your level? 
 
+我：在你的层级上你住在哪里？
+
 B: On a planet in a solar system in a galaxy in a different universe than you and, of course, in a different dimension. 
+
+拜伦：在另一个宇宙的太阳系的一颗行星上，当然，在另一个维度。
 
 ME: Do you have a physical existence? 
 
+我：你们有物质存在吗？
+
 B: Not in your sense of the word, but things can be considered as physical in the dimension and level that I exist within. 
+
+拜伦：就你所用这个词的本意来说，没有。不过在我所在的维度和层级的语境中也可以这么说。
 
 ME: What do you do on your planet? 
 
+我：在你们的星球上都做些什么？
+
 B: We do things similar to you. We live to evolve and get closer to the Source Entity. We work on a universal level. 
+
+拜伦：我们做的事和你们差不多，我们生存以进化并趋近源实体。我们在宇宙层面工作。
 
 ME: Do you incarnate into bodies? 
 
+我：你们会在肉体中投胎吗？
+
 B: Not in the way that you do. We exist for as long as we want in the form that is necessary for the environment for as long as we need to do our job. 
+
+拜伦：不会用你们这种方式，我们可以根据工作目的以及环境需要在合适的形体内想存在多久都可以。
 
 ME: What is your job? 
 
+我：你们的工作是什么？
+
 B: To evolve and to help the planet evolve and to keep the frequencies high. We all work to keep the frequencies high. Most of what we do is for the whole; we work for the whole to ensure that the whole is able to progress together. 
+
+拜伦：自我进化，帮助星球进化，还有保持高频。我们都为保持高频而工作。我们所做的是大多是为了整体，为了确保整体能够一起进步。
 
 ME: How do you do this? 
 
+我：你们是怎么做的？
+
 I was receiving pictures of people working with the Akashic records. 
+
+我于是收到一些人们使用阿卡西记录工作的画面。
 
 B: We are collective beings; all of us are linked so all work we do is for the good of the whole. 
 
+拜伦：我们是集体实体，我们所有人都连接在一起，所以我们所做的所有工作都是为了整体的利益。
+
 ME: So you are part of a gestalt collective? 
+
+我：那么你们是格式塔集体的一部分喽？
 
 B: We are still individual, but we are one and all. We do not ignore one another or work against each other as your race does for the benefit of the individual. We work for the all; we all want to progress towards the Source Entity at the same time. We get great satisfaction in this goal. 
 
+拜伦：我们依然是个体，但是我们是一体的，也是全体。我们不会像你们的种族那样，为了一己私利而无视对方互相对抗。我们为整体工作，我们都想同时共同向源实体前进。在这个目标中我们获得了巨大的满足。
+
 ME: Can you create things by pure thought? 
+
+我：你们能以纯粹的思想创造事物吗？
 
 B: Of course, one only needs the intention. 
 
+拜伦：当然能，这只需意愿。
+
 #### The Om’s Work with the Akashic Records 
+
+**OM的阿卡西工作**
 
 ME: Do you work with the Akashic records? 
 
+我：你们使用阿卡西记录吗？
+
 B: That is some of the work we do, but this is for the greater whole. We look after histories and knowledge. 
+
+拜伦：这是我们工作的一部分，但这是为了更大的整体，我们守护着历史与知识。
 
 ME: I get the impression that the histories are past, present, and future. 
 
+我：我有种感觉就是历史包括了过去、现在与未来。
+
 B: That is a reasonable assumption for a being that is tied in one dimensional time for most of his consciousness in this incarnation. There is more to it than that because we record the full range of experiences (emotion, pain, joy, love, stress, telepathic communications, etc.) that go with the knowledge. The list of experiences we record is too long to mention here, and again this is only some of the work we do for the greater whole. 
+
+拜伦：对于像你这样的此生大部分意识都被束缚在单一时间维度里的实体来说，这种说法也很合理。我们所记录的远比这个更多，除了知识，还有与之相关的全部体验（情感、痛苦、欢乐、爱、紧张、心灵感应等等）。所记录内容的清单太长了，以至于无法在此一一列举。再次强调，这只是我们为更大的整体所做的一部分工作。
 
 #### The Author as an Om 
 
+**作者也是OM的一员**
+
 ME: Do I always have to meet you at the 27th Level? 
+
+我：我是不是只能来第27级见你？
 
 B: To initiate communication, yes, but once you have linked in and your intention is to communicate with me, you can move around to the other levels and still communicate with me. 
 
+拜伦：发起沟通的时候需要这样。但是，一旦你连接上了，只要你有意愿与我交流，那么即使你四处移动到其他层级，你仍然可以与我沟通。
+
 ME: Why is this? 
+
+我：为什么会这样？
 
 B: You are of the Om, and you are able to move around a number of levels. I think you can go up to the 80th. 
 
+拜伦：因为你是OM的一员，你可以在很多层级之间移动。我觉得你应该可以上升到第80级。
+
 ME: Are we the same type of entity? 
+
+我：我们是同一类型的实体吗？
 
 B: We are similar but not the same. The similarity is insomuch as we are energy-based beings and not of the low density/vibrations and levels needed to become incarnate as you currently are. 
 
+拜伦：我们相似但不同。相似之处在于我们都是基于能量的实体，不同之处是低密度或频率和层级中的实体需要化身，就像你当前的实体。
+
 ME: What do the Om do? 
+
+我：OM都做些什么呢？
 
 #### The Focus of the Om 
 
+**OM的关注点**
+
 B: They do what most highly evolved beings do; they work for the good of the whole with the express goal of returning to the Source Entity. The Om also help the spirits on the Earth plane since this is a pivotal experiment. There are many Om working with the Earth, and you are one of them. 
+
+拜伦：大多数高度进化的实体所做的事情他们都会做，他们为整体利益而工作，带着回归源实体这一明确目标。OM也会协助地球上的灵体，毕竟这是一个关键实验，有很多OM在与地球一起工作，你就是其中之一。
 
 ME: Earth is an experiment? 
 
+我：地球是一个实验吗？
+
 B: Yes. 
+
+拜伦：是的。
 
 ME: What is the experiment? 
 
+我：是什么实验呢？
+
 B: To pave the way for individual free choice rather than collective choice. This is required as it allows faster evolution of the entities involved. It has been interesting to see the progression up and down the frequencies. 
+
+拜伦：为个人自由选择，而非集体选择铺平道路。之所以如此，是因为它使参与其中的实体能进化的更快。观察频率上上下下的波动很是有趣。
 
 ME: I hope I will be able to remember all of this when I finally type it up. 
 
+我：希望当我最后把这些敲进电脑的时候我还会记得。
+
 B: You will always remember, and I will always be with you when you are typing. 
+
+拜伦：你会一直记得的，并且当你打字时，我会一直与你同在。
 
 ME: Thank you. 
 
+我：谢谢你。
+
 I went down the levels to the Earth plane, and as I reached the Earth level, I heard his voice in my head say: 
+
+我向下回到地球层级，我听见他在我脑海里说：
 
 B: Be careful on your motorcycle. 
 
+拜伦：骑摩托车时当心点。
+
 It was a nice day, so I was going to work on my old 1977 Triumph Bonneville. 
+
+那天天气很好，所以我要骑着我的1977年老凯旋摩托去上班。
 
 ME: I will. 
 
+我：我会的。
+
 #### Byron on Intention and Mental Constructs 
+
+**拜伦谈意愿与心智构造**
 
 A week later I went straight to the 27th level, and Byron was there waiting for me. I greeted him. I then perceived that we were standing on a balcony with a steel railing and looking out into space with a couple of planets very, very close by. 
 
+一周后，我直接去了第27级，拜伦正在那儿等我。我向他问好，然后就觉得我们正站在一个带铁栏杆的阳台上望向太空，有一些行星离得非常近。
+
 B: This is an example of what we can do by using a mental construct. 
+
+拜伦：这是我们使用心智构造的一个例子。
 
 The next thing I knew we were looking over a gorge or valley that looked like it could be Earth. 
 
+紧接着，我便发现我们正看着一个像是峡谷的东西，看上去可能就是地球。
+
 ME: This is impressive. How do you do this? 
+
+我：真厉害，你是怎么做到的？
 
 B: We simply have the intention and follow through. 
 
+拜伦：我们只需要启动一个意愿并跟随它。
+
 We were then back in space. Byron had taken me back to the same position with the planets close by. 
+
+我们又回到太空中，拜伦把我带回到刚刚那个靠近行星的位置。
 
 B: This is your solar system. 
 
+拜伦：这是你们的太阳系。
+
 ME: How can the planets be so close to each other? 
+
+我：行星之间怎么会离得那么近？
 
 B: I have brought you to a point in time in your vibration level where they were close together so that you can have a good view. 
 
+拜伦：因为我把你带到了你所在振动层级的一个时间点，此时正好这些行星运行到彼此靠近的位置，这是为了让你可以更好的观看。
+
 ME: Do you use space ships to travel in space? 
+
+我：你们使用太空船做太空旅行吗？
 
 B: Not usually. We generally just go wherever we need to go by using our intention. If we need to come into your vibration levels and travel in physical space, we need to construct a mental barrier to protect ourselves. 
 
+拜伦：不常用，我们通常用意愿去我们需要去的任何地方。如果我们要进入你们的频率层级在物质空间穿行的话，我们就需要建造心智屏障来保护我们自己。
+
 ME: Are these what we call UFO's? 
 
+我：那是我们所说的不明飞行物吗？
+
 B: You have many ways of perceiving them. You see them as golden orbs and even disk-like space ships. You interpret the information in your own ways, depending on what your physical knowledge is and what your mental capacity is for dealing with such information. The object is to show you that you are only limited by your own imagination—an imagination that is limited by your experience of what you believe can be done here on the Earth plane. You could do quite a lot, but you don't fully and unequivocally believe that you can do certain mental tasks and functions, and so, therefore, you fail. 
+
+拜伦：你们有很多种方式感知到他们，你可能会把他们看成是金色的球或者碟状的飞船。你们以自己的方式理解这类信息，用怎样的方式只取决于你们处理这类信息的物理知识和心智能力。我们的目标是向你们传达，唯一会限制你的是你的想象力，而想象力会被你所相信的对于在地球上能做什么的那些经验所限。你完全可以做到更多，但你没有全然坚定的相信你能用心智实现一些任务和功能，所以你就做不成。
 
 #### Byron on Spherical Time 
 
