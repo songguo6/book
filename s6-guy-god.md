@@ -1053,76 +1053,850 @@ B: You have many ways of perceiving them. You see them as golden orbs and even d
 
 #### Byron on Spherical Time 
 
+**拜伦谈球形时间**
+
 Today Byron said as I reached the 27th level, “I am going to tell you about time.” This I thought would be interesting as I believed I was quite adept in the philosophy of how time worked. 
+
+今天当我到达第27级时，拜伦对我说，“我要跟你聊一聊时间”。我想这会是个很有趣的话题，因为我自信相当精通时间运作的哲学。
 
 B: Time is spherical. 
 
-ME: What? (Out for a golden duck! [See Glossary.]) How do you mean? 
+拜伦：时间是球形的。
+
+ME: What? (Out for a golden duck!) How do you mean? 
+
+我：什么？零蛋出局！你什么意思？
 
 B: Time is spherical. All the events in time that have ever happened or will ever happen are happening now or are all happening at the same time. 
 
+拜伦：时间是球形的。时间里的所有事件，无论是已经发生的还是将要发生的，都正在发生，或者它们都在同时发生着。
+
 ME: Can you explain what you mean? 
+
+我：你能解释一下？
 
 B: Basically your perception of time is linear with three points: a past, present and future. You don't perceive an end point, and you can't remember a starting point. However, you do know where you are currently, or so you think, so you perceive the future as in front of you and the past as behind you. 
 
+拜伦：一般来说，你对时间的感知是线性的，它有三个节点，过去、现在和未来。即使你感知不到终点，也无法记得起点，但是你知道自己当下身处何处，或者你以为你知道，即使在你的感知中，未来在你前方，而过去在你身后。
+
 ME: You mean we think of time as in a straight line. 
+
+我：你的意思是说我们把时间想成了一条直线？
 
 B: Yes, but this is not the case. Everything that has already happened and will ever happen is happening all at the same time. Call time a finite series of happenings. If you travel in one direction in the sphere, you will experience the events that are a result of that which has gone before in that direction. But if you change direction . . . 
 
+拜伦：是的，但事实并非如此。一切已经发生或者将要发生的事情，其实都在同时发生着。可以把时间称为有限事件序列。如果你在球体中顺着某个方向行进，你将会经历这个方向上事先发生的事件的结果。但是如果你换一个方向的话...
+
 ME: A whole set of other interactions take place that causes that event to take place? 
+
+我：这样就会发生一系列其他事件，成为那个事件发生的原因？
 
 B: That’s correct. If you travel from event point A to event point D via event points B and C, you know what other events took place to get to point D. However, if you went from event points A to D via B1 and C1, another set of events could have occurred to change the event point D, or not change it, as the case may be. Actually you can also use the term “holographic” to explain the happening of events since the sphere has an interior and not just a surface. 
 
+拜伦：正是。如果你从事件点A到事件点D，途中经过事件点B与C，你就会知道是其他哪些事件的发生使我们到达了D点。然而，如果你从事件点A到D经过的是B1和C1，就会有另外一系列事件发生，而改变了事件点D，或者并没有改变它。正如例子中的情况，实际上你也可以用“全息”这个术语来解释事件的发生，毕竟球体不只有表面，还有内部。
+
 ME: Why is time finite? 
+
+我：为什么时间是有限的？
 
 B: Because the Source decided when our departure would end, and we would all be together with the learning and experiences completed. Hence, the task is finished and the individual concept of events happening is, therefore, no longer necessary and is removed. 
 
+拜伦：因为源头决定了我们的分离何时结束，那时我们将带着所获得的知识和经验重聚一堂。使命既已达成，所谓事件发生的个体概念也就不再必要，因此会被删除。
+
 #### Overlapping/Simultaneous Time and Space 
+
+**重叠同步的时空**
 
 ME: How does this relate to space? 
 
+我：这和空间有什么关系吗？
+
 B: Obviously there is physical space, non-physical space (higher frequency or spiritual), dimensional space, and level space—all happening at the same time. All happening together is a better way of putting it. You can travel to wherever at whatever event point instantaneously and experience what is happening at that event point when you get there. 
+
+拜伦：很显然，存在着物质空间、非物质空间（高频空间或灵性空间）、维度空间，以及层级空间，这一切都是同时发生的。更好的说法，是所有一切是一起发生的，你可以即刻穿越到任何地方的任何事件点，体验那个点在那个时刻正在发生的事情。
 
 ME: How does level space come into it? I thought the levels were relative to the auric bodies. 
 
+我：层级空间又是怎么加进来的？我以为层级是与辉光体有关的概念。
+
 B: They are up to a point, but when you get past the relationship with the physical worlds and you get closer to Me . . . 
+
+拜伦：在一定程度上是的，但当你超越了与物质世界的关联，更接近我时...
 
 #### Levels of Perception 
 
+**感知的层级**
+
 ME: Hang on. Who am I talking to now? (I had noticed the voice change). Am I talking to the Source Entity? 
+
+我：等等，我现在是在和谁说话？（我注意到声音发生了变化）是源实体吗？我这么问道。
 
 SE: Yes. You see, the closer you get to Me, the more like Me you become as an individual, so you go higher up the levels until your bodies are My body. They are anyway, but it will help your conception to consider them as being separate for a moment or two. Essentially, the higher your perceptions of the levels between us, the closer to Me you get. This distance is called the levels of perception or auric body levels at your position in the game. 
 
+源实体：是的，要知道你们距离我越近，作为一个个体的你就越和我相似，你们的层级也因此不断提升，直到你们的身体成为我的身体。当然你们的身体本来就与我是一体，你在观念上把他们一度当做是分离的。本质上你能感知我们之间的层级越高，你就越接近我。这个距离就是感知的层级，或者以你们在游戏中的位置来讲，可以称作辉光层。
+
 ME: And all this is happening at the same time. 
+
+我：而所有这一切都是同时发生的。
 
 SE: Yes. You can perceive or visit any point in time in any level of perception in any dimension in any spiritual frequency you want. If you had the mental capacity (and at this point in time you haven't), you could experience it all at the same point or from all the different points. I refrain from using the word time here, as it is misleading. 
 
+源实体：是的，你可以在任何灵性频率的任何维度的任何感知层级感知或访问时间中的任意一点。如果你有足够的心智能力（在这个时间点你还不具备），你就可以在同一点或者从所有不同的点经验这一切。这里我回避了时间这个词，因为它具有误导性。
+
 My head was spinning as I thanked them both and came down the levels to the Earth plane. This head wasn't big enough. 
+
+我谢过他们两个，回到地球层面，头脑还在不停运转着。感觉脑子真的不够用啊。
 
 #### The Fallacy of the Time Loop 
 
+**时间循环的谬论**
+
 The next day we talked about time again. I was back with Byron. 
+
+第二天我们又谈起了时间，我还是在拜伦那里。
 
 B: Time is not linear as you now know, and because of this, the popular depiction of the time loop doesn't exist. 
 
+拜伦：你现在已经知道时间不是线性的了，正因为如此，流行的时间循环的描述其实并不存在。
+
 ME: What? I thought that this was a well-proven theory. What about the classic grandson killing the grandfather scenario? 
+
+我：什么？我还以为这个理论已经被充分证明了呢。那么经典的孙子杀死祖父的情节又怎么说？
 
 B: Yes, provided that you are in linear time, and you assume that the time line change is such that the grandson’s existence is terminated, but time isn't linear. When you consider that the time line—really a series of events—is changed and the effect is that the grandson is still born but has a different grandfather, then the need to go back in time to kill the grandfather may not exist, and the time line continues. You could also consider that once the grandfather is killed, the grandson stays alive in that time event because that has not changed his personal time line. The series of events after this event, i.e., that his parents were the same, compensate for the change. Everything that has ever happened or will happen is happening now, so the natural thing for the event stream to do is go from the nearest event to the next event that should have happened because it has already happened. 
 
+拜伦：如果你确实处于线性时间中，因此假设时间线改变会导致孙子的生命终结，这种情节是可能的。但时间不是线性的，当你考虑到时间线其实是一系列事件变了，所以孙子依然得以出生，但是他的祖父已经不是原来那个了，那么回到过去杀死祖父的需要也就不存在了，因此时间线会继续下去。你也可以认为，一旦祖父被杀，而孙子在那个时间事件中仍然活着，是因为孙子的个人时间线并没有改变这件事之后的一系列事件，比如他的父母没有改变弥补了这一变化。但是一切已经发生或者将要发生的事情都正在此刻发生。所以对应事件流的最自然的做法是从最近的事件去到下一个应该会发生的事件，毕竟它已经发生了。
+
 ME: Has this something to do with time being spherical or holographic? 
+
+我：这是不是和时间是球形的或者全息的也有关系？
 
 B: Yes, remember that you experience time as a number of events and that each event and all its variations are happening all together. Hence, the individual who traverses the events to affect an individual person in one event switches to another event automatically, one that is similar to but not exactly the same as the one he was just part of. 
 
+拜伦：是的，记住，你将时间体验为一组事件，而每一个事件及其所有不同的变化都是一起发生的。因此，一个人为了影响某个事件中的某人而穿越这组事件时就会自动跳转进另一个事件，一个与此人刚才所处的事件相似但不同的事件。
+
 ME: So this means that the loop theory fails. 
+
+我：这就意味着时间循环的理论是错的。
 
 B: Yes, of course. 
 
+拜伦：那是当然。
+
 ME: This is taking some time to get my head around, even with my interest in temporal concepts. 
+
+我：虽然我对时间方面的概念真的很有兴趣，但我还是需要点时间来消化。
 
 B: It’s bound to. You exist in an environment where it is hammered into you that time is linear.
 
+拜伦：这是必然的，毕竟你所生活的环境让你习惯性的认为时间是线性的。
+
 ![图2：球形时间](img/s6-018.png)
 
-### Chapter 3 Byron and the Source Entity Visits at the 100th Level
+### Chapter 3 - Byron and the Source Entity 
 
- Appearance/Forms of The Source Entity and Byron In a later meditation I decided to go to the 60th level bypassing all the other levels on the way up. I then decided to go up to the 100th level. When I arrived, I sensed the Source Entity. The Source Entity visually appeared to be like a galaxy or nebula in a space that was all black. I was positioned on the edge of this nebula. I spoke to the Source. ME: So this is what you look like. SE: Yes. I have no form, but I have form. Byron suddenly appeared by the side of me, but his appearance was not that of a humanoid. He also looked like a loose ball of energy. SE: This is what Byron really looks like. When he is with Me, he has no need to look as you or any other being that communicates with him would expect him to appear, so he adopts his natural state. ME: I thought he lived on the 27th level. SE: He does, but I brought him here to let you see what he really looks like. ME: Can only people who access the higher levels, the 60th and above, speak with You? SE: I will speak to anyone on any level if they wish to speak to Me, but generally it is only people who are evolved enough or remember who they are that are able to visit the 60th level and above that manage to contact Me the way you have just done. I use the 60th level as a buffer. ME: That’s interesting. I will chat about this some more tomorrow. SE: I will be here. The Source Entity—Time as an Event Stream The next day I decided to go back to the 100th level and talk with the Source Entity again. I went straight there with no need to jump up one level or a series of levels at a time. SE: Ah, you're back. ME: It's been exactly a day on Earth. How long has it been for you? SE: No time and all time. It is as if you were never away, or you have been gone two years. ME: Oh, where is Byron? I expected him to be here. SE: He is doing things in his realm. ME: So did You notice me gone? SE: I noticed a lack of attention on your behalf. ME: How do You experience time? SE: All at the same time and one event at a time. It depends on what I want to focus on; it can be fast or slow. You will also experience time this way when you return to the energy state and to the Source/Myself. My thoughts went to the comments that the late Adrian Divir made in is his book “X3, Healing Entities and Aliens” about communicating with aliens. He talked about only a week having passed between communications with a particular individual, but the alien he was communicating with said that a year had gone by in his dimension. The Source Entity picked up on my thoughts. SE: That is because they are experiencing the event stream (or time as you call it) at a different speed. It is also why they appear to travel and change direction very quickly when they are seen in their craft in your dimension. They are going in and out of their event stream and your event stream to aid their travel in your dimension. The result is that they seem to appear and disappear or move and change direction very fast. The aliens haven't contacted you yet, but they will. As I pondered on this comment, I saw the Source from a distance. It appeared as a vast galaxy of energy in the darkness. I tried to enter its light, and the Source spoke to me. SE: You can't come in here yet. You are not capable of experiencing the total unconditional love of the Source in your current incarnate form. You will, of course, when you are disincarnate (in between lives) and when you return to Me but not now. It will distract you. Contact with Aliens ME: O.K., I understand. What about the aliens? Why have they not contacted me yet? SE: They have on the subconscious level, but they find it hard as your mind is too busy. You are truly multidimensional in your mental activity, but you need to allow yourself to focus on one thing at a time. This will allow them access to you. The “Violet Flame” meditation you are doing is helping, but you need to be more resolute. Only when you have quietened your mind will they be able to contact you properly. Also, you try too hard when you start things. You are too intense; this acts as a block. You need to let go and go with the flow. Only then will things happen. You are getting there, but do it slowly and don't try to force it. ME: Thank you. I will do my best. SE: Don't try your best, just be. Sometimes just “being” is the best thing to do. This is at the heart of meditation. You should try it. Byron on Just Being One morning meditation I found myself just being and not trying to contact anyone, such as the Source or Byron. B: Just being is sometimes the best thing to do. It slows the mind down. ME: Who is that? Is that the Source? Where is Byron? B: This is Byron. ME: Oh, hello. How can you contact me on this level? I am still on the Earth plane. B: I can contact you on any level; it is only you that have decided to come up to my level to communicate, and you think this is the only way. This is no longer necessary. Not convinced, I shot up to the 27th level to see Byron. We walked in a lovely wooded glade filled with flowers. B: Just being is one of the best things you can do. It allows you to just be yourself without the urgencies of the material world. It allows you to think and rationalize and communicate with yourself properly. It will slow YOUR mind down, allowing you to access the spiritual side of yourself, the real you. ME: How is this? B: Your mind races with a list of things to process; it is constantly planning and scheming on things/jobs that you believe are more important. They appear to be so important that they even override your ability to meditate. This is your conscious mind fighting for supremacy, for it knows that it will eventually lose control of your Earthly existence as you become more spiritual. It wants to perpetuate itself. It will even try to disguise itself by being part of your spiritual agenda and making you think that you need to have your abilities now. In effect, it will make you try too hard and subsequently block your progression—a perfect way to maintain its existence. ME: So just being really is good for you? B: Yes, provided you don't focus on it as a means to an end and make it formal. Just enjoy the moments when they appear and don't think that you need to communicate with me or the Source and write something every day. Accessing One’s Core Essence/Core Star I discussed the just being principle with my wife one night, and I mentioned the information I received about it being an essential part of getting in contact with our core essence. I also talked about the feeling that I had been getting that the material world was feeling more and more like an illusion. I said that I thought “The Matrix” movie was a very important concept for people to think about in terms of understanding the difference between the realities of the spiritual world compared to the great illusion of the material world. We also discussed the need to access levels individually when we are in contact with our core star. We considered that when we are in contact with our core essence, we will be operating on all levels at the same time and will not, therefore, need to think about going to a level to communicate with an entity or being. This also came up in my morning meditation the next day. SE/B: Just being is a key part of getting in contact with your core essence. ME: Who am I speaking to? The Source or Byron? SE/B: Both of us and one of us, for we are one and the same. You understand this on a deeper level. ME: I am getting the feeling that I no longer need to “go” to a level to communicate with you. SE/B: That is correct, for when you are in contact with your core essence, you are truly everywhere and at all levels at the same time. You just are. You don't need to go to the 127th level to contact Me. ME: Hang on. I thought there were just 100 levels. SE/B: There are only 100; it was a figure of speech. However, an individual may want to split the levels up so that he/she is able to take the evolutionary level jump at an easier pace. ME: O.K. You were talking about the core essence. SE/B: Yes, the core essence is the real you. It is your essence in the fullest sense of the word. The core star can be considered as a database of all your experience and existence—all that you have done, will do, and are doing. Once you access this, you will fully understand and believe that the material world really is the great illusion. You will understand that you are energy and that you can manipulate energy. In being able to realize and fully believe this, it will become your ultimate reality. You will realize that you can manipulate energy in the material world, as well as affect the material world reality. A master knows and fully understands and believes this, for he is who he really is. This is how a master can do things, like dematerialization, teleportation, and telekinesis, etc.—all the things that will get the attention of the people in the material world, the so-called hard evidence of a higher order of things. A master can do this because his belief is unequivocal. He is himself incarnate in the material world together with all the knowledge, understanding, and experience of the universe and God, for he is one with God and the universe, and the universe and God are one with him. ME: Thank you. That is both beautiful and interesting. SE/B: Of course, it is the nature of everything. All is in balance when understanding is finally achieved, and belief is replaced by knowing. Getting in contact with your core star/core essence allows you to get in contact with the real you. It allows you to access who you really are. Removing the Veil of Separation from Our Real Self ME: But what happens if we remove the veil that separates us from our real self and what we think is reality? Would this not cause mayhem? People would think that all that they have strived for is to no avail. They would realize that there is life after death and that everything is love and light and that this real reality is infinite. Then they’d come to the conclusion that if everything is love and light, then why not have a good time while they are here on Earth. They would abandon the need to strive and work for the evolution and experiences that they came to Earth to experience in the first place. SE/B: That is correct, and that is why a few, and only a few, individuals are able to access both worlds: reality and the material world at the same time. This is because they understand that they are here for a reason and that they must also commit themselves to finish what they started, as well as work with the spirit realms. To do this, they need to be grounded and be able to balance the two worlds of the reality and material. My thoughts went to the Chinese dynasties of the past. SE/B: Yes, that is right. They realized that they were going to reincarnate and that life and their real selves were perpetual. Once they had established this, they decided that it was best to have jam today rather than tomorrow, so they abandoned the need to complete their Earthly experiences and delayed evolution until their next incarnation. They chose to have a life of decadence instead. The result was that this belief was perpetuated beyond the normal life and death cycle associated with reincarnation, and they didn't evolve for several lifetimes. In fact, they incurred quite a lot of karma which has taken some of them many lives to work out. Some are still catching up. ME: So you really do have to be special to work with the spirit worlds within the material. SE/B: Yes, you need to be quite a way up the evolutionary scale and be dedicated to both causes you have taken responsibility for. The Role of the Aliens One Tuesday I opened my chakras and wondered what the subject for today would be. As I thought about discussing aliens, I sensed a presence in my consciousness. ME: Who is there? Byron? The Source? SE/B: The Source, Byron, both of us, as we are one as we are one with you. At this time I wasn't concerned with what levels I was on as I now knew that communication was independent of which level I was on. All I needed was the intention and the belief. ME: What do aliens have to do in the scheme of things? SE/B: They are a part of the bigger picture. They work for the good of the All. Of course, some of them are as ignorant as humans and, therefore, only work towards their own ends. But mainly many of them are highly evolved and are doing everything they can do to support their own evolution and the evolution of others and the universe. They are dedicated to increasing the vibration levels of the universe to bring it back to what it used to be during the time after the separation of My/our self. Humans are part of this because, as you know, independent free will is the great experiment that will allow the universe to evolve faster. Byron on the author as an Om This communication ended as fast as it started, but I was to talk further on the subject the next day with Byron on his own time but with a difference. I was still on the Earth level, but I was talking to Byron via what I visualized as a tube or bypass between the 27th level and the Earth level (level 1). ME: Hi Byron, I am still on the Earth level. How can I talk to you? Are you on the Earth level? B: No, I am still on the 27th level but am communicating to you through a bypass that you have created. ME: Oh, how did I do that? B: I don't know, but it works. A bit confused as to how I created a bypass without knowing how or even that I had created it, I continued with my intended dialogue. ME: I wanted to talk next about aliens and how I fit in. B: O.K., but I will start with a statement of reality first. You are part of a race of beings called the Om. You are a race of light beings that travel the universe visiting different galaxies. ME: How did I get involved in being here on Earth? B: You were made aware of the work that was going on in the Earth plane and understood how important it was and that it was pivotal to the evolution of the universe. In realizing this, you undertook sacred work under the guidance of the Source Entity to help the occupants of Earth remember the knowledge, the truth. ME: It doesn't seem to have worked very well. B: It has but not in the way you wanted it to. You expected there to be centers of excellence for retaining the knowledge and the truth. This happened, but it was abused by the Egyptians and other notable races that used it to control others. Over a number of lifetimes, you have been able to assist in keeping this knowledge and truth alive in the minds of a few dedicated and aware (awake) individuals, Masters, and believers in the truth. ME: So where are we now? B: You and the Om have assisted in getting the Earth back to the condition where knowledge and truth are becoming known and believed by more and more people. We are now at a point where we almost have the critical mass necessary to allow us to raise the frequency of the Earth back up to the levels that it should be. You have reincarnated into a very important time period. The Om are a race of light beings that are one with God. All beings are, of course, one with God, but the Om are higher up the frequencies. When you took on-board the most sacred and important work on Earth, you made a special and massive commitment that has lasted many lifetimes. ME: So what is my work in this lifetime if the critical mass is almost achieved? B: You are to help in the realization process. This is showing the general public the things concerning spirituality that they can relate to and measure. You will show them that this is but just a small part of spiritual matters and that although there is a more physical side to spirituality, this is just for demonstration—to get their attention. Once you have their attention, you will be able to tell and teach them about the reality and truth, the big picture. You will need to be pure of mind, body, and soul, so you had better start cleansing yourself. Byron Introduces Hum The next morning I was grounding myself and opening my chakras when I got the impression that Byron was close to me with there was another entity by his side. He was wearing a silver suit that appeared to have no seams but gave the appearance of a space age pullover type garment. I increased my frequency to that of the 27th level and greeted Byron. B: Hello, this is *******. I couldn't pronounce his name. B: You probably can't pronounce his name, so we will call him Hum. ME: O.K. Why is Hum here? B: He is beloved of the Om, as are you, and he will be able to help you in all your questions about alien races in the universe/s. He will also help you communicate with them so that you can further your knowledge. ME: Why does he wear the silver suit? B: That is so you can discriminate me from him. He will help you with the other races. ME: I have to go now. B: That is O.K. The objective was to introduce you to Hum, and this has been done. ME: Thank you both. Byron on Oneness with Our Higher Self My first morning meditation after coming back to the UK from Crete saw me literally shooting up to the 27th level to see Byron. When I arrived, I felt that I was distanced from myself and was bouncing around like I was on a trampoline. B: Your movement up to my level was too fast for your conscious mind to keep up with. That is why you feel at a distance to yourself and see yourself bouncing around. ME: This is interesting. B: Yes it is. It is one of the ways in which you can contact your higher and true self. You can do this by moving up the frequencies too fast and literally leaving your conscious mind behind. Your conscious mind usually stops you from doing this by making you think of other things, such as those small jobs around the house or garden that you end up doing. You can use this method to get in contact with your higher and true self, which will allow you to operate more in your higher self's consciousness than your physical mind’s consciousness. ME: I have a question based upon the duality of the two minds. On page 259 of Adrian Divirs' book X3, Healing Entities and Aliens, the author mentions that the physical mind and the higher self mind operate in parallel. The higher self mind has a copy of all that’s experienced and recorded by the physical mind and adds it to the larger memories and past life knowings of the higher self and Spirit. When the physical body dies, the physical memories die, and the memories that were recorded by the higher self mind are retained. I find it really disturbing that the person that I currently am appears to really die and that what is retained is just a copy. (My mind went to Arnold Schwarzenegger’s film The 6th Day where people were having their memories preserved and transferred to a clone.) This appeared to give the individual immortality until a clone was released before the original was dead, which illustrated the fact that they were really two people with two memories and not one memory being transferred from one body to another. B: Yes, that is mostly true and is correct for the general population of incarnate entities who are never aware of their higher selves. However, when you are truly in contact with your higher self, you are in total control of who you really are and tend to focus your attention more and more within your higher self's consciousness. You are totally able to access all your previous lives’ memories and information accumulated in your higher self's mind. When this happens, you see the human body for what it is—a vehicle for evolution and not who you really are. Because your attention is now in the higher self rather than the physical self, you experience yourself as your higher self. Your attention is shifted from one part of you to another, the real you. The only problem here is that the individual must try to stay grounded when in this state; otherwise, he/she will appear to become distant (or spaced out) from the physical body. Then it will lose control of it. When your attention is focused on the higher self, you will not experience the feeling and fear of this kind of mental duality. You will be able to move your consciousness freely between the physical and higher self, effectively creating one mind, one set of new cumulative higher self and physical memories and thus perpetuating a feeling of oneness. The greater picture is that once you can do this, you will be able to interface and integrate with the other parts of yourself that are either incarnate or in spirit experiencing the total oneness of your true, true self as a multidimensional being experiencing many things and many incarnations on many planets and many dimensions all at the same time. ME: Wow! Thanks a lot. Now I understand. B: Not bad for a six minute meditation, but, of course, time is different when meditating. And don’t forget that concepts, knowledge, and understanding are transmitted in more than the spoken or written word. Byron on Accessing Higher Self Memories The next day I again went to see Byron on the 27th level and decided to prove the comments he made about moving too fast through the frequency levels. I moved through the levels bouncing around from the 27th to the 15th to the 30th to the 50th to the 100th and down again. I moved so fast that I (my physical mind) was starting to lose sight of my higher self’s mind. I moved from galaxy to galaxy in the blink of an eye. B: You’re losing me, too. I can't keep up with you! I then moved back up to the 100th level where I saw another galaxy form. This I recognized as the Source Entity. He/She/It spoke to me. SE: Remember who you are! I then experienced something totally unexpected. I received impressions of many, many, many lives being lived. I gained glimpses and impressions of pictures and feelings of where I was and where I had been. I was a Byzantine warrior, a Roman, an Egyptian. I saw an aircraft go over my head in Atlantis, I saw structures of buildings on another planet, and I met up with the Om and embraced them. I received the impression that there was far too much for my physical consciousness to comprehend so only fleeting impressions were received and interpreted. Mere snapshots of what was being given to me were grabbed by my physical consciousness and relayed to me. As I write this, I feel that I have been given a gift. When I de-focused my attention from my physical mind to my higher self-mind via core star mediations or simply moved too fast through the frequency levels for my physical consciousness to keep up, I effectively diffused the concentration of physical consciousness to the more diffuse requirement of the spiritual or higher self-consciousness. In effect, I raised my vibration level and expanded my consciousness to encompass the wider corners of self by expanding the horizon of my awareness through diffusion of concentration. In eyesight terms, it would be like fully using your peripheral vision. I was told that this technique would allow me to focus on my higher self’s consciousness to access my higher self’s memories. The Om on Concentration, Focus, and Meditation My morning meditation was proving to be difficult with my mind wandering onto more Earthly pursuits. After I finally managed to calm my mind down, I projected myself up to the 20th level again and looked around. The gap between the 20th and 21st was narrow, so I expanded it so that it was more comfortable. I saw the usual black/grey appearance of this level and then decided that I would expand my awareness to what the real appearance of the 20th level was. It instantly went into a bright white light and at the same time two of the Om came to greet me. They were pleased that I had been able to see what the real 20th level environment looked like. In contrast they looked like wispy black entities, but I perceived that this was only in comparison to the very, very iridescent bright light of the 20th. They told me that this light was pure celestial light. They then said they would give me a lesson in concentration. I thought this was very appropriate. I suddenly found myself on a tight rope (without stabilizers) crossing a canyon in the US with the knowledge that I had to concentrate 100% on the task at hand or risk losing my life. I felt the level of concentration as being total engrossment. I was one with the wire I was walking on and knew exactly where to place my feet and how to distribute my weight. There was nothing else in the universe that mattered; I wasn't even interested in the wonderful view or the birds that flew by me. I was totally focused on the task at hand. Afterwards, I returned to the 7th Earth plane levels. What an excellent example of concentration and focus! This experience helped me tremendously to understand this concept. The next day I started my meditation and closed all of the doors off on the downwards spiral staircase that represented my thoughts. Each door represented a different thought and, therefore, a different distraction. I opened up all my chakras and rose up to the 20th level pulling up some friends (who I assumed were some of the Om, who were on the 14th level) at the same time. They then re-emphasized the previous day's lesson on concentration. They stipulated that the tightrope walker was an excellent example of pure 100% concentration. The level of concentration was such that nothing outside of doing the task at hand was important. A tightrope walker needs to dedicate those minutes of his life purely to walking the rope. He/she cannot allow any outside influences to intrude or distract his concentration. This is the level of concentration that is necessary when meditating. Om: You must be dedicated enough to allow the short period of time to be used in the meditation process and nothing else. I then had a fleeting thought about looking at my watch to find out what time it was since I had to go to work soon. The Om picked up on this instantly and said that this is exactly what they were talking about. Even this minute distraction was enough to cause a downward spiral of lack of concentration. Om: The ten or so minutes of meditation should be considered sacred, and no other thoughts should be allowed to interfere with it. The distractions are only the conscious mind’s desire to take control again. It feels that when you are accessing the higher self-mind, it is somehow losing control and is frightened that it somehow may not get it back. The Source Entity on Preparing for Meditation SE: A number of different ways can be used to still the mind as a prelude to meditation. One is to count the heart beats; the other is to concentrate on the breathing rhythm. A further method is to imagine you are stroking a favorite animal or throwing a ball for a dog. All of these focus the mind on one thing only. You could also think of a big yellow ball above your head and then imagine your spirit rising up to join with it. This also works. Concentration can also be considered a vital part of meditation, and, even classed as meditation in its own right. When you meditate, you need to focus on the meditation and not the idle chatter of your mind that wants to continue to control you and prevent you from accessing your real self. Only when you are fully focused can you meditate properly; focusing requires you to concentrate on the meditation process and only that. Give yourself a little mental note to know when your meditation/concentration is wandering and drag yourself back into focus. Concentrating on something simple is the best route. Celestial Light With this lesson well and truly learned, I commented on the bright light that was the 20th level, and the Om again said this was celestial light. It was not the same as the celestial love experienced on the 6th level. It was the light of all things and nothing, all places and no place, all universes and no particular universe, all times and no time, all dimensions/frequencies and no dimensions/frequencies, all beings in all times, dimensions, frequencies, and universes all at the same time. This is what made the light so bright; everything and everyone was burning so very brightly. I then saw some bright spots that moved around, and I was told that these were other beings that were specifically aligned with the 20th level. That's why they were brighter than the ambient light. My fellow beings looked dark in lieu of all this brilliant ambient light. On the Earth plane they would look like brilliant white/golden light, but here they looked dull in comparison. I wanted to embrace them all and thank them for the lesson and their patience in teaching me. I felt them smile, and I sensed that it really was time to hit the road and go to work. Mixed Remembrance of Memories and Abilities At my next mediation I was more focused and determined not to be distracted. I opened up my first seven chakras to associate myself with the auric levels and then swooped up to the higher levels. When I arrived at the 14th level, I noticed the tube (bypass) that I had put in place to allow the Om to pass up to the 20th level. Upon my arrival, I felt the presence of another being who I assumed was one of the Om. Om: We are impressed with your ingenuity; you are remembering. ME: Thank you. I am starting to remember stuff but not remember it in the way that I want to. Om: Define. ME: Well, I just know that I can do things, such as constructing the link between the 14th and 20th levels, but I can't remember past lives or the places/planets/galaxies/ dimensions where I used to live or even my previous time with the Om. Om: It is interesting that you mention the time before. You really must be next to a computer when you are meditating so that you can write our discourse straight away, but if you can’t, we will make sure that you can remember what we say to you. ME: How will you do that? Om: We will program you with a long term memory function so that you can download what was communicated to you. This dialogue was typed a few hours after the meditation. The conversation flowed back from my mind and into the keyboard. It felt like I was having total recall! The Om on an Image of Om as a Ball of Light I then decided that I wanted to see the celestial light of the 20th level and that I wanted to see the image of the Om. ME: Oh, you look almost human (angelic) to me. Om: That is because this is all your mind is able to cope with in its existing incarnate form. ME: Can I see what you are? Om: Yes, but you will only see us as something you can translate into your current limited understanding, but, you will SEE later. ME: I see you as a ball of light energy. Om: Yes, this is a good example and one that your mind can use as a translation substitute for something that it can't directly place into a recognizable context. You need some form of reference point, a datum from which to work. If you don't have the experience in this incarnation of what an energy being looks like, your brain will use a substitute, one that you can understand as meaning “This is an energy being.” Seeing an Energy Being ME: Oh, do I have to see an energy being, or do I only need to sense or communicate with one? Om: There are energy beings that you will not be able to see because the energy is not visible. It is too refined, too fine to be picked up even with spiritual eyes. You don't really need to see them anyway for you will know their presence and be able to communicate with them, albeit in a limited way. ME: Thank you. I must go now. During these meditations and subsequent recalls, especially when I am typing up the text that forms the dialogue, I am constantly thinking that I am deluding myself, that I am only talking to myself. But it is the speed and subject matter of the information that comes through that tells me that this is more than just talking to myself. Also, some of the information is said in such a way that it is foreign to me. It is then that I know this is not the Earthly me speaking.
+**第三章：拜伦与源实体**
+
+#### Visits at the 100th Level - Appearance/Forms of The Source Entity and Byron 
+
+**拜访第100级：拜伦与源实体的外貌**
+
+In a later meditation I decided to go to the 60th level bypassing all the other levels on the way up. I then decided to go up to the 100th level. When I arrived, I sensed the Source Entity. The Source Entity visually appeared to be like a galaxy or nebula in a space that was all black. I was positioned on the edge of this nebula. I spoke to the Source. 
+
+在后来的一次冥想中，我决定绕过上行路上的其他层级去第60级，接着我又决定上到第100级。我一到那儿就感觉到了源实体，源始体看起来像一个处于全黑空间中的星系或星云，而我正处于这个星云的边缘。我与源实体交谈。
+
+ME: So this is what you look like. 
+
+我：原来你是这个样子的啊。
+
+SE: Yes. I have no form, but I have form. 
+
+源实体：是的，我无形，但可成形。
+
+Byron suddenly appeared by the side of me, but his appearance was not that of a humanoid. He also looked like a loose ball of energy. 
+
+突然，拜伦出现在我身旁，看起来不像人类。他看起来像是一个由能量构成的松散球体。
+
+SE: This is what Byron really looks like. When he is with Me, he has no need to look as you or any other being that communicates with him would expect him to appear, so he adopts his natural state. 
+
+源实体：这才是拜伦真实的样子。你或其他存有在与拜伦交流时，他会采用你们希望他看起来的样子，会更贴近你们的样貌。但当他与我在一起时则无需如此，所以他就采用原本的样子。
+
+ME: I thought he lived on the 27th level. 
+
+我：我以为他在第27级。
+
+SE: He does, but I brought him here to let you see what he really looks like. 
+
+源实体：他是在那里，我叫他来这里是为了让你看看他真实的样子。
+
+ME: Can only people who access the higher levels, the 60th and above, speak with You? 
+
+我：是不是只有那些能上到更高层级，能上到60级以上的人才能和你对话？
+
+SE: I will speak to anyone on any level if they wish to speak to Me, but generally it is only people who are evolved enough or remember who they are that are able to visit the 60th level and above that manage to contact Me the way you have just done. I use the 60th level as a buffer. 
+
+源实体：我可以和任何层级的任何人对话，只要他们愿意与我交谈。但往往只有充分进化或者能够记得自己是谁的人才能来到第60级或者更高层级，并设法与我联系。就像你所做的这样，我把第60层级看作一个缓冲区。
+
+ME: That’s interesting. I will chat about this some more tomorrow. 
+
+我：这很有趣，明天我想多聊点这些内容。
+
+SE: I will be here. 
+
+源实体：我会恭候。
+
+#### The Source Entity — Time as an Event Stream 
+
+**源实体：时间是事件流**
+
+The next day I decided to go back to the 100th level and talk with the Source Entity again. I went straight there with no need to jump up one level or a series of levels at a time. 
+
+第二天，我决定回到第100级，再次与源实体对话。我没有一级或几级的跳，而是直接去了那里。
+
+SE: Ah, you're back. 
+
+源实体：啊，你回来了。
+
+ME: It's been exactly a day on Earth. How long has it been for you? 
+
+我：在地球上刚好过去了一天，在你这里是多久了？
+
+SE: No time and all time. It is as if you were never away, or you have been gone two years. 
+
+源实体：瞬间或永恒，就好像你从来没有离开过，又或者你已经离开了两年。
+
+ME: Oh, where is Byron? I expected him to be here. 
+
+我：咦，拜伦在哪里？我还以为他也在这里。
+
+SE: He is doing things in his realm. 
+
+源实体：他正在自己的地方。
+
+ME: So did You notice me gone? 
+
+我：那你注意到我离开了吗？
+
+SE: I noticed a lack of attention on your behalf. 
+
+源实体：我注意到你这边有一段注意力的不在。
+
+ME: How do You experience time? 
+
+我：你是如何体验时间呢？
+
+SE: All at the same time and one event at a time. It depends on what I want to focus on; it can be fast or slow. You will also experience time this way when you return to the energy state and to the Source/Myself. 
+
+源实体：可以同时体验所有事情，也可以一次经历一件事，这取决于我关注的是什么。时间可快可慢，当你回到能量状态并且回到源头/我这里时，你也会这样体验时间。
+
+My thoughts went to the comments that the late Adrian Divir made in is his book “X3, Healing Entities and Aliens” about communicating with aliens. He talked about only a week having passed between communications with a particular individual, but the alien he was communicating with said that a year had gone by in his dimension. The Source Entity picked up on my thoughts. 
+
+我想到了已故的阿德里安·德维尔，在他的《X3: Healing, Entities and Aliens》一书中有关于与外星人交流的描述。他说，与某个外星人的交流只间隔了一周的时间，而那个外星人则说在他的维度已经过去了一年。源实体看出了我的想法，接着说。
+
+SE: That is because they are experiencing the event stream (or time as you call it) at a different speed. It is also why they appear to travel and change direction very quickly when they are seen in their craft in your dimension. They are going in and out of their event stream and your event stream to aid their travel in your dimension. The result is that they seem to appear and disappear or move and change direction very fast. The aliens haven't contacted you yet, but they will. 
+
+源实体：这是因为他们以不同速率体验事件流（或者你所称为的时间），这也是为什么从你的维度看身在飞行器中的他们，会觉得他们航行和改变方向都如此快速。为了便于在你们的维度中旅行，他们在自己的事件流与你们的事件流中进进出出，其结果就是他们看起来时隐时现或非常快速的移动和转向。外星人现在还没有联系你，但是他们会联系你的。
+
+As I pondered on this comment, I saw the Source from a distance. It appeared as a vast galaxy of energy in the darkness. I tried to enter its light, and the Source spoke to me. 
+
+当我在思考这些描述时，我从远处看着源实体，它看起来像是黑暗中一个巨大如星系般的能量。我试着进入他的光芒，这时源实体和我说话了。
+
+SE: You can't come in here yet. You are not capable of experiencing the total unconditional love of the Source in your current incarnate form. You will, of course, when you are disincarnate (in between lives) and when you return to Me but not now. It will distract you. 
+
+源实体：你现在还不能进来，你现在的化身还没有能力体验源头完全无条件的爱。当然以后你可以，也就是当你脱离化身但尚未转世前回归我的时候。但现在还不行，这会让你分心。
+
+#### Contact with Aliens 
+
+**接触外星人**
+
+ME: O.K., I understand. What about the aliens? Why have they not contacted me yet? 
+
+我：好的，我明白。那外星人呢，为什么他们还没有与我联系？
+
+SE: They have on the subconscious level, but they find it hard as your mind is too busy. You are truly multidimensional in your mental activity, but you need to allow yourself to focus on one thing at a time. This will allow them access to you. The “Violet Flame” meditation you are doing is helping, but you need to be more resolute. Only when you have quietened your mind will they be able to contact you properly. Also, you try too hard when you start things. You are too intense; this acts as a block. You need to let go and go with the flow. Only then will things happen. You are getting there, but do it slowly and don't try to force it. 
+
+源实体：他们在潜意识层面联系过你，但是感到很困难。因为你的头脑太忙乱了，你的心智活动确实是多维度的，但你需要让自己一次只聚焦在一件事情上，这样他们才能与你连接。你正在进行的“紫焰”冥想很有用，但是你需要更坚定一些，只有当你的头脑安静下来，他们才可能与你接触。还有你做事时太用力也太紧张了，这会造成阻碍。你需要放松，顺其自然，只有这样，事情就会自动发生，你会达成所愿。慢慢来，不要勉强。
+
+ME: Thank you. I will do my best. 
+
+我：谢谢你，我会尽力做到最好。
+
+SE: Don't try your best, just be. Sometimes just “being” is the best thing to do. This is at the heart of meditation. You should try it. 
+
+源实体：无需最好，只需如之所是。有时候顺其自然就是最好的状态，这是冥想的核心所在，你应该尝试一下。
+
+#### Byron on Just Being 
+
+One morning meditation I found myself just being and not trying to contact anyone, such as the Source or Byron. 
+
+B: Just being is sometimes the best thing to do. It slows the mind down. 
+
+ME: Who is that? Is that the Source? Where is Byron? 
+
+B: This is Byron. 
+
+ME: Oh, hello. How can you contact me on this level? I am still on the Earth plane. 
+
+B: I can contact you on any level; it is only you that have decided to come up to my level to communicate, and you think this is the only way. This is no longer necessary. 
+
+Not convinced, I shot up to the 27th level to see Byron. We walked in a lovely wooded glade filled with flowers. 
+
+B: Just being is one of the best things you can do. It allows you to just be yourself without the urgencies of the material world. It allows you to think and rationalize and communicate with yourself properly. It will slow YOUR mind down, allowing you to access the spiritual side of yourself, the real you. 
+
+ME: How is this? 
+
+B: Your mind races with a list of things to process; it is constantly planning and scheming on things/jobs that you believe are more important. They appear to be so important that they even override your ability to meditate. This is your conscious mind fighting for supremacy, for it knows that it will eventually lose control of your Earthly existence as you become more spiritual. It wants to perpetuate itself. It will even try to disguise itself by being part of your spiritual agenda and making you think that you need to have your abilities now. In effect, it will make you try too hard and subsequently block your progression—a perfect way to maintain its existence. 
+
+ME: So just being really is good for you? 
+
+B: Yes, provided you don't focus on it as a means to an end and make it formal. Just enjoy the moments when they appear and don't think that you need to communicate with me or the Source and write something every day. 
+
+#### Accessing One’s Core Essence/Core Star 
+
+I discussed the just being principle with my wife one night, and I mentioned the information I received about it being an essential part of getting in contact with our core essence. I also talked about the feeling that I had been getting that the material world was feeling more and more like an illusion. I said that I thought “The Matrix” movie was a very important concept for people to think about in terms of understanding the difference between the realities of the spiritual world compared to the great illusion of the material world. We also discussed the need to access levels individually when we are in contact with our core star. We considered that when we are in contact with our core essence, we will be operating on all levels at the same time and will not, therefore, need to think about going to a level to communicate with an entity or being. This also came up in my morning meditation the next day. 
+
+SE/B: Just being is a key part of getting in contact with your core essence. 
+
+ME: Who am I speaking to? The Source or Byron? 
+
+SE/B: Both of us and one of us, for we are one and the same. You understand this on a deeper level. 
+
+ME: I am getting the feeling that I no longer need to “go” to a level to communicate with you. 
+
+SE/B: That is correct, for when you are in contact with your core essence, you are truly everywhere and at all levels at the same time. You just are. You don't need to go to the 127th level to contact Me. 
+
+ME: Hang on. I thought there were just 100 levels. 
+
+SE/B: There are only 100; it was a figure of speech. However, an individual may want to split the levels up so that he/she is able to take the evolutionary level jump at an easier pace. 
+
+ME: O.K. You were talking about the core essence. 
+
+SE/B: Yes, the core essence is the real you. It is your essence in the fullest sense of the word. The core star can be considered as a database of all your experience and existence—all that you have done, will do, and are doing. Once you access this, you will fully understand and believe that the material world really is the great illusion. You will understand that you are energy and that you can manipulate energy. In being able to realize and fully believe this, it will become your ultimate reality. You will realize that you can manipulate energy in the material world, as well as affect the material world reality. 
+
+A master knows and fully understands and believes this, for he is who he really is. This is how a master can do things, like dematerialization, teleportation, and telekinesis, etc.—all the things that will get the attention of the people in the material world, the so-called hard evidence of a higher order of things. A master can do this because his belief is unequivocal. He is himself incarnate in the material world together with all the knowledge, understanding, and experience of the universe and God, for he is one with God and the universe, and the universe and God are one with him. 
+
+ME: Thank you. That is both beautiful and interesting. 
+
+SE/B: Of course, it is the nature of everything. All is in balance when understanding is finally achieved, and belief is replaced by knowing. Getting in contact with your core star/core essence allows you to get in contact with the real you. It allows you to access who you really are. 
+
+#### Removing the Veil of Separation from Our Real Self 
+
+ME: But what happens if we remove the veil that separates us from our real self and what we think is reality? Would this not cause mayhem? People would think that all that they have strived for is to no avail. They would realize that there is life after death and that everything is love and light and that this real reality is infinite. Then they’d come to the conclusion that if everything is love and light, then why not have a good time while they are here on Earth. They would abandon the need to strive and work for the evolution and experiences that they came to Earth to experience in the first place. 
+
+SE/B: That is correct, and that is why a few, and only a few, individuals are able to access both worlds: reality and the material world at the same time. This is because they understand that they are here for a reason and that they must also commit themselves to finish what they started, as well as work with the spirit realms. To do this, they need to be grounded and be able to balance the two worlds of the reality and material. 
+
+My thoughts went to the Chinese dynasties of the past. 
+
+SE/B: Yes, that is right. They realized that they were going to reincarnate and that life and their real selves were perpetual. Once they had established this, they decided that it was best to have jam today rather than tomorrow, so they abandoned the need to complete their Earthly experiences and delayed evolution until their next incarnation. They chose to have a life of decadence instead. The result was that this belief was perpetuated beyond the normal life and death cycle associated with reincarnation, and they didn't evolve for several lifetimes. In fact, they incurred quite a lot of karma which has taken some of them many lives to work out. Some are still catching up. 
+
+ME: So you really do have to be special to work with the spirit worlds within the material. 
+
+SE/B: Yes, you need to be quite a way up the evolutionary scale and be dedicated to both causes you have taken responsibility for. 
+
+#### The Role of the Aliens 
+
+One Tuesday I opened my chakras and wondered what the subject for today would be. As I thought about discussing aliens, I sensed a presence in my consciousness. 
+
+ME: Who is there? Byron? The Source? 
+
+SE/B: The Source, Byron, both of us, as we are one as we are one with you. 
+
+At this time I wasn't concerned with what levels I was on as I now knew that communication was independent of which level I was on. All I needed was the intention and the belief. 
+
+ME: What do aliens have to do in the scheme of things? 
+
+SE/B: They are a part of the bigger picture. They work for the good of the All. Of course, some of them are as ignorant as humans and, therefore, only work towards their own ends. But mainly many of them are highly evolved and are doing everything they can do to support their own evolution and the evolution of others and the universe. They are dedicated to increasing the vibration levels of the universe to bring it back to what it used to be during the time after the separation of My/our self. Humans are part of this because, as you know, independent free will is the great experiment that will allow the universe to evolve faster. 
+
+#### Byron on the author as an Om 
+
+This communication ended as fast as it started, but I was to talk further on the subject the next day with Byron on his own time but with a difference. I was still on the Earth level, but I was talking to Byron via what I visualized as a tube or bypass between the 27th level and the Earth level (level 1). 
+
+ME: Hi Byron, I am still on the Earth level. How can I talk to you? Are you on the Earth level? 
+
+B: No, I am still on the 27th level but am communicating to you through a bypass that you have created. 
+
+ME: Oh, how did I do that? 
+
+B: I don't know, but it works. 
+
+A bit confused as to how I created a bypass without knowing how or even that I had created it, I continued with my intended dialogue. 
+
+ME: I wanted to talk next about aliens and how I fit in. 
+
+B: O.K., but I will start with a statement of reality first. You are part of a race of beings called the Om. You are a race of light beings that travel the universe visiting different galaxies. 
+
+ME: How did I get involved in being here on Earth? 
+
+B: You were made aware of the work that was going on in the Earth plane and understood how important it was and that it was pivotal to the evolution of the universe. In realizing this, you undertook sacred work under the guidance of the Source Entity to help the occupants of Earth remember the knowledge, the truth. 
+
+ME: It doesn't seem to have worked very well. 
+
+B: It has but not in the way you wanted it to. You expected there to be centers of excellence for retaining the knowledge and the truth. This happened, but it was abused by the Egyptians and other notable races that used it to control others. Over a number of lifetimes, you have been able to assist in keeping this knowledge and truth alive in the minds of a few dedicated and aware (awake) individuals, Masters, and believers in the truth. 
+
+ME: So where are we now? 
+
+B: You and the Om have assisted in getting the Earth back to the condition where knowledge and truth are becoming known and believed by more and more people. We are now at a point where we almost have the critical mass necessary to allow us to raise the frequency of the Earth back up to the levels that it should be. You have reincarnated into a very important time period. 
+
+The Om are a race of light beings that are one with God. All beings are, of course, one with God, but the Om are higher up the frequencies. When you took on-board the most sacred and important work on Earth, you made a special and massive commitment that has lasted many lifetimes. 
+
+ME: So what is my work in this lifetime if the critical mass is almost achieved? 
+
+B: You are to help in the realization process. This is showing the general public the things concerning spirituality that they can relate to and measure. You will show them that this is but just a small part of spiritual matters and that although there is a more physical side to spirituality, this is just for demonstration—to get their attention. Once you have their attention, you will be able to tell and teach them about the reality and truth, the big picture. You will need to be pure of mind, body, and soul, so you had better start cleansing yourself. 
+
+#### Byron Introduces Hum 
+
+The next morning I was grounding myself and opening my chakras when I got the impression that Byron was close to me with there was another entity by his side. He was wearing a silver suit that appeared to have no seams but gave the appearance of a space age pullover type garment. I increased my frequency to that of the 27th level and greeted Byron. 
+
+B: Hello, this is *******. 
+
+I couldn't pronounce his name. 
+
+B: You probably can't pronounce his name, so we will call him Hum. 
+
+ME: O.K. Why is Hum here? 
+
+B: He is beloved of the Om, as are you, and he will be able to help you in all your questions about alien races in the universe/s. He will also help you communicate with them so that you can further your knowledge. 
+
+ME: Why does he wear the silver suit? 
+
+B: That is so you can discriminate me from him. He will help you with the other races. 
+
+ME: I have to go now. 
+
+B: That is O.K. The objective was to introduce you to Hum, and this has been done. 
+
+ME: Thank you both. 
+
+#### Byron on Oneness with Our Higher Self 
+
+My first morning meditation after coming back to the UK from Crete saw me literally shooting up to the 27th level to see Byron. When I arrived, I felt that I was distanced from myself and was bouncing around like I was on a trampoline. 
+
+B: Your movement up to my level was too fast for your conscious mind to keep up with. That is why you feel at a distance to yourself and see yourself bouncing around. 
+
+ME: This is interesting. 
+
+B: Yes it is. It is one of the ways in which you can contact your higher and true self. You can do this by moving up the frequencies too fast and literally leaving your conscious mind behind. Your conscious mind usually stops you from doing this by making you think of other things, such as those small jobs around the house or garden that you end up doing. You can use this method to get in contact with your higher and true self, which will allow you to operate more in your higher self's consciousness than your physical mind’s consciousness. 
+
+ME: I have a question based upon the duality of the two minds. On page 259 of Adrian Divirs' book X3, Healing Entities and Aliens, the author mentions that the physical mind and the higher self mind operate in parallel. The higher self mind has a copy of all that’s experienced and recorded by the physical mind and adds it to the larger memories and past life knowings of the higher self and Spirit. When the physical body dies, the physical memories die, and the memories that were recorded by the higher self mind are retained. I find it really disturbing that the person that I currently am appears to really die and that what is retained is just a copy. (My mind went to Arnold Schwarzenegger’s film The 6th Day where people were having their memories preserved and transferred to a clone.) This appeared to give the individual immortality until a clone was released before the original was dead, which illustrated the fact that they were really two people with two memories and not one memory being transferred from one body to another. 
+
+B: Yes, that is mostly true and is correct for the general population of incarnate entities who are never aware of their higher selves. However, when you are truly in contact with your higher self, you are in total control of who you really are and tend to focus your attention more and more within your higher self's consciousness. You are totally able to access all your previous lives’ memories and information accumulated in your higher self's mind. When this happens, you see the human body for what it is—a vehicle for evolution and not who you really are. Because your attention is now in the higher self rather than the physical self, you experience yourself as your higher self. Your attention is shifted from one part of you to another, the real you. The only problem here is that the individual must try to stay grounded when in this state; otherwise, he/she will appear to become distant (or spaced out) from the physical body. Then it will lose control of it. When your attention is focused on the higher self, you will not experience the feeling and fear of this kind of mental duality. You will be able to move your consciousness freely between the physical and higher self, effectively creating one mind, one set of new cumulative higher self and physical memories and thus perpetuating a feeling of oneness. The greater picture is that once you can do this, you will be able to interface and integrate with the other parts of yourself that are either incarnate or in spirit experiencing the total oneness of your true, true self as a multidimensional being experiencing many things and many incarnations on many planets and many dimensions all at the same time. 
+
+ME: Wow! Thanks a lot. Now I understand. 
+
+B: Not bad for a six minute meditation, but, of course, time is different when meditating. And don’t forget that concepts, knowledge, and understanding are transmitted in more than the spoken or written word. 
+
+Byron on Accessing Higher Self Memories 
+
+The next day I again went to see Byron on the 27th level and decided to prove the comments he made about moving too fast through the frequency levels. I moved through the levels bouncing around from the 27th to the 15th to the 30th to the 50th to the 100th and down again. I moved so fast that I (my physical mind) was starting to lose sight of my higher self’s mind. I moved from galaxy to galaxy in the blink of an eye. 
+
+B: You’re losing me, too. I can't keep up with you! 
+
+I then moved back up to the 100th level where I saw another galaxy form. This I recognized as the Source Entity. He/She/It spoke to me. 
+
+SE: Remember who you are! 
+
+I then experienced something totally unexpected. I received impressions of many, many, many lives being lived. I gained glimpses and impressions of pictures and feelings of where I was and where I had been. I was a Byzantine warrior, a Roman, an Egyptian. I saw an aircraft go over my head in Atlantis, I saw structures of buildings on another planet, and I met up with the Om and embraced them. 
+
+I received the impression that there was far too much for my physical consciousness to comprehend so only fleeting impressions were received and interpreted. Mere snapshots of what was being given to me were grabbed by my physical consciousness and relayed to me. As I write this, I feel that I have been given a gift. When I de-focused my attention from my physical mind to my higher self-mind via core star mediations or simply moved too fast through the frequency levels for my physical consciousness to keep up, I effectively diffused the concentration of physical consciousness to the more diffuse requirement of the spiritual or higher self-consciousness. In effect, I raised my vibration level and expanded my consciousness to encompass the wider corners of self by expanding the horizon of my awareness through diffusion of concentration. In eyesight terms, it would be like fully using your peripheral vision. I was told that this technique would allow me to focus on my higher self’s consciousness to access my higher self’s memories. 
+
+#### The Om on Concentration, Focus, and Meditation 
+
+My morning meditation was proving to be difficult with my mind wandering onto more Earthly pursuits. After I finally managed to calm my mind down, I projected myself up to the 20th level again and looked around. The gap between the 20th and 21st was narrow, so I expanded it so that it was more comfortable. I saw the usual black/grey appearance of this level and then decided that I would expand my awareness to what the real appearance of the 20th level was. It instantly went into a bright white light and at the same time two of the Om came to greet me. They were pleased that I had been able to see what the real 20th level environment looked like. In contrast they looked like wispy black entities, but I perceived that this was only in comparison to the very, very iridescent bright light of the 20th. They told me that this light was pure celestial light. They then said they would give me a lesson in concentration. I thought this was very appropriate. 
+
+I suddenly found myself on a tight rope (without stabilizers) crossing a canyon in the US with the knowledge that I had to concentrate 100% on the task at hand or risk losing my life. I felt the level of concentration as being total engrossment. I was one with the wire I was walking on and knew exactly where to place my feet and how to distribute my weight. There was nothing else in the universe that mattered; I wasn't even interested in the wonderful view or the birds that flew by me. I was totally focused on the task at hand. 
+
+Afterwards, I returned to the 7th Earth plane levels. What an excellent example of concentration and focus! This experience helped me tremendously to understand this concept. 
+
+The next day I started my meditation and closed all of the doors off on the downwards spiral staircase that represented my thoughts. Each door represented a different thought and, therefore, a different distraction. I opened up all my chakras and rose up to the 20th level pulling up some friends (who I assumed were some of the Om, who were on the 14th level) at the same time. They then re-emphasized the previous day's lesson on concentration. They stipulated that the tightrope walker was an excellent example of pure 100% concentration. The level of concentration was such that nothing outside of doing the task at hand was important. A tightrope walker needs to dedicate those minutes of his life purely to walking the rope. He/she cannot allow any outside influences to intrude or distract his concentration. 
+
+This is the level of concentration that is necessary when meditating. 
+
+Om: You must be dedicated enough to allow the short period of time to be used in the meditation process and nothing else. 
+
+I then had a fleeting thought about looking at my watch to find out what time it was since I had to go to work soon. The Om picked up on this instantly and said that this is exactly what they were talking about. Even this minute distraction was enough to cause a downward spiral of lack of concentration. 
+
+Om: The ten or so minutes of meditation should be considered sacred, and no other thoughts should be allowed to interfere with it. The distractions are only the conscious mind’s desire to take control again. It feels that when you are accessing the higher self-mind, it is somehow losing control and is frightened that it somehow may not get it back. 
+
+#### The Source Entity on Preparing for Meditation
+
+SE: A number of different ways can be used to still the mind as a prelude to meditation. One is to count the heart beats; the other is to concentrate on the breathing rhythm. A further method is to imagine you are stroking a favorite animal or throwing a ball for a dog. All of these focus the mind on one thing only. You could also think of a big yellow ball above your head and then imagine your spirit rising up to join with it. This also works. 
+
+Concentration can also be considered a vital part of meditation, and, even classed as meditation in its own right. When you meditate, you need to focus on the meditation and not the idle chatter of your mind that wants to continue to control you and prevent you from accessing your real self. Only when you are fully focused can you meditate properly; focusing requires you to concentrate on the meditation process and only that. Give yourself a little mental note to know when your meditation/concentration is wandering and drag yourself back into focus. Concentrating on something simple is the best route. 
+
+#### Celestial Light 
+
+With this lesson well and truly learned, I commented on the bright light that was the 20th level, and the Om again said this was celestial light. It was not the same as the celestial love experienced on the 6th level. It was the light of all things and nothing, all places and no place, all universes and no particular universe, all times and no time, all dimensions/frequencies and no dimensions/frequencies, all beings in all times, dimensions, frequencies, and universes all at the same time. This is what made the light so bright; everything and everyone was burning so very brightly. I then saw some bright spots that moved around, and I was told that these were other beings that were specifically aligned with the 20th level. That's why they were brighter than the ambient light. My fellow beings looked dark in lieu of all this brilliant ambient light. On the Earth plane they would look like brilliant white/golden light, but here they looked dull in comparison. I wanted to embrace them all and thank them for the lesson and their patience in teaching me. I felt them smile, and I sensed that it really was time to hit the road and go to work. 
+
+#### Mixed Remembrance of Memories and Abilities 
+
+At my next mediation I was more focused and determined not to be distracted. I opened up my first seven chakras to associate myself with the auric levels and then swooped up to the higher levels. When I arrived at the 14th level, I noticed the tube (bypass) that I had put in place to allow the Om to pass up to the 20th level. Upon my arrival, I felt the presence of another being who I assumed was one of the Om. 
+
+Om: We are impressed with your ingenuity; you are remembering. 
+
+ME: Thank you. I am starting to remember stuff but not remember it in the way that I want to. 
+
+Om: Define. 
+
+ME: Well, I just know that I can do things, such as constructing the link between the 14th and 20th levels, but I can't remember past lives or the places/planets/galaxies/ dimensions where I used to live or even my previous time with the Om. 
+
+Om: It is interesting that you mention the time before. You really must be next to a computer when you are meditating so that you can write our discourse straight away, but if you can’t, we will make sure that you can remember what we say to you. 
+
+ME: How will you do that? 
+
+Om: We will program you with a long term memory function so that you can download what was communicated to you. This dialogue was typed a few hours after the meditation. The conversation flowed back from my mind and into the keyboard. It felt like I was having total recall! 
+
+#### The Om on an Image of Om as a Ball of Light 
+
+I then decided that I wanted to see the celestial light of the 20th level and that I wanted to see the image of the Om. 
+
+ME: Oh, you look almost human (angelic) to me. 
+
+Om: That is because this is all your mind is able to cope with in its existing incarnate form. 
+
+ME: Can I see what you are? 
+
+Om: Yes, but you will only see us as something you can translate into your current limited understanding, but, you will SEE later. 
+
+ME: I see you as a ball of light energy. 
+
+Om: Yes, this is a good example and one that your mind can use as a translation substitute for something that it can't directly place into a recognizable context. You need some form of reference point, a datum from which to work. If you don't have the experience in this incarnation of what an energy being looks like, your brain will use a substitute, one that you can understand as meaning “This is an energy being.” 
+
+#### Seeing an Energy Being 
+
+ME: Oh, do I have to see an energy being, or do I only need to sense or communicate with one? 
+
+Om: There are energy beings that you will not be able to see because the energy is not visible. It is too refined, too fine to be picked up even with spiritual eyes. You don't really need to see them anyway for you will know their presence and be able to communicate with them, albeit in a limited way. 
+
+ME: Thank you. I must go now. 
+
+During these meditations and subsequent recalls, especially when I am typing up the text that forms the dialogue, I am constantly thinking that I am deluding myself, that I am only talking to myself. But it is the speed and subject matter of the information that comes through that tells me that this is more than just talking to myself. Also, some of the information is said in such a way that it is foreign to me. It is then that I know this is not the Earthly me speaking.
+
+#### The Source Entity on Intuition and Common Sense 
+
+ME:I have had a number of occurrences over the years when the correct answer to a question has popped into my head before I have had chance to work out the answer by logic and calculation. 
+
+SE:Yes,I have seen you do this.You must learn to trust intuition and use it as much as possible.When you use this faculty often enough,it will become second nature to you and will lead you to instant communication with the higher self.Intuition is the higher self's way of giving you internal guidance. It is the way that the higher self(the larger part of you that is still in the energetic)tries to train you to start using the information that is not available by logic or from your Earth experience/s but from your higher self.It makes you trust your feelings by putting you into a situation where the intuitive information is correct,and this was only apparent when you have arrived at the same conclusion by Earthly logic.Hence,you learn to trust your intuition as you see more and more evidence that the information given is both correct and accurate. 
+
+Using one's common sense is similar. 
+
+When people say "Why don't you use your common sense?"they don't actually know what they are say- ing.The common sense is actually all the total learning and experience of all incarnate spirits in the universe, a true reservoir of knowledge.Thus,when people use their common sense,they intuitively tap into the wealth of knowledge that is available to them via the universe.For example,when individuals use their common sense for servicing their car,they might not actually have the knowledge and experience them- selves,but they are able to do the work when they intuitively tap into universal knowledge.They might not actually need to have experience of the learning themselves but can benefit from the learning of oth- ers.This is also true of an evolved and aware spirit who may need the knowledge of a great inventor or leader of people but doesn't have the time or need to go through a whole life to gain the experience or knowledge to help him address a certain life issue. 
+
+Common sense can also apply to recently gained knowledge,i.e.,what a spirit learns two minutes ago, could be used as common sense by another at the same time or two minutes later. 
+
+#### The Source Entity on the Twelve Source Entities 
+
+The next day I was again outside the universe and talking to the Source Entity,one of twelve entities that were split off from another larger entity,the Origin.Of course,the objective of Their creation is to find out as much about Themselves and the universe as possible and report back to the Origin for Its and Their collective learning and knowledge. 
+
+ME:So how many of You are there? 
+
+SE:There are twelve of Us. 
+
+ME:And your purpose is to learn. 
+
+SE:Yes,this is the purpose of all beings given individuality from the Origin. 
+
+ME:So what are the others doing? 
+
+SE:They are doing the same as Me and you,trying to find out about Themselves and give the collective knowledge to the Whole,so that the Whole can progress. 
+
+ME:So how are the others doing this? 
+
+SE:Each of Us has decided upon a different route of evolution.I have chosen to split into two with one side of Me being whole and the other being many billions of souls in a number of universes in a finite (but nevertheless infinite to you)number of dimensions.Each has its own individuality and collectivity.Another has decided to be one and contemplate the reasons for self on Its own.Another has split Itself into four,whereas another has split Itself into a billion souls totally,etc. 
+
+ME:So why are there only twelve of you? 
+
+SE:Why not? That is the number of entities the Origin decided to split off from Itself. 
+
+ME:The number twelve seems significant!Weren't there twelve apostles and twelve ascended masters and even a council of twelve? 
+
+SE:Yes,and this is all due to the other Sources visiting My area of responsibility,including Myself.Each ascended master was a Source Entity trying to learn outside Its own area of responsibility.You will also find that there are only twelve dimensions used in My universe although in reality they are infinitely finite(finite but infinite to you). 
+
+ME:So when do you expect the learning to finish and You twelve return to the Origin? 
+
+SE:Who knows?There is no plan.
+
+## Part 2 - The History of God
+
+### Chapter 4 - The History of God
+
+#### Meeting the Origin 
+
+During a morning meditation,I found myself asking the question about whether or not the material I was taking down as a result of countless meditations was worth publishing.Bearing in mind that many others had already written these sort of books,and they num- bered in the thousands,I felt that another book of the same genre would not make enough impact to progress this "good"work to another level of awareness/discus- sion.I,therefore,needed direction on which way to go. 
+
+I had previously found that I could explore different levels of consciousness up to and past 100 levels.Each level was a frequency level equal to that experienced by healers who have the ability to sense the seven frequency levels of the human aura(based on current popular understanding).After some thought on this,I found myself focusing on the frequency that led me to the Source Entity(an energy being that I had previously been in contact with during a number of meditations and subsequent channeling opportunities)and zoomed up past the 100th level to talk to Him/Her/It. 
+
+ME:I want some direction on what I should be writing about for my book. 
+
+SE:You should write about the history of God. 
+
+ME:What?! 
+
+SE:This has not been done yet since most people who are in contact are actually in contact with Me and not the Origin. 
+
+#### Who Is the Origin?
+
+ME:Who is the Origin? 
+
+SE:The Origin is the entity that I am part of;it is the one that we twelve are split away from to under- stand what I/We are. 
+
+ME:I have not been in contact with the Origin yet? 
+
+SE:You have but only fleetingly. 
+
+ME:Should I be speaking with It/Him/Her? 
+
+SE:Yes,it is the best place to begin. 
+
+I then called the Origin in my mind hoping that he would speak to me.At this time I found myself outside the multiverse controlled by the Source Entity I associ- ated with as God and looked further afield.In the dis- tance I saw a coalescence of light. 
+
+ME:Origin,can I speak to you? 
+
+O:You may. 
+
+ME:Where are you? 
+
+O:Everywhere and nowhere. 
+
+ME:I want to know about the history of you. 
+
+O:Do you have the time and patience? 
+
+ME:I think so. 
+
+O:Then I will begin. 
+
+I chuckled to myself.This all sounded a bit "story teller- ish”tome..
+
+### Chapter 5 In the Beginning 
+
+#### The Origin on Creating Greater Awareness of Self Via the Twelve 
+
+O:In the beginning I was not aware that I was aware and just existed.You can consider this by just "being"and listening to everything that is going on around you without making any judgements about anything or trying to work out what is going on.At some point over the millennia,I decided that I was aware of wanting to know more about what was going on around and in Me. 
+
+ME:Were there any other lifeforms around then? 
+
+O:Where there is energy,there is eventually conscious- ness and there is life,but consciousness is not true life until it is aware.There was lots of life at what you would call the "vegetable level of conscious- ness,"but this to Me was only like the cells that are in your body.You know they are there,but you can't communicate with them since they don't yet have that level of awareness,and neither do you.As I fur- ther reflected on this need for awareness,I decided that I would split Myself into thirteen,one being Me and the other twelve being other smaller parts of Me that had individual consciousness and aware- ness,plus an inherent need to search and learn about consciousness and awareness.How They did this was up to Them,but They were charged with returning to me with an answer of some kind. 
+
+ME:So You became aware and wanted to know more? 
+
+O:Yes,that's right.The task for the other twelve parts of Me was to find out more about the environment that was Me.
+
+ME:Are there others like You?I only sense You. 
+
+O:That is because you are within Me now. 
+
+ME:There must be an end to the number of times I can go up to see other higher beings,and You must be it be- cause I can't imagine any more than Your level. 
+
+O:That is because of your limited point of view. 
+
+ME:Are there more?Is there a higher level? 
+
+I tried to look further and suddenly found myself in another environment where there were more Origins. This was freaky,and I was feeling very spaced out. 
+
+#### A Starting Point Where EverythingJust Is 
+
+ME:There has to be an end somewhere? 
+
+O:Yes,there is,but you will not accept it when it hap- pens because your brain considers that there must be something bigger.How can I explain that there has to be a start,a point where everything just is until it becomes aware? 
+
+ME:I have real difficulty with this.Ifeel like my brain is about to explode under the strain. 
+
+O:I can see 
+
+ME:So if there are many entities that are controlling the multiverses to learn about what awareness means and to experience different things,how can They call them- selves God when a person like me or some other person says they are in contact with God? 
+
+O:That is because we are all part of the total.If you call the total a name and that name is "God,"then We are all God.We know We are God because We are in contact with the total and Ourselves all at the same time.We don't know any different because We are not"cut-off"from God like you are;therefore,We call ourselves God because that is who We are.We are all one entity;We are all God.
+
+#### The Origin Looks Within Self 
+
+Me:So how did You become aware and decide that You wanted to know more about Yourself? 
+
+O:When I became aware that I was,I decided to look into Myself and see what I was.I was surprised to see that I was many things. 
+
+ME:How did You do this?It must have been a massive task? 
+
+O:It was...Consider yourself as the sea and imagine the wonder that I had when I found out that the equivalent of fish and crustaceans were also part of Me. 
+
+I then found myself looking into me,looking at the very heart of myself.Suddenly I felt as if I was floating in space and looking at things as small as cells and bac- teria and wondering at the diversity of life within me that I had no prior realization about on the personal experience level. 
+
+O:Yes,that's it,except that what I saw was different types of energy in different densities and different frequencies,and some were only present on certain dimensional levels.Some of them spread across many dimensions and changed in their appearance when they were present in different dimensions. All of them behaved differently,depending on the dimension they were in or how many they were linked to. 
+
+ME:So did they also have awareness? 
+
+O:No,but some parts were developing rudimentary consciousness,which is the first step towards awareness.The task was so big that it literally took millennia to go through every part of My "different levels."To move around within Myself,I would focus my attention,and I would be there instanta- neously traveling within Myself and able to create within Myself anything that I wanted without barriers or limitations. 
+
+#### The Origin as the End 
+
+I then suddenly saw the truth.The Origin was the end, and everything was taking place within the Origin.All of the other twelve "Source entities"were split off from the Origin but were still contained within the Origin. They even appeared to pass around the outer edge of the Origin.This is where I was getting confused and muddled up.I could see the others and their own exper- iments happening in front of me,and around me was the environment that was the Origin. 
+
+O:It was fantastic to see different parts of me doing things that I had absolutely no knowledge about. Eventually I got to the point that I needed to dig deeper and deeper within Myself to see what was going on.As I was doing this,I noticed the lower dimensions or frequencies and realized it was pos- sible to have different frequency levels in a single dimension. 
+
+ME:You mean dimensions within dimensions? 
+
+O:Yes,I noticed that at some level I was much slower and had difficulty in accessing the rest of Myself. 
+
+#### The Origin Breaks Off Twelve Parts of Itself 
+
+ME:Would this be the physical levels? 
+
+O:Yes,and others like it.It was at this point that I thought it would be interesting to discover how I would react if I was in a position where I was totally cut off from Myself.This I did for a certain indiscernible amount of time but discovered that I actually didn't learn much since I didn't have a task to do.I then decided that I would create the others and give these other parts of Me the opportunity to do the same but with both of Us observing and learning/experiencing what was occurring.Your level is the lowest and most difficult and most fruit- ful in terms of the learning experience.
+
+ME:So what made you decide upon the number 12 as the number of different parts of yourself to split off? 
+
+O:This was based upon distinction in the different levels of the dimensions within Me.I noticed that there was a specific difference,and that this was in twelve parts.So when I decided that I wanted to know more about Myself,I decided it would be a good idea to have parts of Me focus its attention on each one of these twelve dimensional zones. As I delved further into Myself,I also noticed that these twelve zones were also divided by twelve with each zone being separated by twelve dimensional octaves with each octave being a group of three dimensions. 
+
+Me:Wouldn't you be better calling it a tritave? 
+
+O:Possibly,but I decided that octave sounded better and could be more easily understood by you in your current level of incarnation and ability to access the common knowledge base whilst using your con- scious mind. 
+
+#### The 12 x 12 x 12 x 3 Different Dimensional Levels 
+
+ME:So in effect you have 12 x 12 x 12 x 3 different dimen- sional levels.That is 5,184 dimensions. 
+
+O:Yes,and each is divisible by the major dimension or an octave.This is why the numbers 12,4 and 3 are important.12 a dozen (a baker's dozen 13,the 12 plus 1 Me!)the twelve disciples and 1-Jesus- Me!3 days for the spirit to totally leave a dead body, 4 octaves to a dimension(the three physical planes in your case,plus 1 "time")Also,you can make any number you like out of the manipulation of the numbers 4,3,and 1. 
+
+I tried it,and He/She/It was right.You could make any number. 
+
+ME:What about different frequency levels?
+
+O:The dimensions and the frequencies are,in effect, the same thing;however,one is separate whereas the other is together. 
+
+ME:Can you explain? 
+
+O:With a frequency change,the matter(spiritual or physical)is further apart from its lower frequency self;whereas,with a higher dimensional level,the matter(spiritual or physical)is in the same place as its lower dimensional part.A dimension is,there- fore,overlaid by time rather than frequency,which is separated by a molecule's speed and the space it occupies. 
+
+I tried to see how this would look,and my head started to hurt with the stretching of my mental boundaries. 
+
+O:You are trying too hard.Try to think of it in these terms.Each of the twelve Mes was assigned to work within a certain range of dimensions;these were split into twelve levels.There are twelve more levels separating the levels between each of these levels, and these were split again by 3 to bring the struc- ture down to the lowest dimensional or frequency level.Three of these together create a workable environment that I call an "octave."You humans happen to live in the bottom three frequencies that make up the first dimensional level in a particular Source Entity's area of evolutionary responsibility. 
+
+ME:How does this relate to the existence of different universes? 
+
+O:As previously stated,each Source created as many universes as He/She/It needed to gain experience and evolve.Simplistically,within each dimensional level there can exist a totally separate universe with each equally important and addressing the issue of evolution in a different manner.Each is independent of the other but equally dependent and interlinked with one another. 
+
+ME:So this linking is why it is possible to travel through other dimensions or use other dimensions for traveling instantaneously in our dimension? 
+
+O:Yes,as I said before,you have to have a back door. 
+
+ME:So why did You allow all of the Source Entities to split the dimensions into the octave parts? 
+
+O:To allow Me to experience everything about Myself right down to the quark level,as you would put it, and below.I felt the need to do this when I found that parts of Me lost contact when they were at the lower levels.This is what you experience as humans incarnate and are projected into the very lowest levels.You start to lose contact with the rest of your higher selves and develop individual consciousness and even limited awareness that is separate from the rest of yourselves.Your higher self was,of course,aware of what was being ex- perienced at the lower levels,but that part of you that is actually in these lower levels loses the ability to communicate because of the limitations that present themselves in these lower frequencies.It is like a worm that is cut in two but is still connected by its skin.The worm develops as two separate worms and eventually becomes two,but you don't because that skin that holds you together,the aura never withers and dies.The information accrued in the physical is in both zones,so when the physical dies,the information contained in the "physical consciousness"is still maintained in the spiritual consciousness,and your attention is presented back to the spirit rather than the physical.This is the reason why you should not be afraid of dying in the physical because your projected consciousness is withdrawn and not lost,unlike the worm's body that eventually becomes separated from the origi- nal when the skin withers and dies. 
+
+#### The Origin on the Purpose for Humanity's Incarnating 
+
+I decided to ask the main reasons for our incarnations.
+
+ME:What is the main reason for us being here on Earth? 
+
+O:To experience and learn from those experiences and in the process evolve whilst contributing to the whole. 
+
+ME:What do I have to do? 
+
+O:You have to do a number of things,and the fact that your discussions with me are limited to small amounts of time means that you are experiencing many things,which is good. 
+
+ME:So what is one of things that I have to learn? 
+
+O:What is your pleasure? 
+
+ME:What? 
+
+O:What is your pleasure?You need to experience pleasure and joy.This is one of the things that you really haven't grasped yet.Sometimes it is best to just sit back,be,enjoy the fruits of your hard work and feel the pleasure and joy that comes with relax- ation.Try to ensure that you aren't too engrossed in striving for more or trying to be better because as a result you are never happy with what you have. 
+
+ME:I can relate to that.I think I know exactly what you mean. 
+
+O:Do you?You are still not grasping the nettle [See Glossary for clarification]! 
+
+#### The Twelve Sources - Varied Approaches to Learning 
+
+ME:So the twelve Sources have different approaches to the way They learn about Themselves and Their environ- ment,YOU. 
+
+O:That's correct;the Source Entity that you are work- ing with decided to duplicate the way that I split Myself up into twelve.
+
+ME:Is that why we have 12 x 12 x 12 x 3 dimensions? 
+
+O:Yes,that's right.If you look at one of the other Source Entities structures,you will find that They are 12 x 4 x 12 x 3 with the multiplication by 4 that comes from the number of times They have divided Them- selves,i.e.,the number of universes that They have decided to use as the medium that They are using to work out all about Themselves. 
+
+ME:Looking at the number of universes created by my Source Entity and the position that we humans are working in,I would say that we are right at the bottom of the universe,dimension,andfrequency pile. 
+
+O:Yes,you are,but that is where you score the most evolutionary points,so to speak.As I have said before,you,or at least part of you,is totally cut off from the rest of yourself,so you have to do an awful lot without your higher functions.It's a bit like what I explained before;it's your equivalent of having no eyes,ears,touch,smell,or taste and still trying to build the Eiffel Tower. 
+
+ME:It's an almost impossible task. 
+
+O:That's right,but somehow all of you manage to succeed. 
+
+#### The Origin on The Author's Writing about the History of God 
+
+ME:How do you want me to tell the world about the history of God? 
+
+O:That is entirely up to you.You can write it as twelve or thirteen books with each book dealing with the works of each of the Source Entities and,of course, Me.Or you can write one book with thirteen chap- ters,each with a summarized version of the story of each Source and Me.This would give you and your audience a taste of what is to come and give them an appetite for buying other books.
+
+ME:But which one should I write first? 
+
+O:You could write about Me and the Source Entity that looks after your universes first.This will be the most popular.The other books will only be popular with those people who want to know the truth about the rest of Me,but people will read them.I can hear your thoughts now.No,they don't need to be massive novels.Just write enough to make people feel that they are getting value for money and big enough for you to convey what you need to convey. 
+
+#### The Origin on Its Sphere of Twelve and the Termination of Our Universe - The Source Entity as Independent and Yet Integral with The Origin 
+
+My mind suddenly saw the rest of the Source Entities, and then I just as suddenly zoomed into the memory of the Source Entity that looks after the universes that the Earth plane is within.I suddenly had the feeling of joy and awe associated with realizing that a part of it now had focused consciousness;it was independent but still integral with the Origin.It was a strange over- whelming feeling that came over me.One that was all encompassing.
+
+I looked back again at the Origin and saw that the con- figuration of the different Source Entities was not as I had previously seen them:as individual spheres within the sphere of the Origin.They looked like the sphere of the Origin that had been segmented into twelve. 
+
+Me:Why has this changed? 
+
+O:Because you are now able to understand what hap- pened to a greater depth.Look at your own Source Entity;it is a direct copy of My own division. 
+
+I looked at the Source Entity that we refer to as God and saw that this was true.Each of Its twelve divisions was also layered into the twelve dimensions.They ap- peared like the individual veins of a set of retractable blinds,each one signifying another plane of existence, another dimensional level.Each one occupied the same space and time but did not interfere with the other. Each plane of existence split into the three levels that allowed the 3rd dimensional world approach that we are aware of with each three levels together representing a single dimensional octave in Origin space.It was beautiful. 
+
+ME:I have been thinking about the universe and the popular belief that there will be an end to the universe. What can you tell me about that? 
+
+O:Well,the answer to the question that there might be an end to your universe is the choice of the Source Entity who created your universe. 
+
+#### The End of Earth's Universe 
+
+ME:Do you think It would end the universe? 
+
+O:That would depend upon the circumstances of what It's trying to achieve.Remember,I created the Source Entities to help Me explore Myself and to know more about Myself on all levels.The Source Entities created Their own versions of Me in order to duplicate the effort behind the exercise of knowing Myself.They had free will in how They chose to achieve it.If that means that They disassemble the environments that They have created,then that is up to Them. 
+
+ME:Why would They disassemble the environments They have created? 
+
+O:That is a question that you would need to answer by asking all of Them yourself.In essence,They would only disassemble the environment They have con- structed if it had finished the job it was constructed to do,if it was not meeting its objectives (and, therefore,needed to be modified in some way),or if a complete change of direction was required to make the exploration process more efficient. 
+
+ME:What would happen to the other entities like me, for instance,if the Source Entity that controls our universe decided It had either completed Its job or It was so far off track that It needed to be broken up and started again? 
+
+O:You are part of It.All of you are,just as all of Them are part of Me.Once you are given sentience,you are considered separate.A return to the Source Entity is not something that is enforced upon a sentient being.It is something that the being ei- ther strives to achieve or believes that it is happy in its singularity.Everything is down to free will. However,once you return to the Source,you are not stuck there.You can break away and experience whatever you want to experience on your own at any time.You do not lose your individuality by becoming part of the whole again.In essence,you never really had your own singularity because you are always part of something bigger,the Source Entity/Me,but by the Source Entity allowing you to have your own energy system,you achieve complete singularity by association with a local nucleus.This nucleus is the singularity which allows the energy that is you to stay together.It is in a similar way that the universe is held together. So you become your own entity whilst being part of a bigger entity.Together with this is the ability to group together to solve problems or experience different things,as well as return to your creator, the Source Entity,when you desire.This gives you the ultimate flexibility of being a singular part of a smaller whole or part of the greater whole,Me. 
+
+#### Grouping to Create 
+
+ME:Ijust got a picture in my mind's eye showing lots of entities clumped together to make a bigger entity than they could ever make on their own. 
+
+O:Yes,this is a common occurrence and one that is useful to the entities taking part in the grouping because together they can achieve much more than they could in ones and twos.In essence,they are able to create a smaller version of the Source Entities by being in concert together.Remember the old saying that birds of a feather stick together.Well, there is not a truer saying,for all those entities grouped together in concert that you saw in your mind's eye were of the same opinion. 
+
+ME:What were they doing? 
+
+O:They were solving a problem. 
+
+ME:What was the problem they were solving? 
+
+O:Inter-dimensional connectivity between the uni- verses created by the twelve Source Entities.They are trying to understand the mechanics of how it all stays together as a singularity and a whole.They are also interested in why entities that are integral to the universe that a specific Source Entity has cre- ated have not yet migrated from their environment to another Source Entity's environment,especially as it is not only possible but desirable from an evo- lutionary and experience point of view.The cross- fertilization of entities created by another entity experiencing existence in a universe that is alien to their creation is a most interesting opportunity for in-depth evolution. 
+
+ME:Could it be that we,as our own entity,are happy to be within our own environment and not move into another?After all,the universe created by my Source Entity has more than one universe and a heck of a lot of dimensions and frequencies.It must be a really large place to exist.So large,in fact,that I can imagine it is quite a thing to meet another entity at all-let alone have enough around you to inhabit a planet. 
+
+O:Good observation.This is one of the reasons why your Source Entity is not likely to end this universe quite yet.There is so much to do and so little populace to do it with.There are several eternities yet before the time comes for the disassembly of your universe.In any event,now that you have your own nucleus and surrounding energy to exist on your own as a single entity,you will not just disappear when the Source Entity disassembles the universe if and when the time comes to do so.You will still be present and held within the space that is part of the Source Entity that is not associated with a dimension-spatial environment.You will be waiting patiently to occupy the new environment when it is constructed.I guess this is the question you wanted to ask,i.e.,will we exist past the end of the universe?Well,as I have explained above,the answer is yes.Of course,a Source Entity may create entities that are not singular like you and,as such,these entities would,in fact,return to their base energetic condition when a universe is disassembled.How- ever,that is the choice of the Source in question for He/She/It has the free will to create and change at will. 
+
+ME:Would an entity from my Source Entity be disassembled if it was visiting the universe of another Source Entity which was disassembled? 
+
+O:This has not happened yet because there has not been migration between the different Source Entities'environments.But if this did happen,then that entity would be transported back to its en- vironment of origin by the Source Entity making the universal change,for all Source Entities know which entity is one of Theirs and which is not. 
+
+#### The Origin on Dimensions,Frequencies,and Space 
+
+Another meditation led me to being in contact with the Origin again,and I received a short lecture on mass and frequency.I had just gone through the frequency barrier that I see leading up to the 100th level and into the mass of stars that represent all of the returning souls when I found myself outside of the sphere that I knew represented the Origin in Its entirety.
+
+ME:Why can I see you as the sphere?Why is there dark- ness all around? 
+
+O:You are tapping into the ability to see beyond yourself/Me.The darkness that you see is merely a reflection of you/Me and is not real dimensional/“frequentic”space. 
+
+My mind then turned to the dimensions and frequencies.I wondered if I would occupy the same space if I was accelerated up to the next frequency/dimension. 
+
+O:You would,of course,occupy the same space.Dimen- sional increase and frequency increase do not affect the area occupied by a being. 
+
+ME:But what about the increase in frequency that ice has to be turned into steam?This increases the area in which it exists because of the increase in energy and the resultant movement of the molecules. 
+
+O:This is only true for some matter(matter not associated with a soul or being).The law of the universe is totally different from that currently known and understood by man.A person accelerated up to the next level would occupy the same area because of the will or intention of the being to exist in the same area.This is an automatic function of all beings,no matter what their evolutionary experience and is, therefore,a universal law.
