@@ -1431,111 +1431,213 @@ SE/B: Of course, it is the nature of everything. All is in balance when understa
 
 #### Removing the Veil of Separation from Our Real Self 
 
+**移除分离的帷幕**
+
 ME: But what happens if we remove the veil that separates us from our real self and what we think is reality? Would this not cause mayhem? People would think that all that they have strived for is to no avail. They would realize that there is life after death and that everything is love and light and that this real reality is infinite. Then they’d come to the conclusion that if everything is love and light, then why not have a good time while they are here on Earth. They would abandon the need to strive and work for the evolution and experiences that they came to Earth to experience in the first place. 
+
+我：但是，如果拿掉隔离本我与我们所认知实相之间的面纱，这会有什么后果? 这不会造成混乱吗？人们会认为努力不过是徒劳，他们会意识到死后还有生命，一切都是爱与光明，实相是无限的。接着他们会得出这样的结论，如果一切都是光和爱，那么为什么不在地球享受生活呢？他们会放弃努力，忘记进化及体验最初转世地球时想要体验的事。
 
 SE/B: That is correct, and that is why a few, and only a few, individuals are able to access both worlds: reality and the material world at the same time. This is because they understand that they are here for a reason and that they must also commit themselves to finish what they started, as well as work with the spirit realms. To do this, they need to be grounded and be able to balance the two worlds of the reality and material. 
 
+源实体/拜伦：对，这就是为什么少数人，只有少数人能够同时进入实相世界和物质世界的原因。因为他们明白，到地球来是有原因的，必须致力于完成他们已经开始的事情，以及致力于灵性领域的工作。要做到这一点，他们需要脚踏实地，并能够平衡实相和物质两个世界。
+
 My thoughts went to the Chinese dynasties of the past. 
+
+我的思想跳到了中国古代的那些王朝。
 
 SE/B: Yes, that is right. They realized that they were going to reincarnate and that life and their real selves were perpetual. Once they had established this, they decided that it was best to have jam today rather than tomorrow, so they abandoned the need to complete their Earthly experiences and delayed evolution until their next incarnation. They chose to have a life of decadence instead. The result was that this belief was perpetuated beyond the normal life and death cycle associated with reincarnation, and they didn't evolve for several lifetimes. In fact, they incurred quite a lot of karma which has taken some of them many lives to work out. Some are still catching up. 
 
+源实体/拜伦：是的，没错，一旦他们知道会再次转世，生命与本我是永恒的，他们就会及时享乐，放弃了今世要在世俗间完成的体验，而将进化推迟到下一次。他们会选择颓废生活，而结果就是人们的这种信念已超越世俗生活及生死轮回的状态，一直延续着，导致他们很多世也难以进化。实际上,这还招致了很多业力，多次轮回也难以清理，有些人仍然陷入其中。
+
 ME: So you really do have to be special to work with the spirit worlds within the material. 
+
+我：所以，要在这个物质世界里正确地对待灵性世界，你必须要有一些不同的想法。
 
 SE/B: Yes, you need to be quite a way up the evolutionary scale and be dedicated to both causes you have taken responsibility for. 
 
+是的，你既需要保持一定的进化速度，也要同时认真对待你来到人世间所负有的责任。
+
 #### The Role of the Aliens 
+
+**外星人的角色**
 
 One Tuesday I opened my chakras and wondered what the subject for today would be. As I thought about discussing aliens, I sensed a presence in my consciousness. 
 
+在一个星期二，我开启了脉轮，畅想着今天的主题是什么？当我想到外星人的时候，我感觉到意识里有一个临在。
+
 ME: Who is there? Byron? The Source? 
+
+我：谁在那儿？是拜伦吗？还是源头？
 
 SE/B: The Source, Byron, both of us, as we are one as we are one with you. 
 
+源实体/拜伦：既是源头也是拜伦，是我们两个。因为当我们与你一起时，我们是一个。
+
 At this time I wasn't concerned with what levels I was on as I now knew that communication was independent of which level I was on. All I needed was the intention and the belief. 
+
+这次我并不关心所处的是哪一级，因为我知道无论处于哪一级都不会影响交流，需要的只是意愿与信念。
 
 ME: What do aliens have to do in the scheme of things? 
 
+我：外星人在这个计划中要做什么？
+
 SE/B: They are a part of the bigger picture. They work for the good of the All. Of course, some of them are as ignorant as humans and, therefore, only work towards their own ends. But mainly many of them are highly evolved and are doing everything they can do to support their own evolution and the evolution of others and the universe. They are dedicated to increasing the vibration levels of the universe to bring it back to what it used to be during the time after the separation of My/our self. Humans are part of this because, as you know, independent free will is the great experiment that will allow the universe to evolve faster. 
+
+源实体/拜伦：他们是更大蓝图的一部分，他们为了全体利益而工作。当然，他们中的一些人也会与人类一样的无知，仅仅是为了自己的目的而活着。当然，他们中的大部分已经是高度进化了的，并且在尽其所能支持他们自身、他人，乃至整个宇宙的进化，他们致力于提高宇宙的频率，使其返回自我分离前的那个状态。人类是其中的一部分，因为你知道独立的自由意志是这个伟大实验，它让宇宙进化的更快。
 
 #### Byron on the author as an Om 
 
+**拜伦谈作者是OM的一员**
+
 This communication ended as fast as it started, but I was to talk further on the subject the next day with Byron on his own time but with a difference. I was still on the Earth level, but I was talking to Byron via what I visualized as a tube or bypass between the 27th level and the Earth level (level 1). 
+
+交流很快结束，但我在接下来的一天，在拜伦闲暇的时候，就同一个话题进行了更多的交流。我依然在地球层级，但是我能通过构想一个第27级与地球层级（第1级）之间的管道或旁路来与拜伦对话。
 
 ME: Hi Byron, I am still on the Earth level. How can I talk to you? Are you on the Earth level? 
 
+我：拜伦，我还在地球上，我怎么能说与你对话呢？你在地球上吗？
+
 B: No, I am still on the 27th level but am communicating to you through a bypass that you have created. 
+
+拜伦：我不在地球，我依旧在27级，我正通过你建立的管道与你交谈。
 
 ME: Oh, how did I do that? 
 
+我：哦，我是怎么做到的？
+
 B: I don't know, but it works. 
+
+拜伦：不清楚，但确实可以用。
 
 A bit confused as to how I created a bypass without knowing how or even that I had created it, I continued with my intended dialogue. 
 
+有些困惑，我不知道是怎么创建的这个通道，我甚至不知道已经创建了它。我继续我们之间的谈话。
+
 ME: I wanted to talk next about aliens and how I fit in. 
+
+我：接下来我们谈谈外星人以及我要如何适应。
 
 B: O.K., but I will start with a statement of reality first. You are part of a race of beings called the Om. You are a race of light beings that travel the universe visiting different galaxies. 
 
+拜伦：好的，但首先我要陈述一个事实，你是OM种族的一部分，你属于一个光之存有，是一个种族，这个种族在宇宙中穿梭拜访不同的星系。
+
 ME: How did I get involved in being here on Earth? 
+
+我：我是如何来到地球上的？
 
 B: You were made aware of the work that was going on in the Earth plane and understood how important it was and that it was pivotal to the evolution of the universe. In realizing this, you undertook sacred work under the guidance of the Source Entity to help the occupants of Earth remember the knowledge, the truth. 
 
+拜伦：你知道了地球上正在进行的工作，知道了它的重要性，它是宇宙演化的关键。当意识到这一点时，你在源实体的指导下，从事了这份神圣的工作，帮助地球人回忆起知识真理。
+
 ME: It doesn't seem to have worked very well. 
+
+我：看起来效果并不好。
 
 B: It has but not in the way you wanted it to. You expected there to be centers of excellence for retaining the knowledge and the truth. This happened, but it was abused by the Egyptians and other notable races that used it to control others. Over a number of lifetimes, you have been able to assist in keeping this knowledge and truth alive in the minds of a few dedicated and aware (awake) individuals, Masters, and believers in the truth. 
 
+拜伦：有效果，但不是你想要的那样。你期望世界上有些卓越的中心来保留知识和真理，也确实有过，但被埃及人和其他知名的种族滥用来控制他人。在你的几次人生中，你已经帮助将这知识和真理保存于少数献身于觉知觉醒的个人、大师，以及信仰真理者的意识当中。
+
 ME: So where are we now? 
 
-B: You and the Om have assisted in getting the Earth back to the condition where knowledge and truth are becoming known and believed by more and more people. We are now at a point where we almost have the critical mass necessary to allow us to raise the frequency of the Earth back up to the levels that it should be. You have reincarnated into a very important time period. 
+我：那么我们现在在哪里？
 
-The Om are a race of light beings that are one with God. All beings are, of course, one with God, but the Om are higher up the frequencies. When you took on-board the most sacred and important work on Earth, you made a special and massive commitment that has lasted many lifetimes. 
+B: You and the Om have assisted in getting the Earth back to the condition where knowledge and truth are becoming known and believed by more and more people. We are now at a point where we almost have the critical mass necessary to allow us to raise the frequency of the Earth back up to the levels that it should be. You have reincarnated into a very important time period. The Om are a race of light beings that are one with God. All beings are, of course, one with God, but the Om are higher up the frequencies. When you took on-board the most sacred and important work on Earth, you made a special and massive commitment that has lasted many lifetimes. 
+
+拜伦：你和OM已经帮助地球回到这样一个阶段，知识和真理被越来越多的人所熟知和相信。我们现在正处在一个关键点，几乎已经到达临界点，使地球频率提升，回到它过去应有的水平。你转世到了一个非常重要的时期。OM是一种光之存有的种族，与神一体。当然，所有存有都是与神一体的，但OM的频率更高。一旦你从事了地球上最神圣最重要的工作，你就许下了一个特殊伟大的承诺，持续很多世。
 
 ME: So what is my work in this lifetime if the critical mass is almost achieved? 
 
+我：如果临界点即将到来，那么我在这一世的工作是什么呢？
+
 B: You are to help in the realization process. This is showing the general public the things concerning spirituality that they can relate to and measure. You will show them that this is but just a small part of spiritual matters and that although there is a more physical side to spirituality, this is just for demonstration—to get their attention. Once you have their attention, you will be able to tell and teach them about the reality and truth, the big picture. You will need to be pure of mind, body, and soul, so you had better start cleansing yourself. 
+
+拜伦：你将帮助实现这个过程，你的工作正向公众展示与他们有关以及他们可以理解的灵性事物。你将会告诉他们，这只是灵性世界的一小部分，即使灵性也有更靠近物质的一个方面，这只是为了引起他们的注意。一旦吸引了他们的注意，你就能告诉并教授他们更大层面的实相、真理、大景象，你的心智、身体，与灵魂需要纯净。因此，你最好开始着手清理净化自己。
 
 #### Byron Introduces Hum 
 
+**拜伦介绍Hum**
+
 The next morning I was grounding myself and opening my chakras when I got the impression that Byron was close to me with there was another entity by his side. He was wearing a silver suit that appeared to have no seams but gave the appearance of a space age pullover type garment. I increased my frequency to that of the 27th level and greeted Byron. 
+
+第二天早上我开启脉轮，这时我感到拜伦正在靠近我，并且拜伦身边还有一个实体。他穿着似乎无缝的银色套装，看起来像太空时代的套装，我将频率提升到27级迎接拜伦。
 
 B: Hello, this is *******. 
 
+拜伦：你好，我是...
+
 I couldn't pronounce his name. 
+
+我不会他名字的发音。
 
 B: You probably can't pronounce his name, so we will call him Hum. 
 
+拜伦：你可能不会他名字的发音，那么我们称他Hum好了。
+
 ME: O.K. Why is Hum here? 
+
+我：好的，Hum为什么在这里？
 
 B: He is beloved of the Om, as are you, and he will be able to help you in all your questions about alien races in the universe/s. He will also help you communicate with them so that you can further your knowledge. 
 
+拜伦：他和你一样，也为OM所爱，他将为你解答本宇宙或所有宇宙中有关外星种族的所有问题。他也会帮助你和外星人交流，这样你就能进一步了解他们。
+
 ME: Why does he wear the silver suit? 
+
+我：为什么他穿着银色的套装？
 
 B: That is so you can discriminate me from him. He will help you with the other races. 
 
+拜伦：这是为了你能将我们两个区分开来，他会在其他种族问题上助你一臂之力。
+
 ME: I have to go now. 
+
+我：我要离开了。
 
 B: That is O.K. The objective was to introduce you to Hum, and this has been done. 
 
+拜伦：也好，目的是向你介绍Hum，这已经完成了。
+
 ME: Thank you both. 
+
+我：谢谢你们。
 
 #### Byron on Oneness with Our Higher Self 
 
+**拜伦谈与高我合一**
+
 My first morning meditation after coming back to the UK from Crete saw me literally shooting up to the 27th level to see Byron. When I arrived, I felt that I was distanced from myself and was bouncing around like I was on a trampoline. 
+
+从克里特岛回到英国后的第一次晨间冥想中，我像子弹一样窜上27级去见拜伦。当我到达的时候，我觉得我已经远离了我自己，并像在蹦床上一样蹦蹦跳跳。
 
 B: Your movement up to my level was too fast for your conscious mind to keep up with. That is why you feel at a distance to yourself and see yourself bouncing around. 
 
+拜伦：你来我这级的运动速度太快了，你的潜意识头脑无法跟上这样的速度，这就是你感觉距离自己很遥远，像是在弹跳的原因。
+
 ME: This is interesting. 
+
+我：这很有趣。
 
 B: Yes it is. It is one of the ways in which you can contact your higher and true self. You can do this by moving up the frequencies too fast and literally leaving your conscious mind behind. Your conscious mind usually stops you from doing this by making you think of other things, such as those small jobs around the house or garden that you end up doing. You can use this method to get in contact with your higher and true self, which will allow you to operate more in your higher self's consciousness than your physical mind’s consciousness. 
 
+拜伦：是的，很有趣。这是你与高我和本我接触的方式之一。你可以通过在频率中快速移动，将潜意识头脑丢在后面，通常你的头脑会通过让你想其他事阻止你这么做。比如让你惦记在房子或花园周围做的那些即将收尾的小工作，你可以用这个方法与高我和本我接触，这将使你能够在比物质头脑意识更高层面的高我意识中运作。
+
 ME: I have a question based upon the duality of the two minds. On page 259 of Adrian Divirs' book X3, Healing Entities and Aliens, the author mentions that the physical mind and the higher self mind operate in parallel. The higher self mind has a copy of all that’s experienced and recorded by the physical mind and adds it to the larger memories and past life knowings of the higher self and Spirit. When the physical body dies, the physical memories die, and the memories that were recorded by the higher self mind are retained. I find it really disturbing that the person that I currently am appears to really die and that what is retained is just a copy. (My mind went to Arnold Schwarzenegger’s film The 6th Day where people were having their memories preserved and transferred to a clone.) This appeared to give the individual immortality until a clone was released before the original was dead, which illustrated the fact that they were really two people with two memories and not one memory being transferred from one body to another. 
+
+我：我有个关于两种意识二元性的问题要问。在阿德里安·德维尔的《X3: Healing, Entities and Aliens》一书的第259页，作者提到了物质界意识和高我意识是平行运作的。高我意识储存了所有物质意识的经验和记录，并将其加入到高我及灵体的多世记忆当中。当肉体死亡时，物质世界的记忆就会消失，高我记忆则会保留。我觉得令人很不安的是，目前的我也许已经死了，留下来的只是一个备份而已。（我的脑海中出现了阿诺德·施瓦辛格的电影《第六日》，电影中，人们把他们的记忆保存下来，并将其转移到一个克隆人身上。）这似乎是一种永生之法，直到出现在原个体死亡之前，克隆人就被释放来到世间。这种情况说明，实际上是两个人带着两套记忆，而不是一套记忆从一个人转移到另外一个人身上。
 
 B: Yes, that is mostly true and is correct for the general population of incarnate entities who are never aware of their higher selves. However, when you are truly in contact with your higher self, you are in total control of who you really are and tend to focus your attention more and more within your higher self's consciousness. You are totally able to access all your previous lives’ memories and information accumulated in your higher self's mind. When this happens, you see the human body for what it is—a vehicle for evolution and not who you really are. Because your attention is now in the higher self rather than the physical self, you experience yourself as your higher self. Your attention is shifted from one part of you to another, the real you. The only problem here is that the individual must try to stay grounded when in this state; otherwise, he/she will appear to become distant (or spaced out) from the physical body. Then it will lose control of it. When your attention is focused on the higher self, you will not experience the feeling and fear of this kind of mental duality. You will be able to move your consciousness freely between the physical and higher self, effectively creating one mind, one set of new cumulative higher self and physical memories and thus perpetuating a feeling of oneness. The greater picture is that once you can do this, you will be able to interface and integrate with the other parts of yourself that are either incarnate or in spirit experiencing the total oneness of your true, true self as a multidimensional being experiencing many things and many incarnations on many planets and many dimensions all at the same time. 
 
+拜伦：是的，对于那些从没觉知道高我的轮回转世的普通大众来说，这多半是正确的。但是当你真正与高我连接，你会完全掌控你自己，并且会将注意力集中转向内在的高我意识，你完全可以知道所有前世记忆以及高我积累的信息。这时你会这样看待人类身体，它是进化的工具，而不是你真正的身份。因为现在你的注意力是在高我，而不是物质自我。你是作为高我在经验自己，你的注意力就从你的一部分转移到另一部分，那个真实的你。唯一的问题是，在这种状态下，个人必须努力保持接地，否则它将会远离，脱离物质身体，会失去对肉体的控制。当你的注意力集中在高我时，你将不会经历此类二元性导致的情绪和恐惧，你将能够在肉体和高我之间自由地切换你的意识，并且可以有效的创造一种意识，一套新的高我和物质界记忆积累，从而产生永存合一的感觉。一旦你能做到这一点，你能与自己的其他部分互动与整合。你的这些部分要么也处于化身状态，要么是灵的状态，体验着与你本我的合一。本我就是这样一个多维存有，他同时存在于很多星球，很多维度，同时经验着很多事情，有很多化身。
+
 ME: Wow! Thanks a lot. Now I understand. 
+
+我：哇，太感谢了。现在我懂了。
 
 B: Not bad for a six minute meditation, but, of course, time is different when meditating. And don’t forget that concepts, knowledge, and understanding are transmitted in more than the spoken or written word. 
 
-Byron on Accessing Higher Self Memories 
+拜伦：对于六分钟的冥想来说已经不错了，但冥想中的时间是不同的，不要忘了概念知识与理解的传递，不仅仅是所说或所写文字的语言形式。
+
+#### Byron on Accessing Higher Self Memories 
 
 The next day I again went to see Byron on the 27th level and decided to prove the comments he made about moving too fast through the frequency levels. I moved through the levels bouncing around from the 27th to the 15th to the 30th to the 50th to the 100th and down again. I moved so fast that I (my physical mind) was starting to lose sight of my higher self’s mind. I moved from galaxy to galaxy in the blink of an eye. 
 
