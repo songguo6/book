@@ -1327,57 +1327,107 @@ SE: Don't try your best, just be. Sometimes just “being” is the best thing t
 
 #### Byron on Just Being 
 
+**拜伦谈如之所是地存在**                    
+
 One morning meditation I found myself just being and not trying to contact anyone, such as the Source or Byron. 
+
+一天早上冥想时，我就处在如之所是地存在的状态，发现自己没有试图去连接任何人，比如源头或者拜伦。
 
 B: Just being is sometimes the best thing to do. It slows the mind down. 
 
+拜伦：如之所是地存在有时就是最好的事，它可以放慢你的思维。
+
 ME: Who is that? Is that the Source? Where is Byron? 
+
+我：是谁？是源头吗？拜伦在哪？
 
 B: This is Byron. 
 
+拜伦：我就是拜伦。
+
 ME: Oh, hello. How can you contact me on this level? I am still on the Earth plane. 
+
+我：你好，你怎么会在这里与我联系？我还在地球。
 
 B: I can contact you on any level; it is only you that have decided to come up to my level to communicate, and you think this is the only way. This is no longer necessary. 
 
+拜伦：我可以在任何级与你联系，是你每次到我的层级来与我交流，让你以为这是唯一的方法，但现在不再是了。
+
 Not convinced, I shot up to the 27th level to see Byron. We walked in a lovely wooded glade filled with flowers. 
+
+我不敢相信，于是我又冲到第27级去找拜伦。我们走进一个美丽的林间空地，那里长满了鲜花。
 
 B: Just being is one of the best things you can do. It allows you to just be yourself without the urgencies of the material world. It allows you to think and rationalize and communicate with yourself properly. It will slow YOUR mind down, allowing you to access the spiritual side of yourself, the real you. 
 
+拜伦：如之所是地存在，这是你能做的最好的事情之一。它让你不受物质世界的干扰，只是做你自己。它让你适当的思考，有理性，以及自我交流。它会放慢你的思维，让你进入自己的灵性层面。也就是进入你真正的自我。
+
 ME: How is this? 
+
+我：这是为什么？                                                       
 
 B: Your mind races with a list of things to process; it is constantly planning and scheming on things/jobs that you believe are more important. They appear to be so important that they even override your ability to meditate. This is your conscious mind fighting for supremacy, for it knows that it will eventually lose control of your Earthly existence as you become more spiritual. It wants to perpetuate itself. It will even try to disguise itself by being part of your spiritual agenda and making you think that you need to have your abilities now. In effect, it will make you try too hard and subsequently block your progression—a perfect way to maintain its existence. 
 
+拜伦：你的思维总是忙于一系列要处理的事情，为你认为更重要的事物做计划、定方案。那些事情显得如此重要，甚至压过了你冥想的能力。这是你的潜意识头脑在争夺主导权。因为它知道随着你灵性的增强，它将最终失去对你尘世生命的控制。它想让自己长存，甚至不惜将自己伪装成你灵性的一部分，让你认为自己必须马上就拥有能力。实际上它这样做会让你用力过猛，反而会阻碍你的进步，这就是它维持存在的完美方式。
+
 ME: So just being really is good for you? 
+
+我：对你来说，如之所是地存在真的有那么好吗？
 
 B: Yes, provided you don't focus on it as a means to an end and make it formal. Just enjoy the moments when they appear and don't think that you need to communicate with me or the Source and write something every day. 
 
+拜伦：是的，只要你不把它当作是达到某种目的的手段，也不要正式的看待它。当它们出现时，你只需享受那个时刻。不要想着要与我和源头连接，也不要想着要每天写点什么。
+
 #### Accessing One’s Core Essence/Core Star 
+
+***连接核心本质/星核**
 
 I discussed the just being principle with my wife one night, and I mentioned the information I received about it being an essential part of getting in contact with our core essence. I also talked about the feeling that I had been getting that the material world was feeling more and more like an illusion. I said that I thought “The Matrix” movie was a very important concept for people to think about in terms of understanding the difference between the realities of the spiritual world compared to the great illusion of the material world. We also discussed the need to access levels individually when we are in contact with our core star. We considered that when we are in contact with our core essence, we will be operating on all levels at the same time and will not, therefore, need to think about going to a level to communicate with an entity or being. This also came up in my morning meditation the next day. 
 
+一天晚上，我与妻子讨论如之所是地存在。我说起我所接收的信息是与我们核心本质保持连接的一个必须的部分。我还谈到了我的感觉，物质世界越来越像是一个幻相。我说我觉得电影《黑客帝国》提出了一个发人深省的重要概念，有助于人们理解灵性世界的实相与物质世界的巨大幻觉之间的不同。我们还讨论了当我们与自己的星核相连时，是否还需要单独连接那些能量层级。我们都认为当与自己的核心本质相连，我们就同时在所有层级上了，因此不需要考虑去某个层级与某个存有之间的沟通问题。第二天早上冥想时，这个问题又冒了出来。
+
 SE/B: Just being is a key part of getting in contact with your core essence. 
+
+源实体/拜伦：如之所是地存在，是与你的核心本质保持连接的关键一步。
 
 ME: Who am I speaking to? The Source or Byron? 
 
+我：谁在和我说话？是源实体还是拜伦？
+
 SE/B: Both of us and one of us, for we are one and the same. You understand this on a deeper level. 
+
+源实体/拜伦：是我们俩，也是我们中的一个，因为我们是一体的，是同一个。你对这点理解的更深了。
 
 ME: I am getting the feeling that I no longer need to “go” to a level to communicate with you. 
 
+我：我有种感觉就是我不再需要专门“去”某个层级与你们交流了。
+
 SE/B: That is correct, for when you are in contact with your core essence, you are truly everywhere and at all levels at the same time. You just are. You don't need to go to the 127th level to contact Me. 
+
+源实体/拜伦：的确如此，因为当你与你的核心本质连接时，你确实无处不在，同时处于所有层级，你就是存在着，你无需去127级找我。
 
 ME: Hang on. I thought there were just 100 levels. 
 
+我：等等，我以为只有100级。
+
 SE/B: There are only 100; it was a figure of speech. However, an individual may want to split the levels up so that he/she is able to take the evolutionary level jump at an easier pace. 
+
+源实体/拜伦：只有100级这只是一种说法。不过一个人可能会想分级，这样他就能更为轻松的实现进化阶段的跃升。
 
 ME: O.K. You were talking about the core essence. 
 
-SE/B: Yes, the core essence is the real you. It is your essence in the fullest sense of the word. The core star can be considered as a database of all your experience and existence—all that you have done, will do, and are doing. Once you access this, you will fully understand and believe that the material world really is the great illusion. You will understand that you are energy and that you can manipulate energy. In being able to realize and fully believe this, it will become your ultimate reality. You will realize that you can manipulate energy in the material world, as well as affect the material world reality. 
+我：好吧，你刚才说到核心本质。
 
-A master knows and fully understands and believes this, for he is who he really is. This is how a master can do things, like dematerialization, teleportation, and telekinesis, etc.—all the things that will get the attention of the people in the material world, the so-called hard evidence of a higher order of things. A master can do this because his belief is unequivocal. He is himself incarnate in the material world together with all the knowledge, understanding, and experience of the universe and God, for he is one with God and the universe, and the universe and God are one with him. 
+SE/B: Yes, the core essence is the real you. It is your essence in the fullest sense of the word. The core star can be considered as a database of all your experience and existence—all that you have done, will do, and are doing. Once you access this, you will fully understand and believe that the material world really is the great illusion. You will understand that you are energy and that you can manipulate energy. In being able to realize and fully believe this, it will become your ultimate reality. You will realize that you can manipulate energy in the material world, as well as affect the material world reality. A master knows and fully understands and believes this, for he is who he really is. This is how a master can do things, like dematerialization, teleportation, and telekinesis, etc.—all the things that will get the attention of the people in the material world, the so-called hard evidence of a higher order of things. A master can do this because his belief is unequivocal. He is himself incarnate in the material world together with all the knowledge, understanding, and experience of the universe and God, for he is one with God and the universe, and the universe and God are one with him. 
+
+源实体/拜伦：是的，核心本质就是你的本我。这是你的本质这个词最完整的理解，星核可以被视为你所有经验与行为的数据库，一切你做过的，即将做的以及正在做的一切。一旦你连接上它，你就会完全理解，并坚信物质世界真的只是一个巨大的幻相。你会明白你是能量，你可以操纵能量。当你能够意识到并完全相信这一点时，他就会成为你的终极实相。你将会发现自己能在物质世界中操控能量，并且可以影响物质世界的现实。大师就是知道并完全理解和相信这一点的人，因为他就是本我。这就是为什么一个大师可以做到诸如使物质消失、瞬间移动、心灵感应等事情的原因。这些事情都会引起物质世界里人们的注意，是证明事物的更高秩序的所谓铁证。大师之所以能做到这一点，是因为他内心确信，他带着关于宇宙和神的所有知识、理解以及经验，化身在物质世界中，因为他与神和宇宙是一体的，宇宙和神与他合一了。
 
 ME: Thank you. That is both beautiful and interesting. 
 
+我：谢谢你，这很美妙，也很有趣。
+
 SE/B: Of course, it is the nature of everything. All is in balance when understanding is finally achieved, and belief is replaced by knowing. Getting in contact with your core star/core essence allows you to get in contact with the real you. It allows you to access who you really are. 
+
+源实体/拜伦：当然，这是一切事物的本性，当你有了透彻的理解，用理解取代了相信，那么一切都是平衡的。与你的星核或核心本质连接，可以让你接触到你的本我，它让你进入你真正的自己。
 
 #### Removing the Veil of Separation from Our Real Self 
 
