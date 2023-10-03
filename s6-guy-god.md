@@ -213,7 +213,7 @@ A few months later, I showed some pictures of the landscape around the river and
 
 ### Chapter 2 - Contacts with Beings on the 14th Through the 27th Levels 
 
-**第二章：与第14级到第27级的存有接触**
+**第2章：与第14级到第27级的存有接触**
 
 #### Building My Link to Spirit and the 20th Level 
 
@@ -1195,7 +1195,7 @@ B: It’s bound to. You exist in an environment where it is hammered into you th
 
 ### Chapter 3 - Byron and the Source Entity 
 
-**第三章：拜伦与源实体**
+**第3章：拜伦与源实体**
 
 #### Visits at the 100th Level - Appearance/Forms of The Source Entity and Byron 
 
@@ -1639,139 +1639,281 @@ B: Not bad for a six minute meditation, but, of course, time is different when m
 
 #### Byron on Accessing Higher Self Memories 
 
+**拜伦谈及连接高我记忆**
+
 The next day I again went to see Byron on the 27th level and decided to prove the comments he made about moving too fast through the frequency levels. I moved through the levels bouncing around from the 27th to the 15th to the 30th to the 50th to the 100th and down again. I moved so fast that I (my physical mind) was starting to lose sight of my higher self’s mind. I moved from galaxy to galaxy in the blink of an eye. 
+
+第二天我又去了27级找拜伦，并决定验证一下他所说的在频率层级间飞速移动的问题，我从27级弹跳到15级，再到30级，再到50级，再到100级。我移动地如此之快，以至于我的肉体意识开始无法看到我的高我，一眨眼的功夫，我就从一个星系移动到了另一个星系。
 
 B: You’re losing me, too. I can't keep up with you! 
 
+拜伦：你移动地太快了，我跟不上你了。
+
 I then moved back up to the 100th level where I saw another galaxy form. This I recognized as the Source Entity. He/She/It spoke to me. 
+
+然后我又回到了100级，在那里，我看到了另一个星系形体，我觉得这是源实体。他和我说话。
 
 SE: Remember who you are! 
 
+源实体：回忆起你是谁！
+
 I then experienced something totally unexpected. I received impressions of many, many, many lives being lived. I gained glimpses and impressions of pictures and feelings of where I was and where I had been. I was a Byzantine warrior, a Roman, an Egyptian. I saw an aircraft go over my head in Atlantis, I saw structures of buildings on another planet, and I met up with the Om and embraced them. 
 
-I received the impression that there was far too much for my physical consciousness to comprehend so only fleeting impressions were received and interpreted. Mere snapshots of what was being given to me were grabbed by my physical consciousness and relayed to me. As I write this, I feel that I have been given a gift. When I de-focused my attention from my physical mind to my higher self-mind via core star mediations or simply moved too fast through the frequency levels for my physical consciousness to keep up, I effectively diffused the concentration of physical consciousness to the more diffuse requirement of the spiritual or higher self-consciousness. In effect, I raised my vibration level and expanded my consciousness to encompass the wider corners of self by expanding the horizon of my awareness through diffusion of concentration. In eyesight terms, it would be like fully using your peripheral vision. I was told that this technique would allow me to focus on my higher self’s consciousness to access my higher self’s memories. 
+接着我经历了一些完全出乎意料的事情，我接收到了许多、许多、许多次前世影像。我浏览了很多照片和影像，在这些照片中，我感受到我曾在哪里，又曾去过哪里？我曾做过拜占庭武士，做过罗马人，做过埃及人，在亚特兰蒂斯，我看到一架飞机飞过头顶，我看到了另一个星球上的建筑结构，我遇见了OM并拥抱了他。
+
+I received the impression that there was far too much for my physical consciousness to comprehend so only fleeting impressions were received and interpreted. Mere snapshots of what was being given to me were grabbed by my physical consciousness and relayed to me. As I write this, I feel that I have been given a gift. When I de-focused my attention from my physical mind to my higher self-mind via core star meditations or simply moved too fast through the frequency levels for my physical consciousness to keep up, I effectively diffused the concentration of physical consciousness to the more diffuse requirement of the spiritual or higher self-consciousness. In effect, I raised my vibration level and expanded my consciousness to encompass the wider corners of self by expanding the horizon of my awareness through diffusion of concentration. In eyesight terms, it would be like fully using your peripheral vision. I was told that this technique would allow me to focus on my higher self’s consciousness to access my higher self’s memories. 
+
+我接收到一种感觉，那就是我的肉体意识理解不了这么多，所以只接收和解读出一些飞快闪过的影像，我的肉体意识仅能捕捉到很少的一部分内容，接着再转达给我。当写下这些时，我感觉收到了一份礼物。为了让我的肉体意识跟上，我通过星核冥想或者仅是在频率层级间快速穿越，把我的注意力从肉体意识转移到高我意识中。这样的话，我就有效的扩散了肉体意识的凝聚度，将其用于灵性或高我意识中。实际上，通过扩散我的专注力，我扩大了意识的边界线，这让我提升了频率级别，也扩大了我的觉知，意识到更广阔的自我。换作视力来说，它就像是完全使用了你的边缘视力。我被告知说，这个技术能使我专注于高我意识，从而进入高我记忆系统。
 
 #### The Om on Concentration, Focus, and Meditation 
 
+**OM谈专注、聚焦与冥想**
+
 My morning meditation was proving to be difficult with my mind wandering onto more Earthly pursuits. After I finally managed to calm my mind down, I projected myself up to the 20th level again and looked around. The gap between the 20th and 21st was narrow, so I expanded it so that it was more comfortable. I saw the usual black/grey appearance of this level and then decided that I would expand my awareness to what the real appearance of the 20th level was. It instantly went into a bright white light and at the same time two of the Om came to greet me. They were pleased that I had been able to see what the real 20th level environment looked like. In contrast they looked like wispy black entities, but I perceived that this was only in comparison to the very, very iridescent bright light of the 20th. They told me that this light was pure celestial light. They then said they would give me a lesson in concentration. I thought this was very appropriate. 
+
+这个晨间冥想有些困难，因为我的头脑不停地在地球生活的琐事中游荡。但最后我终于使自己平静下来，接着我再次投射到20级，并环顾四周。20级与21级之间的间隙非常狭窄，为了更舒服，我就把它扩展了一下，我看到这一级呈现出常见的黑灰色。接着我决定将觉知扩展到整个20级，以便看到它真实的样子。我瞬间进入一束明亮白光之中，这时两个OM过来向我问好，他们很高兴我能够看到20级真实的模样。相比起来，他们看起来像微黑的实体，但我觉察到这仅仅是与20级非常明亮的彩虹光相比他们才偏黑。他们告诉我，这个光是纯净的天光。接着他们说会教我一个集中注意力的训练，我想这正合适。
 
 I suddenly found myself on a tight rope (without stabilizers) crossing a canyon in the US with the knowledge that I had to concentrate 100% on the task at hand or risk losing my life. I felt the level of concentration as being total engrossment. I was one with the wire I was walking on and knew exactly where to place my feet and how to distribute my weight. There was nothing else in the universe that mattered; I wasn't even interested in the wonderful view or the birds that flew by me. I was totally focused on the task at hand. 
 
+我突然发现自己走在一根绷紧的绳子上，手中没有平衡杆，正在穿过美国的一个峡谷。我知道必须100%专注于当前任务，否则就有性命之危。我感到自己全神贯注，我与脚下的绳子合为一体，完全知道脚要放哪里，以及如何分配自己的体重。宇宙中再没有更重要的事了，我甚至对那美妙的景色或飞过的鸟儿都不感兴趣，我完全专注于当下的事。
+
 Afterwards, I returned to the 7th Earth plane levels. What an excellent example of concentration and focus! This experience helped me tremendously to understand this concept. 
+
+随后我回到了地球第7级，这真是一个专心与专注的好经历，这个经历极大地帮助了我来理解这个概念。
 
 The next day I started my meditation and closed all of the doors off on the downwards spiral staircase that represented my thoughts. Each door represented a different thought and, therefore, a different distraction. I opened up all my chakras and rose up to the 20th level pulling up some friends (who I assumed were some of the Om, who were on the 14th level) at the same time. They then re-emphasized the previous day's lesson on concentration. They stipulated that the tightrope walker was an excellent example of pure 100% concentration. The level of concentration was such that nothing outside of doing the task at hand was important. A tightrope walker needs to dedicate those minutes of his life purely to walking the rope. He/she cannot allow any outside influences to intrude or distract his concentration. 
 
+第二天我开始冥想，关闭了下行旋梯的每一扇门。它们代表着我不同的思绪，是一种注意力的分散。我开启了所有的脉轮升到20级，同时拉上了一些朋友，我觉得他们是在14层级的OM，他们再次强调了前一天关于凝聚注意力的训练，他们确定走钢丝是极佳的例子。可以训练百分百集中注意力，他专注程度如此之高，以至于除了正在做的事情，其他都不重要。走钢丝的人需要把他人生的这几分钟时间完完全全贯注在绳子上，他不能允许外界任何的影响，干扰他的注意力。
+
 This is the level of concentration that is necessary when meditating. 
+
+这就是冥想时所需要的意识的专注程度。
 
 Om: You must be dedicated enough to allow the short period of time to be used in the meditation process and nothing else. 
 
+OM：你必须足够专注，使这短短的一段时间只用于冥想，没有其他杂念。
+
 I then had a fleeting thought about looking at my watch to find out what time it was since I had to go to work soon. The Om picked up on this instantly and said that this is exactly what they were talking about. Even this minute distraction was enough to cause a downward spiral of lack of concentration. 
+
+我突然想看一下时间，因为不久就要回去工作了，这马上就被OM发现了，并说这正是他们要说的，即使是一刹那的分神也足以引起注意力的螺旋式下降。
 
 Om: The ten or so minutes of meditation should be considered sacred, and no other thoughts should be allowed to interfere with it. The distractions are only the conscious mind’s desire to take control again. It feels that when you are accessing the higher self-mind, it is somehow losing control and is frightened that it somehow may not get it back. 
 
+OM：十分钟左右的冥想应该被认为是神圣的，不要让杂念干扰，注意力的分散就是大脑想要再次掌控。当你连接高我时，大脑在某种程度上感觉失去了控制，并且害怕可能再也无法收回控制权。
+
 #### The Source Entity on Preparing for Meditation
+
+**源实体谈冥想准备**
 
 SE: A number of different ways can be used to still the mind as a prelude to meditation. One is to count the heart beats; the other is to concentrate on the breathing rhythm. A further method is to imagine you are stroking a favorite animal or throwing a ball for a dog. All of these focus the mind on one thing only. You could also think of a big yellow ball above your head and then imagine your spirit rising up to join with it. This also works. 
 
+源实体：有许多不同的方法，可以用于冥想前平息头脑。一种是数心跳，另一种是专注于呼吸节奏，还有一种是想象你正在抚摸一只喜爱的动物或者和狗抛球，所有这些都会将思想集中于一件事。你也可以想象一个大大的黄色球在你的头顶上方，想象你的灵体上升，直到它他合一。这些都可以。
+
 Concentration can also be considered a vital part of meditation, and, even classed as meditation in its own right. When you meditate, you need to focus on the meditation and not the idle chatter of your mind that wants to continue to control you and prevent you from accessing your real self. Only when you are fully focused can you meditate properly; focusing requires you to concentrate on the meditation process and only that. Give yourself a little mental note to know when your meditation/concentration is wandering and drag yourself back into focus. Concentrating on something simple is the best route. 
+
+专注，也被认为是冥想的关键部分，甚至你可以认为专注就是冥想。当你冥想时，你需要集中于冥想，而不是那些扰乱你大脑的杂音。因为那些杂音想继续控制你，并且阻止你接近本我。只有全神贯注才是正确的冥想。专注要求你集中注意，且只集中于冥想过程。为自己设计一个心理便条，以便知道在冥想，专注中何时注意力分散并重新回到专注中。把注意力集中在简单的事情上是个好方法。
 
 #### Celestial Light 
 
+**天光**
+
 With this lesson well and truly learned, I commented on the bright light that was the 20th level, and the Om again said this was celestial light. It was not the same as the celestial love experienced on the 6th level. It was the light of all things and nothing, all places and no place, all universes and no particular universe, all times and no time, all dimensions/frequencies and no dimensions/frequencies, all beings in all times, dimensions, frequencies, and universes all at the same time. This is what made the light so bright; everything and everyone was burning so very brightly. I then saw some bright spots that moved around, and I was told that these were other beings that were specifically aligned with the 20th level. That's why they were brighter than the ambient light. My fellow beings looked dark in lieu of all this brilliant ambient light. On the Earth plane they would look like brilliant white/golden light, but here they looked dull in comparison. I wanted to embrace them all and thank them for the lesson and their patience in teaching me. I felt them smile, and I sensed that it really was time to hit the road and go to work. 
+
+这一课我收获颇多，我提到了在20级碰到的亮光。OM再次说那是天光，它与我在6级经历的天体之爱不同。这光源自万物与无物，遍处与空处，一切宇宙与个别宇宙，永恒时间与无时间，变维度/频率与无维度/频率，同一时刻所有宇宙维度、频率及宇宙的所有存有，这就是这光如此明亮的原因。所有的东西都在燃烧着，如此明亮。我看到了一些四处移动的亮点，我听说这些亮点是其他一些20级的特定存有，这就是为什么他们比背景光更亮的原因。与这些明亮的背景光相比，我的同伴们看起来相对较暗。在地球上，他们看起来应该会发出白色金色的亮光。但相比之下，在这里，他们则很暗色。我想要拥抱他们，感谢他们给我上的这一课，以及他们在教导我时的耐心。我感到了他们在微笑，但也真的是时候去上班了。
 
 #### Mixed Remembrance of Memories and Abilities 
 
+**记忆与能力的混合追忆**
+
 At my next mediation I was more focused and determined not to be distracted. I opened up my first seven chakras to associate myself with the auric levels and then swooped up to the higher levels. When I arrived at the 14th level, I noticed the tube (bypass) that I had put in place to allow the Om to pass up to the 20th level. Upon my arrival, I felt the presence of another being who I assumed was one of the Om. 
+
+在这次冥想中我更专注，下决心不再分心。我开启了前七个脉轮，将自己与辉光层相连接，接着又升到更高的层级。当我到达14级时，我看到之前安装的管道（或者旁路），这个管道是让OM去20级时使用的，我一到达就感到另一个存有的存在，感觉像是OM的一员。
 
 Om: We are impressed with your ingenuity; you are remembering. 
 
+OM：我对你的创意印象深刻，你正在回忆起更多的东西。
+
 ME: Thank you. I am starting to remember stuff but not remember it in the way that I want to. 
+
+我：谢谢你，我开始回忆起一些东西，但却不是以我自发意愿的方式。
 
 Om: Define. 
 
+OM：讲一下吧。
+
 ME: Well, I just know that I can do things, such as constructing the link between the 14th and 20th levels, but I can't remember past lives or the places/planets/galaxies/ dimensions where I used to live or even my previous time with the Om. 
+
+我：好的，我知道可以做一些的事情，比如在14级与20层级之间建立联系。但是我不记得过去的生活，或者我曾经住过的地方/行星/星系/维度，甚至记不起以前和OM一起的日子。
 
 Om: It is interesting that you mention the time before. You really must be next to a computer when you are meditating so that you can write our discourse straight away, but if you can’t, we will make sure that you can remember what we say to you. 
 
+OM：你提到以前的时间，这很有趣。当你在冥想的时候，你应该在一台电脑旁边冥想，这样你能直接把我们的对话写下来。但是如果你没在电脑边，我们会确保你能记得对话内容。
+
 ME: How will you do that? 
 
-Om: We will program you with a long term memory function so that you can download what was communicated to you. This dialogue was typed a few hours after the meditation. The conversation flowed back from my mind and into the keyboard. It felt like I was having total recall! 
+我：你怎么做到呢？
 
-#### The Om on an Image of Om as a Ball of Light 
+Om: We will program you with a long term memory function so that you can download what was communicated to you. 
+
+OM：我们将为你编程一个长期记忆功能，以便你可以下载我们与你交流的内容。
+
+This dialogue was typed a few hours after the meditation. The conversation flowed back from my mind and into the keyboard. It felt like I was having total recall! 
+
+这段对话是在冥想的几个小时后打出来的，谈话内容从我的脑海中自然浮现来到键盘，我感觉自己好像处于全身心回忆状态中。
+
+#### The Om on an Image of Om as a Ball of Light
+
+**OM谈光球的形象**
 
 I then decided that I wanted to see the celestial light of the 20th level and that I wanted to see the image of the Om. 
 
+接着，我决定去看看20级的天光和OM的形象。
+
 ME: Oh, you look almost human (angelic) to me. 
+
+我：哦，对我来说，你看起来几乎是天使般的人类一样。
 
 Om: That is because this is all your mind is able to cope with in its existing incarnate form. 
 
+OM：这是在你现有转世形体内你的头脑所能感受到的。
+
 ME: Can I see what you are? 
+
+我：我能看看你是什么样子吗？
 
 Om: Yes, but you will only see us as something you can translate into your current limited understanding, but, you will SEE later. 
 
+OM：能，但你只会看到当前你有限的理解力所能解读的形象，不过，你随后会看到的。
+
 ME: I see you as a ball of light energy. 
+
+我：我看到你是一个光能量球。
 
 Om: Yes, this is a good example and one that your mind can use as a translation substitute for something that it can't directly place into a recognizable context. You need some form of reference point, a datum from which to work. If you don't have the experience in this incarnation of what an energy being looks like, your brain will use a substitute, one that you can understand as meaning “This is an energy being.” 
 
+OM：是的，这是一个很好的例子，是你的大脑解读它不能识别的东西时的一个替代物。你需要某种形式的参照物，一个基准。如果你此次转世中对能量存有的外形没有经验，你的大脑将使用一个替代物，以让你理解“这是一种能量存有”。
+
 #### Seeing an Energy Being 
+
+**看到一个能量存有**
 
 ME: Oh, do I have to see an energy being, or do I only need to sense or communicate with one? 
 
+我：哦，我是否需要看到一个能量存有，或者我只需要感觉它，或与其交流呢？
+
 Om: There are energy beings that you will not be able to see because the energy is not visible. It is too refined, too fine to be picked up even with spiritual eyes. You don't really need to see them anyway for you will know their presence and be able to communicate with them, albeit in a limited way. 
+
+OM：有些能量存有你是看不到的，因为它是不可见的。它太精微了，即使用灵眼也不能识别。其实你并不需要去看他们，因为你会知道他们的临在，并且能够与他们交流，虽然是以受限的方式。
 
 ME: Thank you. I must go now. 
 
+我：谢谢你，我得走了。
+
 During these meditations and subsequent recalls, especially when I am typing up the text that forms the dialogue, I am constantly thinking that I am deluding myself, that I am only talking to myself. But it is the speed and subject matter of the information that comes through that tells me that this is more than just talking to myself. Also, some of the information is said in such a way that it is foreign to me. It is then that I know this is not the Earthly me speaking.
+
+在这些冥想和随后的回忆中，尤其是当我在输入这些已经形成对话的文字时，我一直在想，我在欺骗自己，我只是在自说自话，但记录这些信息的速度和内容主题又说明我不仅仅是与自己谈话，而且有些信息对我来说是陌生的。那时我知道这不是我正在地球上自言自语。
 
 #### The Source Entity on Intuition and Common Sense 
 
+**源实体谈直觉与常识**
+
 ME:I have had a number of occurrences over the years when the correct answer to a question has popped into my head before I have had chance to work out the answer by logic and calculation. 
+
+我：多年来，有很多这样情况发生，我的脑海中会突然跳出一个问题的正确答案，我甚至来不及通过逻辑和计算得出答案。
 
 SE:Yes,I have seen you do this.You must learn to trust intuition and use it as much as possible.When you use this faculty often enough,it will become second nature to you and will lead you to instant communication with the higher self.Intuition is the higher self's way of giving you internal guidance. It is the way that the higher self(the larger part of you that is still in the energetic)tries to train you to start using the information that is not available by logic or from your Earth experience/s but from your higher self.It makes you trust your feelings by putting you into a situation where the intuitive information is correct,and this was only apparent when you have arrived at the same conclusion by Earthly logic.Hence,you learn to trust your intuition as you see more and more evidence that the information given is both correct and accurate. 
 
+源实体：是的，我见过你这样做，你要学会相信直觉并尽可能的使用它。当你经常使用这种能力时，它将成为你的第二天性，并将引导你与高我进行及时沟通。直觉是高我给予你内在指导的途径，它是高我能量层面更大部分的自己试图训练你使用信息的一种方式。这种信息来自高我，而非来自逻辑头脑或人类经验。通过把你放置于一个情况中，同你通过人类逻辑也得出与直觉信息同样结论的时候，你才能发现直觉是正确的，这样你就会更相信你的感觉。因此，当你看到越来越多的证据表明直觉所提供信息的正确和准确，你就学会相信自己的直觉。
+
 Using one's common sense is similar. 
 
-When people say "Why don't you use your common sense?"they don't actually know what they are say- ing.The common sense is actually all the total learning and experience of all incarnate spirits in the universe, a true reservoir of knowledge.Thus,when people use their common sense,they intuitively tap into the wealth of knowledge that is available to them via the universe.For example,when individuals use their common sense for servicing their car,they might not actually have the knowledge and experience them- selves,but they are able to do the work when they intuitively tap into universal knowledge.They might not actually need to have experience of the learning themselves but can benefit from the learning of oth- ers.This is also true of an evolved and aware spirit who may need the knowledge of a great inventor or leader of people but doesn't have the time or need to go through a whole life to gain the experience or knowledge to help him address a certain life issue. 
+这和个人常识的使用类似。
+
+When people say "Why don't you use your common sense?"they don't actually know what they are say- ing.The common sense is actually all the total learning and experience of all incarnate spirits in the universe, a true reservoir of knowledge.Thus,when people use their common sense,they intuitively tap into the wealth of knowledge that is available to them via the universe.For example,when individuals use their common sense for servicing their car,they might not actually have the knowledge and experience themselves,but they are able to do the work when they intuitively tap into universal knowledge.They might not actually need to have experience of the learning themselves but can benefit from the learning of others.This is also true of an evolved and aware spirit who may need the knowledge of a great inventor or leader of people but doesn't have the time or need to go through a whole life to gain the experience or knowledge to help him address a certain life issue. 
+
+当人们说，“你为什么不使用常识？”他们实际上并不知道在说什么。常识实际上是宇宙中所有转世灵体的全部所学和经验，常识是一个真正的知识库。因此，当人们使用常识时，他们会本能的连接宇宙中可用的知识财富。例如，当人们使用常识修车时，实际上他们可能并没有修车相关方面的知识和经验，但是他们能够用直觉接入宇宙知识库就能完成工作。他们不必学习，但可以从别人的学习中获益。当一个进化的有觉知的灵体需要伟大发明家或领导者的经验与知识，但没有时间去经历整个人生来获得这些经验或知识时，也可以这样获取知识，解决某个生活问题。
 
 Common sense can also apply to recently gained knowledge,i.e.,what a spirit learns two minutes ago, could be used as common sense by another at the same time or two minutes later. 
 
+常识也可以适用于刚刚获得的知识。比如两分钟前一个灵体学到的东西，在同一时间或两分钟后可以被另一灵体用作常识。
+
 #### The Source Entity on the Twelve Source Entities 
+
+**源实体谈12个源实体**
 
 The next day I was again outside the universe and talking to the Source Entity,one of twelve entities that were split off from another larger entity,the Origin.Of course,the objective of Their creation is to find out as much about Themselves and the universe as possible and report back to the Origin for Its and Their collective learning and knowledge. 
 
+第二天，我又来到宇宙之外与源实体进行交谈。它是由另一个更大的存有（起源）分离出来的12个存有之一。当然，他们创造的目标是尽可能多地了解自己和宇宙，并向绝对起源反馈个体与集体所学。
+
 ME:So how many of You are there? 
+
+我：你们一共有多少个？
 
 SE:There are twelve of Us. 
 
+源实体：我们有12个源实体。
+
 ME:And your purpose is to learn. 
+
+我：你们的目的是学习吗？
 
 SE:Yes,this is the purpose of all beings given individuality from the Origin. 
 
+源实体：是的，这是所有由起源赋予了个体性的存有的共同目的。
+
 ME:So what are the others doing? 
+
+我：那么其他源实体做什么呢？
 
 SE:They are doing the same as Me and you,trying to find out about Themselves and give the collective knowledge to the Whole,so that the Whole can progress. 
 
+源实体：他们和你我一样努力去发现自己，将收集的知识反馈给整体，这样整体就可以进步。
+
 ME:So how are the others doing this? 
+
+我：那么其他源实体是怎么做的呢？
 
 SE:Each of Us has decided upon a different route of evolution.I have chosen to split into two with one side of Me being whole and the other being many billions of souls in a number of universes in a finite (but nevertheless infinite to you)number of dimensions.Each has its own individuality and collectivity.Another has decided to be one and contemplate the reasons for self on Its own.Another has split Itself into four,whereas another has split Itself into a billion souls totally,etc. 
 
+源实体：我们每个都有不同的进化路线。我选择了分裂成两部分，一部分是整体，另一部分成为有限的（但对你来说是无限的）维度中的宇宙中的无数灵魂。每个源始体都有自己的个性和共性。而其中另外一个源实体决定保持整体性，并独自思考自身的原由。另一个分裂成4份，也有一个分裂成11个灵魂，等等。
+
 ME:So why are there only twelve of you? 
+
+我：那么为什么只有12个呢？
 
 SE:Why not? That is the number of entities the Origin decided to split off from Itself. 
 
+源实体：为什么不呢？这就是起源将自己分裂成实体的数量。
+
 ME:The number twelve seems significant!Weren't there twelve apostles and twelve ascended masters and even a council of twelve? 
+
+我：12这个数看起来意义重大！不是有12使徒，12扬升大师，甚至12长老议会吗？
 
 SE:Yes,and this is all due to the other Sources visiting My area of responsibility,including Myself.Each ascended master was a Source Entity trying to learn outside Its own area of responsibility.You will also find that there are only twelve dimensions used in My universe although in reality they are infinitely finite(finite but infinite to you). 
 
+源实体：是的，这一切都是来源于参观我负责区域的其他源头，包括我自己。每一位扬升大师都是一个到自己负责的领域范围之外去学习的源实体。你也会发现，在我的宇宙中只使用了12个维度，尽管在现实中它们是无限之有限的。（它有限，但对你来说是无限的）
+
 ME:So when do you expect the learning to finish and You twelve return to the Origin? 
+
+我：那么什么时候你们12个结束学习返回起源呢？
 
 SE:Who knows?There is no plan.
 
+源实体：谁知道呢？还没有计划。
+
+
+
 ## Part 2 - The History of God
+
+**第二部分：神的历史**
 
 ### Chapter 4 - The History of God
 
+**第4章：神的历史**
+
 #### Meeting the Origin 
+
+**会见起源**
 
 During a morning meditation,I found myself asking the question about whether or not the material I was taking down as a result of countless meditations was worth publishing.Bearing in mind that many others had already written these sort of books,and they num- bered in the thousands,I felt that another book of the same genre would not make enough impact to progress this "good"work to another level of awareness/discus- sion.I,therefore,needed direction on which way to go. 
 
