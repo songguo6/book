@@ -1915,91 +1915,177 @@ SE:Who knows?There is no plan.
 
 **会见起源**
 
-During a morning meditation,I found myself asking the question about whether or not the material I was taking down as a result of countless meditations was worth publishing.Bearing in mind that many others had already written these sort of books,and they num- bered in the thousands,I felt that another book of the same genre would not make enough impact to progress this "good"work to another level of awareness/discus- sion.I,therefore,needed direction on which way to go. 
+During a morning meditation,I found myself asking the question about whether or not the material I was taking down as a result of countless meditations was worth publishing. Bearing in mind that many others had already written these sort of books,and they num- bered in the thousands,I felt that another book of the same genre would not make enough impact to progress this "good"work to another level of awareness/discussion.I,therefore,needed direction on which way to go. 
+
+在一个晨间冥想中，我发现自己在问这样一个问题，我在无数次冥想中记录下的内容是否值得出版？考虑到成千上万人已经写过这类书。我觉得一本同样题材的书可能不会产生足够的影响，来使这个好作品达到另一个更高的觉知讨论水平。因此，我需要方向上的指引。
 
 I had previously found that I could explore different levels of consciousness up to and past 100 levels.Each level was a frequency level equal to that experienced by healers who have the ability to sense the seven frequency levels of the human aura(based on current popular understanding).After some thought on this,I found myself focusing on the frequency that led me to the Source Entity(an energy being that I had previously been in contact with during a number of meditations and subsequent channeling opportunities)and zoomed up past the 100th level to talk to Him/Her/It. 
 
+之前，我发现可以探索不同层级的意识水平，可以达到甚至超过一百级。每一层级都是一个频率级，与那些有能力感知人类能量场7层频率，基于当前流行的理解的疗愈师们所经历的频率相同。经过一番考虑，我发现自己正专注于可以让我接近源实体的频率（这位以前冥想中多次接触过的能量存有）的频率上。接着，我就冲到一百级与他对话。
+
 ME:I want some direction on what I should be writing about for my book. 
+
+我：有关我的书应该写些什么？我需要一些指导。
 
 SE:You should write about the history of God. 
 
+源实体：你应该写关于神的历史。
+
 ME:What?! 
+
+我：什么？
 
 SE:This has not been done yet since most people who are in contact are actually in contact with Me and not the Origin. 
 
+源实体：因为这还没有人做过，因为大多数人实际上都是和我接触，而不是和起源接触。
+
 #### Who Is the Origin?
+
+**起源是谁？**
 
 ME:Who is the Origin? 
 
-SE:The Origin is the entity that I am part of;it is the one that we twelve are split away from to under- stand what I/We are. 
+我：谁是起源？
+
+SE:The Origin is the entity that I am part of;it is the one that we twelve are split away from to understand what I/We are. 
+
+源实体：我就是起源的一部分，它就是那个一，我们12个从中分裂而来，探索自我是什么。
 
 ME:I have not been in contact with the Origin yet? 
 
+我：我还没有接触过起源吗？
+
 SE:You have but only fleetingly. 
+
+源实体：你接触过，但很短。
 
 ME:Should I be speaking with It/Him/Her? 
 
+我：我可以和他说话吗？
+
 SE:Yes,it is the best place to begin. 
 
-I then called the Origin in my mind hoping that he would speak to me.At this time I found myself outside the multiverse controlled by the Source Entity I associ- ated with as God and looked further afield.In the dis- tance I saw a coalescence of light. 
+源实体：是的，现在就是最佳时机。
+
+I then called the Origin in my mind hoping that he would speak to me.At this time I found myself outside the multiverse controlled by the Source Entity I associated with as God and looked further afield.In the distance I saw a coalescence of light. 
+
+接着，我在心里呼唤了一声起源，希望他能和我说话。此时，我发现自己已处于被源实体控制的多维宇宙之外，我看到了远处有一团光。
 
 ME:Origin,can I speak to you? 
 
+我：起源，我可以和你说话吗？
+
 O:You may. 
+
+起源：你可以。
 
 ME:Where are you? 
 
+我：你在哪儿？
+
 O:Everywhere and nowhere. 
 
-ME:I want to know about the history of you. 
+起源：无处不在，又无处可寻。
+
+ME:I want to know about the history of you.
+
+我：我想知道你的历史。
 
 O:Do you have the time and patience? 
 
+起源：你有时间和耐心吗？
+
 ME:I think so. 
+
+我：我有。
 
 O:Then I will begin. 
 
-I chuckled to myself.This all sounded a bit "story teller- ish”tome..
+起源：那么我要开始了。
+
+I chuckled to myself.This all sounded a bit "story tellerish” tome..
+
+我不禁轻声笑了出来。对我来说，这一切听起来有点像在讲故事。
 
 ### Chapter 5 In the Beginning 
 
+**第5章：一切的开始**
+
 #### The Origin on Creating Greater Awareness of Self Via the Twelve 
+
+**起源由12源实体创造更多自我觉知**
 
 O:In the beginning I was not aware that I was aware and just existed.You can consider this by just "being"and listening to everything that is going on around you without making any judgements about anything or trying to work out what is going on.At some point over the millennia,I decided that I was aware of wanting to know more about what was going on around and in Me. 
 
+起源：一开始，我对自我觉知没有意识，只是存在着。你可以这样理解，即只是如之所示地存在，并倾听周围发生的一切，但不评判任何事，也不需要努力思考到底发生了什么。在某一时刻，我决定，我意识到我想更多了解我周围以及我内在发生的事。
+
 ME:Were there any other lifeforms around then? 
 
-O:Where there is energy,there is eventually conscious- ness and there is life,but consciousness is not true life until it is aware.There was lots of life at what you would call the "vegetable level of conscious- ness,"but this to Me was only like the cells that are in your body.You know they are there,but you can't communicate with them since they don't yet have that level of awareness,and neither do you.As I fur- ther reflected on this need for awareness,I decided that I would split Myself into thirteen,one being Me and the other twelve being other smaller parts of Me that had individual consciousness and aware- ness,plus an inherent need to search and learn about consciousness and awareness.How They did this was up to Them,but They were charged with returning to me with an answer of some kind. 
+我：周围还有其他的生命形式吗？
+
+O:Where there is energy,there is eventually consciousness and there is life,but consciousness is not true life until it is aware.There was lots of life at what you would call the "vegetable level of consciousness,"but this to Me was only like the cells that are in your body.You know they are there,but you can't communicate with them since they don't yet have that level of awareness,and neither do you.As I further reflected on this need for awareness,I decided that I would split Myself into thirteen,one being Me and the other twelve being other smaller parts of Me that had individual consciousness and aware- ness,plus an inherent need to search and learn about consciousness and awareness.How They did this was up to Them,but They were charged with returning to me with an answer of some kind. 
+
+起源：哪里有能量，最终哪里就有意识，就有生命。但有觉知的意识，才算是真正的生命。你们所说的“植物意识水平”上有很多生命，但对我来说，这些生命就像你身体里的细胞一样，你知道它们在那里，但是你不能和他们交流，因为他们还没有那个觉知水平，你也没有。当我进一步思考这一觉知的需求，我决定将自己分成13个，一个是我自己，另外12个是我较小的其他部分，每一个都拥有自己的意识和觉知，并且有探索了解意识以及觉知的内在需求，如何做到就取决于他们了。他们的任务是带着某种答案回到我身边。
 
 ME:So You became aware and wanted to know more? 
 
+我：那就变得有觉知，并且想知道更多？
+
 O:Yes,that's right.The task for the other twelve parts of Me was to find out more about the environment that was Me.
+
+起源：是的，就是这样。我的另外12个部分的任务是找出更多身为环境的我的信息。
 
 ME:Are there others like You?I only sense You. 
 
+我：还有其他像你这样的吗？我只感觉到了你。
+
 O:That is because you are within Me now. 
+
+起源：那是因为目前你在我里面。
 
 ME:There must be an end to the number of times I can go up to see other higher beings,and You must be it be- cause I can't imagine any more than Your level. 
 
+我：更高层级的存在一定也有个尽头，你应该就是最高的。我无法想象还有比你的层级更高的存在。
+
 O:That is because of your limited point of view. 
+
+起源：这是因为你的视野有限。
 
 ME:Are there more?Is there a higher level? 
 
+我：还有更多吗？还有更高的层级吗？
+
 I tried to look further and suddenly found myself in another environment where there were more Origins. This was freaky,and I was feeling very spaced out. 
 
-#### A Starting Point Where EverythingJust Is 
+我试着向更远处望去，突然发现自己处在另一个有很多个起源的环境中，这是一种怪异的感觉，我感到非常的迷惑。
+
+#### A Starting Point Where Everything Just Is 
+
+**万物的起始点**
 
 ME:There has to be an end somewhere? 
 
-O:Yes,there is,but you will not accept it when it hap- pens because your brain considers that there must be something bigger.How can I explain that there has to be a start,a point where everything just is until it becomes aware? 
+我：一定会有个终点的吧。
 
-ME:I have real difficulty with this.Ifeel like my brain is about to explode under the strain. 
+O:Yes,there is,but you will not accept it when it happens because your brain considers that there must be something bigger.How can I explain that there has to be a start,a point where everything just is until it becomes aware? 
 
-O:I can see 
+起源：是的，有，但看到终点时，你也不会接受，因为你的大脑会认为一定还有更大的。我如何解释这一点呢？也就是必须有一个起点，在这个点上，万物没有觉知，只是：是。
+
+ME:I have real difficulty with this.I feel like my brain is about to explode under the strain. 
+
+我：理解这一点，我真的有困难，我的大脑要爆掉。
+
+O:I can see.
+
+起源：我能理解你。
 
 ME:So if there are many entities that are controlling the multiverses to learn about what awareness means and to experience different things,how can They call them- selves God when a person like me or some other person says they are in contact with God? 
 
+我：那么，如果有很多实体控制着多维宇宙去学习、觉知以及体验不同的事物。当像我这样的人或其他人说，他们正在与神联系时，这些存有怎么能称自己为神呢？
+
 O:That is because we are all part of the total.If you call the total a name and that name is "God,"then We are all God.We know We are God because We are in contact with the total and Ourselves all at the same time.We don't know any different because We are not"cut-off"from God like you are;therefore,We call ourselves God because that is who We are.We are all one entity;We are all God.
+
+起源：那是因为我们都是整体的一部分，如果赋予整体一个名字：神，那么我们都是神。我们都知道自己是神，是因为我们同时与所有存在和我们自己保持着联系，我们不知道这有什么区别，因为我们不像你那样从神身上隔离。因此我们称自己为神，因为那就是我们的真实身份。我们都是一体，我们都是神。
 
 #### The Origin Looks Within Self 
 
