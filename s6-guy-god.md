@@ -2089,119 +2089,237 @@ O:That is because we are all part of the total.If you call the total a name and 
 
 #### The Origin Looks Within Self 
 
+**起源的自我审视**
+
 Me:So how did You become aware and decide that You wanted to know more about Yourself? 
+
+我：那么，你是如何变得有觉知，并且决定要更多了解自己的呢？
 
 O:When I became aware that I was,I decided to look into Myself and see what I was.I was surprised to see that I was many things. 
 
+起源：当我觉知到自己的是，我决定审视自己，看看我是什么。我很惊讶的发现，我可以是很多东西。
+
 ME:How did You do this?It must have been a massive task? 
+
+我：你是怎么做到的？这肯定是一项浩大的工程。
 
 O:It was...Consider yourself as the sea and imagine the wonder that I had when I found out that the equivalent of fish and crustaceans were also part of Me. 
 
-I then found myself looking into me,looking at the very heart of myself.Suddenly I felt as if I was floating in space and looking at things as small as cells and bac- teria and wondering at the diversity of life within me that I had no prior realization about on the personal experience level. 
+起源：是这样的，假如你是大海，想象一下，当你发现鱼和甲壳类动物也是自己一部分时，会有多么惊奇。
+
+I then found myself looking into me,looking at the very heart of myself.Suddenly I felt as if I was floating in space and looking at things as small as cells and bacteria and wondering at the diversity of life within me that I had no prior realization about on the personal experience level. 
+
+接着，我审视着自己的内在，观察自己内心深处。突然间我感觉自己仿佛漂浮在太空中，正看着体内像细胞和细菌一样小的东西。我对内在生命的多样性感到惊奇，这在以前的个人经验层面上是没有领悟到过的。
 
 O:Yes,that's it,except that what I saw was different types of energy in different densities and different frequencies,and some were only present on certain dimensional levels.Some of them spread across many dimensions and changed in their appearance when they were present in different dimensions. All of them behaved differently,depending on the dimension they were in or how many they were linked to. 
 
+起源：是的，就是这样。除了我看到的是不同密度、不同频率、不同类型的能量，还有一些只存在于特定的维度。他们中的一部分分布于多维度中，并且在现身不同维度时会改变外貌。他们行为各异，这其取决于他们所处的维度，或者取决于他们连接维度的数量。
+
 ME:So did they also have awareness? 
 
-O:No,but some parts were developing rudimentary consciousness,which is the first step towards awareness.The task was so big that it literally took millennia to go through every part of My "different levels."To move around within Myself,I would focus my attention,and I would be there instanta- neously traveling within Myself and able to create within Myself anything that I wanted without barriers or limitations. 
+我：他们也有觉知吗？
+
+O:No,but some parts were developing rudimentary consciousness,which is the first step towards awareness.The task was so big that it literally took millennia to go through every part of My "different levels."To move around within Myself,I would focus my attention,and I would be there instantaneously traveling within Myself and able to create within Myself anything that I wanted without barriers or limitations. 
+
+起源：没有，但是有一些是在发展初级意识，这是朝向觉知的第一步。这项任务太大，实际要花上很久才能经历我不同层级的每一部分，要在我内在四处活动。我会集中注意力，我可以瞬间在我内在穿行，并可以毫无障碍地创造出我想要的东西。
 
 #### The Origin as the End 
 
-I then suddenly saw the truth.The Origin was the end, and everything was taking place within the Origin.All of the other twelve "Source entities"were split off from the Origin but were still contained within the Origin. They even appeared to pass around the outer edge of the Origin.This is where I was getting confused and muddled up.I could see the others and their own exper- iments happening in front of me,and around me was the environment that was the Origin. 
+**起源即终点**
 
-O:It was fantastic to see different parts of me doing things that I had absolutely no knowledge about. Eventually I got to the point that I needed to dig deeper and deeper within Myself to see what was going on.As I was doing this,I noticed the lower dimensions or frequencies and realized it was pos- sible to have different frequency levels in a single dimension. 
+I then suddenly saw the truth.The Origin was the end, and everything was taking place within the Origin.All of the other twelve "Source entities"were split off from the Origin but were still contained within the Origin. They even appeared to pass around the outer edge of the Origin.This is where I was getting confused and muddled up.I could see the others and their own experiments happening in front of me,and around me was the environment that was the Origin. 
+
+我突然看到了真相。起源就是终点，一切都发生在起源之内。所有其他12个源实体都是从起源分离出来但仍然包含在起源内。他们似乎在起源的外缘附近，这就是我感到困惑和错乱的地方。我可以看到他人以及他们的经历就在眼前，而周围的环境就是起源。
+
+O:It was fantastic to see different parts of me doing things that I had absolutely no knowledge about. Eventually I got to the point that I needed to dig deeper and deeper within Myself to see what was going on.As I was doing this,I noticed the lower dimensions or frequencies and realized it was possible to have different frequency levels in a single dimension. 
+
+起源：看到我自己的不同部分做一些我完全不了解的事，真是太棒了。最后，我终于明白了，我需要更深入的向内挖掘自己，看看到底还会发生什么。当我这样做的时候，我发现了较低的维度或频率，并明白在单一维度中可能有不同的频率层级。
 
 ME:You mean dimensions within dimensions? 
 
+我：你的意思是说维度中的维度吗？
+
 O:Yes,I noticed that at some level I was much slower and had difficulty in accessing the rest of Myself. 
+
+起源：是的，我注意到在某些层级上，我的频率要低很多，而且很难连接到我的其他部分。
 
 #### The Origin Breaks Off Twelve Parts of Itself 
 
+**起源将自己分为12份**
+
 ME:Would this be the physical levels? 
 
-O:Yes,and others like it.It was at this point that I thought it would be interesting to discover how I would react if I was in a position where I was totally cut off from Myself.This I did for a certain indiscernible amount of time but discovered that I actually didn't learn much since I didn't have a task to do.I then decided that I would create the others and give these other parts of Me the opportunity to do the same but with both of Us observing and learning/experiencing what was occurring.Your level is the lowest and most difficult and most fruit- ful in terms of the learning experience.
+我：这是物质层吗？
 
-ME:So what made you decide upon the number 12 as the number of different parts of yourself to split off? 
+O:Yes,and others like it.It was at this point that I thought it would be interesting to discover how I would react if I was in a position where I was totally cut off from Myself.This I did for a certain indiscernible amount of time but discovered that I actually didn't learn much since I didn't have a task to do.I then decided that I would create the others and give these other parts of Me the opportunity to do the same but with both of Us observing and learning/experiencing what was occurring.Your level is the lowest and most difficult and most fruitful in terms of the learning experience.
+
+起源：是的，还有其他类似的。这时我想，如果我完全与自己隔离会发生什么，这一定很有趣。我这样做过数不清多少次，但我发现实际上并没有学到很多东西，因为没有确定目标。然后，我决定要创造一些我的其他部分，给这些部分同样的机会。同时，我们都观察和学习，体验发生的事情。你的层级是最低的，也是最困难的，但就学习经验而言是最富有成效的。
+
+ME:So what made you decide upon the number 12 as the number of different parts of yourself to split off?
+
+我：那么，是什么让你决定用12这个数字，将你自己分离成12个部分呢？
 
 O:This was based upon distinction in the different levels of the dimensions within Me.I noticed that there was a specific difference,and that this was in twelve parts.So when I decided that I wanted to know more about Myself,I decided it would be a good idea to have parts of Me focus its attention on each one of these twelve dimensional zones. As I delved further into Myself,I also noticed that these twelve zones were also divided by twelve with each zone being separated by twelve dimensional octaves with each octave being a group of three dimensions. 
 
+起源：这基于我内在维度层级的区别，我注意到一个独特的区别，就是有12个部分。因此，我决定要多了解自己时，就觉得将注意力集中在12个维度的每一区域会是个好主意。当我进一步深入研究自己的时候，我也注意到12个区域亦分为12份，每一份又被12个八度分割，每个八度又由一组3个维度构成。
+
+（注：octave，八度，在电子学上是指频率加倍或是除以2）
+
 Me:Wouldn't you be better calling it a tritave? 
 
-O:Possibly,but I decided that octave sounded better and could be more easily understood by you in your current level of incarnation and ability to access the common knowledge base whilst using your con- scious mind. 
+我：难道你不应该把它叫做三度吗？
+
+O:Possibly,but I decided that octave sounded better and could be more easily understood by you in your current level of incarnation and ability to access the common knowledge base whilst using your conscious mind. 
+
+起源：可以吧，但我认为就你当前化身的意识理解程度来说，用八度比较好，你也更容易理解。
 
 #### The 12 x 12 x 12 x 3 Different Dimensional Levels 
 
-ME:So in effect you have 12 x 12 x 12 x 3 different dimen- sional levels.That is 5,184 dimensions. 
+**12 x 12 x 12 x 3个不同维度层级**
+
+ME:So in effect you have 12 x 12 x 12 x 3 different dimensional levels.That is 5,184 dimensions. 
+
+我：那么实际上有12 x 12 x 12 x 3个不同维度，也就是5184维度。
 
 O:Yes,and each is divisible by the major dimension or an octave.This is why the numbers 12,4 and 3 are important.12 a dozen (a baker's dozen 13,the 12 plus 1 Me!)the twelve disciples and 1-Jesus- Me!3 days for the spirit to totally leave a dead body, 4 octaves to a dimension(the three physical planes in your case,plus 1 "time")Also,you can make any number you like out of the manipulation of the numbers 4,3,and 1. 
 
+起源：是的，每一个维度都能被主维度或一个八度所整除。这就是为什么数字12、4、3很重要。12等于一打，面包师的一打等于13，12个源头加一个我，12个门徒和一个耶稣，我。灵体需要3天完全离开死去的身体，一个维度含4个八度因素，你们世界中有3个物质频率层次加上1个时间维度。你可以用数字4、3、1来创造任何你喜欢的数字。
+
 I tried it,and He/She/It was right.You could make any number. 
+
+我试过了，它是对的，你可以创造任何数字。
 
 ME:What about different frequency levels?
 
+我：那么不同的频率层级呢？
+
 O:The dimensions and the frequencies are,in effect, the same thing;however,one is separate whereas the other is together. 
+
+起源：维度和频率实际上是一回事，只是一个是分离的，而另一个是同一的。
 
 ME:Can you explain? 
 
-O:With a frequency change,the matter(spiritual or physical)is further apart from its lower frequency self;whereas,with a higher dimensional level,the matter(spiritual or physical)is in the same place as its lower dimensional part.A dimension is,there- fore,overlaid by time rather than frequency,which is separated by a molecule's speed and the space it occupies. 
+我：你能解释一下？
+
+O:With a frequency change,the matter(spiritual or physical)is further apart from its lower frequency self;whereas,with a higher dimensional level,the matter(spiritual or physical)is in the same place as its lower dimensional part.A dimension is,therefore,overlaid by time rather than frequency,which is separated by a molecule's speed and the space it occupies. 
+
+起源：当频率变化时，灵性的或物质的事物与较低频的自我分离地较远。但是在更高维度，灵性的或物质的事物与其较低维度的部分处于同一位置。因此，维度是按时间重叠，而不是按频率，它被单个分子的速度及其占据的空间所分隔。
 
 I tried to see how this would look,and my head started to hurt with the stretching of my mental boundaries. 
 
-O:You are trying too hard.Try to think of it in these terms.Each of the twelve Mes was assigned to work within a certain range of dimensions;these were split into twelve levels.There are twelve more levels separating the levels between each of these levels, and these were split again by 3 to bring the struc- ture down to the lowest dimensional or frequency level.Three of these together create a workable environment that I call an "octave."You humans happen to live in the bottom three frequencies that make up the first dimensional level in a particular Source Entity's area of evolutionary responsibility. 
+我尝试着去观看它的画面。当我拓宽意识边界时，头开始疼起来。
+
+O:You are trying too hard.Try to think of it in these terms.Each of the twelve Mes was assigned to work within a certain range of dimensions;these were split into twelve levels.There are twelve more levels separating the levels between each of these levels, and these were split again by 3 to bring the structure down to the lowest dimensional or frequency level.Three of these together create a workable environment that I call an "octave."You humans happen to live in the bottom three frequencies that make up the first dimensional level in a particular Source Entity's area of evolutionary responsibility. 
+
+起源：你过于紧张了，试着用一些术语来思考这些。这12个我，每个都会在一定范围的维度内工作，因此被分为12个层级。每个层级之间又分为12个层级，每个又分为三个，直到最底层的维度或频率。这3个一起创造了一个可运行的环境，我称之为一个八度（octave）。你们人类碰巧生活在底部组成第一维度的3个频率中，处于某一源实体的进化责任区域。
 
 ME:How does this relate to the existence of different universes? 
 
+我：这与不同宇宙的存在状态有什么联系？
+
 O:As previously stated,each Source created as many universes as He/She/It needed to gain experience and evolve.Simplistically,within each dimensional level there can exist a totally separate universe with each equally important and addressing the issue of evolution in a different manner.Each is independent of the other but equally dependent and interlinked with one another. 
+
+起源：之前已经说过，每个源头会根据获取经验和进化的需要而创造足够数量的宇宙。简单说，在每个维度层级内部都可能有完全独立的宇宙，每一个独立宇宙都同样重要，而且都在用不同的方式解决进化的问题。每一个都彼此相互依存，相互关联。
 
 ME:So this linking is why it is possible to travel through other dimensions or use other dimensions for traveling instantaneously in our dimension? 
 
+我：那么，之所以有了这种连接，我们才能穿越其他维度，或借助其他维度实现本维度内的瞬间穿越。
+
 O:Yes,as I said before,you have to have a back door. 
+
+起源：是的，我之前说过，你必须得有个后门。
 
 ME:So why did You allow all of the Source Entities to split the dimensions into the octave parts? 
 
-O:To allow Me to experience everything about Myself right down to the quark level,as you would put it, and below.I felt the need to do this when I found that parts of Me lost contact when they were at the lower levels.This is what you experience as humans incarnate and are projected into the very lowest levels.You start to lose contact with the rest of your higher selves and develop individual consciousness and even limited awareness that is separate from the rest of yourselves.Your higher self was,of course,aware of what was being ex- perienced at the lower levels,but that part of you that is actually in these lower levels loses the ability to communicate because of the limitations that present themselves in these lower frequencies.It is like a worm that is cut in two but is still connected by its skin.The worm develops as two separate worms and eventually becomes two,but you don't because that skin that holds you together,the aura never withers and dies.The information accrued in the physical is in both zones,so when the physical dies,the information contained in the "physical consciousness"is still maintained in the spiritual consciousness,and your attention is presented back to the spirit rather than the physical.This is the reason why you should not be afraid of dying in the physical because your projected consciousness is withdrawn and not lost,unlike the worm's body that eventually becomes separated from the origi- nal when the skin withers and dies. 
+我：那么，为什么你允许所有源实体将维度又分成八度（3个一组）呢？
+
+O:To allow Me to experience everything about Myself right down to the quark level,as you would put it, and below.I felt the need to do this when I found that parts of Me lost contact when they were at the lower levels.This is what you experience as humans incarnate and are projected into the very lowest levels.You start to lose contact with the rest of your higher selves and develop individual consciousness and even limited awareness that is separate from the rest of yourselves.Your higher self was,of course,aware of what was being experienced at the lower levels,but that part of you that is actually in these lower levels loses the ability to communicate because of the limitations that present themselves in these lower frequencies.It is like a worm that is cut in two but is still connected by its skin.The worm develops as two separate worms and eventually becomes two,but you don't because that skin that holds you together,the aura never withers and dies.The information accrued in the physical is in both zones,so when the physical dies,the information contained in the "physical consciousness"is still maintained in the spiritual consciousness,and your attention is presented back to the spirit rather than the physical.This is the reason why you should not be afraid of dying in the physical because your projected consciousness is withdrawn and not lost,unlike the worm's body that eventually becomes separated from the origi- nal when the skin withers and dies. 
+
+起源：为了让自己体验到一切，直到你所谓的夸克层级及以下层级。当我发现自己的一些部分处于较低层级时会失去联系，我就感到有必要这么做了。这就是你投射到非常低的层级作为人类化身所体验到的，你开始与你高我的其他部分失去联系，发展出独立的意识，甚至一种有限的与本我的其他部分相分离的觉知。当然，你的高我能觉知到在较低频率层级的体验但实际处于较低层级中的那部分自己。由于受到低频限制，失去了交流的能力。就好像一条蠕虫虽然被切成两段，但皮肤仍然相连，接着会成为两条蠕虫，最后独立分开。但是你不会分开，因为连接你的皮肤及能量场光环不会衰弱与灭亡，肉体信息会同时处于这两个区域。因此，当肉体死亡，肉体意识仍然会保留在灵性意识之中，并且你的注意力会回到灵体中，而不是肉体中。这就是为什么你不应害怕肉体的消亡，因为你的意识只是被从肉体撤出，不会丢失。这和蠕虫在皮肤衰退或者死亡后彻底分离是不一样的。
 
 #### The Origin on the Purpose for Humanity's Incarnating 
 
+**起源谈人类化身的目的**
+
 I decided to ask the main reasons for our incarnations.
+
+我决定针对转世化身问几个重要问题。
 
 ME:What is the main reason for us being here on Earth? 
 
+我：我们来到地球的主要原因是什么呢？
+
 O:To experience and learn from those experiences and in the process evolve whilst contributing to the whole. 
+
+起源：体验，并且在经历中学习，在自身进化的同时，对整体做出贡献。
 
 ME:What do I have to do? 
 
+我：我必须做点什么呢？
+
 O:You have to do a number of things,and the fact that your discussions with me are limited to small amounts of time means that you are experiencing many things,which is good. 
+
+起源：你要做一系列的事，而你我的讨论仅占少量的时间这一事实意味着你在体验许多事情，这样很好。
 
 ME:So what is one of things that I have to learn? 
 
+我：那么，我必须学习的一件事是什么呢？
+
 O:What is your pleasure? 
+
+起源：你喜欢什么？
 
 ME:What? 
 
+我：你指什么呢？
+
 O:What is your pleasure?You need to experience pleasure and joy.This is one of the things that you really haven't grasped yet.Sometimes it is best to just sit back,be,enjoy the fruits of your hard work and feel the pleasure and joy that comes with relax- ation.Try to ensure that you aren't too engrossed in striving for more or trying to be better because as a result you are never happy with what you have. 
+
+起源：什么是你的快乐？你要经历欢乐与喜悦，这是你目前还没理解的事情之一。有时只是坐下来享受你辛勤工作的成果，感受放松所带来的愉快与喜悦，这就是最好的。确保不要太限于努力争取或变得更好，因为你会因此永不能满足于已经拥有的。
 
 ME:I can relate to that.I think I know exactly what you mean. 
 
-O:Do you?You are still not grasping the nettle [See Glossary for clarification]! 
+我：我能领会，我想我知道你确切的意思。
+
+O:Do you?You are still not grasping the nettle! 
+
+起源：是吗？你仍然需要提高理解水平。
 
 #### The Twelve Sources - Varied Approaches to Learning 
 
-ME:So the twelve Sources have different approaches to the way They learn about Themselves and Their environ- ment,YOU. 
+**12个源实体各自不同的学习方法**
 
-O:That's correct;the Source Entity that you are work- ing with decided to duplicate the way that I split Myself up into twelve.
+ME:So the twelve Sources have different approaches to the way They learn about Themselves and Their environment,YOU. 
+
+我：那么，12个源头有不同的方式来了解自己，了解他们的环境，也就是你。
+
+O:That's correct;the Source Entity that you are working with decided to duplicate the way that I split Myself up into twelve.
+
+起源：是的，你所在的源实体决定模仿我的方式，将自己分成12个部分。
 
 ME:Is that why we have 12 x 12 x 12 x 3 dimensions? 
 
-O:Yes,that's right.If you look at one of the other Source Entities structures,you will find that They are 12 x 4 x 12 x 3 with the multiplication by 4 that comes from the number of times They have divided Them- selves,i.e.,the number of universes that They have decided to use as the medium that They are using to work out all about Themselves. 
+我：那就是为什么有12 x 12 x 12 x 3个维度。
+
+O:Yes,that's right.If you look at one of the other Source Entities structures,you will find that They are 12 x 4 x 12 x 3 with the multiplication by 4 that comes from the number of times They have divided Themselves,i.e.,the number of universes that They have decided to use as the medium that They are using to work out all about Themselves. 
+
+起源：是的，如果去看其中其他源始体结构，你会发现他们是12 x 4 x 12 x 3，乘以4是他们分裂自己的次数。也就是说，他们决定用哪一数量的宇宙作为媒介来了解自身。
 
 ME:Looking at the number of universes created by my Source Entity and the position that we humans are working in,I would say that we are right at the bottom of the universe,dimension,andfrequency pile. 
 
+我：看看源始体创造宇宙的数量，以及人类所处的位置，我想说人类正处于宇宙、维度及频率的底部。
+
 O:Yes,you are,but that is where you score the most evolutionary points,so to speak.As I have said before,you,or at least part of you,is totally cut off from the rest of yourself,so you have to do an awful lot without your higher functions.It's a bit like what I explained before;it's your equivalent of having no eyes,ears,touch,smell,or taste and still trying to build the Eiffel Tower. 
+
+起源：是的，是这样。但说起来，这也是你们最能获得进化的地方。正如我之前说，你，或者至少是一部分的你，已经完全与其他部分分隔开，所以你必须在没有高我指导下自力更生。这有点像我之前解释的，相当于没有视觉、听觉、触觉、嗅觉或味觉，却试图建造埃菲尔铁塔。
 
 ME:It's an almost impossible task. 
 
+我：这是一个几乎不可能完成的任务。
+
 O:That's right,but somehow all of you manage to succeed. 
+
+起源：是的，但不知为何你们所有人都成功了。
 
 #### The Origin on The Author's Writing about the History of God 
 
