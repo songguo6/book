@@ -2323,65 +2323,127 @@ O:That's right,but somehow all of you manage to succeed.
 
 #### The Origin on The Author's Writing about the History of God 
 
+**起源谈作者的写作**
+
 ME:How do you want me to tell the world about the history of God? 
+
+我：你怎么会想到让我向世界讲述神的历史呢？
 
 O:That is entirely up to you.You can write it as twelve or thirteen books with each book dealing with the works of each of the Source Entities and,of course, Me.Or you can write one book with thirteen chap- ters,each with a summarized version of the story of each Source and Me.This would give you and your audience a taste of what is to come and give them an appetite for buying other books.
 
+起源：这完全取决于你，你可以写成12或13本书，每本书介绍一个源实体，以及我。你也可以写一本书，里面有13个章节，每一章节要介绍每个源实体和我的故事，这是让你以及你的读者先尝尝鲜，让他们有兴趣购买其他书。
+
 ME:But which one should I write first? 
+
+我：但是我首先要写哪一本？
 
 O:You could write about Me and the Source Entity that looks after your universes first.This will be the most popular.The other books will only be popular with those people who want to know the truth about the rest of Me,but people will read them.I can hear your thoughts now.No,they don't need to be massive novels.Just write enough to make people feel that they are getting value for money and big enough for you to convey what you need to convey. 
 
+起源：你可以先写我和照顾你当前宇宙的源实体，这本会最受欢迎。而其他书只有想知道有关我其他部分真相的人们才会喜欢，但人们会阅读这些书。我现在知道你的想法，不，它们不需要长篇大论，传达你想表达的东西就好，内容足以让人们觉得物有所值。
+
 #### The Origin on Its Sphere of Twelve and the Termination of Our Universe - The Source Entity as Independent and Yet Integral with The Origin 
 
-My mind suddenly saw the rest of the Source Entities, and then I just as suddenly zoomed into the memory of the Source Entity that looks after the universes that the Earth plane is within.I suddenly had the feeling of joy and awe associated with realizing that a part of it now had focused consciousness;it was independent but still integral with the Origin.It was a strange over- whelming feeling that came over me.One that was all encompassing.
+**起源及本宇宙的终结：既独立又与起源一体的创造地球的源实体**
+
+My mind suddenly saw the rest of the Source Entities, and then I just as suddenly zoomed into the memory of the Source Entity that looks after the universes that the Earth plane is within.I suddenly had the feeling of joy and awe associated with realizing that a part of it now had focused consciousness;it was independent but still integral with the Origin.It was a strange overwhelming feeling that came over me.One that was all encompassing.
+
+我大脑中突然看到了其余的源实体，接着，突然进入了照看地球的源实体的记忆中。我突然感到快乐和敬畏，并意识到它的一部分拥有聚集的意识。它是独立的，但仍与起源一体，这种奇怪的感觉扑面而来，围绕着我。
 
 I looked back again at the Origin and saw that the con- figuration of the different Source Entities was not as I had previously seen them:as individual spheres within the sphere of the Origin.They looked like the sphere of the Origin that had been segmented into twelve. 
 
+我回看起源，发现不同源实体的构造与我之前所见不同，是起源领域内独立的领域，看起来像是起源领域被分成了12个部分。
+
 Me:Why has this changed? 
 
-O:Because you are now able to understand what hap- pened to a greater depth.Look at your own Source Entity;it is a direct copy of My own division. 
+我：为什么发生这样的变化？
 
-I looked at the Source Entity that we refer to as God and saw that this was true.Each of Its twelve divisions was also layered into the twelve dimensions.They ap- peared like the individual veins of a set of retractable blinds,each one signifying another plane of existence, another dimensional level.Each one occupied the same space and time but did not interfere with the other. Each plane of existence split into the three levels that allowed the 3rd dimensional world approach that we are aware of with each three levels together representing a single dimensional octave in Origin space.It was beautiful. 
+O:Because you are now able to understand what happened to a greater depth.Look at your own Source Entity;it is a direct copy of My own division. 
+
+起源：因为现在你更深地理解了所发生的一切，看看你自己的源实体，它直接复制了我的分裂。
+
+I looked at the Source Entity that we refer to as God and saw that this was true.Each of Its twelve divisions was also layered into the twelve dimensions.They appeared like the individual veins of a set of retractable blinds,each one signifying another plane of existence, another dimensional level.Each one occupied the same space and time but did not interfere with the other. Each plane of existence split into the three levels that allowed the 3rd dimensional world approach that we are aware of with each three levels together representing a single dimensional octave in Origin space.It was beautiful. 
+
+我注视着我们称为神的源实体，发现这是真的。它12部分的每一份也被分为12维度，它们像一组百叶窗，每一个都象征着一个存在层面，一个维度层级。它们占据着同样的时空，但又互不干扰。这12维度的每一层又分成3个层级，以便我们认知的三维世界得以展开。这三个维度代表着一个八度空间，真的很美妙。
 
 ME:I have been thinking about the universe and the popular belief that there will be an end to the universe. What can you tell me about that? 
 
+我：我在想有种流行的说法，岂会有宇宙终结的一天。对此你有什么想说的吗？
+
 O:Well,the answer to the question that there might be an end to your universe is the choice of the Source Entity who created your universe. 
+
+起源：哦，这个问题的答案取决于创造你所在宇宙的源实体的抉择。
 
 #### The End of Earth's Universe 
 
+**地球所在宇宙的终点**
+
 ME:Do you think It would end the universe? 
+
+我：你觉得他会让宇宙终结吗？
 
 O:That would depend upon the circumstances of what It's trying to achieve.Remember,I created the Source Entities to help Me explore Myself and to know more about Myself on all levels.The Source Entities created Their own versions of Me in order to duplicate the effort behind the exercise of knowing Myself.They had free will in how They chose to achieve it.If that means that They disassemble the environments that They have created,then that is up to Them. 
 
+起源：视他想达到的目标而定。要记住，我创造源实体的目的是帮助我探索自己，更加了解各层级中的我。源实体创造出属于自己版本的我，是为了复制自我了解这一活动背后的动机，他们有自由意志选择如何达成。需要毁掉自己所创造的环境，也随他们。
+
 ME:Why would They disassemble the environments They have created? 
 
-O:That is a question that you would need to answer by asking all of Them yourself.In essence,They would only disassemble the environment They have con- structed if it had finished the job it was constructed to do,if it was not meeting its objectives (and, therefore,needed to be modified in some way),or if a complete change of direction was required to make the exploration process more efficient. 
+我：为什么他们要毁灭自己所创造的环境？
+
+O:That is a question that you would need to answer by asking all of Them yourself.In essence,They would only disassemble the environment They have constructed if it had finished the job it was constructed to do,if it was not meeting its objectives (and, therefore,needed to be modified in some way),or if a complete change of direction was required to make the exploration process more efficient. 
+
+起源：这个问题需要问他们自己了。本质上说，他们只有这种情况下会毁灭所构建的环境，其任务已经完成或不符合目标要求，需要在某种程度上进行更改，或为了更有效的探索而彻底改变方向。
 
 ME:What would happen to the other entities like me, for instance,if the Source Entity that controls our universe decided It had either completed Its job or It was so far off track that It needed to be broken up and started again? 
 
-O:You are part of It.All of you are,just as all of Them are part of Me.Once you are given sentience,you are considered separate.A return to the Source Entity is not something that is enforced upon a sentient being.It is something that the being ei- ther strives to achieve or believes that it is happy in its singularity.Everything is down to free will. However,once you return to the Source,you are not stuck there.You can break away and experience whatever you want to experience on your own at any time.You do not lose your individuality by becoming part of the whole again.In essence,you never really had your own singularity because you are always part of something bigger,the Source Entity/Me,but by the Source Entity allowing you to have your own energy system,you achieve complete singularity by association with a local nucleus.This nucleus is the singularity which allows the energy that is you to stay together.It is in a similar way that the universe is held together. So you become your own entity whilst being part of a bigger entity.Together with this is the ability to group together to solve problems or experience different things,as well as return to your creator, the Source Entity,when you desire.This gives you the ultimate flexibility of being a singular part of a smaller whole or part of the greater whole,Me. 
+我：如果控制我们宇宙的源实体决定终结本宇宙并重新开始，其他实体比如我会发生什么呢？
+
+O:You are part of It.All of you are,just as all of Them are part of Me.Once you are given sentience,you are considered separate.A return to the Source Entity is not something that is enforced upon a sentient being.It is something that the being either strives to achieve or believes that it is happy in its singularity.Everything is down to free will. However,once you return to the Source,you are not stuck there.You can break away and experience whatever you want to experience on your own at any time.You do not lose your individuality by becoming part of the whole again.In essence,you never really had your own singularity because you are always part of something bigger,the Source Entity/Me,but by the Source Entity allowing you to have your own energy system,you achieve complete singularity by association with a local nucleus.This nucleus is the singularity which allows the energy that is you to stay together.It is in a similar way that the universe is held together. So you become your own entity whilst being part of a bigger entity.Together with this is the ability to group together to solve problems or experience different things,as well as return to your creator, the Source Entity,when you desire.This gives you the ultimate flexibility of being a singular part of a smaller whole or part of the greater whole,Me. 
+
+起源：你是其中的一部分，你们所有人就像他们也是我的一部分一样。一旦你被赋予了知觉，就相当于分离了。返回源实体并不是知觉存有的强制任务，它是该存有去努力实现或认为快乐的事，一切都取决于自由意志。但是返回源实体也不会被困在那里，你随时可以离开，体验任何你想体验的东西，你不会因为返回整体而失去你的个性。从本质上说，你从来没有真正独立的个体性，因为你永远是更大的存有，即源实体/我的一部分。但通过源实体的允许，你拥有自己的能量系统，你经由连接自己的核心，达到完全独立的个体性。这个核心是独立性，它将组成你本人的能量保持一体，这与宇宙组成是同样的道理。这样你就成为一个独立实体，同时又身为更大存有的一部分，随之还有团结合作解决问题或体验不同事物的能力，以及回归造物主/源实体的能力。如果你有意愿，这赋予与你终极的灵活性，成为独立性的小整体，或者成为更大整体/我的一部分。
 
 #### Grouping to Create 
 
-ME:Ijust got a picture in my mind's eye showing lots of entities clumped together to make a bigger entity than they could ever make on their own. 
+**群体创造**
+
+ME:I just got a picture in my mind's eye showing lots of entities clumped together to make a bigger entity than they could ever make on their own. 
+
+我：我心灵视野中有一幅画面，许多存有聚集在一起，形成一个比他们自己更大的存有。
 
 O:Yes,this is a common occurrence and one that is useful to the entities taking part in the grouping because together they can achieve much more than they could in ones and twos.In essence,they are able to create a smaller version of the Source Entities by being in concert together.Remember the old saying that birds of a feather stick together.Well, there is not a truer saying,for all those entities grouped together in concert that you saw in your mind's eye were of the same opinion. 
 
+起源：是的，这很常见。对于参与群体的存有来说是很有用的，因为聚合起来比一两个人单打独斗可以完成更多的工作。本质上讲，当他们一致聚合时，可以创建一个较小版的源实体。记住那句老话，物以类聚。没有比这更准确的说法了，因为能聚合协作的存有都拥有相同的观念。
+
 ME:What were they doing? 
+
+我：他们在做什么呢？
 
 O:They were solving a problem. 
 
+起源：他们正在解决一个问题。
+
 ME:What was the problem they were solving? 
 
-O:Inter-dimensional connectivity between the uni- verses created by the twelve Source Entities.They are trying to understand the mechanics of how it all stays together as a singularity and a whole.They are also interested in why entities that are integral to the universe that a specific Source Entity has cre- ated have not yet migrated from their environment to another Source Entity's environment,especially as it is not only possible but desirable from an evo- lutionary and experience point of view.The cross- fertilization of entities created by another entity experiencing existence in a universe that is alien to their creation is a most interesting opportunity for in-depth evolution. 
+我：他们在解决什么问题呢？
+
+O:Inter-dimensional connectivity between the universes created by the twelve Source Entities.They are trying to understand the mechanics of how it all stays together as a singularity and a whole.They are also interested in why entities that are integral to the universe that a specific Source Entity has created have not yet migrated from their environment to another Source Entity's environment,especially as it is not only possible but desirable from an evo- lutionary and experience point of view.The cross- fertilization of entities created by another entity experiencing existence in a universe that is alien to their creation is a most interesting opportunity for indepth evolution. 
+
+起源：在12源实体所创建的宇宙之间进行维度内连接。他们试图弄懂一切如何作为一个整体又各自有独立性。他们还感兴趣的是，为什么特定源始体所创建宇宙中的存有不会从他们所属的环境迁移到另一个源始体的环境中，尤其是这件事不仅是可能的，而且从进化和体验来看也是被鼓励的。某一存有来到陌生宇宙体验并得到交叉影响的滋养是进行深度演进最有趣的机会。
 
 ME:Could it be that we,as our own entity,are happy to be within our own environment and not move into another?After all,the universe created by my Source Entity has more than one universe and a heck of a lot of dimensions and frequencies.It must be a really large place to exist.So large,in fact,that I can imagine it is quite a thing to meet another entity at all-let alone have enough around you to inhabit a planet. 
 
+我：作为我们自己，我们是否愿意在自己的环境中生存，而不愿进入另一个环境呢？毕竟，由源实体创造的宇宙不止一个，还有很多维度和频率，可以生存的地方非常大。事实上，我觉得大到与另一个存有相遇都是件难事，更别提在你周围还要有足够的居民居住在同一个星球上。
+
 O:Good observation.This is one of the reasons why your Source Entity is not likely to end this universe quite yet.There is so much to do and so little populace to do it with.There are several eternities yet before the time comes for the disassembly of your universe.In any event,now that you have your own nucleus and surrounding energy to exist on your own as a single entity,you will not just disappear when the Source Entity disassembles the universe if and when the time comes to do so.You will still be present and held within the space that is part of the Source Entity that is not associated with a dimension-spatial environment.You will be waiting patiently to occupy the new environment when it is constructed.I guess this is the question you wanted to ask,i.e.,will we exist past the end of the universe?Well,as I have explained above,the answer is yes.Of course,a Source Entity may create entities that are not singular like you and,as such,these entities would,in fact,return to their base energetic condition when a universe is disassembled.How- ever,that is the choice of the Source in question for He/She/It has the free will to create and change at will. 
+
+起源：观察的不错，这就是为什么源实体还不太可能终结宇宙的原因之一，有这么多的事情要做，涉及的存有又很少，还需要经历无尽的永恒，才会到达你们宇宙被终结和分解的时候。但无论怎样，既然你有了自己的核心以及周围的能量场作为独立实体而存在，当源实体真的要终结宇宙的时候你不会就那样消失了，你仍然会存在，保持在源始体中一部分与维度空间环境没有关联的空间中，你要耐心等待新环境的构建。我想这就是你下面想问的问题，我们是否超越宇宙尽头而存在。那么正如我上面所解释的，答案是肯定的。当然源始体也可能会创造不像你们这样拥有独立性的存有，当宇宙被分解时，这些存有会回到基本的能量状态。然而这是源头的选择，因为它有自由意志进行创造和改变。
 
 ME:Would an entity from my Source Entity be disassembled if it was visiting the universe of another Source Entity which was disassembled? 
 
+我：如果来自我们源始体中的一个存有，正在访问另一个被分解的宇宙，会被分解吗？
+
 O:This has not happened yet because there has not been migration between the different Source Entities'environments.But if this did happen,then that entity would be transported back to its en- vironment of origin by the Source Entity making the universal change,for all Source Entities know which entity is one of Theirs and which is not. 
+
+起源：这种情况还没有发生，因为不同源实体环境之间的存有还没有发生过迁移。但是如果发生了，那么这个存有就会被主导宇宙分解的源实体送回它原来的环境，因为所有的源实体都知道谁属于哪里。
 
 #### The Origin on Dimensions,Frequencies,and Space 
 
