@@ -2,29 +2,48 @@
 
 **基于[DeepL](https://www.deepl.com/)翻译**
 
-Beyond the Source Book 2 
+---
 
-Communication with the Co-Creators Continues 
+**Beyond the Source Book 2: Communication with the Co-Creators Continues** 
 
 Guy Steven Needler
 
+---
+
 ## Table of Contents 
 
-Title Page Introduction Continued Communications with the Origin's Twelve Source Entities Chapter One An Introduction to Source Entity Seven Chapter Two Source Entity Eight Chapter Three Source Entity Nine
+- Introduction 
+    - Continued Communications with the Origin's Twelve Source Entities 
+- Chapter One 
+    - An Introduction to Source Entity Seven 
+- Chapter Two 
+    - Source Entity Eight 
+- Chapter Three 
+    - Source Entity Nine
+- Chapter Four 
+    - Source Entity Ten-A Kick Start! 
+- Chapter Five 
+    - Source Entity Eleven 
+- Chapter Six 
+    - Source Entity Twelve Awakens 
+- Chapter Seven 
+    - In Closure 
+- Glossary 
+- About the Author
 
-Chapter Four Source Entity Ten-A Kick Start! Chapter Five Source Entity Eleven Chapter Six Source Entity Twelve Awakens Chapter Seven In Closure Glossary About the author
+---
 
-@2013 by Guy Steven Needler All rights reserved.No part of this book,in part or in whole, may be reproduced,transmitted or utilized in any form or by any means,electronic,photographic or mechanical,including photocopying,recording,or by any information storage and retrieval system without permission in writing from Ozark Mountain Publishing,Inc.except for brief quotations embodied in literary articles and reviews. For permission,serialization,condensation,adaptions,or for our catalog of other publications,write to Ozark Mountain Publishing,Inc.,P.O.B ox 754,Huntsville,AR 72740,ATTN: Permissions Department. Library of Congress Cataloging-in- Publication Data Needler, Guy Steven, 1961 Beyond The Source,Book 2,by Guy Steven Needler Dialogues through meditation with the last 6 of the twelve Co- Creators that operate out of our own Source Entity.
+For my dear wife Anne Elizabeth Milner Now "Ascended" 
 
-1.Source Entities 2.Co-Creators 3.Origin 4.Metaphysics I.Needler,Guy Steven,1961II.Co-Creators III.Metaphysics IV. Title Library of Congress Catalog Card Number:2012938630 ISBN:978-1-886940-44-4 Cover Art and Layout: www.noir33.com Book set in:Times New Roman,Book Antiqua Book Design: Tab Pillar Published by:
+(10th April 1957 - 24th December 2012)
 
-PO Box 754 Huntsville,AR 72740 WWW.OZARK MT.COM Printed in the United States of America
-
-For my dear wife Anne Elizabeth Milner Now "Ascended" (10th April 1957-24th December 2012)
+---
 
 ## Introduction 
 
-Continued Communications with the Origin's Twelve Source Entities In The History of God-A Channelled Work,I gave readers insights into how I started my higher level communications and managed to communicate with spiritual/energetic entities whilst gaining insights into the wonders all around us and the truth about our legends and myths.Through channelling,I also started my identification with The Origin and learned that The Origin created twelve Source Entities.The Origin and one of the Source Entities explained what The Origin is and the mechanics of the universe created by one of The Origin's creations,our Source Entity. In the next book Beyond the Source,I continued my dialogue with our universe's Source Entity and commenced dialogue with the first six Source Entities-those that were closer energetically,so to speak,to my own energies.In Beyond the Source I gained insights into the wonders and workings of the multiverses created or not,as the case may be,by the first six Source Entities.I learned what entities inhabited their multiverses and how the multiverses and,indeed,the Source Entities themselves,were constructed. If you've read these two books,then you will be delighted to know that this book,Beyond the Source Book 2,concludes those dialogues by focusing on Source Entities Seven through Twelve.In doing so,I was taken to the very edge of my capabilities! To say that this was a difficult book to channel would be an understatement.There were times when I wondered whether I was capable of dealing with the information I was receiving and whether I would be able to put it into words that would be understandable without losing the essence of that information offered to me.There were other times when the amount of information I was receiving was so diverse that I had to stop and re-calibrate my own abilities to allow the state of "cosmic knowing"to take over so I could step up a level,take in the vista of a new and bigger picture and accept that I was expansive -capable of being stretched beyond what I felt was my elastic limit.Over and over this happened.In hindsight,the headaches,bags under the eyes and stress of needing to deliver the information resulting from this dialogue was more than worth it-even though I questioned my sanity more than a dozen times whilst in the "thick of it."The world needs to know this information.My dear wife,Anne,has been fantastic in this respect,providing words of encouragement whilst editing text and ensuring I took some essential "down time."Additionally,encouragement from Dolores,Julia and the team at Ozark has been both timely and very well received;for this,I am truly grateful. For those readers who have been following this journey of discovery,those dedicated to wanting to "know the truth,"lifting their personal veil between themselves and the greater reality,I thank them from the bottom of my heart,for in doing so they are helping to raise the base frequencies of the Earth and its population. Thank you and welcome back!
+### Continued Communications with the Origin's Twelve Source Entities 
+
+In *The History of God-A Channelled Work*, I gave readers insights into how I started my higher level communications and managed to communicate with spiritual/energetic entities whilst gaining insights into the wonders all around us and the truth about our legends and myths.Through channelling,I also started my identification with The Origin and learned that The Origin created twelve Source Entities.The Origin and one of the Source Entities explained what The Origin is and the mechanics of the universe created by one of The Origin's creations,our Source Entity. In the next book Beyond the Source,I continued my dialogue with our universe's Source Entity and commenced dialogue with the first six Source Entities-those that were closer energetically,so to speak,to my own energies.In Beyond the Source I gained insights into the wonders and workings of the multiverses created or not,as the case may be,by the first six Source Entities.I learned what entities inhabited their multiverses and how the multiverses and,indeed,the Source Entities themselves,were constructed. If you've read these two books,then you will be delighted to know that this book,Beyond the Source Book 2,concludes those dialogues by focusing on Source Entities Seven through Twelve.In doing so,I was taken to the very edge of my capabilities! To say that this was a difficult book to channel would be an understatement.There were times when I wondered whether I was capable of dealing with the information I was receiving and whether I would be able to put it into words that would be understandable without losing the essence of that information offered to me.There were other times when the amount of information I was receiving was so diverse that I had to stop and re-calibrate my own abilities to allow the state of "cosmic knowing"to take over so I could step up a level,take in the vista of a new and bigger picture and accept that I was expansive -capable of being stretched beyond what I felt was my elastic limit.Over and over this happened.In hindsight,the headaches,bags under the eyes and stress of needing to deliver the information resulting from this dialogue was more than worth it-even though I questioned my sanity more than a dozen times whilst in the "thick of it."The world needs to know this information.My dear wife,Anne,has been fantastic in this respect,providing words of encouragement whilst editing text and ensuring I took some essential "down time."Additionally,encouragement from Dolores,Julia and the team at Ozark has been both timely and very well received;for this,I am truly grateful. For those readers who have been following this journey of discovery,those dedicated to wanting to "know the truth,"lifting their personal veil between themselves and the greater reality,I thank them from the bottom of my heart,for in doing so they are helping to raise the base frequencies of the Earth and its population. Thank you and welcome back!
 
 ![图1](img/s6-036.png)
 
