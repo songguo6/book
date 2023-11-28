@@ -5863,40 +5863,324 @@ SE1:Yes,when you are using transportation systems that travel within the magneto
 
 ME:We should discuss this in another book.
 
-SE1:That will be for the scientists to work on,not you.Getting back on track,the list above is also how the Atmospherisists change an atmosphere from one condition to another. Using the Earth as an example,you are all experiencing the work of the Atmospherisists right now.Have you ever thought how the jet stream changes its direction of travel so dramatically giving a number of locations colder and wetter conditions? ME:Don't tell me,the Atmospherisists used etheric squeeze to change the actual direction and route of flow from what it was to another,the one we now have. SE1:You are quick today-and accurate as well.Yes,that is exactly the methodology that they used. The Atmospherisists work in a number of different weather systems that are part of a planet's atmospheric function.Weather systems can be in one function for as little as a few minutes to greater levels of existence such as from hours to days,to weeks,to months, to years,to decades,to centuries,to millennia.They can change an atmosphere from one condition to another in a matter of a few hours,and this means that even weather systems of atmospheres that have been in static existence for centuries or millennia can be changed to something else in a few hours. ME:I guess the reaction from the Earth's perspective would be a change from an ice age to a tropical age.
+SE1:That will be for the scientists to work on,not you.Getting back on track,the list above is also how the Atmospherisists change an atmosphere from one condition to another. Using the Earth as an example,you are all experiencing the work of the Atmospherisists right now.Have you ever thought how the jet stream changes its direction of travel so dramatically giving a number of locations colder and wetter conditions? 
 
-SE1:A change of such magnitude takes a little longer than a few hours.I would say a number of days but no more than a month.You have examples,old stories of sudden weather changes,do you not? ME:They are myths.One such example would be the story of Noah. SE1:It's not a myth;it's a true event-weather-wise.Look for more in the depth of your mythology,there are many more.Also look into taking deep ice core samples and analyzing them.You will see more evidence of slow,rapid,and normal weather and atmospheric changes in the core samples as well. I suddenly felt a change in the energy of The Source,andjust as I was contemplating this feeling, The Source confirmed my feelings. SE1:We have reached the end of the digestible information relating to the work of the Curators.You need to work on editing these texts and contemplate working on the new book. I suddenly felt another energy,in fact,more than one! O:Yes,you have an easier book to write first and then we will get together again.This will be your holiday,so to speak. I was surprised at The Origin suddenly appearing in my mind. O:Why are you surprised?I could hear you wondering why I had not participated in this dialogue!You are quite telepathically loud when you want to be. ME:I have to admit that I felt a little disappointed that you did not make a guest appearance. O:Isn't that what I am doing now?No.There was no need.You were doing just fine with Source Entity One.I will work with you in the two books to follow the next. ME:I guess these will be Beyond the Origin and The OM,The Uncreated Creations? O:Those are the ones.For the next book,book number eight,you will work by yourself and Anne-where appropriate.This you already know.You have already worked with me on a book specifically about me [The Origin Speaks-GSN]so the book on the OM should be book number nine.The book with me will be book number ten.You already know the content you will deliver for books eleven and twelve. ME:Yes,they are on the purpose of significant figures in history-including so called anti- Christ personalities,and one that illustrates when,where,and how religious processes and texts fit in with my work.This book will explain the true common source of our modern religions. O:Good,you are set.No more disappointments about when I appear in your mind-this is ego. ME:Yes,I know.All OK now.
+ME:Don't tell me,the Atmospherisists used etheric squeeze to change the actual direction and route of flow from what it was to another,the one we now have. 
 
-O:Good.Then it's time to sign off. SE1:Yes,it's time to wish you well.I will make a number of guest appearances in the book on the OM and in books eleven and twelve. O:In the book on the OM,you will be working mostly with the OM so don't expect too much interaction with Source Entity One or me. A:And I will only be helping with issues relating to healing that create a bridge with the book that we worked on [The Anne Dialogues-GSN]. ME:And what areas will that be? A:Impatient,aren't you?Mmm,OK,I will tell you in summary.I will work with you on the subject of the way in which we incarnate affect the incarnate vehicle,healing with the help of other entities,and some of the psycho-spiritual issues.Having said that,though,it will be mostly based upon your own healing work over the last fifteen years. ME:Thank you.
+SE1:You are quick today-and accurate as well.Yes,that is exactly the methodology that they used. 
 
-O,SE1,A:It's time for you to take a little rest now.Editing will be a good rest for you;you won't have to be connected. Don't forget to stay as ego-free as you can and be considerate to others. And with that,the collective energies that were The Origin,Source Entity One,and Anne faded away.Of course,it was only just The Origin and individualizations of sentience that was part of the myriad functions of The Origin that I was communicating to;it's just that they have different roles and responsibilities,different energy signatures or personalities,different names! I sat at my computer and sighed a little.I may as well stay here for a moment and absorb the energies that still lingered around me.I had a little tear in my eyes as I started to contemplate writing the afterword.
+The Atmospherisists work in a number of different weather systems that are part of a planet's atmospheric function.Weather systems can be in one function for as little as a few minutes to greater levels of existence such as from hours to days,to weeks,to months, to years,to decades,to centuries,to millennia.They can change an atmosphere from one condition to another in a matter of a few hours,and this means that even weather systems of atmospheres that have been in static existence for centuries or millennia can be changed to something else in a few hours. 
+
+ME:I guess the reaction from the Earth's perspective would be a change from an ice age to a tropical age.
+
+SE1:A change of such magnitude takes a little longer than a few hours.I would say a number of days but no more than a month.You have examples,old stories of sudden weather changes,do you not? 
+
+ME:They are myths.One such example would be the story of Noah. 
+
+SE1:It's not a myth;it's a true event-weather-wise.Look for more in the depth of your mythology,there are many more.Also look into taking deep ice core samples and analyzing them.You will see more evidence of slow,rapid,and normal weather and atmospheric changes in the core samples as well. 
+
+I suddenly felt a change in the energy of The Source,andjust as I was contemplating this feeling, The Source confirmed my feelings. 
+
+SE1:We have reached the end of the digestible information relating to the work of the Curators.You need to work on editing these texts and contemplate working on the new book. 
+
+I suddenly felt another energy,in fact,more than one! 
+
+O:Yes,you have an easier book to write first and then we will get together again.This will be your holiday,so to speak. 
+
+I was surprised at The Origin suddenly appearing in my mind. 
+
+O:Why are you surprised?I could hear you wondering why I had not participated in this dialogue!You are quite telepathically loud when you want to be. 
+
+ME:I have to admit that I felt a little disappointed that you did not make a guest appearance. 
+
+O:Isn't that what I am doing now?No.There was no need.You were doing just fine with Source Entity One.I will work with you in the two books to follow the next. 
+
+ME:I guess these will be Beyond the Origin and The OM,The Uncreated Creations? 
+
+O:Those are the ones.For the next book,book number eight,you will work by yourself and Anne-where appropriate.This you already know.You have already worked with me on a book specifically about me [The Origin Speaks-GSN]so the book on the OM should be book number nine.The book with me will be book number ten.You already know the content you will deliver for books eleven and twelve. 
+
+ME:Yes,they are on the purpose of significant figures in history-including so called anti- Christ personalities,and one that illustrates when,where,and how religious processes and texts fit in with my work.This book will explain the true common source of our modern religions. 
+
+O:Good,you are set.No more disappointments about when I appear in your mind-this is ego. 
+
+ME:Yes,I know.All OK now.
+
+O:Good.Then it's time to sign off. SE1:Yes,it's time to wish you well.I will make a number of guest appearances in the book on the OM and in books eleven and twelve. 
+
+O:In the book on the OM,you will be working mostly with the OM so don't expect too much interaction with Source Entity One or me. 
+
+A:And I will only be helping with issues relating to healing that create a bridge with the book that we worked on [The Anne Dialogues-GSN]. 
+
+ME:And what areas will that be? 
+
+A:Impatient,aren't you?Mmm,OK,I will tell you in summary.I will work with you on the subject of the way in which we incarnate affect the incarnate vehicle,healing with the help of other entities,and some of the psycho-spiritual issues.Having said that,though,it will be mostly based upon your own healing work over the last fifteen years. 
+
+ME:Thank you.
+
+O,SE1,A:It's time for you to take a little rest now.Editing will be a good rest for you;you won't have to be connected. 
+
+Don't forget to stay as ego-free as you can and be considerate to others. 
+
+And with that,the collective energies that were The Origin,Source Entity One,and Anne faded away.Of course,it was only just The Origin and individualizations of sentience that was part of the myriad functions of The Origin that I was communicating to;it's just that they have different roles and responsibilities,different energy signatures or personalities,different names! 
+
+I sat at my computer and sighed a little.I may as well stay here for a moment and absorb the energies that still lingered around me.I had a little tear in my eyes as I started to contemplate writing the afterword.
 
 ## Afterword 
 
-Well,I am here again.(Didn't I say this at the start of the book?)The text of another book finished,but not the work supporting its publication I note-the editing.There is a certain level of relief that follows from such a realization,a taking in of a second breath and a moment of relaxation.I just need to get down to working with the two lovely ladies that work with editing the manuscript in total and adding,where appropriate,a glossary of terms.Many,I thought,will be carried over from previous books,but of course in any new dialogue,there are new concepts to be described and new terminology to explain. One of the things that I notice now is a complete lack of detailed reference to the use of the word "Angel."I very much feel that this will disappoint those readers who expected it to dominate these texts.I also feel that this term and the understanding surrounding it was a function of a lack of education,and therefore lack of understanding,of higher and deeper subjects resulting from observations of various genres of Curator or main Guide and Helpers by those unable to assimilate,in an accurate way,that which they are observing. Hierarchies of Curator explained by religious texts and illustrated in the first part of this book,are in my mind,only clearly explained in a way that is concurrent with the level of education,technology,and expansivity of incarnate humankind at the time of teaching, which,of course,was limited to say the least.The desire to perpetuate these teachings without distortion or dilution has resulted in a kindergarten level of understanding that perpetuates even to this day.I hold them in the same light as using a parable to teach a way to live in a karma-free or reduced way,or a nursery rhyme to describe a medieval illness. Although reasonable at the time,it now only creates confusion and misinformation. Indeed,such is the level of understanding or difference in terminology today that I nearly removed that part from the book as a whole.The only reason it stayed in was to illustrate a moot point,that being,that this is what was a previous level of understanding,an understanding that had little if no detailed description to support it,and therefore has no place in today's metaphysical thesaurus whereas we are a more mature and higher frequency incarnate race now and so can be exposed to more detail and higher concepts surrounding the Greater Reality we exist within and its functionality. This book is therefore here to help open up and expand the thought processes of readers by exposing them to different and more accurate [for the moment that is-I expect deeper concepts and more accurate information to be broadcast by those who come after me-GSN] information and understanding concepts surrounding the multiversal environment we exist within. I encourage you,dear reader,to use this book as a way to make you ask more questions about yourself,the environment you incarnate into,and the greater multiversal reality our physical universe is part of.More importantly,it is important to recognize that there are vast numbers of entities in service to the maintenance and perpetuation of this multiversal environment that The Source created to help expedite its evolutionary progression,who in the process of performing their role,support those that are in the evolutionary cycle-US! These entities are called... "The Curators!" Guy Steven Needler 15th April 2018
+Well,I am here again.(Didn't I say this at the start of the book?)The text of another book finished,but not the work supporting its publication I note-the editing.There is a certain level of relief that follows from such a realization,a taking in of a second breath and a moment of relaxation.I just need to get down to working with the two lovely ladies that work with editing the manuscript in total and adding,where appropriate,a glossary of terms.Many,I thought,will be carried over from previous books,but of course in any new dialogue,there are new concepts to be described and new terminology to explain. 
+
+One of the things that I notice now is a complete lack of detailed reference to the use of the word "Angel."I very much feel that this will disappoint those readers who expected it to dominate these texts.I also feel that this term and the understanding surrounding it was a function of a lack of education,and therefore lack of understanding,of higher and deeper subjects resulting from observations of various genres of Curator or main Guide and Helpers by those unable to assimilate,in an accurate way,that which they are observing. 
+
+Hierarchies of Curator explained by religious texts and illustrated in the first part of this book,are in my mind,only clearly explained in a way that is concurrent with the level of education,technology,and expansivity of incarnate humankind at the time of teaching, which,of course,was limited to say the least.The desire to perpetuate these teachings without distortion or dilution has resulted in a kindergarten level of understanding that perpetuates even to this day.I hold them in the same light as using a parable to teach a way to live in a karma-free or reduced way,or a nursery rhyme to describe a medieval illness. Although reasonable at the time,it now only creates confusion and misinformation. Indeed,such is the level of understanding or difference in terminology today that I nearly removed that part from the book as a whole.The only reason it stayed in was to illustrate a moot point,that being,that this is what was a previous level of understanding,an understanding that had little if no detailed description to support it,and therefore has no place in today's metaphysical thesaurus whereas we are a more mature and higher frequency incarnate race now and so can be exposed to more detail and higher concepts surrounding the Greater Reality we exist within and its functionality. 
+
+This book is therefore here to help open up and expand the thought processes of readers by exposing them to different and more accurate [for the moment that is-I expect deeper concepts and more accurate information to be broadcast by those who come after me-GSN] information and understanding concepts surrounding the multiversal environment we exist within. 
+
+I encourage you,dear reader,to use this book as a way to make you ask more questions about yourself,the environment you incarnate into,and the greater multiversal reality our physical universe is part of.More importantly,it is important to recognize that there are vast numbers of entities in service to the maintenance and perpetuation of this multiversal environment that The Source created to help expedite its evolutionary progression,who in the process of performing their role,support those that are in the evolutionary cycle-US! 
+
+These entities are called... "The Curators!" 
+
+Guy Steven Needler 
+
+15th April 2018
 
 ## Glossary 
 
-Acid Test-A way of testing if gold is real or not by the use of acid to remove a layer of gold exposing the underlying metal as either a substrate or real gold.In this instance,it is a way of exposing the truth. Akashic Records-An eternal past present and future record of each of humankind's actions and subsequent evolution. Alternative Reality-A personal or group-based perception or desire for a certain experiential environment within a known environment relative to their thoughts, behaviors,and actions and the desire to ignore that which one doesn't desire to interact with. Aspect-An Aspect is a smaller part of the TES that is used to experience the minute detail of the environments within the multiverse.It is used to experience the lowest frequencies of the multiverse presented by the physical universe through the process of incarnation.A maximum of twelve Aspects can be projected by the TES at any one time. Being-An individualized unit of sentience that has developed independently by the function of similar,same,or sympathetic energy/ies collecting together and evolving over a period. Big Bang-The current popular scientific explanation of how the universe started.The Source Entity stated in earlier dialogues with me that it was far from the truth-that it simply created our multiverse and,as such,it "winked"directly into existence.Whether this created a big bang is unclear from my dialogues. Billennia-A multiple of a million (a millennia is a thousand). Black Hole-A black hole physically is an area of local gravitational density and spiritually is an area of stable dimensional instability,a dimension within a dimension.A spiritual explanation is that a black hole is a small galaxy whose role is to collect lower frequency material into one place-within itself. Bone of Contention-A way of describing a discussion point where there are mixed beliefs or levels of agreement. Carrier Wave-Telecommunications terminology.A sinusoidal waveform modulated with an input signal for the purpose of transmitting information.It is usually a higher frequency than the input signal (the data being transmitted).The purpose of the carrier wave is usually either to transmit the information through space as an electromagnetic wave (as in radio communication)or to allow several carriers at different frequencies to share a common physical transmission medium by frequency,division,multiplexing (as is used in,for example,a cable television system).(Source:Wikipedia,http:// en.wikipedia.org/wiki/Carrier_wave.) Chakra-An energy center in the human body.
+**Acid Test**-A way of testing if gold is real or not by the use of acid to remove a layer of gold exposing the underlying metal as either a substrate or real gold.In this instance,it is a way of exposing the truth. 
 
-Cimension-A single dimension that has all the faculties of the first three lower dimensions we call up,down,left,right,forward and backward (3D),including other dimensions,without them needing to be singularly represented. Coadunate-A telepathically connected collection of civilizations that are all collectives in their own right and are congregated together as a larger collective. Collation-The grouping together of similar or same energy/ies. Continuum-A continuum is a body that can be continually subdivided into infinitesimal elements with properties being those of the bulk (body)material. Core Star-The point or location of the division of sentience and energy of the incarnate Aspect within the human vehicle.The energy used to animate the human vehicle coalesces in the Tan Tien (located two inches below the navel and three inches in towards the centre of the body)with the sentience coalescing in the Soul Seat (located close the point where the front and rear aspects of the heart chakras are joined or located-close to the thymus). The Core Star is often mistaken for the Tan Tien as it is so close to the Core Star.The Core Star is positioned two inches(5cm)above the navel(belly button)and three inches(7.5cm) in toward the center of the human vehicle from the navel. Counterclockwise-That is to say,it is an object with "handedness"(right-handed or left- handed). Curved Ball-A way of saying that someone answers a question with a question,or simply puts something in the way so as not to answer the question. Demarcation between Event Spaces-The line of noninteraction drawn between one Event Space and another.Note,though,that an insufficient demarcation line can result in lack of integrity of an Event Space and therefore create an alternate reality instead. Sufficient demarcation results in a robust Event Space. Dimensiate-An effect of being pan-dimensional (across many dimensions simultaneously). Dimensional Mechanics-A method of creating a dimension within a dimension. DNA-Deoxyribonucleic Acid Dysfunction-out of specification functionality Energy levels-the distance between each level that is consistent with the difference between the frequencies in the human auric levels. Dragon Entity/Byron-A 27th level energy being. Dualistic-A condition where two realities are in existence concurrently due to the possibility of an alternative reality being created when a choice of two directions is available. End of Event-Event Space can allow any changes to have its own "end of event,"even when there appears to be no real end.An end is therefore also not a temporal position;it is a function of finalization of an individualized experiential direction.
+**Akashic Records**-An eternal past present and future record of each of humankind's actions and subsequent evolution. 
 
-Entity-An individualized unit of sentience,given a body of energy/ies by the division of sentience away from a higher entity,by that higher entity. Event Space-An area or volume of space within The Origin and therefore the Source Entity that exists as a parallel function of space.It is space overlapping space or space within and without a space.Everything exists in terms of events and not in terms of time. Event Space Horizon-When all events that are concurrently represented in the same space are observed by an entity,the collective images of the environments created by those Event Spaces appear to be a white horizon on a white background.This effect is created when the entity cannot divide the different environments represented by the different Event Spaces into separate images,creating sensory overload and the "white on white" effect.The use of the words Event Horizon to describe the periphery of a black hole,or wormhole,as we would call them,is therefore no surprise because everything blends into one. Event Stream-The expected direction of a series of natural events within an Event Space are identified as an Event Stream. Event Stream Bubble-Where each event is a bubble of interaction between an entity/ being and the environment it is working within.The bubbles (events)can grow and explode into another bubble or shrink and implode into nothingness.Bubbles that grow sometimes explode into another bubble that is nearby creating a new but combined bubble.They can explode into a new bigger bubble allowing them to cope with an expansion of event fractals that are still combined together in the space,the Event Space, which was created for the original and static Event Stream.Those bubbles of events that shrink and implode either disappear totally,thus representing an end of that particular Event Stream,or they implode and reappear within another event.When a bubble has naturally ended its usefulness,it implodes back into its originating Event Stream bubble. Exponential Growth and Exponential Decay-This occurs when the growth rate of a mathematical function is proportional to the function's current value.In the case of a discrete domain of definition with equal intervals,it is also called geometric growth or geometric decay (the function values form a geometric progression).(Source:http:/ en.wikipedia.org/wiki/Exponential_growth.) Fluidic Space-Space that is constantly changing in every way,from dimension to frequency. Frequential-Sequentially based frequencies in frequentic space. Frequential Plane-A singular sequential frequency. Frequentic/ial-A multifrequency space. Geometric Progression/Growth-In mathematics,a geometric progression,also known as a geometric sequence,is a sequence of numbers where each term after the first is found by multiplying the previous one by a fixed non-zero number called the common ratio. (Source:http://en.wikipedia.org/wiki/Geometric_progression.)
+**Alternative Reality**-A personal or group-based perception or desire for a certain experiential environment within a known environment relative to their thoughts, behaviors,and actions and the desire to ignore that which one doesn't desire to interact with. 
 
-Gestalt Mind-A collection of entities that share a single mind function,such as ants or trees and most other energy-based beings within this universe. Global Reality-A further dissection of the overall theme of reality.It is relative to an area within a universal reality that affects a large but not significant number of entities within the universal environment.The global reality can therefore be described in universal terms as being akin to an area the size of a galaxy. God Head-The Hindu word/descriptor for the TES Hara Line-The energetic link from the True Energetic Self (TES)to the incarnate vehicle. It links the Aspect projected into the human vehicle with the vehicle and the frequencies associated with the physical universe.It is the power and communication source of the human vehicle.The hara line is positioned in the center of the human form from the center of the top of the head,splitting into two at the Tan Tien and continuing earthward down the legs.(See Barbara Brennan's Hands of Light.) Higher Self-A spiritual word/descriptor for the TES. Holographic-A three-dimensional rendering. Hot Swap-A computer peripheral term used to describe the removal or plugging in of a peripheral without the power being turned off.In the spiritual,this relates to the swapping in/out of a soul from/to a physical human body without the body needing to die or be born. This is sometimes called a walk-in.
+**Aspect**-An Aspect is a smaller part of the TES that is used to experience the minute detail of the environments within the multiverse.It is used to experience the lowest frequencies of the multiverse presented by the physical universe through the process of incarnation.A maximum of twelve Aspects can be projected by the TES at any one time. 
 
-Human Aura-The energy fields associated with the physical and astral components of the human body. Hyperspace-A moment of frequential and dimensional phase that is different from the normal graduations of phase that allows movement between dimensional and frequency based environments. Individualized Reality-The reality that entities with individualized free will choose to create around them.In some instances,the fully individualized reality can create full separation from the greater reality. Intelliate-Intelligence-based communication. Join the Dots-A way of saying that one "understands"through logical means,or lateral thinking,the process of going from one level of understanding to another via known steps. Light Particle-A particle of light is known as a photon.A photon travels at the speed of 186,000 miles per second.The theoretical particle,the tachyon,is supposed to travel faster than the speed of light. Local Reality-The official start of convolution within realities.This is a reality within a reality within the universal reality.Local realities can vary in size and number of interactive entities.Local realities are normally created when a group of entities choose to not only change the function of their interaction with the overall reality,but actively choose to disassociate any previous knowledge of the former reality.
+**Being**-An individualized unit of sentience that has developed independently by the function of similar,same,or sympathetic energy/ies collecting together and evolving over a period. 
 
-Locally Individualized Reality-Relative to small groups of entities within a local reality, such as those living within a certain country.This occurs when entities are aware of the local reality but are unable to change the reality that has been changed for them by more influential entities. Loci/Locus-The center or source of an object/entity.Mathematically speaking,it is the set of all points or lines that satisfy a given requirement.In Source Entity Three's environment, it represents the location of the majority of the entities concerned. Logarithmic Growth-In mathematics,logarithmic growth describes a phenomenon whose size or cost can be described as a logarithmic function of some input.For example,y Clog(x).Note that any logarithm base can be used since one can be converted to another by a fixed constant.Logarithmic growth is the inverse of exponential growth and is very slow. Lossy-A computer term used to describe a conversion function that results in a reduction of some sort due to an either incorrect conversion factor or a specific function of the process used.Certain "losses"are sometimes considered acceptable,but this is only the case where the output is not critical;e.g.,converting an image to JPEG is a lossy conversion function. Macro-universe-A complete universe where our own universe would serve to be the subatomic levels. Magnetosphere-The outer region of a planet where the magnetic field of the planet controls the motion of certain charged particles. Magnetostream-Magnetic flow within the confines of a magnetosphere of a planet. Matter-(The elements)in the body is continuously distributed and fills the entire region of space it occupies.(Source:http://en.wikipedia.org/wiki/Continuum_mechanics.) Metaconcert:The linking together of minds,either energetic based or thought based,to create a collective that has a synergetic effect in the ability to process information,a task,or some creative function. Micro Event Space-A microscopically small Event Space that is specific to the needs of an individual entity,being,or environment. Micro-universe-A complete universe at the scale of the subatomic. Minor-verse-A universe of lesser content in terms of dimension and frequency and habitation,one of lower importance. Monoversal-A local environment.More than one locality can be classified as monoversal, but within the space that is universal or multiversal (more than one universal environment). Multipolous-A multiple of a multiple of a multiple.For example,X cubed,cubed,cubed (X3,3,3).
+**Big Bang**-The current popular scientific explanation of how the universe started.The Source Entity stated in earlier dialogues with me that it was far from the truth-that it simply created our multiverse and,as such,it "winked"directly into existence.Whether this created a big bang is unclear from my dialogues. 
 
-Multiversal Reality-The experiential condition that is created by the governing entities responsible for a specific multiversal environment within a specific Source Entity.It is a generalized function of reality and is subject to change both by the Planners,other Curator functions,and the interactions of the incumbent entities/beings that are working within that environment. Multiverse-An environment housing myriad universes. Nova-A star that increases in brightness by many thousands of times its usual brightness, gradually fading to its original brightness.The last stages of the life of that star. Null Space-The space in between universes for travel between universes. The Om-Energy-based beings not indigenous to Earth.The Origins uncreated creations. Omniciate-Omniscience-based communication. Omnifunctional-To be able to operate,as if in an individualized way,within all environments,spaces,and events,irrespective of structural conditions and parallelized versions,concurrently. Omnipresent-To be located within all environments,spaces,and events,irrespective of structural conditions and parallelized versions concurrently. Omniscient-To be focused within one's sentience that is located within all environments, spaces,and events,irrespective of structural conditions and parallelized versions, concurrently. Orgone-The visual representation of cosmic "free"energy. The Origin-The creator of the twelve Source Entities who exist within the Origin,the greater God,an entity of pure sentient energy. Overall Reality-The experiential condition that is created by the existence of the sentience that is The Origin.It contains all of its personal experiences,growth,realizations, creations,and explorations of self.It is the only reality that can be considered static in function and observation. Overdrive-A way of saying that someone or something's performance has increased.The overdrive was a semiautomatic secondary gearbox added on to the manual gearbox of classic sports cars or performance automobiles in the 1960s and 1970s in the UK. Over Soul-The Quantum Healing Hypnosis Technique (QHHT)word/descriptor for the TES.QHHT was a hypnosis-based healing technique taught by Dolores Cannon. Parallel Condition-The duplication of Event Space.It is the creation or generation of a new but similar Event Space when a choice can be made and that choice or the possibility of the choice or the possible possibility of that choice results in a large enough downstream differential to create a new series of experiences that are self-contained and independent of the Event Space they separated from.The overall size of the Event Space is a function of the inclusion of other entities or beings that interact with the initiating and subsequent downstream experiences generated from the initial choice. Polyomniscient-A multiple aspect of omniscience.A condition that will be achieved by The Origin as it expands into those areas of itself that are beyond its current area of sentient self-awareness. Primary Incarnation-A descriptor for the incarnate functionality of an Aspect if a secondary incarnation is employed. Psychometry-Gaining spiritual information about an object or person via tactile contact. Quadrulistic-A condition where four realities are in existence concurrently due to the possibility of alternative realities being created when a choice of four directions is available. Readings or Reader-Acting as a medium for a client or clients who want to know more information about themselves from spirit,but who are unable to ask for themselves during meditation or any other means..A“Medium”gives a“Reading.”Reality-An environment and interactive condition we create as a desire function of an Event Space or Event Stream.It is an entity-or being-generated perception-based condition. RNA-Ribonucleic Acid Simulacrum-similar or in the same likeness.
+**Billennia**-A multiple of a million (a millennia is a thousand). 
 
-SCUBA-An acronym for Self-Contained Underwater Breathing Apparatus. Secondary Incarnation-A descriptor for the incarnate functionality of an Aspect that uses a significant percentage of its sentient energies to have an incarnation in a lower frequency within the physical universe.This is not a Shard but an incarnation within an incarnation because the Aspect in the primary incarnation continues while the secondary incarnation is in action.In the event that the primary incarnation is placed in stasis for the duration of the secondary incarnation the primary incarnation will re-commence once the secondary incarnation is finished. Sentiate-Sentience-based communication. Shard-A Shard is a smaller part of the Aspect that is used to experience the minute detail of the environments within the multiverse.It is also used to experience the lowest frequencies of the multiverse presented by the physical universe through the process of incarnation.As with the TES a maximum of twelve Shards can be projected by the Aspect at any one time. Skewed Distribution:An effect in standard distribution where the classic "bell curve"is pulled to one side of the graph of distribution in lieu of being "normally"distributed. Soul-The Christian and spiritual word/descriptor for the Aspect or Shard.The Soul is considered to be individualized in totality and not part of a larger being.It is also generally related with the human body and no other incarnate vehicles.
+**Black Hole**-A black hole physically is an area of local gravitational density and spiritually is an area of stable dimensional instability,a dimension within a dimension.A spiritual explanation is that a black hole is a small galaxy whose role is to collect lower frequency material into one place-within itself. 
 
-Soul Seat-This is where the sentience of the Aspect resides.It is the personality of what we,as a projected Aspect of our TES are,"it is our sentience".Its position is close to where the front and rear Aspects of the heart chakra join-close to the thymus. The Source Entity-What we call God,the creator of our multiverse.A smaller individualization of The Origin's sentience. Space-The area or volume within the Source (and ultimately The Origin)where everything exists. Spaced Out-A term I used to describe being close to fainting. Speed of Light-The speed of light is currently understood as being 186,000 miles per second. Spirituo-physical-The level where the gross physical and energetic/spiritual frequency levels meet and mix. Spliced Undulation of Dimension-One or more dimensions linked together as a result of them being close together or overlapping in some part of their areas. Start of Event-Event Space can allow any changes to have its own "start of event,"even when there appears to be no real start.A start or beginning is therefore not a temporal position,it is simply a function of a change of experiential direction to create a new individualized experiential direction. 
+**Bone of Contention**-A way of describing a discussion point where there are mixed beliefs or levels of agreement. 
 
-Stickle Brick-A child's building block similar to a Lego block but with spikes to join them together-like a Bristle Block Stratostream-The flow of wind or air at stratospheric or very high altitude within the atmosphere of a planet. Subincarnation-A descriptor for the incarnate functionality of a Shard. Supernova-An exploding star caused by gravitational collapse. Synergy-The effect experienced where the sum of the whole is more than the sum of the individual units creating the whole when treated in isolation. Tan Tien-This is where the energy of the Aspect spreads out into the energy network that contains the energy template and the chakras.It ends up being a focus of tremendous energy.It is positioned two inches(5cm)below the navel (belly button)and three inches (7.5cm)in toward the center of the human vehicle from the navel. Telekinesis-Levitation of an object or person by application of pure thought. Teleportation-The ability to dissolve and materialize the physical body at will while changing location in the process. Triangulation:A method used in surveying to measure position and distances between positions by the use of a triangle and the angles relating to the position of other positions or locations being surveyed.Mathematically it is a method of proving a mathematic assumption by the use of three different mathematical methods to gain the same answer. Trilistic-A condition where three realities are in existence concurrently due to the possibility of alternative realities being created when a choice of three directions is available. True Energetic Self-(TES)what we truly are-an entity of pure sentience with a given or commandeered body of energy. UFO-Unidentified Flying Object. Universal Reality-A smaller representation of the multiversal reality insomuch as it starts out to be that when a multiverse and its universal components are first introduced as a medium for evolutionary progression.The universal reality can only be changed as a result of all entities within that environment choosing to change the reality as a total collective. Walk-In-The swapping in and out (one for another)of Aspects (souls)within a single incarnate vehicle.There are many variations upon this theme. Wormhole-Physically an area where two frequencies connect with each other.It is possible to use wormholes to jump up through the frequencies.
+**Carrier Wave**-Telecommunications terminology.A sinusoidal waveform modulated with an input signal for the purpose of transmitting information.It is usually a higher frequency than the input signal (the data being transmitted).The purpose of the carrier wave is usually either to transmit the information through space as an electromagnetic wave (as in radio communication)or to allow several carriers at different frequencies to share a common physical transmission medium by frequency,division,multiplexing (as is used in,for example,a cable television system).(Source:Wikipedia,http:// en.wikipedia.org/wiki/Carrier_wave.) 
+
+**Chakra**-An energy center in the human body.
+
+**Cimension**-A single dimension that has all the faculties of the first three lower dimensions we call up,down,left,right,forward and backward (3D),including other dimensions,without them needing to be singularly represented. 
+
+**Coadunate**-A telepathically connected collection of civilizations that are all collectives in their own right and are congregated together as a larger collective. 
+
+**Collation**-The grouping together of similar or same energy/ies. 
+
+**Continuum**-A continuum is a body that can be continually subdivided into infinitesimal elements with properties being those of the bulk (body)material. 
+
+**Core Star**-The point or location of the division of sentience and energy of the incarnate Aspect within the human vehicle.The energy used to animate the human vehicle coalesces in the Tan Tien (located two inches below the navel and three inches in towards the centre of the body)with the sentience coalescing in the Soul Seat (located close the point where the front and rear aspects of the heart chakras are joined or located-close to the thymus). The Core Star is often mistaken for the Tan Tien as it is so close to the Core Star.The Core Star is positioned two inches(5cm)above the navel(belly button)and three inches(7.5cm) in toward the center of the human vehicle from the navel. 
+
+**Counterclockwise**-That is to say,it is an object with "handedness"(right-handed or left- handed). 
+
+**Curved Ball**-A way of saying that someone answers a question with a question,or simply puts something in the way so as not to answer the question. 
+
+**Demarcation between Event Spaces**-The line of noninteraction drawn between one Event Space and another.Note,though,that an insufficient demarcation line can result in lack of integrity of an Event Space and therefore create an alternate reality instead. Sufficient demarcation results in a robust Event Space. 
+
+**Dimensiate**-An effect of being pan-dimensional (across many dimensions simultaneously). 
+
+**Dimensional Mechanics**-A method of creating a dimension within a dimension. 
+
+**DNA**-Deoxyribonucleic Acid Dysfunction-out of specification functionality Energy levels-the distance between each level that is consistent with the difference between the frequencies in the human auric levels. 
+
+**Dragon Entity/Byron**-A 27th level energy being. 
+
+**Dualistic**-A condition where two realities are in existence concurrently due to the possibility of an alternative reality being created when a choice of two directions is available. 
+
+**End of Event**-Event Space can allow any changes to have its own "end of event,"even when there appears to be no real end.An end is therefore also not a temporal position;it is a function of finalization of an individualized experiential direction.
+
+**Entity**-An individualized unit of sentience,given a body of energy/ies by the division of sentience away from a higher entity,by that higher entity. 
+
+**Event Space**-An area or volume of space within The Origin and therefore the Source Entity that exists as a parallel function of space.It is space overlapping space or space within and without a space.Everything exists in terms of events and not in terms of time. 
+
+**Event Space Horizon**-When all events that are concurrently represented in the same space are observed by an entity,the collective images of the environments created by those Event Spaces appear to be a white horizon on a white background.This effect is created when the entity cannot divide the different environments represented by the different Event Spaces into separate images,creating sensory overload and the "white on white" effect.The use of the words Event Horizon to describe the periphery of a black hole,or wormhole,as we would call them,is therefore no surprise because everything blends into one. 
+
+**Event Stream**-The expected direction of a series of natural events within an Event Space are identified as an Event Stream. 
+
+**Event Stream Bubble**-Where each event is a bubble of interaction between an entity/ being and the environment it is working within.The bubbles (events)can grow and explode into another bubble or shrink and implode into nothingness.Bubbles that grow sometimes explode into another bubble that is nearby creating a new but combined bubble.They can explode into a new bigger bubble allowing them to cope with an expansion of event fractals that are still combined together in the space,the Event Space, which was created for the original and static Event Stream.Those bubbles of events that shrink and implode either disappear totally,thus representing an end of that particular Event Stream,or they implode and reappear within another event.When a bubble has naturally ended its usefulness,it implodes back into its originating Event Stream bubble. 
+
+**Exponential Growth and Exponential Decay**-This occurs when the growth rate of a mathematical function is proportional to the function's current value.In the case of a discrete domain of definition with equal intervals,it is also called geometric growth or geometric decay (the function values form a geometric progression).(Source:http:/ en.wikipedia.org/wiki/Exponential_growth.) 
+
+**Fluidic Space**-Space that is constantly changing in every way,from dimension to frequency. 
+
+**Frequential**-Sequentially based frequencies in frequentic space. 
+
+**Frequential Plane**-A singular sequential frequency. 
+
+**Frequentic/ial**-A multifrequency space. 
+
+**Geometric Progression/Growth**-In mathematics,a geometric progression,also known as a geometric sequence,is a sequence of numbers where each term after the first is found by multiplying the previous one by a fixed non-zero number called the common ratio. (Source:http://en.wikipedia.org/wiki/Geometric_progression.)
+
+**Gestalt Mind**-A collection of entities that share a single mind function,such as ants or trees and most other energy-based beings within this universe. 
+
+**Global Reality**-A further dissection of the overall theme of reality.It is relative to an area within a universal reality that affects a large but not significant number of entities within the universal environment.The global reality can therefore be described in universal terms as being akin to an area the size of a galaxy. 
+
+**God Head**-The Hindu word/descriptor for the TES. 
+
+**Hara Line**-The energetic link from the True Energetic Self (TES)to the incarnate vehicle. It links the Aspect projected into the human vehicle with the vehicle and the frequencies associated with the physical universe.It is the power and communication source of the human vehicle.The hara line is positioned in the center of the human form from the center of the top of the head,splitting into two at the Tan Tien and continuing earthward down the legs.(See Barbara Brennan's Hands of Light.) 
+
+**Higher Self**-A spiritual word/descriptor for the TES. 
+
+**Holographic**-A three-dimensional rendering. 
+
+**Hot Swap**-A computer peripheral term used to describe the removal or plugging in of a peripheral without the power being turned off.In the spiritual,this relates to the swapping in/out of a soul from/to a physical human body without the body needing to die or be born. This is sometimes called a walk-in.
+
+**Human Aura**-The energy fields associated with the physical and astral components of the human body. 
+
+**Hyperspace**-A moment of frequential and dimensional phase that is different from the normal graduations of phase that allows movement between dimensional and frequency based environments. 
+
+**Individualized Reality**-The reality that entities with individualized free will choose to create around them.In some instances,the fully individualized reality can create full separation from the greater reality. 
+
+**Intelliate**-Intelligence-based communication. 
+
+**Join the Dots**-A way of saying that one "understands"through logical means,or lateral thinking,the process of going from one level of understanding to another via known steps. 
+
+**Light Particle**-A particle of light is known as a photon.A photon travels at the speed of 186,000 miles per second.The theoretical particle,the tachyon,is supposed to travel faster than the speed of light. 
+
+**Local Reality**-The official start of convolution within realities.This is a reality within a reality within the universal reality.Local realities can vary in size and number of interactive entities.Local realities are normally created when a group of entities choose to not only change the function of their interaction with the overall reality,but actively choose to disassociate any previous knowledge of the former reality.
+
+**Locally Individualized Reality**-Relative to small groups of entities within a local reality, such as those living within a certain country.This occurs when entities are aware of the local reality but are unable to change the reality that has been changed for them by more influential entities. 
+
+**Loci/Locus**-The center or source of an object/entity.Mathematically speaking,it is the set of all points or lines that satisfy a given requirement.In Source Entity Three's environment, it represents the location of the majority of the entities concerned. 
+
+**Logarithmic Growth**-In mathematics,logarithmic growth describes a phenomenon whose size or cost can be described as a logarithmic function of some input.For example,y Clog(x).Note that any logarithm base can be used since one can be converted to another by a fixed constant.Logarithmic growth is the inverse of exponential growth and is very slow. 
+
+**Lossy**-A computer term used to describe a conversion function that results in a reduction of some sort due to an either incorrect conversion factor or a specific function of the process used.Certain "losses"are sometimes considered acceptable,but this is only the case where the output is not critical;e.g.,converting an image to JPEG is a lossy conversion function. 
+
+**Macro-universe**-A complete universe where our own universe would serve to be the subatomic levels. 
+
+**Magnetosphere**-The outer region of a planet where the magnetic field of the planet controls the motion of certain charged particles. 
+
+**Magnetostream**-Magnetic flow within the confines of a magnetosphere of a planet. 
+
+**Matter**-(The elements)in the body is continuously distributed and fills the entire region of space it occupies.(Source:http://en.wikipedia.org/wiki/Continuum_mechanics.) 
+
+**Metaconcert**-The linking together of minds,either energetic based or thought based,to create a collective that has a synergetic effect in the ability to process information,a task,or some creative function. 
+
+**Micro Event Space**-A microscopically small Event Space that is specific to the needs of an individual entity,being,or environment. 
+
+**Micro-universe**-A complete universe at the scale of the subatomic. 
+
+**Minor-verse**-A universe of lesser content in terms of dimension and frequency and habitation,one of lower importance. 
+
+**Monoversal**-A local environment.More than one locality can be classified as monoversal, but within the space that is universal or multiversal (more than one universal environment). 
+
+**Multipolous**-A multiple of a multiple of a multiple.For example,X cubed,cubed,cubed (X3,3,3).
+
+**Multiversal Reality**-The experiential condition that is created by the governing entities responsible for a specific multiversal environment within a specific Source Entity.It is a generalized function of reality and is subject to change both by the Planners,other Curator functions,and the interactions of the incumbent entities/beings that are working within that environment. 
+
+**Multiverse**-An environment housing myriad universes. 
+
+**Nova**-A star that increases in brightness by many thousands of times its usual brightness, gradually fading to its original brightness.The last stages of the life of that star. 
+
+**Null Space**-The space in between universes for travel between universes. 
+
+**The Om**-Energy-based beings not indigenous to Earth.The Origins uncreated creations. 
+
+**Omniciate**-Omniscience-based communication. 
+
+**Omnifunctional**-To be able to operate,as if in an individualized way,within all environments,spaces,and events,irrespective of structural conditions and parallelized versions,concurrently. 
+
+**Omnipresent**-To be located within all environments,spaces,and events,irrespective of structural conditions and parallelized versions concurrently. 
+
+**Omniscient**-To be focused within one's sentience that is located within all environments, spaces,and events,irrespective of structural conditions and parallelized versions, concurrently. 
+
+**Orgone**-The visual representation of cosmic "free"energy. 
+
+**The Origin**-The creator of the twelve Source Entities who exist within the Origin,the greater God,an entity of pure sentient energy. 
+
+**Overall Reality**-The experiential condition that is created by the existence of the sentience that is The Origin.It contains all of its personal experiences,growth,realizations, creations,and explorations of self.It is the only reality that can be considered static in function and observation. 
+
+**Overdrive**-A way of saying that someone or something's performance has increased.The overdrive was a semiautomatic secondary gearbox added on to the manual gearbox of classic sports cars or performance automobiles in the 1960s and 1970s in the UK. 
+
+**Over Soul**-The Quantum Healing Hypnosis Technique (QHHT)word/descriptor for the TES.QHHT was a hypnosis-based healing technique taught by Dolores Cannon. 
+
+**Parallel Condition**-The duplication of Event Space.It is the creation or generation of a new but similar Event Space when a choice can be made and that choice or the possibility of the choice or the possible possibility of that choice results in a large enough downstream differential to create a new series of experiences that are self-contained and independent of the Event Space they separated from.The overall size of the Event Space is a function of the inclusion of other entities or beings that interact with the initiating and subsequent downstream experiences generated from the initial choice. 
+
+**Polyomniscient**-A multiple aspect of omniscience.A condition that will be achieved by The Origin as it expands into those areas of itself that are beyond its current area of sentient self-awareness. 
+
+**Primary Incarnation**-A descriptor for the incarnate functionality of an Aspect if a secondary incarnation is employed. 
+
+**Psychometry**-Gaining spiritual information about an object or person via tactile contact. 
+
+**Quadrulistic**-A condition where four realities are in existence concurrently due to the possibility of alternative realities being created when a choice of four directions is available. 
+
+**Readings or Reader**-Acting as a medium for a client or clients who want to know more information about themselves from spirit,but who are unable to ask for themselves during meditation or any other means..A“Medium”gives a“Reading.”
+
+**Reality**-An environment and interactive condition we create as a desire function of an Event Space or Event Stream.It is an entity-or being-generated perception-based condition. 
+
+**RNA**-Ribonucleic Acid Simulacrum-similar or in the same likeness.
+
+**SCUBA**-An acronym for Self-Contained Underwater Breathing Apparatus. 
+
+**Secondary Incarnation**-A descriptor for the incarnate functionality of an Aspect that uses a significant percentage of its sentient energies to have an incarnation in a lower frequency within the physical universe.This is not a Shard but an incarnation within an incarnation because the Aspect in the primary incarnation continues while the secondary incarnation is in action.In the event that the primary incarnation is placed in stasis for the duration of the secondary incarnation the primary incarnation will re-commence once the secondary incarnation is finished. 
+
+**Sentiate**-Sentience-based communication. 
+
+**Shard**-A Shard is a smaller part of the Aspect that is used to experience the minute detail of the environments within the multiverse.It is also used to experience the lowest frequencies of the multiverse presented by the physical universe through the process of incarnation.As with the TES a maximum of twelve Shards can be projected by the Aspect at any one time. 
+
+**Skewed Distribution**-An effect in standard distribution where the classic "bell curve"is pulled to one side of the graph of distribution in lieu of being "normally"distributed. 
+
+**Soul**-The Christian and spiritual word/descriptor for the Aspect or Shard.The Soul is considered to be individualized in totality and not part of a larger being.It is also generally related with the human body and no other incarnate vehicles.
+
+**Soul Seat**-This is where the sentience of the Aspect resides.It is the personality of what we,as a projected Aspect of our TES are,"it is our sentience".Its position is close to where the front and rear Aspects of the heart chakra join-close to the thymus. 
+
+**The Source Entity**-What we call God,the creator of our multiverse.A smaller individualization of The Origin's sentience. 
+
+**Space**-The area or volume within the Source (and ultimately The Origin)where everything exists. 
+
+**Spaced Out**-A term I used to describe being close to fainting. 
+
+**Speed of Light**-The speed of light is currently understood as being 186,000 miles per second. 
+
+**Spirituo-physical**-The level where the gross physical and energetic/spiritual frequency levels meet and mix. 
+
+**Spliced Undulation of Dimension**-One or more dimensions linked together as a result of them being close together or overlapping in some part of their areas. 
+
+**Start of Event**-Event Space can allow any changes to have its own "start of event,"even when there appears to be no real start.A start or beginning is therefore not a temporal position,it is simply a function of a change of experiential direction to create a new individualized experiential direction. 
+
+**Stickle Brick**-A child's building block similar to a Lego block but with spikes to join them together-like a Bristle Block 
+
+**Stratostream**-The flow of wind or air at stratospheric or very high altitude within the atmosphere of a planet. 
+
+**Subincarnation**-A descriptor for the incarnate functionality of a Shard. 
+
+**Supernova**-An exploding star caused by gravitational collapse. 
+
+**Synergy**-The effect experienced where the sum of the whole is more than the sum of the individual units creating the whole when treated in isolation. 
+
+**Tan Tien**-This is where the energy of the Aspect spreads out into the energy network that contains the energy template and the chakras.It ends up being a focus of tremendous energy.It is positioned two inches(5cm)below the navel (belly button)and three inches (7.5cm)in toward the center of the human vehicle from the navel. 
+
+**Telekinesis**-Levitation of an object or person by application of pure thought. 
+
+**Teleportation**-The ability to dissolve and materialize the physical body at will while changing location in the process. 
+
+**Triangulation**-A method used in surveying to measure position and distances between positions by the use of a triangle and the angles relating to the position of other positions or locations being surveyed.Mathematically it is a method of proving a mathematic assumption by the use of three different mathematical methods to gain the same answer. 
+
+**Trilistic**-A condition where three realities are in existence concurrently due to the possibility of alternative realities being created when a choice of three directions is available. 
+
+**True Energetic Self**-(TES)what we truly are-an entity of pure sentience with a given or commandeered body of energy. 
+
+**UFO**-Unidentified Flying Object. 
+
+**Universal Reality**-A smaller representation of the multiversal reality insomuch as it starts out to be that when a multiverse and its universal components are first introduced as a medium for evolutionary progression.The universal reality can only be changed as a result of all entities within that environment choosing to change the reality as a total collective. 
+
+**Walk-In**-The swapping in and out (one for another)of Aspects (souls)within a single incarnate vehicle.There are many variations upon this theme. 
+
+**Wormhole**-Physically an area where two frequencies connect with each other.It is possible to use wormholes to jump up through the frequencies.
 
 ## About the author 
 
-Guy Needler MBA,MSc,CEng,MIET,MCMA initially trained as a mechanical engineer and quickly progressed on to be a chartered electrical and electronics engineer.However, throughout this earthly training he was always aware of the greater reality being around him,catching glimpses of the worlds of spirit.This resulted in a period from his teenage to early twenties where he reveled in the spiritual texts of the day and meditated intensively. Being subsequently told by his guides to focus on his earthly contribution for a period he scaled back the intensity of spiritual work until his late thirties where he was re-awakened to his spiritual roles.The next six years saw him gaining his Reiki Master and a four year commitment to learn energy and vibrational therapy techniques from a direct student of the Barbara Brennan School of HealingTM,which also included a personal development undertaking (including psychotherapy)as a course prerequisite using the PathworkTM methodology described by Susan Thesenga with further methodologies by Donovan Thesenga,John and Eva Pierrakos.His training and experience in energy based therapies have resulted in him being a member of the Complementary Medical Association(MCMA). Along with his healing abilities his spiritual associations include being able to channel information from spirit including constant contact with other entities within our multi- verse and his higher self and guides.It is the channeling that resulted in "The History of God"and produced his other books.It continues to produce further work. As a method of grounding Guy practices and teaches Aikido.He is a 6th Dan National Coach with 36 years experience and is currently working on the use of spiritual energy within the physical side of the art. Guy welcomes questions on the subject of spiritual physics and who and what God is.
+Guy Needler MBA,MSc,CEng,MIET,MCMA initially trained as a mechanical engineer and quickly progressed on to be a chartered electrical and electronics engineer.However, throughout this earthly training he was always aware of the greater reality being around him,catching glimpses of the worlds of spirit.This resulted in a period from his teenage to early twenties where he reveled in the spiritual texts of the day and meditated intensively. Being subsequently told by his guides to focus on his earthly contribution for a period he scaled back the intensity of spiritual work until his late thirties where he was re-awakened to his spiritual roles.The next six years saw him gaining his Reiki Master and a four year commitment to learn energy and vibrational therapy techniques from a direct student of the Barbara Brennan School of HealingTM,which also included a personal development undertaking (including psychotherapy)as a course prerequisite using the PathworkTM methodology described by Susan Thesenga with further methodologies by Donovan Thesenga,John and Eva Pierrakos.His training and experience in energy based therapies have resulted in him being a member of the Complementary Medical Association(MCMA). 
+
+Along with his healing abilities his spiritual associations include being able to channel information from spirit including constant contact with other entities within our multi- verse and his higher self and guides.It is the channeling that resulted in "The History of God"and produced his other books.It continues to produce further work. 
+
+As a method of grounding Guy practices and teaches Aikido.He is a 6th Dan National Coach with 36 years experience and is currently working on the use of spiritual energy within the physical side of the art. 
+
+Guy welcomes questions on the subject of spiritual physics and who and what God is.
