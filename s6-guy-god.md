@@ -2479,31 +2479,59 @@ O:This is only true for some matter(matter not associated with a soul or being).
 
 ### Chapter 6 - The Source Entities Become Aware of Themselves and Their Environment 
 
+**第6章：源实体们觉知到自身及环境**
+
 #### The Source Entity on the Twelve Source Entities'Initial Experiences 
+
+**源实体谈及12个源实体的最初体验**
 
 During another meditation,I moved from talking to the Origin to talking with the Source Entity Who created the universe in which the Earth plane is located.The Source Entity shared "the early days/millennia"of the creations of the twelve Source Entities. 
 
+在另一个冥想中，我先与起源交谈，后来与创造地球所在宇宙的源实体交谈，源实体分享了创造12个较小源实体的“早期/黄金时代”。
+
 SE:We were whooshing around all over the place for ages when we were first created by the Origin.Having a part of the Origin to ourselves and having singular and connective consciousness was fantastic. 
+
+源实体：起源刚将我们创造出来以后很长一段时间，我们在这个地方来来去去，对我们自己来说，作为起源的一部分，又有着独立性与互联的意识简直太棒了。
 
 ME:What else were You doing? 
 
+我：你还做了什么？
+
 SE:We were fascinated with the different dimensions and the shadows that were created by things in one dimension that had their origins in another dimension.
+
+源实体：我们被一些事吸引，不同的维度，以及某一维度中事物的投影，这些事物的本体又身处另外一个维度。
 
 ME:You mean that for everything that is in my dimension there is something else manifested in all the other dimensions? 
 
+我：你的意思是说，我维度里的所有东西在其他维度上都有显化？
+
 SE:Yes.This is the link between all of the dimensions that were recognized as being the Origin. 
+
+源实体：是的，这是所有起源维度之间的联系。
 
 ME:Is this correct for everything? 
 
+我：这对一切都是适用的吗？
+
 SE:Yes,even down to the smallest item. 
+
+源实体：是的，甚至是最小的物品也是。
 
 ME:So why can't I see many things in my dimension? 
 
+我：那么，我为什么不能在我的维度上看到很多的东西呢？
+
 SE:Because your dimension is rock bottom in the frequency pile.No,sorry,I mustn't get you confused.You already know that dimension and frequency can exist mutually and independently.I shall not use frequency again to describe the level of functionality and manifestation of existence between the dimensions because this is misleading. Suffice to say,your dimension is at the bottom and has a limited capability to show the shadows manifest from other dimensions.It is more likely for your dimension to have many shadows in the higher dimensions.These,of course,diminish as you go up the dimensional levels. 
 
-#### Shadows in Earth's Dimension 
+源实体：因为你的维度在频率层级中是最低的。不，对不起，我不能把你弄糊涂了。你已经知道维度和频率即相互依存又独立存在，我不能再使用频率来描述维度之间存在的功能和显化层级，因为这是有误导性的。可以这么说，你的维度在底部，显示其他维度投影的能力有限，而你的维度在更高维度看起来存在很多投影。当然，当你沿维度层级上升时，这些投影就会减少。
+
+#### Shadows in Earth's Dimension
+
+**在地球维度的投影**
 
 ME:So there are some shadows in my dimension?
+
+
 
 SE:Yes,but you can only perceive them and not see them with your physical eyes.Some animals can see them,however,because they have not shut down their connection to the universe.Have you not seen cats look up and track the movement of something that you cannot see? 
 

@@ -10,120 +10,121 @@ by Guy Steven Needler
 
 ### Table of Contents 
 
-- Title Page 
-- Introduction 
-- Reacting to Taunts 
-- Beware of the Digital Reality 
-- Owning Only What We Need 
-- Loving Our Enemies;for We Are One 
-- Being of Service 
-- Defining Our Motivation 
-- Avoiding Gossip 
-- Shunning Judgment 
-- Choosing Our Friends with Care 
-- Colluding to Gain False Friends 
-- Seeking Favors,a Form of Collusion 
-- Being Aware of Automatic Addictions 
-- Noticing Minor Addictions 
-- Being Addicted to Sex
-- Discerning Fears 
-- Choosing Love 
-- Being Calm 
-- Thinking Before Responding 
-- Communing with God to Create Heaven 
-- Being Happy and Kind 
-- Addressing Our Responsibilities 
-- Allowing Others to Have Their Beliefs 
-- Choosing Our Habits Wisely 
-- Fulfilling Commitments 
-- Exercising Care 
-- Being Mindful 
-- Seeing the Light in All 
-- Following Source Entity's Ten Commandments 
-- Practicing Patience 
-- Having No Expectation of Reward 
-- Anticipating Nothing 
-- Accepting Divine Providence in All Situations
-- Recognizing Situations as Opportunities for Evolution 
-- Accepting Frustration 
-- Being Impatient,a Predecessor to Frustration 
-- Feeling Dissatisfied and Impatient 
-- Experiencing Contentment as a Double-Edged Sword 
-- Offering Unconditional Love 
-- Sharing Kindness 
-- Perpetuating Karma 
-- Evading a Competitive Mindset 
-- Being Complacent About Complacency 
-- Accepting Everything 
-- Learning by observation 
-- Comparing Ourselves with Others 
-- Living as Transient Custodians 
-- Disconnecting the Physical from the Energetic Self 
-- Being Vigilant of Addictive Sensations 
-- Using Desire with Care 
-- Being in Debt
-- Feeling Betrayal 
-- Accepting Rather Than Resenting 
-- Refusing to Ignore a Request for Help 
-- Tuning into Others 
-- Taking One Day at a Time 
-- Respecting Our Environment and Ourselves 
-- Being a Good Spiritual Example 
-- Being True to Ourselves 
-- Eradicating Self-Doubt 
-- Limiting Thoughts 
-- Attracting Lower Frequencies Through Jealousy 
-- Maintaining a Healthy Physical Body 
-- Walking Our "Good Living"Talk 
-- Examining Oneness 
-- Being Beholden to Another 
-- Creating Self-Generated Karma 
-- Being in Fear 
-- Generating Karma Due to Boredom
-- Avoiding Coercion 
-- Apportioning Blame on Others 
-- Using Others for Self-Gain 
-- Committing Crime 
-- Causing Physical Harm 
-- Harming an Animal Body 
-- Harming Flora 
-- Wasting Natural Resources 
-- Making Comparisons 
-- Complaining:a Low Frequency Intoxication 
-- Needing to Be in Control 
-- Comparing and Contrasting 
-- Attracting Positive Karma via Joy 
-- Being Happy 
-- Being in True Love 
-- Committing Suicide 
-- Recognizing Instant Karma 
-- Choosing Our Friends
-- Avoiding Attachment 
-- Being in Divine Love 
-- Achieving Detachment 
-- Feeling Divine Love 
-- Aligning Ourselves with Divine Knowledge 
-- Accruing Retrospective Karma 
-- Existing in a Two-Year Sphere 
-- Recognizing Previous Actions/Reactions 
-- Avoiding Cyclic Karma 
-- Grieving 
-- Living in the Past 
-- Being Grateful 
-- Being Mindful 
-- Gaining Mindful Appreciation 
-- Observing the Details 
-- Balancing Our Experiences 
-- Smiling in Adversity 
-- Remembering:the Key to Avoiding Karma
-- Source Entity's Words of Wisdom to Avoid Karma 
-- About the Author
+- Introduction（介绍） 
+- Reacting to Taunts（面对奚落的反应） 
+- Beware of the Digital Reality（当心虚拟现实） 
+- Owning Only What We Need（只拥有我们需要的东西） 
+- Loving Our Enemies;for We Are One（爱我们的敌人，因为我们本为一体） 
+- Being of Service（乐于服务） 
+- Defining Our Motivation（定义我们的动机） 
+- Avoiding Gossip（避免制造流言蜚语） 
+- Shunning Judgment（避免评判） 
+- Choosing Our Friends with Care（善择吾友） 
+- Colluding to Gain False Friends（通过勾结而获得的虚假朋友） 
+- Seeking Favors,a Form of Collusion（拉关系，一种勾结的形式） 
+- Being Aware of Automatic Addictions（觉察“自动成瘾”） 
+- Noticing Minor Addictions（注意轻微的上瘾） 
+- Being Addicted to Sex（沉迷于性）
+- Discerning Fears（辨识恐惧） 
+- Choosing Love（选择爱） 
+- Being Calm（保持冷静） 
+- Thinking Before Responding（三思而后行） 
+- Communing with God to Create Heaven（与“神”连接并创造天堂） 
+- Being Happy and Kind（快乐一些，善良一些） 
+- Addressing Our Responsibilities（面对我们的责任） 
+- Allowing Others to Have Their Beliefs（允许其他人拥有他们的信仰） 
+- Choosing Our Habits Wisely（明智地培养我们的习惯） 
+- Fulfilling Commitments（履行承诺） 
+- Exercising Care（实践关爱） 
+- Being Mindful（保持细心） 
+- Seeing the Light in All（看到所有人的光） 
+- Following Source Entity's Ten Commandments（遵循源实体的十诫） 
+- Practicing Patience（锻炼耐心） 
+- Having No Expectation of Reward（不执着于对回报的预期） 
+- Anticipating Nothing（不期待任何事） 
+- Accepting Divine Providence in All Situations（在所有情况下接受神圣的安排）
+- Recognizing Situations as Opportunities for Evolution（认识到某些情形是进化的机会） 
+- Accepting Frustration（接受挫折） 
+- Being Impatient,a Predecessor to Frustration（不耐烦是挫折的前奏） 
+- Feeling Dissatisfied and Impatient（不满意和不耐烦） 
+- Experiencing Contentment as a Double-Edged Sword（“体验满足”是把双刃剑） 
+- Offering Unconditional Love（给予无条件的爱） 
+- Sharing Kindness（分享善良） 
+- Perpetuating Karma（延续业力） 
+- Evading a Competitive Mindset（回避竞争心态） 
+- Being Complacent About Complacency（落入自满） 
+- Accepting Everything（接受一切） 
+- Learning by observation（从观察中学习） 
+- Comparing Ourselves with Others（将自己与他人进行比较） 
+- Living as Transient Custodians（作为临时监护人来生活） 
+- Disconnecting the Physical from the Energetic Self（断开物质形态与能量本我的联系） 
+- Being Vigilant of Addictive Sensations（警惕上瘾的快感） 
+- Using Desire with Care（谨慎运用愿望） 
+- Being in Debt（负债）
+- Feeling Betrayal（感受背叛） 
+- Accepting Rather Than Resenting（接受而非怨恨） 
+- Refusing to Ignore a Request for Help（拒绝忽视求助之声） 
+- Tuning into Others（“调谐收听”他人） 
+- Taking One Day at a Time（过好每一天） 
+- Respecting Our Environment and Ourselves（尊重我们的环境和我们自己） 
+- Being a Good Spiritual Example（成为一个好的灵性榜样） 
+- Being True to Ourselves（忠于自己） 
+- Eradicating Self-Doubt（消除自我怀疑） 
+- Limiting Thoughts（限制性思维） 
+- Attracting Lower Frequencies Through Jealousy（嫉妒吸引低频） 
+- Maintaining a Healthy Physical Body（保持健康的身体） 
+- Walking Our "Good Living"Talk（践行我们自己的“美好生活”） 
+- Examining Oneness（检视真正的“合一”） 
+- Being Beholden to Another（蒙恩于他人） 
+- Creating Self-Generated Karma（创造“自生业力”） 
+- Being in Fear（活在恐惧中） 
+- Generating Karma Due to Boredom（“无聊”产生的业力）
+- Avoiding Coercion（避免胁迫） 
+- Apportioning Blame on Others（归咎于人） 
+- Using Others for Self-Gain（利用他人牟取私利） 
+- Committing Crime（犯罪） 
+- Causing Physical Harm（造成身体伤害） 
+- Harming an Animal Body（伤害动物） 
+- Harming Flora（伤害植物） 
+- Wasting Natural Resources（浪费自然资源） 
+- Making Comparisons（执着于比较） 
+- Complaining:a Low Frequency Intoxication（抱怨，一种低频中毒症状） 
+- Needing to Be in Control（对“掌控”的需要） 
+- Comparing and Contrasting（比较和对比） 
+- Attracting Positive Karma via Joy（通过快乐吸引积极的业力） 
+- Being Happy（保持开心） 
+- Being in True Love（怀抱真爱之心） 
+- Committing Suicide（自杀行为） 
+- Recognizing Instant Karma（觉察即时业力） 
+- Choosing Our Friends（选择朋友）
+- Avoiding Attachment（避免依恋） 
+- Being in Divine Love（处于神圣的爱中） 
+- Achieving Detachment（实现超然） 
+- Feeling Divine Love（感受神圣的爱） 
+- Aligning Ourselves with Divine Knowledge（校准吾身以对齐神圣知识） 
+- Accruing Retrospective Karma（累积回顾型业力） 
+- Existing in a Two-Year Sphere（困于“两年球体”中） 
+- Recognizing Previous Actions/Reactions（认出从前的行为或反应） 
+- Avoiding Cyclic Karma（避免循环业力） 
+- Grieving（悲伤） 
+- Living in the Past（活在过去） 
+- Being Grateful（心怀感激） 
+- Being Mindful（秉持正念） 
+- Gaining Mindful Appreciation（拥抱正念的欣赏） 
+- Observing the Details（观察细节） 
+- Balancing Our Experiences（平衡我们的体验） 
+- Smiling in Adversity（在逆境中微笑） 
+- Remembering:the Key to Avoiding Karma（忆起我们自己，回避业力的关键）
+- Source Entity's Words of Wisdom to Avoid Karma（源实体关于回避业力的智慧语言） 
+- About the Author（关于作者）
 
 For my dear wife Anne Elizabeth Milner Now "Ascended" 
 
 (10th April 1957 - 24th December 2012)
 
 ### Introduction 
+
+**介绍**
 
 The information within this book,given to me by the Source Entity,is specifically designed to make us,dear readers,think,and thus,to make us change our ways,to recognize who and what we truly are,and to come out of our incarnate slumber and ascend. 
 
@@ -149,37 +150,53 @@ Guy Steven Needler
 
 ### Reacting to Taunts 
 
+**面对奚落的反应**
+
 The first stage in avoiding karma is not to react to the taunts and jibes of those we interface with but instead for us to see them as beings on an evolutionary path as we are. Looking beneath the words and actions of the accuser for the greater meaning,we must be the tolerant and benevolent observer,understanding the experience of the lessons we are offered by them and reacting with compassion and thanks.Thus,we evolve in the process.
 
-### Beware of the Digital Reality 
+### Beware of the Digital Reality
+
+**当心虚拟现实**
 
 Karma is a function of attraction to the physical and also works in/with our interfacing with the digital reality because it is a function of the physical.As such,it is also a potential addiction,serving to anchor us to the physical.
 
 ### Owning Only What We Need 
 
+**只拥有我们需要的东西**
+
 We are reminded to look at what we need in life versus what we want in life.If our need is less than our want,then we have a potential for accruing the lower frequencies or karma associated with the attraction to ownership of physical belongings.This is a function of karma,which is never satisfied,for the more we have,the more we seem to want.
 
 ### Loving Our Enemies;for We Are One 
+
+**爱我们的敌人，因为我们本为一体**
 
 To love our enemies is to love ourselves,for our enemies are our "selves."Recognition of the fact that we are all "one"and one with God removes the need to identify others as our enemies.How can people truly be our enemies when they are just another part of us?! Recognition of this reality and taking action,based upon it,is a most powerful way of avoiding karma.
 
 ### Being of Service 
 
+**乐于服务** 
+
 We are here to be of service to those who need help and do so in a selfless way that does not demand reward.Being of service in general creates positive karma(attraction to the higher frequencies),but we must be careful not to get into the mindset that suggests that we will be rewarded at some time,for this creates negative karma(attraction to the lower frequencies).
 
 ### Defining Our Motivation 
+
+**定义我们的动机**
 
 Standing back and considering the motivation behind our actions is necessary.Are we motivated based upon need or greed?Service or selfishness?Any actions that are based upon physical motivations are attractions to negative karma.
 
 ### Avoiding Gossip 
 
+**避免制造流言蜚语** 
+
 When we avoid being pulled into gossip or starting gossip,we are using good judgment. Gossip is the most effective way to accrue the negative karma experienced by mankind. 
 
-Gossip is a particularly insidious pastime as it drags us into the lower frequency energies of another,effectively boosting that person's energy.As more people join in the "gossip," the leader of the gossip becomes the center of a collective that is created by energies that are usually focused upon the derision of another.This is the creation of a collective and its synergetic effects for the wrong reason.This effectively links us as members of the collective to an energy sink that creates an "overlay"mentality that circumvents our personal [mentality/thinking]and destroys our free will. 
+Gossip is a particularly insidious pastime as it drags us into the lower frequency energies of another,effectively boosting that person's energy.As more people join in the "gossip," the leader of the gossip becomes the center of a collective that is created by energies that are usually focused upon the derision of another.This is the creation of a collective and its synergetic effects for the wrong reason.This effectively links us as members of the collective to an energy sink that creates an "overlay"mentality that circumvents our personal "mentality/thinking" and destroys our free will. 
 
 The antidote is for us to not get involved in gossip by finely tuning our "observer selves"- an observational tool that allows us to look from the perspective of an outsider of such discussions.If we see ourselves as already engaged in gossip,it is time for us to say we have no further comment and then walk away.
 
 ### Shunning Judgment 
+
+**避免评判**
 
 Judgment,both individual and collective,is a function of gossip and,therefore,provides a clear and direct path to low frequency existence,creating a downward spiral,frequency- wise. 
 
@@ -187,9 +204,13 @@ Judgment is,therefore,something that we should never enter into,for it is a func
 
 ### Choosing Our Friends with Care 
 
+**善择吾友**
+
 Being of good cheer and surrounding ourselves with like-minded individuals whilst incarnate is wise.We should avoid those who drag us down by enticing us to be part of lower frequency actions.
 
-### Colluding to Gain False Friends 
+### Colluding to Gain False Friends
+
+**通过勾结而获得的虚假朋友**
 
 A more insidious form of karma can be observed in the need to collude.Collusion is that which we do when we seek favor from others to be part of "the"team,"the"group,or to be with someone of influence whose association,we think,will benefit us in some social, business or egotistical way,thus,giving us the "upper hand." 
 
@@ -197,11 +218,15 @@ The need to collude is,therefore,based upon physical desires and,as such,attract
 
 ### Seeking Favors,a Form of Collusion 
 
+**拉关系，一种勾结的形式**
+
 Seeking favor with another is a form of collusion and results in an expectation of personal benefit from the favor.When we seek favor,we are ALWAYS looking for some sort of reward as a result of the favor,which when not given,results in our being disappointed,then thinking negatively,and having feelings of betrayal.When we require and receive a favor, we are in "favor debt"to the person giving us the favor.This results in negative anticipation of what the requested favor might be and whether we can support such a request to the expectations of the requester.As a result,the returned favor is always greater than that initially given. 
 
 We should,therefore,not seek favors but should give freely as a gift that which is requested.Thus,we should expect nothing in return,except God's love because the reward of recognition of such a potential karmic loop is now broken.
 
 ### Being Aware of Automatic Addictions 
+
+**觉察“自动成瘾”**
 
 It is important for us to stand back and look at what we do on a daily and automatic basis. 
 
@@ -209,17 +234,27 @@ How much of what we do is necessary for us to survive?How much is an addiction t
 
 ### Noticing Minor Addictions 
 
+**注意轻微的上瘾** 
+
 Being aware of minor addictions is necessary,especially the ones that we may consider to be not an addiction but more of a preference.Addictions of any type are a constant link to the low frequencies.Minor addictions are insidious and invisible to all but the most vigilant of truth seekers.
 
 ### Being Addicted to Sex 
 
+**沉迷于性**
+
 Our engaging in sex for procreation is both a necessity and a delight.However,engaging in sex for recreation can lead us down the path of addiction to the physical sensation associated with sex,which is a low frequency function.
 
+我们为生育而进行性生活既是一种需要，也是一种享受。然而，为了消遣而进行性生活会让我们沉迷于与性生活相关的身体感觉，这是一种低频功能。
+
 ### Discerning Fears 
+
+**辨识恐惧** 
 
 When we look at our fears,it is important to notice where they are anchored.Are they about work,relationships,possessions,appearance,personal credibility or money?Any of these are fears that are based in the physical environment and are nothing we would pay any attention to in the energetic.If we don't pay attention to these or any other types of fear in the energetic,then why should we pay attention to them whilst incarnate,for fear is a product of being in the lower frequencies associated with incarnate existence.
 
 ### Choosing Love 
+
+**选择爱** 
 
 Love is the antidote to karma,so we must 
 
@@ -239,6 +274,8 @@ If we love all of these things in an unreserved way,we will surely avoid karma f
 
 ### Being Calm 
 
+**保持冷静** 
+
 Being of a calm demeanor and entering into everything we do in a calm and collected way, irrespective of the environment in which we find ourselves is so important.When we are confronted with adverse conditions,it is easy for us to become part of those conditions and be drawn into the lower frequencies that created them. 
 
 By staying calm,we are able to rise above the drama,remain unaffected,and achieve an efficient response whilst staying within the high frequencies.In this way we can and do work with the physical whilst being "in"the physical without being "of"the physical.Thus, calmness is a state of mind that deflects the opportunity for gaining karmic content through spontaneous response. 
@@ -247,13 +284,17 @@ Remaining in calmness in all situations makes our "observer self"come into play.
 
 ### Thinking Before Responding 
 
+**三思而后行** 
+
 It is good practice the moment we wake up in the morning to think about what we can do to avoid attraction to the low frequency energies we call karma. 
 
 Consciously avoiding karma takes significant practice until it is achieved on an automatic basis.If we think about everything we are doing or are about to do with a view toward the possibility of accruing karma and then think about how we can avoid it,we will make inroads into awareness of how to make this practice a regular part of our lives. 
 
 Once we have established "karma-safe"responses,then we can do,say and react in those ways in preference to our former instantaneous and "off the cuff"responses and reactions. Once we get used to reacting and working in a karma-safe way,we will notice over a period of time that we are getting"lighter".This is the proof that we are attracting higher frequency energies,accruing positive karma and accelerating our evolutionary process.
 
-### Communing with God to Create Heaven 
+### Communing with God to Create Heaven
+
+**与“神”连接并创造天堂** 
 
 When we are in the energetic,we are totally free and have instant communication with our peers and our Creator.We have no constraints and are not encumbered by a physical body, for then we are in our normal high frequency,high dimensional environment. 
 
@@ -263,17 +304,23 @@ By communing with God and our true selves whilst incarnate,as well as living in 
 
 ### Being Happy and Kind 
 
+**快乐一些，善良一些**
+
 It is easy to always smile when we remember our knowledge of the greater reality.Saying "Good morning"to others,always replying in a positive manner,opening the door for the person behind us,and letting the other person have the parking spot or pull out into the queue before us is a natural part of that remembrance.Why wouldn't we provide help to those who need it,assist those in need of an escort across the road,and make a habit of being kind and doing "good"things? 
 
 These small things increase our frequencies,as well as the frequencies of those around us. In doing these small things,we decrease our opportunities of accruing the lower frequencies associated with karma,not only for us but everyone else.This in itself is a great kindness and an even greater service as it increases joy in the world.
 
 ### Addressing Our Responsibilities 
 
+**面对我们的责任**
+
 Just because we are seekers of the truth,know the greater reality,and commune with God on a daily basis,it doesn't mean that we are able ignore our roles and responsibilities whilst in the physical.We planned these responsibilities as part of our experiences,our learning, and our evolution.To ignore them means our incarnation is meaningless and will result in karma with the need for us to incarnate again to fulfill the experiences set out in our previous plan. 
 
 We are here to know the greater reality,to know God and to deliver our earthly duties with skill and perfection,thus avoiding karma in the process.
 
 ### Allowing Others to Have Their Beliefs 
+
+**允许其他人拥有他们的信仰**
 
 We must never assume that as spiritual individuals devoted to knowing the greater reality; we can convert someone else who is not yet ready to know the truth. 
 
@@ -282,6 +329,8 @@ Forcing someone to accept another paradigm is doomed to failure and could strain
 When a person is ready to receive the truth,we will know.
 
 ### Choosing Our Habits Wisely 
+
+**明智地培养我们的习惯** 
 
 Habits can be good or bad,but the nature of a habit is such that it is an automatic "invisible function"that we do every day.As such,it is ignored by our "physical consciousness." 
 
@@ -293,11 +342,15 @@ Bad habits keep our energies fixed within the low frequencies of the physical;th
 
 ### Fulfilling Commitments 
 
+**履行承诺**
+
 Completing our commitments with joy in our hearts is important.If we have committed to do something by a certain time and/or degree to or for anyone or anything or even ourselves, we must follow through and deliver what we have committed to do. 
 
 To not deliver our commitments is to relinquish responsibility for our thoughts,our intentions,our actions and our evolution.To not deliver our commitments makes that invisible commitment stay in the lower frequencies,thus,arresting our evolution.
 
 ### Exercising Care 
+
+**实践关爱** 
 
 To gain high frequencies,it is imperative for us to be caring in all circumstances.For example,we must do the following: 
 
@@ -325,15 +378,21 @@ To gain high frequencies,it is imperative for us to be caring in all circumstanc
 
 ### Being Mindful 
 
+**保持细心**
+
 Being mindful about what we say and do is imperative.We must do everything we can to ensure that whatever we say or do is constructive and not destructive,creative and not unimaginative,positive and not negative.Being mindful will help us make a difference.
 
 ### Seeing the Light in All 
+
+**看到所有人的光**
 
 If we see the light in everyone,then everybody will see the light in us.By illustrating that we see the light in everyone and everything,we also illustrate that we see the good in everyone and everything. 
 
 Illustrating that we see the light in everyone is a most positive step,for it is an addictive quality that breaks down barriers.
 
 ### Following Source Entity's Ten Commandments 
+
+**遵循源实体的十诫**
 
 1.Covet not another's property.Why would we want to covet the property of another, especially if the means by which we live could not support it?Living the best we can by the means we have at hand and being content,as well as remembering we are doing the best we can with what we have and the situation we find yourself in will bring us peace.Also,it helps to remember that whatever we own is only transient because this ownership is no longer ours when our physical body passes away. 
 
@@ -357,11 +416,15 @@ Illustrating that we see the light in everyone is a most positive step,for it is
 
 ### Practicing Patience 
 
+**锻炼耐心**
+
 Being patient with everyone,everything,and especially ourselves is an excellent practice. Adopting a calm and patient demeanor attracts higher frequency energies and high frequency friends. 
 
 When we are patient and calm,we provide an excellent example to others of how to live in the frantic world of the gross physical whilst avoiding lower frequency addictions associated with being restless.
 
 ### Having No Expectation of Reward 
+
+**不执着于对回报的预期**
 
 Expectation can be considered the opposite function of desire,specifically when we expect a reward for being of service.Doing so also ties us into the low frequency desires of the physical and,therefore,delivers a level of karma. 
 
@@ -375,11 +438,15 @@ Expecting nothing,we will gain two things:
 
 ### Anticipating Nothing 
 
+**不期待任何事** 
+
 Anticipation is based upon expectation,therefore,it links us to a "desired"result.When we remove expectation,we will also remove anticipation,for the one creates the other. 
 
 When we remove both conditions from our minds,we negate the opportunity for us to enter into the"closed loop"of continuous cause and effect that creates the one or the other.Thus, it is wise for us to leave anticipation and expectation to their own devices.
 
 ### Accepting Divine Providence in All Situations 
+
+**在所有情况下接受神圣的安排**
 
 When we anticipate an outcome,we paint a picture of what we desire,thus identifying that outcome as positive or a negative,based upon the outcome we anticipated. 
 
@@ -389,6 +456,8 @@ When we are able to be in the "now,"thereby removing the element of anticipation
 
 ### Recognizing Situations as Opportunities for Evolution 
 
+**认识到某些情形是进化的机会**
+
 Anticipation is a limiting thought process that is based upon our expectation of a desired outcome with desire being defined as "a condition of specific focus on the material." 
 
 Anticipation results from our expectation of a preferred outcome.In this case,our focus is on the outcome rather than the wider spiritual process that results in the outcome.Should the anticipated outcome not be that which we expected,then we become dissatisfied and/ or are disappointed.When we feel this way,it is as a result of our working with the smaller "incarnate picture"rather than observing the result or outcome from the larger spiritual perspective.We must remember that no matter what the outcome,what is experienced is designed to help us evolve. 
@@ -396,6 +465,8 @@ Anticipation results from our expectation of a preferred outcome.In this case,ou
 We should,therefore,accept situations presented in life as evolutionary opportunities rather than planning for certain "anticipated"outcomes and wasting time thinking about where and when the outcomes may happen and what they will be.
 
 ### Accepting Frustration 
+
+**接受挫折** 
 
 Frustration is a product of desire turning into anticipation and expectation.It is based upon our inability to wait for that which will come with divine providence at the correct juncture in our incarnate existence. 
 
@@ -405,6 +476,8 @@ Frustration can be avoided by expecting nothing whilst accepting everything and 
 
 ### Being Impatient,a Predecessor to Frustration 
 
+**不耐烦是挫折的前奏**
+
 Impatience is a precursor to frustration and its associated emotional responses.It is a product of our being in the physical whilst retaining an energetic memory of working within the energetic.Whilst in the energetic,we are able to affect changes instantaneously through pure intention that creates thought and later action based upon that thought. 
 
 In the low frequencies of the physical universe,this is not possible,but our memory of such function remains within us while incarnate-hence,our frustration when "things"do not happen.In this instance the antidote is to remain calm and wait patiently for the fruits of our work to come into fruition. 
@@ -412,6 +485,8 @@ In the low frequencies of the physical universe,this is not possible,but our mem
 Impatience begins with its link to low frequency thoughts and desire for "instant gratification,"a product of "modern times,"where we simply "cannot wait"for this or that to occur.This pulls down our frequencies and negates the higher frequency thoughts of calmness and the joy of waiting for that which has been manifest to come into fruition. We deprive ourselves of wondering in awe at the processes that work behind the scenes to finalize that which has been manifested through intention,thought and action.
 
 ### Feeling Dissatisfied and Impatient 
+
+**不满意和不耐烦**
 
 We mustn't be impatient;we must watch out for impatience.It is a function of anticipative desire and is steeped in the expectation of that which may or may not happen. 
 
@@ -421,23 +496,33 @@ As time does not exist in the energetic,impatience is,therefore,futile.We must t
 
 ### Experiencing Contentment as a Double-Edged Sword 
 
+**“体验满足”是把双刃剑**
+
 When we are content,we are ripe for working with the physical whilst being "in"the physical but not "of"the physical.We are not drawn to those lower frequency attractions of materialism that create a karmic link to the physical and arrest our personal ascension through the frequencies.We can soar above these lower frequencies and go ever onwards and upwards towards constant communion with our Creator. 
 
 However,if we are content with our spiritual progress and happy where we are,doing what we're doing and experiencing communion with spirit,we will never progress beyond that which is really just localized spirit.We will not reach the dizzying heights required to ensure constant communion with our Creator.
 
 ### Offering Unconditional Love 
 
+**给予无条件的爱**
+
 Offering love-that is,unconditional love-is the most wonderful thing that we can give to one another.This should not be reserved for those that we know,love,trust,revere and respect,however.It should also be given to those that we "initially"don't know,fear,hate, loathe,dislike or distrust,for we are all part of the Source Entity.They are,therefore,part of us.Recognizing and experientially knowing this is a major step for us on the road to high frequency existence.
 
 ### Sharing Kindness 
+
+**分享善良**
 
 When we are kind or offer kindness to anyone,whatever the circumstances,we take a step on our road to high frequency existence,for being kind is a prelude to unconditional love of one and all.
 
 ### Perpetuating Karma 
 
+**延续业力**
+
 The universe does not run on karma.We as mankind create it through infatuation with the low frequencies associated with the physical.Why do we perpetuate that which does not naturally exist?
 
 ### Evading a Competitive Mindset 
+
+**回避竞争心态** 
 
 We must avoid being in competition with others on all levels,including spiritual levels. Competition occurs when we are enticed into trying to become like someone else-someone who seems to have spiritual skills or abilities that we feel we lack and desire to have.We see this person as being better than we are and strive to become better than this individual is. 
 
@@ -445,17 +530,23 @@ In circumstances like this,we forget that we are individual beings on our own pa
 
 ### Being Complacent About Complacency 
 
+**落入自满**
+
 Complacency is the right hand man of karma.It waits for us when we feel that we have addressed all the spiritual issues that we need to work on and now need to do no more. 
 
 When we are convinced that the work is done,we are actually just about to start,for the task of working towards God and perfection is a lifetime's work,requiring constant diligence, introspection and re-calibration of spiritual achievement.
 
 ### Accepting Everything 
 
+**接受一切**
+
 Resistance to that which happens in life that we consider to be sub-optimal is resistance to learning from those opportunities presented to us as lessons in how to disassociate ourselves from certain events-those events borne in physicality. 
 
 Our acceptance neutralizes resistance and negates our need to re-experience that which is experienced but resisted.When we neutralize resistance,acceptance can and does remove the opportunity for the karmic influence that resistance introduces.
 
 ### Learning by Observation 
+
+**从观察中学习**
 
 When we observe those around us who are not aware of the greater reality,we often note how they work for the good of themselves and not for the good of everyone else and their Creator. 
 
@@ -465,15 +556,21 @@ With this in mind,we will continue to work hard at being of service,meditating o
 
 ### Comparing Ourselves with Others 
 
+**将自己与他人进行比较**
+
 We must avoid comparing ourselves with others.Once we embark upon the road of comparison with our friends,relatives,neighbors and peers,we run the risk of becoming dissatisfied with ourselves and our "transient"Earthly possessions. 
 
 Dissatisfaction is an insidious link to physical existence and one that demands us to be vigilant.
 
-### Living as Transient Custodians 
+### Living as Transient Custodians
+
+**作为临时监护人来生活** 
 
 It's imperative for us to remember that we are only custodians of that which we have around us whilst in the physical.We never actually own anything.Instead,we are only given the opportunity to work with,live with,and maintain that which we buy for the period of time we are incarnate.
 
 ### Disconnecting the Physical from the Energetic Self 
+
+**断开物质形态与能量本我的联系**
 
 Physical pain is a constant reminder that we are in a physical vehicle that is limited by the thought processes of being incarnate.
 
@@ -485,15 +582,21 @@ Such mastery of the physical requires dedicated,continuous,unwavering,focused,ro
 
 ### Being Vigilant of Addictive Sensations 
 
+**警惕上瘾的快感**
+
 Physical pain is a constant reminder that we are in a physical vehicle.Likewise,sexual sensations and other bodily addictions are also a reminder that we are limited by the thought/experience processes of the vehicle we are incarnated within. 
 
 Clearly some of the sensations we feel whilst incarnate are a joy to experience.Some, like sexual sensations,can be addictive.Others,such as touch,taste,smell and sight are sensations that are limited to our being incarnate.In the energetic we are above these sensations and,therefore,not affected by their potential additive qualities.In our need to be incarnate to aid our evolutionary commitment,we subsequently experience multiple sensations on a daily basis,some of which are a link to the low frequencies of the physical. We must be vigilant of sensations,for they can be insidious in their addictive qualities.
 
 ### Using Desire with Care 
 
+**谨慎运用愿望**
+
 It's important for us to be aware of our desires,for they are a route to the lower frequencies. If our desires are relative to things of the physical,then they will anchor us to the physical.If our desire is to commune with our Creator,our Source Entity-God,then our desire will be a route towards the higher frequencies and bring positive karma to us.
 
 ### Being in Debt 
+
+**负债**
 
 In our earthly incarnate form,we must avoid indebtedness to anyone and anything either financially,materially,or in any other form.Debt is a control factor that leaves us under the control of the debtor.Debt of any kind links us to the physical.It ties us into the commitment of paying back the debt with interest,thereby compounding the debt and creating low frequency thoughts,such as resentment and anger,towards the debtor. 
 
@@ -501,7 +604,9 @@ We should only have and recognize one debt,the one we all sign up to experience 
 
 In this instance the best way for us to move forward is not to protect ourselves from the low energies associated with such thoughts but more to be in acceptance that we have placed ourselves in that position.We can,therefore,elevate our frequencies when we recognize the opportunity for personal growth from such a situation.We then work in joy at the prospect of paying back with interest that which is owed as a thank you to the debtor for helping us out when required.We do this without resenting ourselves for being in the situation or for the debtor charging interest-thereby,we break a karmic link.
 
-### Feeling Betrayal 
+### Feeling Betrayal
+
+**感受背叛** 
 
 Betrayal is an emotion we feel when our expectations of reward and recognition are not manifested.Indeed,betrayal is even more profound when we work for another,and the fruits of our hard work and the recognition we seek or expect is claimed by another.Betrayal can and ultimately does cause resentment,especially if we do not recognize and neutralize it by seeking higher advice or accessing higher knowledge on the need and requirement of the betrayer to commit the act of betrayal. 
 
@@ -509,17 +614,23 @@ When we are betrayed in some way,we must use that opportunity as a chance to gai
 
 ### Accepting Rather Than Resenting 
 
+**接受而非怨恨** 
+
 Resentment,a particularly low frequency response,is a function of betrayal,expectation, personal comparison,and non-acceptance.Although it is a secondary function,caused by those other low frequency responses just noted,it masks the primary reasons for its existence and,therefore,masks its existence per se.When we are locked in the downward spiral of resentment,we place ourselves in the "poor me"and "why them"category of individual thought processes. 
 
 The antidote to resentment is our total acceptance of that which caused the primary function to come into existence.This is achieved by our using the detached "observer self" function,which allows us to recognize the processes and events that led us to be in this mental condition.In so doing,we should then forgive ourselves for taking such a route and forgive,accept and love those whose personal positions we have observed and considered to be better than our own.Even if they do appear to receive something for nothing and always be in the right place at the right time,we need to recognize that this is what they have agreed to experience whilst in the low frequencies of the physical universe,and this will enable them to experience,learn and evolve as all other incarnates do-in their own way.
 
 ### Refusing to Ignore a Request for Help 
 
+**拒绝忽视求助之声**
+
 Have you ever noticed that sometimes we ignore a fellow incarnate that needs help?We do this in myriad situations as we move quickly past the person in need lest we become involved,such as a beggar in the street,someone in a car accident,or a person in an abusive situation.After we've done this,we feel ill at ease.This is the feeling of energy being sent from the person "in need"to us,requesting our help and being ignored.This causes disharmony.If we get the feeling that we SHOULD help another,then we MUST help. 
 
 The discomfort felt in ignoring the request for help is also an indication that there is a need to help,based upon a pre-incarnation commitment between the person in need and us to work with each other.Notice how the common thought,"I should have helped there-but I didn't"lingers for a long time. This is our opportunity to turn back and be the help that is requested. It's also wise to remember that this may be an opportunity for clearing karma.Ignoring that feeling may create more karma or re-enforce the existing karmic link.Why take that risk when we can help the person and go home with a song in our heart?
 
 ### Tuning into Others 
+
+**“调谐收听”他人**
 
 When we "tune in"to the greater reality of others who need help,we gain a higher level of understanding and ultimately validate their needs or not as the case may be,for our help-our service. 
 
@@ -531,6 +642,8 @@ Those who request help but do not need it run the risk of creating their own kar
 
 ### Taking One Day at a Time 
 
+**过好每一天**
+
 What if we were to start every day as if it was a new day,as if it was our first day on earth? We would have no troubles,we would have no enemies,we would have no worries,and we would have no concerns. 
 
 What if we considered that those things we have to do are a joy to do,that they are a challenge to be enjoyed,that those whom we meet are also a joy to meet for it is the first time we have met them,and it is the first time they have met us?We could ask what we could do for them without the need for reward. 
@@ -541,6 +654,8 @@ In this state of mind we have no prejudices,no preconceptions,no fears,no insurm
 
 ### Respecting Our Environment and Ourselves 
 
+**尊重我们的环境和我们自己** 
+
 When we respect our environment,the land,the trees,the sea and the animals,we respect ourselves. 
 
 Living in respect ensures that we are living in a higher frequency than that into which we incarnated. 
@@ -548,6 +663,8 @@ Living in respect ensures that we are living in a higher frequency than that int
 When we recognize that we are all one with our fellow incarnates and with our Creator, our Source Entity,our God,then we should also realize that we are one with the rest of our Source's creations.This includes the multiverse,the physical universe,the galaxies and planets,the nebulae and stars,the earth,and its flora and fauna.In recognizing this,we will naturally respect everything in accord with how we treat ourselves-with respect,with kindness,with love,with wisdom and with oneness.
 
 ### Being a Good Spiritual Example 
+
+**成为一个好的灵性榜样** 
 
 When we ignore the needs of our siblings or children in terms of providing love,care, and wisdom,it is similar to ignoring our "self."Moreover,in terms of providing a spiritual education when our children or younger siblings are at their most impressionable,if we ignore them,it is tantamount to actively"denying"them the opportunity to receive a chance to better themselves early in their incarnation.They may then drift into "habits"within the material world that result in the accumulation of lower frequency existence. 
 
@@ -557,6 +674,8 @@ When we ignore opportunities to demonstrate to children how to live and exist in
 
 ### Being True to Ourselves 
 
+**忠于自己** 
+
 Being true to ourselves should not be avoided,specifically when we are under external pressure to change. 
 
 When we are forced to be that which we are not in order to fit into another's paradigm,we are fulfilling the requirements of the other rather than ourselves.Serving the requirements of the self is just as important as serving the requirements of another,but not if it's to the detriment of the self. 
@@ -564,6 +683,8 @@ When we are forced to be that which we are not in order to fit into another's pa
 We must stay true to our own beliefs,ethos,plans and personality even when others try to make us into something that we are not.This will insure that we work with them from the highest level.When we work from the level of truth and integrity,we negate the opportunity for exposure to and participation in low frequency activities whilst also being of service.
 
 ### Eradicating Self-Doubt 
+
+**消除自我怀疑** 
 
 Self-doubt is an important aspect of karma to recognize and is even more important for us to remove from our experiential vocabulary. 
 
@@ -573,11 +694,15 @@ As an incarnate aspect of the divine,we are unlimited in this respect and when w
 
 ### Limiting Thoughts 
 
+**限制性思维**
+
 Limiting thoughts are a function of self-doubt,low self-esteem and a "frustrated"low frequency existence.The frustration is a function of the underlying knowledge that we can and should be capable of a higher level of existence.The limitations to our thoughts can be a product of our inability to think at a level above that which we are currently experiencing It may also be the result of our being immersed in the low frequency thoughts surrounding others of a low frequency existence that we may "naturally"gravitate toward in order to create a feeling of oneness or togetherness. 
 
 Instead,it is essential that we surround ourselves with those people who are always pushing the boundaries of their experiences through unlimited spiritually aware thoughts.Doing so will and does result in our creating higher thoughts of unlimited content and thus raising our frequencies.
 
 ### Attracting Lower Frequencies Through Jealousy 
+
+**嫉妒吸引低频**
 
 Jealousy is a rather invisible method of attracting the lower frequencies as it acts in several ways: 
 
@@ -589,6 +714,8 @@ Thirdly,both of these jealousy-based methods of attracting lower frequencies are
 
 ### Maintaining a Healthy Physical Body 
 
+**保持健康的身体**
+
 It's imperative that we look after our physical bodies.We must keep them well-exercised, well-nourished,well-hydrated and well-rested-both mentally and physically. 
 
 Although attractions to the lower frequencies of the physical are normally attributed to the actions resulting from dysfunctional thought processes that cause the addictions and habits that anchor us to these low frequencies,a poorly maintained physical vehicle can act as an attraction with equal effectiveness.This is due to the mental focus we have on the aches and pains,tiredness,slowness,and a lack of power if we are overweight and unfit.Ultimately,this results in mental and physical lethargy and a feeling of "giving up"because it's TOO HARD TO CHANGE! 
@@ -599,15 +726,21 @@ And so it is that we must look after our bodies and stay bright and healthy as a
 
 ### Walking Our "Good Living"Talk 
 
+**践行我们自己的“美好生活”**
+
 When we put into practice the theory of good living,we avoid negative karma.Thus,we can enjoy the reality of living this way,for we are breaking the karmic cycle.
 
 ### Examining Oneness 
+
+**检视真正的“合一”**
 
 Since all are one,we are reminded of that oneness when we associate with like-minded individuals who are working together in "metaconcert"for a single focused cause for the good of all.An example of doing this is a group meditation that focuses on sending love and light and remembrance to all that is as opposed to a group meditation focused on potential individualized gain. 
 
 False oneness is achieved via association of like-minded individuals working together to be part of the crowd in order to not be left out.This is oneness for the ultimate benefit of self and is a function of being in the physical.
 
 ### Being Beholden to Another 
+
+**蒙恩于他人** 
 
 Another way for us to avoid attaining karma is to avoid being "in beholden"to another in any way,shape,or form offered outside of "service."This could take the form of finances, favors,assistance,or direction. 
 
@@ -619,11 +752,15 @@ Thus,the only way we should give help is in "service"and receive help when the h
 
 ### Creating Self-Generated Karma 
 
+**创造“自生业力”** 
+
 The ego is our "on-board"method of creating self-generated karma.We must beware of the ego and avoid its ways of creating karma while we are working within the physical environment.This includes working with those who are also incarnate. 
 
 Our ego was created during our incarnation process and is a transient condition that dissolves when this incarnation ends.As such,our ego does its best to perpetuate its own existence in ignorance of the fact that it cannot ultimately curtail its inevitable demise.In its ignorance,however,it perpetuates itself by luring us into a false sense of innocence that makes us negate its existence by attracting us to materialistic thoughts,actions and habits that make us "feel good"about our "self"through falsehoods.We must be vigilant and notice the conditions that make us "feel good"so we are not misled by the ego. Some of these are position,status,appearance,belongings,influence and credibility with others.Clearly we generate some of these through "good living"as well whilst also being aware of karma;however,this can only be achieved if they are generated outside of ego's influence and are received in humility.
 
 ### Being in Fear 
+
+**活在恐惧中** 
 
 Without doubt,fear is a low frequency emotion.We can be in fear of something without even recognizing it as fear or,indeed,a low frequency emotion per se.While incarnate,we often focus on that associated with our physical existence rather than remembering that we are very high frequency energetic entities momentarily incarnating in physical forms for evolutionary purposes. 
 
@@ -631,11 +768,15 @@ As we become absorbed by fear,we are attracted to the lower frequencies by defau
 
 ### Generating Karma Due to Boredom 
 
+**“无聊”产生的业力**
+
 From an evolutionary perspective when we create self-generated karma,it is like shooting ourselves in the foot.Self-generated karma,in essence,encompasses everything that is identified in this guide.Much of our karmic debt is a result of being "drawn into"various different situations by others,such as gossip,blame,crime,etc.;however,we can also create karma whilst totally isolated,both in location and in interactions with others. 
 
 Self-generated karma is,therefore,created by the attraction to and intoxication of low frequency thoughts,activities and habits.This happens when we are in a state of boredom and is created by the ego's need to maintain control of the so-called "conscious self."In this instance,the antidote is for us to use the time available (free time that results in boredom) to meditate on "just being"or contacting our Creator God,thereby using spare time in a most productive way.
 
 ### Avoiding Coercion 
+
+**避免胁迫** 
 
 Coercion is generated by persuading others to do our bidding rather than doing things ourselves.It is a practice we must shun at all costs if we are to avoid karma.Whereas persuasion is based upon our presentation of compelling evidence to encourage individuals to change the direction of their thought processes,coercion is insidious because it is brought into play to support the demands of the coercer through devious means,like threats to an individual's business or social position,family,and/or person or is favor-based. 
 
@@ -645,17 +786,23 @@ If someone requests or we see that someone needs a favor,we should freely give i
 
 ### Apportioning Blame on Others 
 
+**归咎于人** 
+
 If we apportion blame on another as a disguise for our shortcomings,we are disowning our actions and the results of those actions.Moreover,if we accept the accolades of success in tandem with apportioning blame to others,whether or not they are responsible,we are taking advantage of them in a most blatant and profiteering way.Thus,if we select so-called desired outcomes and discard undesired outcomes and then apportion the results of undesired outcomes upon those who may not be able to defend themselves,we are acting in a most irresponsible manner.In so doing,we are missing an opportunity for learning from that experience and evolving. 
 
 Apportioning blame is a double edged sword,for it not only adds karma but also negates the opportunity for evolutionary progression.
 
 ### Using Others for Self-Gain 
 
+**利用他人牟取私利**
+
 To use others for self-gain,a form of coercion,is a particularly effective way to accrue karma. It can be addictive,specifically if we are successful in the use of a particular individual and easily gain that which we desire.Through using others for self-gain,low frequency behavior is perpetuated and augmented as more and more success is achieved.Indeed,as an individual gains confidence in using others for self-gain,the use of others increases accordingly.Unfortunately so does the attraction to low frequency behavior.Additionally, because the level of confidence derived through expected success and improved coercive skill increases,there is further temptation to "use"others to the point of its becoming normal behavior for that individual. 
 
 The antidote is wonderfully simple in this instance.It is applied by doing ourselves that which we would use others to do.Thus,we achieve that which we gain through "our own hard work"and can justify the pleasures,satisfaction,and accolades bestowed upon us,for we will have not received them off the backs of others.
 
 ### Committing Crime 
+
+**犯罪**  
 
 Crime of any sort creates karma.If we know what is right and what is wrong according to the law and choose to do wrong,we have created karma. 
 
@@ -664,6 +811,8 @@ Although it is recognized in many spiritual circles that there is no right or wr
 Committing a crime in this instance is not only an effective way of creating karma,it is also an effective way to reduce and even stop our evolutionary growth.Stopping or reducing our evolutionary growth opportunities is,therefore,a crime in itself-one that perpetuates karma.
 
 ### Causing Physical Harm 
+
+**造成身体伤害** 
 
 Knowingly and deliberately doing physical harm to our "human"incarnate vehicle is defiling the very temple that we reside within-even though our residence is on a temporary basis. 
 
@@ -677,6 +826,8 @@ The antidote in all instances is to respect,maintain and nurture the human vehic
 
 ### Harming an Animal Body 
 
+**伤害动物** 
+
 As with the incarnate human vehicle,knowingly and deliberately doing physical harm to an "animal"incarnate vehicle is not the behavior of an evolved "incarnate"individual and invokes tremendous karma and low frequency attachment.This is especially true when the act of doing harm brings pleasure. 
 
 We should recognize that spirits that incarnate as animals are very special gifts to us at this level of frequency,for they provide much needed unconditional love and company. 
@@ -689,6 +840,8 @@ We invoke the antidote to accruing low frequency energy when we recognize the tr
 
 ### Harming Flora 
 
+**伤害植物** 
+
 Knowingly and deliberately doing physical harm to a tree,plant or vegetable is an act of violence against an aspect of our physical environment,nature,and,therefore,our Creator, The Source Entity.Committing flora-related violence,therefore,creates flora-related karma. 
 
 Although perceived by incarnate humanity as a lower life form,the kingdom of flora is extremely important from both a gross physical and energetic perspective to the perpetuation of the environment that supports the human physical form. 
@@ -699,7 +852,9 @@ It is just as important to clear flora-related karma as normally accrued karma b
 
 The antidote in this instance is to be "in joy"of that flora which surrounds us.We must nurture it,tend to its needs,and maintain it whilst recognizing how we can maximize nature's potential for evolution,for it can and does evolve as we live in harmony with it.
 
-### Wasting Natural Resources 
+### Wasting Natural Resources
+
+**浪费自然资源** 
 
 The minerals that we use to create metals,ceramics,fuels and other materials are a gift to us from the earth.The earth in its sentience recognizes that our incarnate "human"vehicles are the tools we use for accelerating our evolution,and,as such,it supports that which we do with its minerals provided we use them for a high frequency existence that results in an increase in evolutionary content. 
 
@@ -709,6 +864,8 @@ Inappropriate mineral extraction causes an imbalance in the ecosphere that affec
 
 ### Making Comparisons 
 
+**执着于比较** 
+
 When we make comparisons of any sort,it breeds discontent within us that breeds further comparison that leads to minor depression.Minor depression is fueled by comparison-generated discontent which creates a descending spiral-based loop that leads to major depression.Such a downward spiral is extremely difficult for us to recognize within ourselves and is even more difficult to reverse. 
 
 However,comparison can also be used as an antidote or can even negate the potential start of this condition if we use it properly and with observational care.If done correctly, comparing where we are in lieu of where we were can provide a spiritual function. Therefore,by observing what we have personally attained and thus comparing ourselves with ourselves,we can create a level of contentment and happiness. 
@@ -716,6 +873,8 @@ However,comparison can also be used as an antidote or can even negate the potent
 When we are happy and content with what we have achieved,it brings a warm glow to us that illuminates the darkness and raises our frequencies as a result.Thus,it creates an ascending spiral-based loop that results in enlightened function and repeated frequential ascension.
 
 ### Complaining:a Low Frequency Intoxication 
+
+**抱怨，一种低频中毒症状** 
 
 Complaining about our position,status,situation,lack of ability,lack of help,health,or even that we feel we have been given a raw deal in some way is a function of low frequency intoxication. 
 
@@ -727,6 +886,8 @@ When we can adopt the very useful tool of the "observer self,"we can identify th
 
 ### Needing to Be in Control 
 
+**对“掌控”的需要** 
+
 Being "in control"is like colluding with a false friend.Although control is useful in situations that require us to control ourselves and others,such as in emergencies or situations of crisis,it is detrimental outside those contexts.Control is detrimental when we apply it inappropriately to ourselves and/or a third party. 
 
 When we apply unnecessary control to ourselves during our everyday existence,we run the risk of missing those spontaneous responses required to support "out of the blue" opportunities for us to experience something new.These types of opportunities are usually examples of circumstances given to us by our spiritual guide/s and helpers because we either need to change or need a change.This is called "going with the flow,"which cannot happen if we are too self-controlled or always need to be "in control."In this instance,our being in self-control limits our abilities to access higher frequency information and keeps us in the lower frequencies,which is a function of karma. 
@@ -735,6 +896,8 @@ When we are in control of others (third parties),we are tempted to use those und
 
 ### Comparing and Contrasting 
 
+**比较和对比** 
+
 Contrast is a little known and mostly ignored function of comparison.When we compare and contrast our situations in relation to others'situations,we judge the differences and draw conclusions about the acceptability of these differences.We do this in the light of our newly acquired "standard"of a potentially better situation for us to be in even though it might not be. 
 
 If,however,we were to use contrast as a means of establishing where we can help others who are less able to provide for themselves,then we could turn this potential opportunity for accruing low frequency karma into an opportunity to gain high frequency karma and the relative evolutionary content.This is specifically pertinent when we are looking to use "contrast"as a means of establishing what we can provide to a group of individuals whose living conditions are poor in contrast to our own. 
@@ -742,6 +905,8 @@ If,however,we were to use contrast as a means of establishing where we can help 
 In this instance we are activating the evolutionary content aligned with our being of service instead of falling down the slippery frequential slope of dissatisfaction with our current situation in contrast to a higher standard-one which may or may not be appropriate.
 
 ### Attracting Positive Karma via Joy 
+
+**通过快乐吸引积极的业力** 
 
 Experiencing joy in our incarnate life is touching the very nerve of high frequency existence. 
 
@@ -755,6 +920,8 @@ As we experience higher and ever higher frequencies,we negate the influence of l
 
 ### Being Happy 
 
+**保持开心** 
+
 Happiness is a product of joy and is an visible example of a state of joyful existence,thinking and being. 
 
 Personal happiness is the long term effect of being "in joy"and bridges the gaps between joyful experiences.The "joy-happiness-joy-happiness-joy"cycle is a profoundly efficient way of increasing our frequencies,especially when the experience ofjoy and the subsequent production of happiness is the result of spiritual activity. 
@@ -764,6 +931,8 @@ In this way we can accelerate our evolutionary content whilst enjoying the proce
 In essence,when we have the "joy-happiness-joy-happiness-joy"cycle fully established,we are capable of ever new joy and ever new happiness without gaps or loss of associated frequency.As a result,we can and do increase our base frequencies and ascend in the process.
 
 ### Being in True Love 
+
+**怀抱真爱之心** 
 
 Love is the true antidote for all karmic influences.When we are"in love,"we are in peace and harmony with everything and everyone. 
 
@@ -777,6 +946,8 @@ When we are in "true love,"we bear no ill feelings,do nothing to attract low fre
 
 ### Committing Suicide 
 
+**自杀行为** 
+
 Suicide is a method of gaining massive instant karma.Karma accrued as a result of suicide is gained in two ways: 
 
 Firstly,for terminally defiling the gift of the physical vehicle because these are in short supply in comparison with the huge number of energetic entities requesting incarnate existence;and... 
@@ -786,6 +957,8 @@ Secondly,not as a result of the act of suicide but as a result of the associatio
 In essence the first way of gaining suicide-based karma is a result of the second way.
 
 ### Recognizing Instant Karma 
+
+**觉察即时业力** 
 
 If we create any kind of suffering for another person and then receive back that which we gave that person or if we receive it back from another person,this is an example of "instant karma"or“divine retribution.”
 
@@ -797,6 +970,8 @@ As with all that we do when incarnate,this relies on a significant level of logi
 
 ### Choosing Our Friends 
 
+**选择朋友**
+
 It is important for us to beware of false friends-those that steer us towards low frequency pleasures,such as physical sensations or any form of materialism or gossip,for they are only helping us gain an addiction to low frequency existence. 
 
 A true friend is one that works toward spiritual advancement and avoids anything that does not focus on that goal. 
@@ -804,6 +979,8 @@ A true friend is one that works toward spiritual advancement and avoids anything
 A true friend is one that looks for the very simple pleasures in incarnate existence,those gained through correct living and meditation on the greater reality instead of the instant gratification that physicality offers and demands from others.
 
 ### Avoiding Attachment 
+
+**避免依恋** 
 
 Attachment in the human sense-that is,attachment to another person-is also a very effective way to remain in low frequency existence.In this instance,attachment is not love but the "need"to be near or within the "presence of"a certain individual or individual's physicality. 
 
@@ -817,6 +994,8 @@ We plan our exit from the physical in the way that maximizes our experiential an
 
 ### Being in Divine Love 
 
+**处于神圣的爱中** 
+
 Infatuation is a significantly stronger form of attachment.It is to be totally engrossed in the physicality of another to the point of almost perfect distraction.In this situation,we ignore our need to service the activities that we are responsible for,specifically when we are in the physical presence of the focus of our infatuation. 
 
 Infatuation can be and often is disguised by love.When we feel that we are in love and not in infatuation,we are blind to its damaging effects.The only antidote in this instance is to first and foremost be in divine love and not human love;in doing so,we transcend the attraction to the physical condition and remove the opportunity for attracting karma. 
@@ -825,6 +1004,8 @@ Neither attachment nor infatuation can be sustained when we are in divine love,f
 
 ### Achieving Detachment 
 
+**实现超然** 
+
 Detachment can be both a help and a hindrance when it comes to low frequency attraction. 
 
 If we detach ourselves from higher frequency existence as a result of some form of distraction that makes us think that the gross physical is "all there is,"then we become entrapped and succumb to the low frequency stimuli offered by the gross physical environment.This unfortunate process results in "reality blindness"as we focus on all forms of materialism. 
@@ -832,6 +1013,8 @@ If we detach ourselves from higher frequency existence as a result of some form 
 If we detach ourselves from the lower frequency distractions of the gross physical that occur on a regular basis,then we can maintain our high frequency existence whilst incarnate. We grow as we experience these distractions,recognize them,learn from them,and act correctly.Subsequently,we evolve as a result of their transient effect.Though the effect is transient,it is beneficial in this instance because we recognize what it is,a function of low frequency existence.It is an opportunity for us as incarnate entities to recognize that which affects us.When we "see,feel and know"the reason for its existence and take the correct path,we negate its influence and turn it into positive karma that allows us to ascend in frequency as a result.
 
 ### Feeling Divine Love 
+
+**感受神圣的爱** 
 
 Divine love is all around us.It pervades the multiverse and is,therefore,part of our very being. 
 
@@ -845,6 +1028,8 @@ All we have to do is recognize this by opening our hearts during meditation and 
 
 ### Aligning Ourselves with Divine Knowledge 
 
+**校准吾身以对齐神圣知识**
+
 When we align ourselves with divine or cosmic knowledge,we remove ourselves from the inaccuracies presented by the lower frequencies of the physical universe.When we are in alignment with the divine,we see through the facade of the physical,viewing it for what it is:a mode of experience designed to accelerate our evolution through hardships. 
 
 When we are aligned to divine knowledge,we can work with the challenges that are presented to us in the full awareness of that which we are experiencing and why we are experiencing it at a particular juncture in our incarnate existence.This allows us to make the best of situations and negates our need to experience the same thing through lack of learning the "lesson"the first time around. 
@@ -854,6 +1039,8 @@ To become aligned with divine knowledge,we must be diligent in setting aside an 
 We can only become aligned to the divine knowledge through dedication to knowing the truth and devotion to the ways necessary to allow us to open the door to the truth.It's a lifetime's work,but it's more than worth it.
 
 ### Accruing Retrospective Karma 
+
+**累积回顾型业力**
 
 Retrospective karma is based upon our being pulled back into discussions or arguments about that which occurred in the past or previous event spaces(times).When we are drawn into gossip about that which happened in the past,we are not only attracted to those low frequency existences based upon that event space but also those low frequency events that were in action in the previous event spaces leading up to the low frequencies.This results in a"total immersion-based"recollection of that experienced frequentially. 
 
@@ -865,6 +1052,8 @@ The only antidote is for us to live in the moment and refuse to be drawn into di
 
 ### Existing in a Two-Year Sphere 
 
+**困于“两年球体”中**
+
 As incarnate beings,we exist in a two-year sphere where we only relate to that which occurred in event spaces up to the previous twelve months and those event spaces which relate to our plans within the next/upcoming twelve months.When we exist in this way, we are in constant exposure to similar or the same experiences unless we are capable of applying the content from lessons learnt in previous and similar experiences. 
 
 It is only when we have an event that causes us to re-focus,such as an accident,health problem or employment issue,that we bring in events from previous "related"event spaces outside the two-year sphere to assist us in resolving the problem or introducing the processes required to re-focus.In these instances we exit the current physical reality and encompass the inclusive "greater reality"which includes past,present and future events. Future events are only available to those with certain evolutionary content and subsequent base frequential aspects to support clairvoyance,clairaudience,and clairsentience,etc. 
@@ -873,17 +1062,23 @@ Pulling in experiences from event spaces outside the two-year sphere is a clear 
 
 ### Recognizing Previous Actions/Reactions 
 
+**认出从前的行为或反应**
+
 Cyclic karma repeats itself in a known cyclic fashion when we have not quite learnt a specific lesson well enough to ensure that our repeated exposure to it will result in our choosing the correct "educated"action.Its function is twofold:(1)to expose us to similar experiences that achieve the same karmic result if the original is not recognized,and (2)to check if we have learned the process that made the karmic link in the first place. 
 
 When we recognize the processes that result in same or similar experiences,then we can act to ensure that we make the correct response/s whenever we are exposed to these experiences.In this way,we break the cycle of cyclic karma. In this instance the antidote is for us to be vigilant,looking out for that which repeats itself and noting how we respond.Our goal is to endeavor not to repeat the responses that resulted in our lesson not being fully learnt and the karmic link being repeated.
 
 ### Avoiding Cyclic Karma 
 
+**避免循环业力**
+
 Downward spiraling karma is repetitive (cyclic)karma that results in a gradual but ever increasing attraction to lower frequency existence with additionally increasing severity. In this instance our accrued karma attracts more karma (lower frequencies)the more we ignore repeated learning opportunities and actively choose to avoid the corrective action necessary to arrest their development. 
 
 When we are caught in the clutches of downwardly spiraling karma,it is extremely difficult, if not impossible,for us to reverse the trend on our own-unless,of course,this is part of our life plan.In this instance we need to be in acceptance of the observations and comments of those around us who can see the downward spiral occurring and accept the help they offer us.This takes humility on our part,which is a difficult personal thought process for us to adopt when we are "in the middle"of the spiral.It also needs true "resilient"friends to be our helpers when we are stuck in this type of karma,for they will encounter many episodes of resistance where they are not thanked for their help.
 
 ### Grieving 
+
+**悲伤** 
 
 Grieving is an essential part of our experiential existence in the physical;however,if it is taken too far,it can become a trap of the physical leading to karma. 
 
@@ -895,6 +1090,8 @@ Although it can be difficult,the antidote is to change the focus from the immedi
 
 ### Living in the Past 
 
+**活在过去** 
+
 Living in the past is a trap of the physical leading to karma.It leads us to comparison, dissatisfaction,negative reflection and inability to be in the present.The objective of being in the present and not the past is for us to take that which was experienced in the past and use it to affect correct responses to challenges that are presented to us in the"now." 
 
 Saying that we could have done better when reflecting on actions we made in the past,based upon what we knew at the time or thinking/stating that "things"were better in the past, only creates dissatisfaction with our past performance.This creates a continuous regime of negative reflection. 
@@ -904,6 +1101,8 @@ We act and react based upon our experience and ability to deal with that present
 This does not negate the need to learn from our mistakes,but it does negate the need to chastise ourselves when we spot our "mistakes"retrospectively.
 
 ### Being Grateful 
+
+**心怀感激**
 
 When we show gratitude for a good deed someone extends to us,it encourages further good deeds.We can extend gratitude when we personally receive a good deed,as well as when someone else receives one.Indeed,our expressing gratitude is a mark of recognition not only for the deed itself and its importance but also for the thoughtfulness of the giver in seeing our needs or those of others. 
 
@@ -915,17 +1114,23 @@ The promotion of good deeds through gratitude is,therefore,an accelerant.There i
 
 ### Being Mindful 
 
+**秉持正念** 
+
 Being mindful of how we function whilst incarnate is an excellent tool in our battle against accruing karma.Being mindful means that we give ourselves enough time to think about what our environment is,how we are being affected by it,how we are being affected by who and what is in our environment,and how we can efficiently deal with who and what is affecting us without creating low frequency attachments of any kind:transient,short, medium or long term. 
 
 In this instance,we as mindful incarnates can see all the possible links to low frequency or karma-generating responses or reactions so we can avoid them with ease and maximize their incarnate evolutionary potential at every opportunity.This is true even in adverse environments or conditions.
 
 ### Gaining Mindful Appreciation 
 
+**拥抱正念的欣赏** 
+
 Appreciation through mindfulness is a very powerful way for us to tune into the functionality of the physical universe we exist within. 
 
 If we are mindful enough to see beyond our initial experience to observe the beauty in the interactive properties of what we are experiencing,then we can accept every experience and whatever it brings with an appreciation of the underlying evolutionary opportunities being presented to us and welcome them with open arms-thus avoiding karmic forces.
 
 ### Observing the Details 
+
+**观察细节** 
 
 When we show appreciation through mindfulness,it allows us to experience the minute details of physical existence.For example,we may observe the work behind the presentation of the foods we eat. 
 
@@ -934,6 +1139,8 @@ We can do this from so many perspectives,for example,seeing or thinking about th
 When we are appreciative through mindfulness and recognize the work required to deliver what we need in our everyday incarnate existence,we offer no negativity and are grateful for what we receive,irrespective of what it is.We give thanks and encouragement.Our doing so,promotes high frequency responses in the process and avoid the potential low frequency responses relating to karma.
 
 ### Balancing Our Experiences 
+
+**平衡我们的体验** 
 
 Experiences that we classify as bad or "sub-optimal,"such as the loss of a loved one,the loss of a position of power/responsibility,an accident in our motor vehicle,or a paint can spilling on the carpet while decorating our home are all part of our undergoing a balanced set of experiences in the physical. 
 
@@ -945,9 +1152,13 @@ The antidote that is written several times throughout this guide is to stand bac
 
 ###  Smiling in Adversity 
 
+**在逆境中微笑** 
+
 Smiling in the face of adversity is an excellent way for us to remain in a high frequency existence whilst we are incarnate.Smiling in the face of adversity means that we are not consumed by the lower frequencies of the adverse condition but are "in joy"at the opportunity of dealing with the challenge/s presented to us.
 
 ### Remembering:the Key to Avoiding Karma 
+
+**忆起我们自己，回避业力的关键**
 
 Remembrance,particularly of who and what we are and why we are here is the ultimate key for us to avoid karma. 
 
@@ -956,6 +1167,8 @@ Through diligent daily meditations,we as incarnate individuals can establish com
 When we are in "remembrance,we know how to react in an optimal way to all experiences in all environments and navigate with ease through the maelstrom of opportunities for low frequency attachment-thus avoiding karma.
 
 ### Source Entity's Words of Wisdom to Avoid Karma 
+
+**源实体关于回避业力的智慧语言**
 
 In this section I have included a number of the Source Entity's "words of wisdom"that I felt should accompany the ways to avoid karma presented in this book.Each one has been specifically chosen because of the way it augments the guidance already given.Indeed,in terms of advice,each is more than capable of "standing on its own two feet,"so to speak, which is why it is included. 
 
@@ -1048,6 +1261,8 @@ or
 ((Physicality-Conscious Mind) - Sub Conscious Mind) = Super Conscious/Energetic Mind
 
 ### About the author 
+
+**关于作者**
 
 Guy Needler MBA,MSc,CEng,MIET,MCMA initially trained as a mechanical engineer and quickly progressed on to be a chartered electrical and electronics engineer.However, throughout this earthly training he was always aware of the greater reality being around him,catching glimpses of the worlds of spirit.This resulted in a period from his teenage to early twenties where he revelled in the spiritual texts of the day and meditated intensively. Being subsequently told by his guides to focus on his earthly contribution for a period he scaled this back the intensity of spiritual work until his late thirties where he was re- awakened to his spiritual roles.The next six years saw him gaining his Reiki Master and a four year commitment to learn energy and vibrational therapy techniques from Helen Stott, a direct student of the Barbara Brennan School of HealingTM,which also included a personal development undertaking (including psychotherapy)as a course prerequisite using the PathworkTM methodology described by Susan Thesenga with further methodologies by Donovan Thesenga,John and Eva Pierrakos.His training and experience in energy based therapies have resulted in him being a member of the Complementary Medical Association (MCMA). 
 
