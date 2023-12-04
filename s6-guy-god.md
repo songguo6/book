@@ -2531,352 +2531,700 @@ SE:Because your dimension is rock bottom in the frequency pile.No,sorry,I mustn'
 
 ME:So there are some shadows in my dimension?
 
-
+我：那么我的维度中还是有投影的。是吗？
 
 SE:Yes,but you can only perceive them and not see them with your physical eyes.Some animals can see them,however,because they have not shut down their connection to the universe.Have you not seen cats look up and track the movement of something that you cannot see? 
 
+源实体：是的，你只能感知它们，肉眼看不到。但有些动物可以看到，因为动物并没有关闭与宇宙的连接。难道你没有发现猫可以看到一些你看不到的东西，有时候还跟着它移动视线吗？
+
 ME:Yes. 
+
+我：是的。
 
 SE:Well,they are looking at the shadow (or what you might call "spirit"if it's the shadow of a being). 
 
+源实体：这些猫正在看投影，如果是一种存有的投影，则可以称为“灵”。
+
 ME:I thought all beings higher than our dimension could move in our dimension? 
+
+我：我还认为所有高于我们维度的存有，都能在我们的维度中移动呢？
 
 SE:Not all of them,but some actually live in your dimension but at a higher frequency. 
 
+源实体：不是所有的都会这样，确实有一些生活在你们的维度，只不过在更高的频率中。
+
 ME:O.K.,now can I get the frequency/dimension stuff sorted later?Can we talk about the history of what you did when first created? 
+
+我：好的，我能稍后再搞定频率或者说维度的问题吗？我们可否谈谈你刚刚被创造时所做的事。
 
 SE:Yes,of course.You only need log into Me and ask the question. 
 
+源实体：当然可以，你只需要连接我，然后问问题。
+
 #### The Source Entities'First Creation Experiences 
+
+**源实体的初生体验**
 
 ME:So what were You doing when You were first created? 
 
+我：那么，当你刚刚被创造出来的时候，你在做什么呢？
+
 SE:We were all so new and everything was so wonderful.We were whizzing up and down the frequencies and experiencing everything that was Us.We knew that everything We experienced and learnt from was being passed on to the Origin and between Ourselves,so to make the best of this,We did absolutely everything We could think of. 
+
+源实体：我们都那么年轻，一切那么美好，我们在频率中飞速升降，体验着我们所是的一切。我们知道我们体验和学习的一切就会传递到起源并互相分享。因此，为了充分利用这一点，我们做了所有能想到的事情。
 
 ME:O.K.,we can talk about what you did specifically later.What made you decide to divide yourself into twelve as the Origin had? 
 
+我：好的，我们可以谈谈你后来具体做了什么。是什么让你决定把自己分成12份，就像起源做的那样？
+
 SE:When We all got over the joy of everything,We got together and decided on the best way to begin the task at hand-that of experiencing the Origin and Ourselves and everything that was.I copied the Origin and added to the division,whereas the Others chose different ways.We were all so impressed by what We could do with the energies! We found that We were enthralled for ages (literally)! 
+
+源实体：一切喜悦都经历过以后，我们聚在一起决定开启最佳任务方式，就是亲身体验起源、我们自己，以及所有的一切。我重复起源所为，将自己分割成12份，而其他源实体则选择了不同的方式。我们对我们可以通过能量做到的一切感到印象深刻。后来我们发现我们真的着迷了很久很久。
 
 ME:What do you mean? 
 
+我：这是什么意思？
+
 SE:We saw that We could manipulate the way that matter manifested itself when We gave an area of matter in a specific dimension more or less energy.We were impressed by the shapes and patterns We could make.When We looked more closely at these shapes,We could see that We had made what you call galaxies,and that within these galaxies there were many little balls that burned. 
+
+源实体：我们发现在一个特定维度中，当我们对物质某一区域施加或多或少的能量时，就可以控制物质显化自身的方式。我们对那些我们创造的形状和样式着迷。当我们更仔细观察这些样式时，我们看到我们创造的就是你称为星系的东西，而且在这些宇宙中有很多燃烧的小球。
 
 ME:Suns?
 
+我：你指太阳吗？
+
 SE:Yes,suns.We noticed that these would live longer or shorter if We gave them more or less energy and that this depended upon their size and how they interacted with other dimensions. 
+
+源实体：是的，太阳，我们发现它们的寿命有长有短，取决于我们给它们能量的多少，还有它们的大小以及与其他维度的互动。
 
 ME:The suns interact with other dimensions? 
 
+我：太阳会与其他维度互动？
+
 SE:Yes,of course they do.They have to because of the level of change that is happening at a quantum level to make them burn like they do. 
+
+源实体：是的，由于在量子水平上正在发生的变化，才使得它们像现在这样燃烧，这使得它们必然与其他维度产生互动。
 
 ME:O.K.,what about planets? 
 
+我：好吧，那行星呢？
+
 SE:Yes,We also found that after some time other objects became visible and that this was a result of the un-burned matter or that matter that was not sucked up by the burning balls. 
+
+源实体：是的，我们还发现经过一段时间后其他一些物体也变得可见，这是不燃烧的物质，或是那些没有被燃烧的恒星吞噬的物质。
 
 ME:What else did you notice? 
 
+我：你还注意到了什么？
+
 SE:We noticed that We could affect the outcome of the movement of certain chemicals when We used certain energies to move them or view/scan them. 
+
+源实体：我们还发现当使用特定的能量来移动或查看、扫描它们时，这可能会影响某些化学物质运动产生的结果。
 
 ME:How do you mean? 
 
+我：你指什么？
+
 SE:Some of the chemicals paired up together.Chemicals and molecules that were totally unrelated appeared to have a level of attraction that was most interesting,especially when the chemicals were manifested on the lowest frequency possible.
+
+源实体：有些化学物质结合在一起，尤其是当化学物质显化到最低频率当中时，那些原本毫不相关的化学物质和分子之间似乎产生了某种有趣的吸引力。
 
 #### The Building Blocks of Biological Life 
 
+**生命体的基石**
+
 ME:What?!Do you mean that there are chemicals and molecules on other dimensions as well? 
+
+我：什么？你是说在其他维度也有化学物质和分子吗？
 
 SE:Of course,everything is manifested in every dimension in some way;the building blocks of biological life and other life are not exempt from this process. 
 
+源实体：当然，一切事物都以某种方式显化于各个维度，生物生命和其他生命的成分也不例外。
+
 ME:You mean that you actually experienced the process that started biological life? 
+
+我：你的意思是你真的经历了生命起源的过程。
 
 SE:Yes,in the most basic sense of the word;all that We were seeing was the first basic life forms of viruses and amoeba.This was particularly seen in areas of dense matter. 
 
+源实体：是的，从最基本的意义上说，我们观察到病毒和变形虫是第一种基本生命形式。这在稠密物质的频率区域尤为普遍。
+
 ME:You mean planets? 
+
+我：你的意思是在行星上？
 
 SE:Yes,but also in areas that you would call stellar clouds and other dense matter areas,such as gravity wells(black holes). 
 
+源实体：是的，但也包括你所说的恒星云和其他致密物质区域，比如引力井、重力井、黑洞。
+
 ME:There was life in black holes? 
 
-SE:Yes,of course.There is life everywhere. ME:Were you actually creating life by changing the energy flow of certain physical and non- physical matter? 
+我：黑洞里也有生命？
+
+SE:Yes,of course.There is life everywhere. 
+
+源实体：是的，当然，到处都是生命。
+
+ME:Were you actually creating life by changing the energy flow of certain physical and non-physical matter? 
+
+我：你是否真的通过改变某些物质和非物质的能量流来创造生命？
 
 SE:Yes,it was great fun to see things become animate and take on a life of their own.
 
+源实体：是的，看到事物出现生机，并且开始自己的生命，是非常有趣的。
+
 ME:Did these animate objects have souls?Were they immortal as we are in our energy state? 
+
+我：这些有生命的物体有灵魂吗？他们和我们一样在处于能量状态时是不朽的吗？
 
 SE:No,these entities were only as rough forms.They did not have the grace of God in them. 
 
+源实体：不，这些存有只是很粗糙的形式，他们并不拥有神的恩宠。
+
 ME:So they lived and died? 
+
+我：他们就这样活着，然后死去吗？
 
 SE:Yes,although it is not death as you know it because they were never really alive in the first place,just thought given form. 
 
+源实体：是的，尽管不是你知道的那种死亡，因为他们从一开始就没有真正的活着，只是一种思想产生的形式而已。
+
 ME:So when did you decide to split yourself out like the Origin? 
+
+我：那你是什么时候决定像起源一样把自己分开来的呢？
 
 SE:Oh,much,much later.There were many more things that We went through and experienced before We went our separate ways for seeking knowledge about the Origin. 
 
+源实体：哦，很久很久以后，在我们经历了很多很多事情以后才决定分开，各自去寻找关于起源的知识。
+
 #### The Earth's Source Entity's Experience of a Sense of Self 
+
+**地球的源实体的自我体验**
 
 ME:So what was it like when You first noticed that you had your own "oneness"?That You were no longer part of something bigger?That You now had your own sense of self? 
 
+我：当第一次注意到你有自己有“一”的完整性时是什么感觉？你不再是更大的东西的一部分了，你现在有了自我感吗？
+
 SE:Strange.We were so used to not having the focus of attention on Ourselves,of being part of something bigger,much bigger and not being able to ascertain who or what We were,that to suddenly have Our own consciousness and know what We were like before and after the Origin separated Us out was amazing,even for Us.We had received our Own thought processes and Our own ability to reason.Seeing what We were before Our individualization was strange and a little frightening. 
+
+源实体：我们很惊讶，就当我们已经很长时间习惯于不把注意力聚焦于自己上，习惯于身为更大的一部分，无法确定我们是谁或是什么的时候，我们突然有了自己的意识，知道了从起源分离出来以前和以后我们是什么样的，这太震惊了。我们已经有了自己的思维以及推理能力。看到我们在个体化之前的样子，我们感到惊奇，甚至有点害怕。
 
 ME:So what was it like to be part of a whole without your own individuality? 
 
+我：那么，作为一个整体的一部分，没有自己的个性是什么感觉呢？
+
 SE:Strange.I don't think that you can understand the feeling in your current focus of self. 
+
+源实体：很奇特，在你现有的自我专注度下，我想你理解不了这种感受。
 
 ME:Try me! 
 
+我：挑战一下！
+
 SE:Well,it's like being able to focus on one thing rather than being focused on all things at the same time.It's like you are constrained to a point where you know that you are smaller but still part of the whole.It felt very small. 
+
+源实体：好，这就像是专注于一件事，而不是同时专注于所有事。就像你被限制在一处，你知道自己更小了，但也仍然是整体的一部分，这会让你感觉起来非常渺小。
 
 ME:I still don't get the feeling of being nothing but everything and then something but still able to access everything out of you! 
 
+我：我仍然没有体会到什么都不是但又是一切，以及，是某物但仍然能接触到身外一切事物是什么感觉？
+
 SE:You have described the transition phase perfectly.The being nothing but everything was as if We were not in existence but were in existence because We were part of the whole.When the Origin split Us off from Our/Itself,We felt a focus that coalesced Us into awareness of the focused self.The self was that part of the Origin's energy that It had decided to be "set to one side."Don't get Me wrong.We did not have what you would call "consciousness"straight away.We had to develop/evolve our own awareness over billions of years.Some of Us took longer than others.This was all part of the great experiment that the Origin was performing.
+
+源实体：你已经完美的描述了这几种过渡阶段。什么都不是但又是一切，就好像我们不存在但又存在着，因为我们是整体的一部分。当起源将我们从它自己分开时，我们感受到一个使我们汇聚进入自我觉知的焦点中，这个自我是起源的能量的一部分，但它决定独挡一面了。别误会我的意思，我们并没有直接拥有你称之为意识的东西。我们必须在数十亿年的时间里发展进化我们自己的觉知，我们中的一些花了更长的时间。这都是起源伟大实验的一部分。
 
 #### The Origin on Observing the Evolution of the Twelve Entities 
 
+**起源谈观察12个源实体的进化**
+
 I then moved my attention back to the Origin. 
+
+接着，我把注意力转移回到起源。
 
 ME:So You split Yourself into twelve parts to find out more about Your Self. 
 
+我：因此，你把自己分成12个部分来更多探索自我。
+
 O:Twelve points plus Myself,to be precise. 
+
+起源：精确的说是12份，再加上我自己。
 
 ME:Was the intention to give the twelve points intelligence straight away,or were You waiting to see what would happen? 
 
+我：你的意图是直接把智能赋予12个部分，还是你等着观察会发生什么？
+
 O:The intention was to give the others the same "start"in existence that I had experienced Myself.I wanted to see whether or not they would follow the same path.The outcome was interesting. 
+
+起源：我的本意是赋予其他源实体和我一样的“开始”存在状态，我想看看他们是否会走同样的路，结果很有趣。
 
 ME:What do You mean? 
 
+我：你的意思是？
+
 O:Well,in previous communications I have explained a little bit of what happened and even let the part that is now the Source Entity (SE)for your multiverse talk to you about what it felt,but I have not explained it all because you have not asked all of the questions. 
+
+起源：在之前的沟通中我解释过一些所发生的事情，甚至让你那个多维宇宙的源实体和你谈谈他是什么感觉。但我没有全部解释，因为你没有问。
 
 ME:O.K.,so tell me. 
 
+我：好了，那告诉我吧。
+
 O:I just let them be.The idea was to see if They would evolve Their own individuality and awareness and how they would take to awaken.I wondered how long it would take Them to realize that They were part of a bigger picture,so to speak,and whether They would want to return to the whole.I found it rather interesting from my Own perspective at first because I felt like there was more of Me that was able to think.It was like the parallel processing that you use in your computers but on a much larger scale.I will further explain this if you wish. 
+
+起源：我只是让他们做自己，我想看看他们是否会进化出自己的个性和觉知，以及他们将如何觉醒。我想知道需要多长时间他们才能意识到自己是更大蓝图的一部分。我也想知道他们是否想要回到整体。一开始我觉得这很有趣，因为我觉得会有更多的我能进行思考。这就像你在电脑中使用的并行处理，只不过范围更大。如果你愿意，我将进一步解释这一点。
 
 ME:Yes,please. 
 
+我：好的，请讲吧。
+
 O:As I said,it was interesting to see the speed at which They became aware.Some took millennia after millennia whilst others took a fraction of the time.After some millennia of being aware,One even came back to the source (Me)and found that It still retained Its individual memories of self even though It was back in the whole. It then decided to go back into self again.A couple of others even duplicated the experiment that I had done with them.Later They expanded the idea beyond what I had envisioned them capable of expanding.Your Source Entity is one of those that did, and that is why you are in existence.I am delighted that even in your restricted states, you are able to contact the Whole to some extent.It was very interesting seeing them play with their forms and awareness of selves on all the dimensional and frequency levels. 
+
+起源：正如我说的，观察他们觉醒的速度是很有趣的。有些花了万亿年又万亿年，而另一些只花了少量的时间。他们中有一个在出现觉知的万亿年之后返回到了起源中，却发现即使他回归整体，也仍然保留着对个体的记忆，接着他决定重新回到自我。还有一些甚至复制了我对他们做的实验，后来他们把这个想法扩展到我所设想的他们自身能够扩展的范围之外。你的源实体就是其中之一，这就是你存在的原因，我很高兴即使你身处限制，你也能在一定程度上连接到整体。看着他们在所有的空间和频率层级上进行自己的形态以及觉知的游戏，是件非常有趣的事情。
 
 #### The Origin on the Twelve Spherical Source Entities
 
+**起源谈12个球状源实体**
+
 ME:What did They do and what did They look like? 
+
+我：他们做了什么？他们看起来像什么？
 
 O:I will show you. 
 
+起源：我会展示给你看。
+
 I then got an image of the parts of Itself and what They were doing. 
+
+接着，我收到了它自己的部分和它们正在做的事情的影像。
 
 ME:They are spherical. 
 
+我：他们是球形的。
+
 O:Yes,all energy is spherical in physical appearance and energetic cohesion.This is consistent throughout the dimensions and frequencies. 
+
+起源：是的，所有的能量在物质形态以及能量聚合上都是球形的，所有维度和频率都是如此。
 
 I then saw more.They were literally playing with Themselves on all frequencies on all dimensions.One of Them was squashing Itself really flat and thin whilst another was extending parts of Itself into nodules with very,very thin links to them from Its main body.This reminded me of the description of what happens when we squeeze ourselves into our physical bodies,and the link is just the so-called "silver cord."This link is so small that we have very,very limited access to ourselves,so much so that we can't access our higher selves even with our extreme concentration.I then got a quick thought from the SE that I was correct,and that It was a very good comparison. 
 
+接着，我看到了更多。他们实际上是在所有维度中的所有频率上与自己玩耍。其中一个把自己压的扁平而薄，而另一个则是将自身的一部分延伸成许多结节，其间有非常非常细的链接连到主体。这让我想起了当我们挤进我们的肉体时所发生的事情，而这个链接就是所谓的“灵带”。这种连接非常细，以至于我们对本我的接触非常有限，导致即使我们极度专注也无法接通高我。我很快就从源实体得到了确认，说这是一个很好的类比。
+
 The images of what I saw in my mind's eye are illustrated below:
+
+我意识眼中看到的景象：
 
 ![图3](img/s6-019.png)
 
 ME:So how long did the new Source Entities mess around with Themselves? 
 
+我：那么，这些新的源实体和自己嬉戏了多久？
+
 O:Many,many millennia,more time than you can appreciate in your current physical state.You do not have a concept for the amount of time that they spent just being Themselves and exploring what They could do with Their energies. 
+
+起源：很多亿万年，比你目前肉体能理解的还要久。关于他们是如何做自己并探索使用自己的能量，用了多少时间，你是没有概念的。
 
 ME:Why not give me a chance?
 
+我：为什么不给我一个理解的机会呢？
+
 O:The amount of time is infinitesimally larger than the largest amount of time that your scientists have conceived.They can only think in terms of the amount of time that the area of space they call the "universe"has been in existence. 
+
+起源：所花费的时间比你们的科学家所设想的最大时间还要大无穷倍。就时间而言，他们只能基于他们称之为“宇宙”的存在范围去衡量时间的长度。
 
 ME:You mean the Big Bang? 
 
+我：你是指大爆炸？
+
 O:It wasn't a big bang.You will find this out when you start to dialogue with your Source Entity,but it is a good reference point for you. 
+
+起源：那并不是一场大爆炸，当你开始与你们的源实体对话后你就会发现这一点，但对你来说它是一个很好的参考点。
 
 ME:When did you decide to get the Source Entities together and give Them the task of experiencing everything down to the Nth degree so that You could understand Yourself more? 
 
+我：你什么时候决定把源实体集中在一起，赋予他们任务，让他们体验一切，直到第N层，以便你能更了解自己的？
+
 O:I didn't. 
+
+起源：我没有那么做。
 
 ME:What? 
 
+我：什么？
+
 O:I didn't.That was the whole point of the exercise.The exercise was to create Them and then see what happened. 
+
+起源：我没有那么做，这就是练习的全部意义。创造他们，接着看看发生了什么。
 
 Just at that point I got a quick image of one of the SEs that didn't do anything.It just sort of withered and died away stuck in some sort of limbo state. 
 
+就在那一刻，我很快的看到了一个没有做任何事情的源实体，它好似枯萎与死亡，处于某种边缘状态。
+
 O:That's interesting.I am very surprised that you picked that up.
+
+起源：很有趣，你能理解这点，我感到很惊讶。
 
 ME:I thought that all of the SEs were successful in some way or other. 
 
+我：我还以为所有的源实体在某种程度上都是成功的。
+
 O:That is correct.They were all successful. 
 
-ME:But Ijust got the image of an SE that appeared to have failed! 
+起源：不错，他们都是成功的。
+
+ME:But I just got the image of an SE that appeared to have failed! 
+
+我：但我却看到一幅好像失败了的源实体的影像。
 
 O:It didn't fail;it hasn't failed. 
 
+起源：它没有失败，它未曾失败。
+
 ME:So It managed to get out of that state? 
+
+我：那么它成功脱离那个状态了吗？
 
 O:Oh no,It's still there. 
 
+起源：哦，不，它还在那个状态中。
+
 ME:Then It has failed! 
+
+我：那它就是失败了呀。
 
 O:No,It hasn't.It merely hasn't moved on to Its next experience yet. 
 
+起源：不，它没有失败，它只是还没有进入下一个体验而已。
+
 ME:So It will move on and experience more. 
+
+我：那么它会继续前进，体验更多。
 
 O:Who knows? 
 
+起源：谁知道呢？
+
 ME:Surely You must know,You of all entities.You told me Yourself that you exist on all levels of frequency/time/dimensions/space all at the same time,so You must know. 
+
+我：当然，你肯定知道，你是一切万有。你说过，你在同一时间存在于所有层级的频率、时间、维度、空间，那么你肯定知道。
 
 O:Of course,I know,but the best part is in sometimes not knowing.That is why you were created by your Source Entity.Not knowing makes it so much more fun.
 
+起源：当然，我知道。但有时候在不知道中才有最好的部分，这就是为什么源实体创造了你，不知道使得这更有趣。
+
 ME:It makes it more frustrating in my mind! 
+
+我：但这让我的头脑感觉更沮丧！
 
 O:Maybe,but it is the achievement of doing something that you want to do without knowing what is around the next corner and succeeding against the odds that make the achievement all the more worthwhile.This is one of the things that your immortal spirit was created for,and,this is one of the most important things you are experiencing and feeding back to your Source Entity and Me.Moving forward without knowing the future with all but the very rudimentary senses available to you from a physical form is one of the hardest things that any entity can do.It is a very noble act that you are all doing to limit yourselves so much in order to enable you and the rest of your peers to progress,evolve,experience and teach Us more about Ourselves. 
 
+起源：也许吧。但面对未知前进以及冲破困难的成就使这一切更值得，这是你们的不朽灵体被创造的目的之一，也是你正在经历的最重要的要反馈给源实体和我的事情之一。仅仅靠着心中模糊的意向，朝着不确切的未来勇猛前进，这是任何存有所能做的最困难的事情。这是极崇高的行为，因为你们为了自身和同伴的进步、进化、体验以及教导我们更多关于我们自己的事，而将自己置身于如此限制当中。
+
 ME:Oh,thank you! 
+
+我：哦，谢谢你！
 
 #### The Source Entity on the Fun of Creation and Manipulation 
 
+**源实体谈创造与操控之乐趣**
+
 Later I was thinking about getting my head around this idea of being able to touch all dimensions and spaces and times simultaneously whilst thinking of the Source Entity during its first few millennia.The Source Entity decided to comment. 
+
+后来有一次，我在琢磨能同时接触到所有的维度、空间和时间的这个主意，并回味源实体在自己最初的创造过程中经历了什么的时候，源实体决定对此说两句。
 
 SE:Oh,yes,you can't believe the fun we had in those first few millennia when We realized Who and what We were.We were twisting and manipulating time/space and dimensions all over the place.
 
+源实体：是的，在最初的几千年里，当我们意识到自己是谁以及自己是什么的时候，你无法想象那种快乐。我们随时随地可以扭转和操纵任何地方的时间、空间以及维度。
+
 ME:My mind has a bit of trouble trying to visualize this. 
+
+我：我想象这些画面有点困难。
 
 SE:You will.Your ability to grasp such concepts or realities is significantly reduced whilst you are incarnate in the physical without the ability to access most of your true self. 
 
+源实体：你会做到的。但是当你处于化身肉体无法连接大部分本我的时候，掌握这些概念或实相的能力会大大降低。
+
 I then had a picture of a sphere.The sphere had many,many levels like a sphere within a sphere within a sphere etc.,etc.,until there were 10s of dimensions.I then saw that if you squeezed the sphere hard enough you could get one end to touch the other,and,at the same time all of the dimensions touched at the same point.They were all in contact with each other!!!You could travel from one dimension to another really easy;galaxies could be "transversed"easily,too. 
+
+接着，我看到一个球体的画面，这个球体有很多很多层次，就像球内部有球、球内还有球的形状，直到有10个维度。接着，我看到如果用力挤压球体，球的一端就能接触球的另一端。与此同时，所有的维度在一个点触碰在一起，它们全都联系起来了，你可以轻而易举的从一个维度穿越到另一个维度，同时你也会轻轻松松横穿星系。
 
 SE:Yes,yes,that is a good way of understanding it.Well done! 
 
+源实体：是的，是的，这是一个很好的理解方法。做的好！
+
 I then had an image of the link between the points on the same dimension and the others being a conduit to them.The picture/film I then had in my head was like traveling down a wormhole in a science fiction film. 
+
+接着，我就看到在同一维度上的点与其他维度之间有管道连接的图像。那是我脑海中的画面，就像是在科幻电影里的虫洞中旅行一样。
 
 SE:Ha,ha,ha,that is just fanciful thinking.The actuality is much more boring,and the travel is instantaneous.There is no travel down a colorful "hole."That is just artistic licence to fill a few film minutes. 
 
+源实体：那只是人类丰富的想象罢了，实际的情况要无聊的多。穿越维度的旅行是即时发生的，并没有什么色彩缤纷的洞供你旅行。那些仅仅是用来凑时长的艺术电影效果而已。
+
 ME:Oh.
+
+我：哦。
 
 SE:Don't sound so "put out."You do it all of the time when you are back in spirit.You are free to travel the whole of the Origin and the fragments of It,Me Us,the 12. 
 
+源实体：不要那么沮丧。当你回到灵体状态，对你来说这都是家常便饭，你可以自由的在起源的整体及其各部分，及我、我们和12个源实体之间旅行。
+
 ME:So how do I do it? 
+
+我：那我该怎么做呢？
 
 SE:With ease. 
 
+源实体：放松。
+
 #### The Source Entity on the Loss of Connectedness in the Lower Dimensions 
+
+**源实体谈在较低维度中的失联**
 
 Later dialogue gave further clarification on the loss of connectedness with the total being when probing into the lower dimensions. 
 
+后来的对话进一步阐明了进入低维度时与整体失联的问题。
+
 SE:We found the lower dimensions very interesting. 
+
+源实体：我们发现较低的维度非常有趣。
 
 ME:Why? 
 
+我：为什么？
+
 SE:Because when We probed into the lower dimensions,We felt that We had lost part of Ourselves.It was like your leg going numb.I had to literally pull out that part of Myself that was protruding into the lower dimension as I could not communicate with it. 
+
+源实体：因为当我们探索低维度时，我感到失去了自我的一部分，就好像腿变的麻木。因为我不能与它交流，我必须把探索低维度的那一部分拉出来。
 
 ME:You couldn't communicate with it? 
 
+我：他不能和它交流吗？
+
 SE:No,I could talk to it.I could hear it,but it could not hear me.And when I left that part of Me in the lower dimensions for a long time,say a millennia,it developed its own personality as it felt that it was cut off from its self.It did not remember being part of a whole and had to fend for itself in the energies of the lower levels the best it could.I/ We found this an interesting learning experience as I have previously told you. 
+
+源实体：不，我可以跟它说话，我能听到它，但它听不见我的声音。我把那一部分我留在较低维度中很长很长的一段时间，它发展出了自己的人格个性，因为它觉得与自我隔绝了。它并不记得自己是整体的一部分，并且必须在较低层能量中尽最大努力照顾自己。正如我之前告诉你的，我们觉得这是一个有趣的学习经历。
 
 I then got an image in my head of how the Source Entity looked as It was delving into the lower dimensional levels.It was like a blob of paint dripping ever lower and lower and then the thickness of the paint between the blob and the major part of It became thinner and thinner so that It was hardly discernable. 
 
+接着，我脑海里出现一幅图像。源实体在深入更低维度时的样子看起来就像一滴浓稠的油漆滴了下来。随着低落的越来越低，这滴油漆与油桶之间连接的拉丝越来越细，以至于快分辨不出来了。
+
 SE:We experimented with this several times and found that We could actually protect that part that was projected into the lower levels by placing an intermediary dimensional field around it.That allowed the protrusion to both experience the lower levels and be in direct communication with the rest of Me and the Origin.A similar method of using differing energy frequencies surrounding their crafts has been developed mechanically recently by some of the beings that live in other dimensions. 
+
+源实体：我们对此做了几次实验，发现可以通过在它周围增加一个中间维度场域来保护被投射到较低层级的部分。这使得进入低频的那部分既能在较低层级中体验，又能与我的其他部分以及起源进行直接的交流。最近在其他维度生活的一些存有也发展出了一个类似的方法，利用不同能量频率来包裹他们的飞船。
 
 ME:So how did You make the change from delving into the lower dimensions/frequencies Yourselves and breaking Yourself up into smaller parts,Us? 
 
+我：那么你是如何从通过自己深入较低维度或频率，改变成将自己分为更小的部分来体验的呢？
+
 SE:Once We had all tried this a few million times,We decided to experiment with differing ways to investigate Ourselves.My way was to replicate the segmentation that the Origin had done and then break it down even further into billions upon billions of little Mes.I thought that it would be interesting to see what would happen if They were left to Their own devices,especially if They were allowed to project Themselves into the lower dimensions.
 
+源实体：当我们把这些都尝试了几百万次之后，我们决定用不同的方法来研究我们自己。我的方法是重复起源所做的事，甚至更加细分，细分成数十亿，再细分成数十亿的更小的我。我觉得让他们自己做主会很有趣，尤其是允许他们将自己投射到更低的维度当中的话。
+
 Specifically,I was interested in knowing the answers to these queries: 
+
+具体来说，我对以下问题的答案比较感兴趣：
 
 - 1.How long would it take them to get back to the higher dimensions? 
 - 2.How long would it take them to be in contact with the higher dimensions whilst still in the lower? 
 - 3.What diversity of experiences would they have? 
 - 4.What could they pass on to Us and the Origin about Itself as a result of their experiences? 
 
+- 1.他们需要多长时间才能回到更高的维度？
+- 2.他们需要多长时间才能身处较低维度的同时联系到更高维度？
+- 3.他们会有什么样的多样化体验？
+- 4.做为他们体验的结果，会给我们以及起源带来什么样的收获？
+
 We were so very interested in the way that different densities of matter acted depending on which dimension or frequency they were projected into. 
+
+我们对不同密度物质因所投射的维度或频率不同而表现不同这件事也十分感兴趣。
 
 ME:What do you mean,how they acted? 
 
+我：这是什么意思？他们是怎么表现的？
+
 SE:The lower the dimension or frequency,the more they coalesced. 
+
+源实体：维度或频率越低，他们聚合地越紧密。
 
 ME:They made planets and suns,of course. 
 
+我：当然，是他们构成了行星和太阳。
+
 SE:Yes,but it was new to us.We were used to seeing things on the higher frequencies.As we looked into the lower frequencies and dimensions,things responded differently. Things "came together."
+
+源实体：是的，但这点对我们来说很新鲜。我们习惯于从更高频率层去观察事物。当我们研究低频率和维度时，事物的反应是不同的。事物“在一起”。
 
 #### The Source Entity on Coalescence in the Lower Frequencies and the Creation of Humankind 
 
-ME:We understand this as gravity,an attractive force caused by the mass ofone particle or object relative to another. 
+**源实体谈低频中的聚合物及人类的诞生**
+
+ME:We understand this as gravity,an attractive force caused by the mass of one particle or object relative to another. 
+
+我：我们把它理解为引力，是一种由一个粒子或物体的质量相对于另一个物体的质量的吸引的力量。
 
 SE:Mmm,this is not the case though;gravity is not an attractive force in its own right. 
 
+源实体：事实并非如此，引力本身并不是一种吸引力。
+
 ME:So what causes the attraction of one mass to another? 
+
+我：那么是什么引起了一个质量对另一个质量的吸引？
 
 SE:It's all to do with the distortion in local space.In all dimensions and frequencies,this occurs but to differing levels.This creates a sort of curved space around the object. Let's use three dimensions for this example.Once another object is caught in the curved space,its direction of movement gets changed due the intersection of the line of movement with the amount of space curved.Speed is also important because if the speed of the object intersecting the curved space is slow enough,it will be distracted enough to get closer and closer to the object distorting the local space.If the object is faster than that required to affect the line of movement,it will either be un-affected or its direction will be changed but not stopped.Your astrophysicists know this as the "sling shot effect.”
 
+源实体：这和局部空间的扭曲有关。在所有的维度和频率中都会发生，只是程度不同。这在物体周围创造了一种扭曲空间，我们用三维来说明一下这个例子。一旦扭曲空间中捕获了另一个物体，它的运动方向会因运动路线和空间曲线的相交而改变。速度也很重要，因为如果物体穿越扭曲空间的速度够慢，它就会转向，越来越接近那个扭曲了局部空间的物体。如果物体的速度够快，超过影响运动路线所需的速度，则不会受到影响。或者它会有所转向，但不会停止。这就是你们天体物理学家们所说的抛射效应。
+
 ME:So this is due to curved space rather than attraction due to mass. 
+
+我：那么这是因为扭曲空间，而不是质量引起引力。
 
 SE:Yes,and you can prove this by performing a simple experiment in two dimensions.
 
+源实体：是的，你可以通过在二维中做一个简单的实验来证明这一点。
+
 ME:You can prove this in two dimensions? 
+
+我：你可以用二维来证明这个？
 
 SE:Yes,it's simple.All you need is an area of water like a large bucket or a pool.Put one large ball in filled with some water to increase the weight(mass)and a smaller ball in at the same time.With the water perfectly still,the local area around the large ball will be distorted by the mass of the ball.This locally curves the surface of the water(2D). The curve is more severe the closer to the ball you get and less severe the further away you get.But nevertheless the curve in the surface(this represents space)is enough to change the direction of movement of the smaller ball,which (if the speed of the small ball is right)is attracted to the larger ball.This is attraction due to mass curving space and is not due to attraction due to size or mass.Attraction due to curved space is gravity not attractivity due to mass.This is what we found to be interesting. 
 
+源实体：可以证明，这很简单。你需要一个水面，一个大水桶或一个游泳池都可以。将一个大球放入水中，大球中放些水来增加重量（质量），再放入一个较小的球。水面完全静止时，大球周围的水面会因球的质量而扭曲，这时水平面局部呈现为扭曲的表面。距离球越近，水面扭曲就会越明显，越远则越不明显。但无论如何，水面的扭曲，这代表空间足以改变小球运动的方向。如果小球的速度不高，它就会被大球所吸引，这是由质量引起空间扭曲产生的，而不是由于球的大小或质量引起的引力。重力是扭曲空间产生的引力，而非质量产生的引力。这是我们发现的有趣之处。
+
 ME:So space must be "locally curved"all over the place. 
+
+我：那么，空间里一定到处都是“局部扭曲”。
 
 SE:Yes,and small objects can curve space more than some larger objects. 
 
+源实体：是的，小的物体比一些较大的物体更能扭曲空间。 
+
 ME:Yes,I think we know that. 
+
+我：是的，我们知道这一点。
 
 SE:We were particularly interested in the way that molecules of the same type started to group together. 
 
+源实体：我们对同一类型的分子开始聚集在一起的方式特别感兴趣。
+
 ME:How does that happen?
+
+我：它们是怎么开始聚集的？
 
 SE:Each molecule has a "key,"so to speak,that only allows molecules of the same type to join together.This is well known by your chemical engineers,but this was the first time We saw this since it is a physical level phenomena.We saw this with all sorts of molecules,argon,neon,krypton,gold,iridium,etc.,including thousands upon thousands of other materials in solid,semi-solid,and gas forms that you have not yet discovered.We also found that we could collect these "same"molecules ourselves by applying Our own "influence and intention." 
 
+源实体：每个分子都有一个键，也就是说，它只允许相同类型的分子连接在一起。这是你们的化学工程师们所熟知的。但这是我们第一次看到这些，因为它是物质现象。我们在各种分子里观察到这种现象，氩、氖、氪、金、铱，等等，包括成千上万的其他固态、半固态和气态的你们没发现的分子。我们还发现可以通过运用我们自己的影响力和意愿来收集这些相同的分子。
+
 ME:This must have been quite interesting. 
+
+我：这一定很有趣。
 
 SE:Of course.Don't forget that We were only just "aware"of who We were ourselves since the Origin had only separated Itself into Us plus Itself recently.So all this was new as was Our mission to understand more of Ourselves and Our environment.As the planets started to form from all of the molecules collecting together,which included those "hybrid"molecules that had keys to more than one molecule and,therefore, allowed bigger molecular constructs to grow (hence the planets and star systems),We decided that We needed to experience what it was like to exist on that dimensional level in its entirety. 
 
+源实体：当然。别忘了，因为起源将自己分裂成我们的时间并不长，我们才觉知到自己是谁。这一切都是崭新的，因为了解我们自己与环境就是我们的使命。当所有分子聚集在一起，包括那些有多个分子键的杂合分子开始形成行星的时候，就形成了更大的分子结构，比如以后形成的行星和恒星系统。我们决定要全面体验在源实体的那个维度层级上存在的感觉。 
+
 ME:So how did You do that? 
+
+我：那你是怎么做到的呢？
 
 SE:We had to develop something that would both house a part of the energetic side of Us and allow Us to experience the physical dimension exactly as it was.This needed to exist long enough for Us to make the transition into this dimension worthwhile.It had to be self-sustaining,repairing,and able to have all the possible sensory opportunities that were available. 
 
+源实体：我们必须开发出某种东西，既容纳部分能量层面的我们，又能允许我们切实体验物质维度。它需要存在足够长的时间，以便我们可以转换到这个维度。它必须能够自我维持、自我修复，并且具有所有可能的感官。
+
 ME:Are you talking about creating human beings? 
+
+我：你是在说创造人类吗？
 
 SE:No,not at first.We had simpler vehicles at first,and it was only as We became more adept at the design process that We eventually got to the point where the vehicle is as you are currently experiencing. 
 
+源实体：不，起初并不是这样。一开始我们有更简单的载具，只有当我们更加熟悉载具的设计过程以后，最终才达到你现在熟悉的这一步。
+
 ME:Does this include animals and plants? 
 
-SE:And the mineral world as well.We very quickly discovered that We needed to have a vehicle that could be more flexible and able to experience the dimension that we had projected ourselves into.This required a lot of thought and development over a long period of time. 
+我：包括动物和植物吗？ 
+
+SE:And the mineral world as well.We very quickly discovered that We needed to have a vehicle that could be more flexible and able to experience the dimension that we had projected ourselves into.This required a lot of thought and development over a long period of time.
+
+源实体：还有矿物世界。我们很快发现需要有一种更灵活的载具，才能更好的体验我们自己投射进入的那个维度，这需要很长一段时间的思考和开发。
 
 ME:So what were You developing? 
 
+我：那么你在开发什么呢？
+
 SE:A vehicle that,as I stated previously,was self-sustaining and self-repairing.We later found out that the vehicle must be able to take on more of the spirit to be useful in this dimension and that needed to be of a certain design to be useful.This meant that We had to design something bigger.Also,the vehicle We made was dependent on this dimension so much that it couldn't survive on "Spiritual"Energy on its own.It had to be able to process energy from the most basic level to survive long enough to be useful.
+
+源实体：一个载具，正如我之前所说的，可以自我维持、自我修复。我们后来发现，载具一定要能够在这一维度承载更多的灵体能量，并且需要有一种特别的设计来正常运转，这意味着载具必须设计的更大。同时，我们制作的这个载具依赖于这个维度，不能只依靠自我的灵性能量存活，它必须能够处理基础能量，以便存活足够长的时间，这才能有用处。
 
 ME:You mean eating plants,etc. 
 
+我：你的意思是只吃植物等。
+
 SE:Exactly,We changed the design of the vehicle so that it took what it could from the energy of the spirit world and augmented it with the energy that could be taken from the dimension We were working in,thus making the vehicle dependent on two energy sources:one that was readily available in the dimension it operated in and the other that it could attract from receptors that protruded into the lowest of the spiritual dimensions. 
+
+源实体：没错，我们改变了载具的设计，这样它就能在灵界获得能量，同时也可以吸收来自所处维度的能量来增强自己。这样载具就可以依靠两种能量，一种是它所处维度容易获得的能量，另一种能量可以通过深入到最低灵性维度中的受体来提取。
 
 ME:Chakras? 
 
+我：脉轮？
+
 SE:Yes,that is your description/name for them.As with the physical vehicle,We needed to change the design of these to fine tune them to work the most efficiently.You have two energy systems operating within the human body.One works with the cardiac system of distributing the denser physically-based energy that is distributed by the blood.This is primarily to feed the physical part of the vehicle.The other is an energy-based cardiac system(for want of a better word)to distribute the "spiritual"higher dimensional energy that is required by the other interfacing bodies that you have. To allow the communication(albeit limited)between your real selves and that part of you that is projected into this small physical body.There are also other smaller distribution points for the energy system that you call "meridians."These are smaller chakras and are mainly used to act as distribution points to the other areas of the spiritual bodies that need energy.These smaller chakras are important as they can be used to transmit energy away from the body as well as distribute it around the body.Hence,you can use this energy to do other external things such as healing, transmutation,transmigration of objects,psychometry,and energy sensing,to name just a few things. 
+
+源实体：是的，那是你对他们的描述。在物质载具上，我们需要改变它们的设计，精准调节它们以便使其最高效的运作。人体内部有两种能量系统。一种是与心脏系统配合，随着血液循环向人体输送较稠密的基于物质的能量，主要为了满足载具的物质需求部分。另一种是基于能量的心脏系统（也许需要一个更好的词），向身体分配所需要的灵性的较高维度能量，让你的本我与投射进这个小物质身体的那部分自我进行交流，尽管这种交流是有限的。还有其他更小能量分布点，你们称他们为穴位，这些是较小的脉轮，主要作为向灵体其他区域分配能量的节点。这些小脉轮非常重要，因为它们既可以将能量分布到全身，也可以将能量从身体传递出去。因此你可以利用这些能量去做一些其他的事情，例如疗愈、转化、物体的转移、心灵占卜和能量感知等类似的事情。
 
 ME:So you are talking about humankind. 
 
+我：那么你说的是人类。
+
 SE:Of course,but the first humans were nowhere near what you would call "human." 
+
+源实体：当然，但第一批人类远不像你所说的“人类”。
 
 ME:What do you mean-different? 
 
+我：你是什么意思？有不同吗？ 
+
 SE:We have modified the size,shape and complexity over the ages to account for the changes in the dimensional structure that you exist within. 
+
+源实体：在过去的一些年中，为了适应所处维度的结构的变化，我们已经修正了相关的大小、形体以及复杂度。 
 
 ME:So what are the auric levels for? 
 
+我：那么人体辉光层是用来做什么的呢？
+
 SE:They are there to act as an interface between the reducing levels of consciousness and communication with the true self.We had to gradually scale down the interaction between the projected self and the true self at different levels of frequency so that a level of translation could occur between levels that could be recognizable between the higher and lower level.It's a sort of reduction in the available language going from the use of six words that basically mean the same thing but have a different emphasis, down to one word that can be used to describe all of them in a general sense.
+
+源实体：接口作用，逐级下降的各意识层级与本我交流的一个接口。在不同频率层级上，我们必须逐渐减少投射自我与本我之间的相互作用。只有这样，高低层级之间才会有可分辨的层级过渡。这类似于减少语言中可用的词语，从使用各有侧重的六个词来表达同一个意思，变成使用一个词来表达这六个词的一般含义。 
 
 ME:So the lower down the vibration levels,the more general the level of communication used to act as an interface between the levels. 
 
+我：那么振动水平越低，层级之间的交流接口就越具有一般性。
+
 SE:Yes,that is correct. 
+
+源实体：是的，没错。
 
 ME:But wouldn't that mean that there was a lot of difficulty communicating between the 7th and 1st levels? 
 
+我：但是这意味着在第7层级与第1层级之间交流会存在很多困难。
+
 SE:Of course,and that is why We have such a poor level of explanation when we use "mediums"to channel information to you. 
+
+源实体：当然，这就是为什么我们在使用“媒介”向你传递信息的时候会有那么糟糕的解释。
 
 ME:Does this also happen from an energetic point of view? 
 
+我：从能量视角来看，也是这样吗？
+
 SE:Yes,of course.You have heard people say that energy is finer the higher up the levels you go? 
+
+源实体：是的，当然。你听过有人说层级越高，能量越精细吗？
 
 ME:Yes. 
 
+我：是的。
+
 SE:Well,that is because the energy is more narrow band.As you go down the levels,the frequencies are not available,so We have to use one lower frequency to translate a number of higher frequencies.For example,on the 7th level We may have ten frequency bands that are reduced down to 1 on the 6th.We may then get a further reduction from ten frequency bands down to one from the 6th to the 5th.With this continuing down to the 1st level (the physical),you can understand that the frequencies are pretty coarse at this level because the resolution of the frequencies has been reduced by a factor of 10-7,or to put it into context,we have gone from 10,000,000 frequencies that can be used down to 1.It's hardly surprising that you can't communicate with yourself if you only have access to 1 in 10,000,000 frequency channels!Especially if that one channel is supposed to represent the functions of all the other 10,000,000 channels!
+
+源实体：这是因为能量的频带更窄。当层级降低时，很多频率就消失了，所以我们必须用一个低频率来翻译和表达很多更高的频率。例如，在第7级上我们可能有10个频带，但在第6层级时频带有可能减少到1个。同样，从第6级的10个到第5级减少成1个，如此减少到第1级（物质层级）。你可以理解这时的频率带已经很粗了，因为分辨率已经降低了10的7次方。换句话说，由1000万个频率减少到了1个，所以不能和自己沟通就没什么奇怪的了。毕竟在1000万个频道当中，你只能连接到1个，尤其是这1个通道还用来代表所有1000万个通道。
+
 
 ### Chapter 7 - The Source Entity on Creating Its Universes 
 
