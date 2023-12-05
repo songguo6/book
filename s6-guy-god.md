@@ -4,7 +4,7 @@
 
 **by Guy Steven Needler**
 
-**中文版：《源头简史》**
+**《源头简史》**
 
 **作者：盖伊·斯蒂文·尼德勒**
 
@@ -3228,221 +3228,439 @@ SE:Well,that is because the energy is more narrow band.As you go down the levels
 
 ### Chapter 7 - The Source Entity on Creating Its Universes 
 
+**源实体谈宇宙创生**
+
 #### The Mirroring Effects of Creating in the Physical 
+
+**物质创造中的镜像效应**
 
 A later meditation had me going back to the time that the Origin's children,the Source Entities,were looking at the mirroring effects of producing a physical environment.In particular,I was interested in communicating with the Source Entity that had created our universe.The others,I decided,would wait until I had enough material to dedicate a sizeable portion of the book I was now sure I was writing. 
 
+后来的冥想中，我回到了这样一个时期，起源的孩子（即源实体）正在研究生成物质环境的镜像效应。尤其是我对与创造本宇宙的源实体交流十分感兴趣，至于其他的源实体，我决定等有足够的素材时，再将其写入本书的某一部分。
+
 We talked further of the birth and experimentations with the energies that It had created as part of Its experiment in trying to understand what It and the Origin was. 
+
+我们进一步讨论了为了探索其自身与起源所做的创生与能量实验。
 
 SE:The lower the vibrations,the more dense the material I was observing and creating. 
 
+源实体：频率越低，我观察和创造的物质就越稠密。 
+
 ME:You were creating on the lower levels as well? 
+
+我：你也在较低层级上创造吗？
 
 SE:Of course.It was more cumbersome but nevertheless interesting.
 
+源实体：那是自然。它虽然更麻烦，但也很有趣。
+
 ME:Why was it interesting? 
+
+我：为什么有趣？ 
 
 SE:There were things happening as a result of my creating differing physical dimensions that I had not expected.I would have expected them had I given Myself the time to look into the right level of the time line. 
 
+源实体：因为我创造了不同的物质维度，而发生了一些事情是我未曾预料到的。我如果事先进入正确的时间线去查看，是应该能预料到的。 
+
 ME:I thought you didn't use the term "time." 
+
+我：我以为你不会使用“时间”这个词。
 
 SE:I do it for you.In reality it was that I didn't focus my attention on the events that would have been completed had I thought about it,i.e.,I wanted to experience what you call "wonder,"the wonder of not knowing.This is why all of you queue up to incarnate in the physical planes for now.You desire to experience the wonder of achieving things without knowing what is going to happen.What can happen if I change my mind, and what will ultimately happen?I simply didn't focus on the after part of the event because I was too interested in what was happening. 
 
+源实体：我是为了你才这么说的。事实上应该说是我没有把注意力集中在那些我以为该完成的事情上，我想体验你所谓的惊奇，那种未知的惊奇。这就是为什么你们现在都要争先恐后等待转世的原因，你们渴望体验惊奇，那种在未知中达成目标的成就感。如果我改变主意会如何？最终又会发生什么？因为我对正在发生的事情太感兴趣了，就没有把焦点放在事件的后半部分。 
+
 ME:So tell me,what was happening that got you so interested? 
+
+我：那么请告诉我吧，发生了什么事情，让你如此感兴趣？
 
 SE:I noticed that as I created on the macro level,this creation was reproduced on the micro and sub-micro levels. 
 
+源实体：我注意到，当我在宏观层面上创造时，这种创造也会重现于微观以及亚微观层面。
+
 ME:What!You mean that everything was duplicated?
+
+我：什么？你是说所有的东西都是复制而来的吗？
 
 SE:Yes.It was like a small universe was being created every time the quantum level was such that this could take place. 
 
+源实体：是的，这和每次量子层级发生变化时会创造出小宇宙是一样的道理。
+
 ME:Some of our scientists believe that once you get beyond the level below the quark level,the energy that makes up the larger objects of the quark components is so fine that it is made up of objects so small that they effectively could be classed as a universe trapped in the sphere that makes up the quark. 
+
+我：一些科学家认为，一旦你超越了比夸克级还细微的层级，构成这些的能量是如此细微，其构成部分非常小，看起来就像夸克内部的一个宇宙。
 
 SE:Well done.This is not too far from reality on the physical planes.These smaller universes also exist in other dimensions,and it was this that I found interesting.What was really interesting was that the duplication went right down to the point where physical matter met with the first of the dimensions that are higher than this one,the“third”as you call it. 
 
+源实体：没错，在物质层面这一事实相去不远。这些较小的宇宙也存在于其他维度中，这就是我觉得有趣的地方。更有趣的是这种复制的情况一直向下，到达物质与比当前维度高一级的第一个维度相遇的地方，也就是你们所说的三维。 
+
 ME:So how many times did this reproduction occur? 
+
+我：那么这个重复复制的过程会发生几次？
 
 SE:Three times. 
 
+源实体：三次。
+
 ME:Did you find life on these levels the same as life on this level? 
+
+我：这些层级中的生命与我们这个层级的生命一样吗？
 
 SE:No.Don't forget that all bio life has been created by Me and some of My helpers,the first souls that I created. 
 
+源实体：不。别忘了，所有的生物生命都是由我以及我的一些协助者，我创造的第一批灵魂所创造的。
+
 ME:So they are barren of life then?
+
+我： 那么他们是无生命的吗？
 
 SE:Not quite.There is energy given form but nothing to the level of complexity that is available at this level.It is simply energy that has coalesced and is attracted to other energies.You might call them "clouds of energy." 
 
+源实体：不完全是。是一种赋能形态，但并未达到现在的复杂程度。它仅是一种聚合的简单能量形式，并且会吸引其他能量，你可以称之为“能量云”。
+
 #### Lower Energy Beings(Animals) 
+
+**较低等级能量存有（动物）**
 
 ME:I mentioned life on/in the micro mirrored levels of our universe,and you said that it was energy given form.But aren't we energy given form? 
 
+我：我提到了存在于宇宙微观镜像层级中的生命，你说它们是一种赋能形态，但我们难道不也是一种赋能形态吗？
+
 SE:Yes,of course,but the major difference is that you are energy given form and intelligence in a more dramatic sort of way,for you are all smaller parts of Me and because of this, you have intelligence.I have followed that which the Origin did when He created Me and My 11 other counterparts in so much as I have created a universe and decided to populate it with trillions of smaller Mes.To do this,I gave up over half of my bulk and divided it until each part was at the lowest level that it could be before it stopped being part of me and the Origin. 
+
+源实体：是的，当然是。但主要的区别在于你们在某程度上更具智能，因为你们是我较小的一部分，因此你有智能。自从起源创造了我以及其他11个部分后，我就开始模仿起源所做的事情。我创造了一个宇宙，并且决定用数十亿的微小的我来作为居民。为了做到这一点，我放弃了自己的大半部分，将其分割，直到最小的层面。小到如果再分割它，就不再是我和起源的一部分为止。
 
 ME:So there is a level lower than us? 
 
+我：还有比我们层级更低的层级？
+
 SE:Yes,the spirit energy of animals and trees and rocks are successively lower levels of spirit than you are.They,therefore,have lesser abilities. 
+
+源实体：有的，动物、树木和岩石的灵体层面比你们要低，因此它们的能力较弱。
 
 ME:Is it possible for these lower energy level spirits to cross over into our levels?
 
+我：这些较低能量的灵体是否有可能进入到我们的层级水平？
+
 SE:Yes,but only in extreme circumstances where there has been a lot of energy given by a higher energy level spirit to an individual lower level energy for a protracted period. Since some of the entities on Earth are gifts to you to learn how to cherish and act in selflessness,some of these are also allowed to turn into a physical vehicle.Your dogs and cats are examples of this. 
+
+源实体：可以，但只有在极端的情况下会发生，也就是某个高层级能量体灵体在一段时间期内持续给予某个低层级很多能量。因为地球上的一些存有是送给你们的礼物，为的是让你们学会珍惜与无私。其中一些存有已经被允许转化成为物质载具，比如你的狗和猫就是这样的情况。 
 
 ME:So in this instance,if a particular energy has been given the ability to absorb this higher energy on a protracted and consistent basis,then it has the ability to cross over to our level and become one with You? 
 
+我：那么在这种情况中，如果某个特殊的能量体持续吸收来自高层级的能量，那它会有可能跨越我们的层级并与你合为一体吗？ 
+
 SE:Again,yes.But I say they are also one with Me but at a residual level rather than micro level.They simply don't have enough bulk,so they coalesce together to experience Me/ you and the rest of the higher energies in order to try to increase their bulk. 
+
+源实体：再次肯定，是的。它们与我是一体的，但是在一种残余层级并非是微观层级，它们的知觉内容没那么多。因此，它们聚合在一起去体验我/你以及其他较高层级的能量体，以尝试增加它们的知觉内容。
 
 ME:Is this where the theory of animals having group souls comes from? 
 
+我：这就是动物具有集体灵魂理论的由来吗？ 
+
 SE:Yes,and the coalition sends out many tendrils at a time to allow those tendrils to be placed in physical vessels to maximize their opportunities and to experience your energy when you are in a position of rapid evolutionary opportunity,i.e.,when you are incarnate. 
+
+源实体：是的，当处于能获得高速进化机会的时候，例如你转世的时期，这种联合体会释放出很多触须进入物质载具，最大化它们体验你们的能量的机会。 
 
 ME:So does the whole coalition cross over to our level,or is it just the tendril? 
 
+我：那么是它们的整个联合体跨越了我们的层级，还是仅仅是那些触须呢？ 
+
 SE:Generally it is the whole but in even rarer cases the tendril can also gather its own bulk and over time can cross over on its own.Your Sooty (our black cat)is one such tendril that is about to do so,and it has only been possible in this life. 
+
+源实体：通常情况下是整个联合体，但在更罕见的情况下，触须也能聚合自己的觉知内容，随着时间的推移，能自行跨越到高能量层级。你家的小猫就是打算这样做的一个触须，并且在今世就有可能完成。
 
 #### The Further Development of the Universes,Dimensions,and Frequencies 
 
+**宇宙、维度、频率的进一步发展**
+
 In another meditation I asked about the start of the development of the universe that our Source Entity controls for its own evolution.I wished to learn a bit more about this. 
+
+在另一个冥想中，我问了一些有关本宇宙创生之初的问题，我希望能更多地了解这些方面的信息。
 
 ME:So at what point did You decide to create Your own universe(s)to aid in Your evolution? 
 
+我：那么，你在什么时候决定创造自己的宇宙群来帮助自己进化的呢？
+
 SE:When it was apparent that everything I could learn from being in the same space,the Origin needed my own input to allow further progression. 
+
+源实体：当发现这样做可以学习到的一切，以及起源需要我为协助其进化做出贡献时。
 
 ME:How did you decide that? 
 
+我：你是怎么决定的？
+
 SE:When I and the other eleven entities that the Origin had created had explored all that They/We could in the environment where We found Ourselves.We were confined to all the dimensions and frequencies that were available to Us as part of the Origin but needed to seek other stimulus to fulfil the task that the Origin had placed upon Us. 
+
+源实体：当我和其他11个源实体已经探索了我们现有环境的一切，我们受限于起源所有的维度和频率，我们要寻求其他刺激来完成起源所赋予我们的任务。
 
 ME:Can you remind me on what that was? 
 
+我：你能提醒我一下那是什么吗？
+
 SE:To learn as much about Myself so that through me the Origin could learn about Itself faster and in more detail than It would have on Its own.
+
+源实体：尽可能多的了解自我，以便起源可以通过我能更快与更细致的了解他自己。
 
 ME:O.K.,so let's continue with your story. 
 
+我：好的，请继续讲。
+
 SE:As part of the work that I had done with the other eleven SEs,I had established the number of dimensions that I wished to explore and the subsequent number of frequencies within each dimension. 
+
+源实体：作为我和其他11个源实体所做工作的一部分，我已经确定了想要探索的维度数量，以及每个维度中频率的数量。
 
 ME:Yes,I remember talking about the octaves of dimensions/frequencies. 
 
+我：是的，我记得讨论过维度/频率的八度。
+
 SE:So with the experience that I had established by experimenting,I decided that I could evolve/learn the fastest by creating a number of universes and dimensions that allowed a duplicate of what the Origin was while also being contained within the Origin. 
+
+源实体：因此，根据我从实验中得到的经验，我决定这样才能最快的学习/进化，即创造一些宇宙和维度，既复制了起源，又包含于起源内部。
 
 ME:I get a picture of a sort of bubble within a bubble. 
 
+我：我想象到一幅泡中有泡的图片。
+
 SE:Yes,that is correct and all that happens within my bubble does not affect what happens in the Origin's bubble. 
+
+源实体：是的，没错，在我的气泡中发生的一切不会对起源气泡中所发生的事情造成影响。
 
 ME:So you are saying that the evolutionary opportunities were contained within your bubble and that they would not be experienced by the Origin. 
 
+我：你是说一些进化机遇只存在于你的气泡内，起源不会体验到这些机遇。
+
 SE:The Origin experiences all.It is just that what the Origin does will not affect what is in My bubble if I think it will affect My experiment. 
+
+源实体：起源体验一切。只是如果我认为会影响我的实验的话，起源的所做不会影响到我的气泡。
 
 ME:So how does that work?I am in contact with the Origin at some stage,so I must be influenced by the Origin,which means that there is a hole in your bubble/filter process. 
 
+我：这是怎么做到的呢？我在某个阶段接触到起源，因此我肯定受到起源的影响，这是不是意味着你的泡泡/过滤器中存在漏洞？
+
 SE:Not so.I have allowed certain levels of communication to be available to parts of Me that have reached certain stages of their own evolution. 
+
+源实体：不是这样的。当我的某些部分进化到一定阶段，我允许某种程度的交流。
 
 ME:So the more I evolve,the more access to the Origin I get. 
 
+我：所以我越进化就越接近起源。
+
 SE:Whilst you are incarnate,and,yes,of course,you have access to the Origin through being in your energy state.But again this is limited to the level of evolution you have achieved. 
+
+源实体：当你在转世化身中，当然是的。你在能量状态中已经连接过起源，但再次的，这受限于你个人所达到的进化层级。
 
 ME:Hang on!This all seems a little contradictory.How can you have a bubble that is separate from the Origin but allows things to happen within it without being influenced by the Origin and yet still be in contact with it? 
 
+我：等等，这似乎有点矛盾。你有一个与起源分离的气泡，事情可以在其中发生却又不受起源影响，并且还与起源保持着连接。这是怎么做到的呢？
+
 SE:Consider the levels of access that you are allowed when working with your computer. Some parts you have complete access to because you have administrator rights,but others where you don't have such rights,you can only affect(or manipulate)certain parts. 
+
+源实体：想象一下，使用电脑时允许访问权限的级别。有些部分你完全可以访问，因为你拥有管理员权限。但是有些地方你没有这样的权限，只能影响或控制其中某些部分而已。
 
 ME:So you are saying that access to the Origin is filtered out to those entities,spirits,and souls that have certain rights? 
 
+我：你是说那些能够接近起源的某些存有、灵体、灵魂是被筛选出来的，他们有某些权限？
+
 SE:Yes,and the level of authority is based upon the level of evolution you have achieved.
+
+源实体：是的，权限级别的高低取决于你达到的进化层级。 
 
 ME:But I thought that all spirits have access to you and the Origin? 
 
+我：我还以为所有的灵都能接触到你和起源？
+
 SE:They do,but the level at which they can gain full access is entirely up to them and how well they are working on their evolution.Take yourself and the conversation we are having. 
+
+源实体：是这样，但是他们获得完全访问权限的程度完全取决于他们自己，以及他们在进化过程中的工作。比如刚才提到的你。
 
 ME:I also have contact with the Origin. 
 
+我：我也与起源有连接。
+
 SE:Yes,taking yourself as an example,you must have reached a certain level of evolution to be able to be having this dialogue.You have reached a point where,even in your physical incarnate state you are aware of something else going on and have decided to dedicate some time to go inwards to the point where you can contact "THE ALL"that is the Origin and all that is part of It.In this instance I am part of it as well,and I have created a series of universes to enable me to evolve further. 
+
+源实体：是的，以你自己为例，你必须达到一定的进化水平才能进行类似这样的谈话。你已经达到了这个阶段，即使你在肉体化身状态也能意识到其他正在发生的事情，并且决定花一些时间向内探索去接触起源（一切万有）以及源实体。我也是这个例子中的一部分，为了使我能够进一步进化，我创造了一系列的宇宙。
 
 ME:So are you saying that our level of access to everything outside the bubble of your created universes is entirely dependent upon ourselves and our desire to evolve at whatever rate we desire? 
 
+我：你是说，我们接触你所创造的宇宙泡泡之外的一切事物的能力水平，完全取决于我们自己以何速度去进化的渴望，对吗？
+
 SE:Yes,you are self-governing in that respect.If,for instance,you want to be totally cut off from the rest of yourself and "THE ALL"in order to evolve,then you incarnate into the physical dimensions and the frequencies that are associated with these levels. Some of you(nearly all actually)get engrossed so much with the physical that you totally forget who and what you are to the point of thinking that physical life is all there is.Others get even more engrossed to the point where they still cling to the physical after their physical body has finished its purpose (died).These poor souls hang around at the lower spiritual levels because they feel the association with the physical frequencies more by staying low.They are so engrossed in the sensations that the physical gives them that they are blinded to the fact that they are now back in the energetic or spiritual world/universes.In effect they have regulated their evolution to the point where they are not able to access the reality of their energetic state and the ability to be in contact with their higher selves or communicate with Me and the Origin. 
+
+源实体：是的，在这方面你是完全自主的。例如，如果为了进化，你想完全从自我和一切万有隔离，你便会转世化身进入物质维度，以及与这些层级相关的频率中。你们中的一些人或者说几乎所有人都过于沉迷物质世界，以至于完全忘记了自己是谁，认为物质生活就是一切。另一些人则更加沉迷，以至于即使肉体已经完成任务死亡之后，他们仍然对物质执着不放。这些可怜的灵体徘徊在较低灵性层面，因为他们感觉与低层次的物质频率关联更多。他们对物质提供的感觉太过痴迷，以至于看不到实际上他们已经回到了灵性能量或灵性世界或者宇宙。实际上他们已经不能进入能量状态的实相，也不能与他们的高我、我和起源沟通。
 
 ME:So our level of awareness and ability to contact the Origin and be aware of what is outside your bubble with all the influences that the Origin has on the inside of your bubble are due to our own level of evolution,which dictates our level of access? 
 
+我：因此，我们的觉知程度、和起源连接的能力，以及在起源对你气泡内影响之下觉知气泡外事物的能力，取决于我们自己进化的程度，也就决定了我们到达的层级。
+
 SE:In a nutshell,yes.
+
+源实体：简单说，是的。
 
 ### Chapter 8 - The Source Entity on the Theories of Creation 
 
+**原始体谈创造论**
+
 #### Creationists'and Scientists'Views of Creation 
+
+**创造论者们与科学家们关于创世的观点**
 
 ME:In the first part of our dialogue on the creation of the universe,we talked about how you copied to a certain extent what the Origin had done in creating You and the other twelve Source Entities.Like the Origin,you separated yourself into smaller parts,much smaller parts.What can you add to this that would convince the scientific world that the universe was created by a single being?Bear in mind the issues surrounding the Creationists'view that the world was created approximately 10,000 years ago and the scientists'view that the universe was created millions upon millions of years ago by a spontaneous combustion they are currently calling the Big Bang. 
 
+我：在对话第一部分有关宇宙创生的内容中，我们说到了你在一定程度上重复了起源在创造你和其他12个源实体时所做的事情。和起源一样，你把自己分成较小的部分或更小的部分。对此，你能补充些什么来说服科学界相信宇宙是由一个单一存有创造的吗？请注意，宗教或者说神造论者们的观点是世界是在大约一万年前创造的，而科学家们认为宇宙是从很多亿年以前的大爆炸产生的。
+
 SE:I would say that they are both right.You see,scientists only see what they can quantify by measurement of hard facts that are presented to them by their detecting machines. These machines are limited by the limited thinking of the individual making them and the technology at the point in time in which they are working.Were they working from the energetic levels,they would see a completely different picture.In essence,though,they need to have things explained to them in terms of what can be proven from the evidence furnished by these machines.As a result,they are looking for answers to questions that are not appropriate to the question.You need to ask the right question to get the right answer to the problem you have.From a physical perspective,your particular universe was created by me,the Source Entity,as you call me or God,as the religious leaders would call me although in this context I am not God as such but a part of the larger entity we call the Origin.From the perspective of the religious leaders,I created the universe,and from the perspective of the scientists, the universe created itself,which is not so far from the truth.The only issue here is when was it created?Bear in mind the overwhelming evidence that you have around you that your planet is very much older than 10,000 years.I speak of such evidence as the pyramids,the dinosaurs,and other fossilized remains of animals and buildings created by man that you have discovered and are yet to understand.The Earth cannot be 10,000 years old as the Creationists would have you believe. 
+
+源实体：我想说他们都是对的。你看，科学家们只相信可量化能通过仪器验证的东西，但仪器也受仪器制造者的思维以及当时技术的限制。如果他们从能量层面上进行研究，他们会看到完全不同的画面。然而，从本质上说，他们需要用仪器可以提供的验证来解释问题，结果就是他们正在寻找的答案并不适合回答这些问题。为了得到问题的正确答案，你要问对的问题。从物理学的角度来看，你们的宇宙是由我创造的。你称我为源实体，你们宗教称我为神。其实我不是神，只是一个更大的存有（起源）的一部分。从宗教角度来看，我创造了宇宙；从科学家的角度来看，宇宙是自发生成的，这都与真相并没有太大的差距。唯一的问题是宇宙是什么时候创造的？请记住，你的星球有随处可见的证据，说明它的历史早已远超过一万年。这些证据如金字塔、恐龙、其他动物化石，以及人类已经发现但有待理解的建筑遗迹，地球自然不可能像宗教神造论说的那样，只有一万年的历史。
 
 I simply did not create this universe that recently! 
 
+我当然不是在这么短的时间内创造这个宇宙的！
+
 However,I did create this universe and so in this context,they are right.Even the scientists agree that "something"created the universe,and this is ultimately the key to their understanding,provided they use it to open the door/s presented to them. To create something is the most important thing that an entity can do,especially when that creation has both purpose and function.This universe in all its dimensions and frequencies has both purpose and function.Its purpose is to help in the Origin's understanding of self.I created this universe to help Me in this task,for that is why the Origin created Me and my 11 Co-Source Entities,and I,in turn,created this universe and you.The universe's function is to allow opportunities for entities to evolve singularly as entities in their own right.It is a workshop theater full of all the tools and materials necessary for you to experience all that is from the very highest frequencies/dimensions to the very lowest frequencies/dimensions.This is where you find yourself now,and this workshop theater is so rich with opportunity to evolve and expand. 
+
+然而，我确实创造了这个宇宙。所以在这个背景下，他们是对的。即使是科学家也同意某种东西创造了宇宙。如果他们能通过这一点去理解所呈现的一切，这一点将成为打开大门的钥匙。一个实体所能做的最重要的事情就是创造，尤其是这个创造有其目的和功能的时候。本宇宙的所有维度和频率都既有目的，也有功能。其目的是**帮助起源自我了解**，我创造了宇宙来帮助我完成这个任务。这就是为什么起源创造了我以及我的其他11个源实体伙伴，我又创造了宇宙与你的原因。宇宙的功能是**允许各个实体独立进化**。它就像是一个工作房的大剧院，由你体验所需的各种工具和材料，从最高频率/维度到最低的频率/维度。这就是你现在所处的位置，并且这个工作房剧院里充满了很多进化与发展的机会。
 
 In creating this universe,I have created the perfect opportunity for all of you,and,in so doing,I have maximized the effectiveness of the purpose and the function.Many times you (humanity in physicality)have risen and fallen only to pick yourselves up from the gutter,dust yourselves off,and start again.Although this is your lowest ebb,you are on the cusp of achieving a higher level of greatness than any series of entities has ever achieved.This could only have happened by your being given the freedom to make up your own minds,to make your own mistakes,and to make your own successes and build upon them.I created this universe countless millions of years ago,in your understanding, to maximize the need to understand the self of the Origin from the point of view of the Origin Itself(Who is still investigating Itself in Its own ways)to the smallest of the contributing entities,yourselves,and the entities that are of the next level down to you.
 
+在创造这个宇宙的过程中，我为你们所有人创造了一个完美的机会，并且在这个过程中，我将目的和功能的有效性最大化。你们物质界的人类曾多次扬升和堕落，只是为了从泥坑里振作和精进，重新开始。尽管你们处于最低潮，但你即将达到比任何实体的成就都更宏伟的层面。只有你被赋予了自由，拥有自己的思想，允许自己犯错，创造自己的成就时，这些才会发生。无数时间以前，我创造了宇宙。如你所理解的，是为了从起源自己的角度，它也用自己的方式在探索自身到最小的实体、你们自己以及你们层面以下的实体的角度，最大化的理解起源自身。
+
 So was the universe created in six days with one as a rest day?No!It was created in less than a nano second once I knew what I wanted to do to contribute towards the job I was created to do.Did the universe expand?No!It has always been the "dimensions" it currently is.The only thing that has expanded is the understanding of self by all the entities that I created when I created this universe. 
+
+那么宇宙是在六天内创造出来，另外加一天休息吗？不，它是在一纳秒内创造出来的。一旦我知道要做什么才能满足我的创造目的，宇宙就诞生了。宇宙会扩张吗？不，它一直是现在的尺寸及维度，唯一在扩展的是我创造的宇宙以及实体们对自我的深入理解。
 
 ME:So,was it a Big Bang as the scientists think? 
 
+我：那么科学家认为的大爆炸存在吗？
+
 SE:No,it came into existence in a wink,no big bang,no expansion,no binding together of atoms or chemicals,at least not then,and no evolution of biological entities from the primeval soup.Every thing was created in perfection to start the job instantly,to hit the ground running,as it were.The only changes are what you and your opposite entities have created,including the human physical vehicle.This is the only change that has happened.This is the only evolution-the evolution through energy-based humankind's desire to understand the self and evolve.It fulfils the promise I gave to the Origin-to help It understand Itself at the fastest possible rate with a maximum of experience.
+
+源实体：不，宇宙转瞬即成，没有大爆炸，没有膨胀，没有原子或化学物质的结合，至少那时候没有，也没有生物体从原始的汤中开始进化。所有事物都在瞬间以完美形式创造出来。唯一的变化是你们以及与你们的相应实体创造出的东西，包括人类肉体载具，这是唯一的变化。基于能量状态的人类渴望进化与自我了解而进行的实验，这是唯一的进化。我履行最初对起源的承诺，帮助它尽可能最快以及最大限度地体验与了解自己。
 
 ### Chapter 9 - The Source Entity on Slipping Between Dimensions 
 
+**源实体谈游走在维度之间**
+
 #### The Source Entity on Emulating the Creation Process of the Origin 
+
+**源实体谈模仿起源的创造过程**
 
 ME:So let's get back to how you split the (your)universe. 
 
+我：那么我们回到当初你是如何创立（你的）宇宙的话题。
+
 SE:The idea was that I would try to emulate all that I had experienced as part of the Origin. This means that I wanted to reproduce everything down to the last frequency and dimensional anomaly. 
+
+源实体：想法来自于我想模仿作为起源一部分已体验到的一切，这就意味着我要复制一切，甚至包括所有的频率和维度的异常。
 
 ME:Dimensional anomaly? 
 
+我：维度的异常吗？
+
 SE:Yes,these are the rifts that appeared to Me/Us when we looked at more than two dimensions at the same time. 
+
+源实体：是的，当我们同时观察两个以上的维度时，就会发现裂缝。 
 
 ME:You can do this,I mean,look at more than one dimension at the same time? 
 
+我：你可以做到这点。我的意思是同时观察多个维度？
+
 SE:Of course,and all of you can do this at the same time when you are back in your energetic state.
+
+源实体：当然，当处于能量状态时你们都可以同时做到。
 
 ME:So what was/were the anomalies? 
 
+我：这些异常是什么呢？
+
 SE:These were what you would call"worm holes"between the dimensions where you could move from one dimension to the other by this link. 
+
+源实体：这就是你所说的“虫洞”，通过这个连接通道可以从一个维度进入另一个维度。
 
 ME:So what is the link? 
 
+我：连接通道是什么？ 
+
 SE:It is an area where the dimensional frequency at some part of the dimensional area(you have frequencies within dimensions as well,of course)is close to the dimensional frequency of a neighboring dimension-either up,down,left,right or any rotational distance from the dimension where the area is not as dense. 
+
+源实体：它是一个区域，在有些维度区域的部分。当然，维度内部还有频率，这些部分的维度频率与临近上、下、左、右或周围部分的维度频率接近。 
 
 ME:I get the image of a sphere with longitude and latitude rather like the Earth mapping system. 
 
+我：我想象到一幅带有经度和维度的球体的图像。
+
 SE:Correct imagery.Each of the crossover points is where there may be a connection between two or more dimensions,and these points are where the dimensional stability is not as dense(firm)as it should be,allowing the opportunity to slip from one to another easily because they are so alike. 
+
+源实体：你想的很对，每一个交叉点都是两个或多个维度之间可能存在联系的地方。这些交叉点的维度的稳定性并不是很牢固，因为维度相似，所以容易从一个维度滑到另一个。
 
 ME:Is this where we see reports of UFOs suddenly appearing and disappearing. 
 
+我：这是报道中UFO突然出现又消失的地方吗？
+
 SE:Yes,these beings have recognized this anomaly and have developed a way to use this to their advantage.In fact,when they use the crossover points to travel between dimensions,they can use the periphery of the dimension(i.e.,the line of dimensional latitude or longitude)to travel to any dimension they please. 
+
+源实体：是的，这些存有已经意识到这种异常现象，并已开发出使用方法。事实上，当他们利用这些交叉点穿行于维度之间，可以用维度的外围（即维度的经线或纬线）到他们想去的任何维度。
 
 ME:I get the impression that they must follow the lines and crossovers and not go there diagonally.Why is this? 
 
+我：我有一个画面，他们必须沿着线和交叉线，而不是沿对角线斜着走。这是为什么呢？
+
 SE:Because they must use the route of least dimensional resistance,and this is the periphery of the dimension they are traveling in (the line),and because of this,they must travel on either the longitude or latitude and not try to cut the corners. 
+
+源实体：因为他们必须选择维度阻力最小的路径，这就是维度边缘。因此，他们必须在经度或纬度上移动，而不是沿对角斜着走。
 
 ME:Could they try? 
 
+我：他们能试着沿对角线走一走吗？
+
 SE:Of course,but it would be like hitting the proverbial dimensional brick wall,and, in doing so,they would damage the vehicle that they are using to traverse the dimensional anomaly. 
+
+源实体：当然，但这就像谚语中所说的头撞南墙，这样做会损毁他们用于旅行的交通工具。
 
 #### The Source Entity on Splitting Its Mass and Creating Entities of Multiple Frequencies 
 
+**自我分割与创建多频率实体**
+
 ME:O.K.,so let's get back to the question that I have been trying to ask for the past couple of sessions.Please tell me more about how you split the universe. 
+
+我：好的，让我们回到在之前几个环节中我一直在问的问题，告诉我你是如何分割宇宙的？
 
 SE:That is easy.I wanted to replicate what the Origin had done.
 
+源实体：很容易的，我重复了起源所做的事。
+
 ME:In every way. 
+
+我：在各个方面重复吗？
 
 SE:Yes,right down to the last dimensional level and right down the lowest frequency.I had to do this,as it would not be a replication experiment if I did not.As I have previously stated,the whole point of it was for Me to create an environment that was exactly the same but separate from the Origin to all but those (to be created)entities that had evolved to the level where they could recognize the greater picture and work accordingly within both the smaller and larger realities of My universes and the Origin's universes.In some respects,it was a bigger experiment than that which was started by the Origin.I effectively split up half of My mass to create over 10 billion zillion smaller parts of Me.The only issue here was that when I split,not all of the entities ended up at the same level of quality. 
 
+源实体：是的，直到最后一个维度和最低频率。我必须这样，否则就不是复制实验了。正如我之前所说的，实验的整个意义是我为一切万物创造一个环境，与起源完全相同，但又与起源分离。除了那些进化到一定层级，能意识到更大蓝图，并与我和起源的宇宙的大小实相都协调的实体们。从某些方面来说，这比起源开始做的实验更大。 我将我的一半分割出来，创造出无数万亿个我的较小部分。唯一的问题是，当我分裂的时候，并不是所有的实体都是同样水平的质量。
+
 ME:What do you mean?There is a lower quality of spirit?! 
 
-SE:Yes,in terms of their ability to evolve and navigate the different dimensions and frequencies. 
+我：什么意思？有些灵体的质量较低吗？
+
+SE:Yes,in terms of their ability to evolve and navigate the different dimensions and frequencies.
+
+源实体：是的，就他们进化和穿行不同维度和频率的能力而言，是这样的。
 
 ME:So what happened to them?How did you categorize them? 
 
+我：他们怎么了？你是如何对他们进行分类的？
+
 SE:Some of them were as you are now-able to do everything that I wanted to do to achieve the plan of evolution through experience.Others were displaying lower abilities but were,nevertheless,able to exist in some of the dimensions and frequencies.Others were not so good and were only O.K.for much lower frequency work.
+
+源实体：其中一些就像你现在这样，能够做我想做的任何事，从而通过体验完成进化计划。其他部分则表现出较低能力，但也能存在于某些维度和频率。还有一些部分则没有这么好，主要只适用于频率低得多的工作。
 
 ME:Can you categorize them for me? 
 
+我：你能将他们分类吗？
+
 SE:Yes.They are as follows: 
+
+源实体：好的，以下就是：
 
 - Smaller replications of Me 65%(later these could be projected into the lower frequencies for incarnation purposes). 
 - Entities that were able to work with these entities as a group but were able to progress to the first level given the right circumstances-later these could be projected into the lower frequencies for incarnation purposes. These would be what you would call the collective mind types of entities,your hive type of mentality. 
@@ -3451,25 +3669,52 @@ SE:Yes.They are as follows:
 - Entities that could enter a living item but not one that was human-based.These would be plants,trees,etc. This is what you call the plant level. 
 - Entities whose thought processes were so low that they could only gain experience or evolution on a very low scale,and this was by being part of larger objects that appear in all dimensions,such as planets.This is what you would call the mineral level. 
 
+- 1、更小的我的复制品，占65%，他们之后可以投射到较低频率来进行转世的实验。 
+- 2、可以群居协作的实体，但只要环境合适，就能进化到第1层级，后来他们能被投射到更低的频率进行转世。这就是你所说的集体心智类型的实体们，也就是蜂窝式心智模式类型。
+- 3、可以集体与第一类实体协作的实体们，后来他们能被投射到更低的频率转世。它们不会转世成比较复杂的肉身，比如人类，但在一些特殊情况下会达到一定的层级。 这就是你说的动物的层级。
+- 4、不能进入物质层级，但可以在能量层级上与物质层协作的实体，这些实体后来被称为自然精灵。
+- 5、可以进入物质生命体中，但并非人类载具中的实体，这些可能是植物、树木等，你们称之为植物层级。
+- 6、思维过程非常缓慢，只能在很缓慢的尺度上进行体验而获得进化的实体，它们作为存在于所有维度的大物体，如星球的一部分而存在，也就是你所说的矿物层级。
+
 ME:Wow!So that is how we get the plethora of entities here on Earth 
 
-SE:Not just on Earth but other planets and in other universes and dimensions.At first I was disappointed in what had happened,but later I saw the beauty of it and the better learning/evolutionary opportunities that had presented themselves. 
+我：哇，这就是地球为何拥有这么多实体？
+
+SE:Not just on Earth but other planets and in other universes and dimensions.At first I was disappointed in what had happened,but later I saw the beauty of it and the better learning/evolutionary opportunities that had presented themselves. x
+
+源实体：不仅仅是在地球上，还有其他行星、宇宙和维度也如此。一开始我对所发生的事情感到失望，但后来我看到了它的美妙之处，以及它自然层现出的更好的学习/进化机会。
 
 ME:So how did it happen? 
 
+我：那么这一切是怎么发生的呢？
+
 SE:By not focusing all of My attention on all of Me at the same time,I created what you would call a watering down of the programming due to lack of time I spent doing it. 
+
+源实体：是这样的，由于缺少时间，我没有同时将所有注意力都集中在全部自我之上，于是创造出了一种你们称之为淡化稀释程序的现象。
 
 ME:So you are fallible? 
 
+我：所以你犯了个错误。
+
 SE:Fallibility doesn't come into it.This is all part of the evolutionary process. 
+
+源实体：这里没有犯错这个概念，这全都是进化过程的一部分。
 
 ME:That sounds like a bit of an excuse to me. 
 
+我：对我来说，这听起来像是借口。
+
 SE:The Origin would say that excuses are not required.Everything that happens,happens and should be used as an opportunity for learning and,therefore,evolution.The whole point of being is being-that is universal law.You humans are so hard on yourself for making mistakes that you make a mistake by taking up more of your time than is necessary to resolve the initial mistake.What you are missing is the evolutionary side of making that mistake.Learning from mistakes is only a small part of the picture.Being able to stand back and see the process that leads to the mistake and seeing the beauty in it is another.Seeing the further process that leads to the resolution is even more beautiful.Once you have all this,you are able(may be able?) to understand the process of cause and effect,which will result in the understanding of cause from a universal point of view where you will realize that it is all part of evolving and is yet another step.Evolution is not just about learning your lessons; it's about applying the principles that turn the event experienced into an evolutional opportunity.Fallibility,if you want to use that term,is,therefore,an evolutionary opportunity. 
+
+源实体：起源会告诉你，借口的需求是不存在的。一切事情发生就发生了，应该被视为学习和进化的机会。存在的意义就在于**如之所是地存在**，这是宇宙普遍法则。人类对自己犯的错误是如此苛刻，以至于犯错后你花了更多的时间来弥补错误，相比最初犯的错又错上加错，你们错过了经由犯错所能得到的进化机会。从错误中学习经验只是更大画面的一小部分，学会退后一步，审视导致错误的过程，能看到其中的美，又是另一回事。看到进一步解决的过程会更美妙。一旦你知道了这些，你就能够（也许能够）理解因与果的过程。这样你就能用宇宙的视角去理解结果，就会意识到它是进化的一部分，是其中一个步骤而已。进化并非只是学习经验教训，它是对将所经历的事件转化为进化机会的原则的应用。因此，犯错，如果你想用那个词，实际是一次进化的机遇。
 
 ME:This is starting to blow my mind a bit. 
 
+我：这有点颠覆我的看法。
+
 SE:Yes,I can see that you are struggling.You are trying to intellectualize it,trying to apply reason.Reason doesn't come into it. 
+
+源实体：是的，看得出你的挣扎。你试着用理性思维去推理，但推理在这里并不适用。
 
 #### The Source Entity Defines Evolution 
 

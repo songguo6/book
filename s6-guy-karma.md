@@ -2,11 +2,13 @@
 
 **基于[DeepL](https://www.deepl.com/)翻译**
 
-Avoiding Karma 
-
-A Guide to Assuring Personal Ascension 
+Avoiding Karma ：A Guide to Assuring Personal Ascension 
 
 by Guy Steven Needler
+
+**《回避业力：确保个人扬升的指南》**
+
+**作者：盖伊·斯蒂文·尼德勒**
 
 ### Table of Contents 
 
@@ -128,19 +130,35 @@ For my dear wife Anne Elizabeth Milner Now "Ascended"
 
 The information within this book,given to me by the Source Entity,is specifically designed to make us,dear readers,think,and thus,to make us change our ways,to recognize who and what we truly are,and to come out of our incarnate slumber and ascend. 
 
+这本书里的信息是源实体给我的，专门用来让我们亲爱的读者思考，从而让我们改变自己的方式，认识到我们真正是谁，我们是什么，并从化身的沉睡中走出来，获得扬升。
+
 However,to do this we need to be vigilant. 
+
+然而，要做到这一点，我们需要保持警惕。
 
 This is not a large book;it was not meant to be large.It has fewer than 120 pages and could be easily read in a day.However,I urge you not to do so.I ask you to read each excerpt in isolation and work with it to the very best of your ability.Absorb that which is presented to you and become free of the constraints of the physical,shrugging off karma and ascending in the process.Read a maximum of two excerpts a week and create a personal commitment to follow that which is presented.Or,better still,read one a week and be robust in your application of the advice.Observe your performance and make corrections where necessary, doing so with love in your heart and leading by example. 
 
+这不是一本大书，也不应该是一本大书，它只有不到120页，一天就能读完。然而，我劝你不要这么做，我要求你单独阅读每一个节选，并尽你所能吸收呈现在你面前的内容，摆脱肉体的束缚，摆脱业力，在这个过程中扬升。每周最多阅读两篇节选，并做出个人承诺，遵从节选内容。或者，更好的办法是每周阅读一篇，并积极应用建议。观察自己的表现，并在必要时做出修正，做到心中有爱，以身作则。
+
 Love transcends karma;it is all about the multiverse. 
+
+爱超越业力；爱是关于多维宇宙的。
 
 Karma is only a function of the physical universe,and our true energetic selves,when attracted to the lower frequencies associated with the physical universe,are linked to it. Hence the need to return to it to break the link,to break the karmic cycle.Once the link with the physical is broken,the need to incarnate is no longer necessary,and the true energetic self can ascend the frequencies and evolve in the process without needing to experience ever again those lower frequencies associated with the physical universe. 
 
+业力只是物质宇宙的一种功能，我们真正的能量自我被与物质宇宙相关的低频所吸引时就会与物质宇宙联系在一起。一旦与物质宇宙的联系被打破，就不再需要化身，真正的能量自我就能提升频率，并在这个过程中不断进化，而无需再次体验与物质宇宙相关的低频。
+
 Self-Love and the love of others is,therefore,a key to ascension,and when one has finished this book,one will be"In Love,""In Ascension"-avoiding karma in the process. 
+
+因此，自爱和对他人的爱是扬升的关键。当一个人读完这本书，他将在爱中，在扬升中，在这个过程中避免业力。
 
 Guy Steven Needler 
 
+盖伊·斯蒂文·尼德勒
+
 1st February 2013
+
+2013.2.1
 
 ![](img/s6-022.png)
 
@@ -154,11 +172,15 @@ Guy Steven Needler
 
 The first stage in avoiding karma is not to react to the taunts and jibes of those we interface with but instead for us to see them as beings on an evolutionary path as we are. Looking beneath the words and actions of the accuser for the greater meaning,we must be the tolerant and benevolent observer,understanding the experience of the lessons we are offered by them and reacting with compassion and thanks.Thus,we evolve in the process.
 
+避免业力的第一阶段，是不对那些与我们打交道的人的奚落和嘲笑做出反应，而是把他们看作和我们一样走在进化道路上的人。从指责者的言行中寻找更深层次的意义，我们必须做一个宽容、仁慈的旁观者，理解他们为我们提供的经验和教训，并以慈悲和感恩的心作出反应。
+
 ### Beware of the Digital Reality
 
 **当心虚拟现实**
 
 Karma is a function of attraction to the physical and also works in/with our interfacing with the digital reality because it is a function of the physical.As such,it is also a potential addiction,serving to anchor us to the physical.
+
+业力是对物质的一种吸引，同时也与我们与数字化现实的互动有关，因为它是物质的一种功能。
 
 ### Owning Only What We Need 
 
