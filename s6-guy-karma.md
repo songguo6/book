@@ -188,11 +188,15 @@ Karma is a function of attraction to the physical and also works in/with our int
 
 We are reminded to look at what we need in life versus what we want in life.If our need is less than our want,then we have a potential for accruing the lower frequencies or karma associated with the attraction to ownership of physical belongings.This is a function of karma,which is never satisfied,for the more we have,the more we seem to want.
 
+如果我们的需求小于我们的愿望，那么我们就有可能累积与吸引我们拥有物质财富相关的低频或业力。这是业力的作用，它永远不会满足，因为我们拥有的越多，我们似乎想要的就越多。
+
 ### Loving Our Enemies;for We Are One 
 
 **爱我们的敌人，因为我们本为一体**
 
 To love our enemies is to love ourselves,for our enemies are our "selves."Recognition of the fact that we are all "one"and one with God removes the need to identify others as our enemies.How can people truly be our enemies when they are just another part of us?! Recognition of this reality and taking action,based upon it,is a most powerful way of avoiding karma.
+
+爱我们的敌人就是爱我们自己，因为我们的敌人就是我们的“自己”。认识到我们都是“一体”的，都是与上帝合一的，就没有必要把别人当作我们的敌人！认识到这一现实并据此采取行动，是避免业力的最有效方法。
 
 ### Being of Service 
 

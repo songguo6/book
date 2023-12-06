@@ -3718,89 +3718,175 @@ SE:Yes,I can see that you are struggling.You are trying to intellectualize it,tr
 
 #### The Source Entity Defines Evolution 
 
+**源实体定义进化**
+
 ME:So what is evolution? 
+
+我：那进化是什么呢？
 
 SE:Growth! 
 
+源实体：成长！
+
 ME:What?!Is that it? 
+
+我：什么？就只是这样吗？
 
 SE:Yes. 
 
+源实体：是的。
+
 ME:Oh.I thought there was more to it than that. 
+
+我：哦，我以为除了成长还有别的。
 
 SE:No,why should there be?Growth is the best way to describe it.Growth is accepting that everything is what it is.It is going with the flow.It is absorbing knowledge,feeling, passion,pride,love,experience,power,compassion,emotion,understanding...
 
+源实体：不，为什么还会有其他的呢？成长是描述它的最好方式。成长就是接受一切如实如是，顺势而生，是吸收知识、感觉、感情、骄傲、爱、经验、力量、同情、情感、理解...
+
 ME:Why have you stopped? 
+
+我：你为什么停下来？
 
 SE:Because that's it.There are a whole host of other mental senses that you are not aware of and,therefore,have no words to communicate them,so those specified above will suffice.The words above describe the feelings of experience.Growth is,in short, having wide enough shoulders to accept what is and rejoicing in its wonder.The more you experience,learn,and understand,the more you grow.This is what I intended to do when creating My own universe/s.When I created the other beings,such as you,I also created others that were not of the same quality.This is not failure or fallibility but an opportunity that presented itself for further growth.The process that led to that event in creation was truly beautiful,and experiencing this beauty resulted in my growing and evolving further. 
 
+源实体：因为就这些。还有很多其他你未觉知的精神感觉，因此没有语言能描述它们，所以上面的这些就足够了。上面的文字描述了体验的感觉。简而言之，成长就是有够宽的胸怀去接受事情的本然，并且对其惊奇感到欣喜。你经验学习和理解越多，成长就越多。这就是我在创造自己的宇宙时想要做的，我在创造其他实体比如你时也创造了一些质量不一样的东西，这不是失败或失误，而是自发呈现的进一步成长的机会。创造中产生这一点的过程非常美好，体验这种美好更进一步带来了我的成长和进化。
+
 #### Different Dimensions and Frequency Levels 
+
+**不同维度与频率层级**
 
 ME:What is the next part of the development of the/Your universe You are going to tell me about? 
 
-SE:Interesting,you had the preconception that we were going to talk about why and what the development for the physical representation of the human form was.This is pre- conception and does not assist us in this dialogue.It is not true channeling.However, you have also seen a picture in your mind's eye of the levels/dimensions that are present in My universes,and so I will discuss this with you.
+我：你接下来想告诉我关于宇宙/你的宇宙的下一步发展是什么呢？ 
+
+SE:Interesting,you had the preconception that we were going to talk about why and what the development for the physical representation of the human form was.This is pre-conception and does not assist us in this dialogue.It is not true channeling.However, you have also seen a picture in your mind's eye of the levels/dimensions that are present in My universes,and so I will discuss this with you.
+
+源实体：很有意思，我发现我们接下来要谈的人类肉体的体现形式的发展有一种预想，但这是一种先入之见，对我们的对话无益。这并不是真正的传导内容，但在你的意识眼中，你看到了我的宇宙中呈现的层级/维度图，因此我将和你讨论这个问题。
 
 ME:Great!So how many are there and why did you create so many? 
 
+我：很棒，那么一共有多少？你又为什么要创造这么多？
+
 SE:There are essentially twelve dimensions and twelve frequencies within each dimension. 
+
+源实体：实际上有12个维度，每个维度有12个频率。
 
 ME:I just looked back at my previous notes,and You mentioned zones and octaves. 
 
+我：我回顾了之前的笔记，之前你提到过区域和八度。
+
 SE:Yes,this is correct.Each zone has twelve dimensions which are split into packets of three dimensions,which you called "tritaves"? 
+
+源实体：是的，正确。每个区域都有12个维度，每个维度又是3个更小维度的集合，你称之为三度。
 
 ME:Yes,I did.But you said that there were twelve zones! 
 
+我：是的，我知道，但是你说有12个区域。
+
 SE:Well,there are twelve zones in the Origin's universe/self,but I have only created one zone:Mine.Each of My dimensions has twelve frequencies attached to it with each group of three dimensions called a "tritave."Each group of three,therefore,has 36 frequencies within which energies and beings can exist. 
+
+源实体：在起源的宇宙中有12个区域，但我只创造了一个区域：我的区域。我的每一个维度都包含12个频率，每3个维度组成一组，称为“三度”。因此我的区域中12个维度的每一个维度都包含36个频率，而提供给能量和存有赖以存在的环境。
 
 ME:Why did you only create one zone and not copy the whole of the Origin's universe/self? 
 
+我：为什么你只创造了一个区域，而没有复制整个起源的宇宙？
+
 SE:What already is-I can't create that which is already there! 
+
+源实体：那是已然存在的一切，我不能创造已经存在的东西。
 
 ME:What?! 
 
+我：什么？
+
 SE:I cannot create the Origin.He/She/It is already there,so all that I can do is copy It the best that I can,and that means that I had to be limited to what I could do.
+
+源实体：什么我不能创造起源。因为它已然存在，所以我能做的就是尽力复制，这意味着我会受限于我所做的事情。 
 
 ME:I just had an image in my mind of what would happen if You did.That image was of a 2 in 1 set up that would even get the Origin a bit confused.A little bit like being schizophrenic? 
 
-SE:More than that.He would get blurred around the edges of all parts of Himself. Everywhere there are rules that We have to follow.You can only work with what you have,and as I have to work within the confines of the Origin because I am part of the Origin,as you are.I have limitations and rules,construction rules,if you call it that. 
+我：我在脑海中有一个画面，想象假设你这样做会发生什么？这个图像是一个甚至会让起源感到有点混乱的二合一的结构，感觉有点像精神分裂。
+
+SE:More than that.He would get blurred around the edges of all parts of Himself. Everywhere there are rules that We have to follow.You can only work with what you have,and as I have to work within the confines of the Origin because I am part of the Origin,as you are.I have limitations and rules,construction rules,if you call it that.
+
+源实体：不仅如此，它身体各个部分的边缘会变得模糊，每一处都有我们要遵守的规则。你只能在现有范围内运作，而我必须在起源规定的范围内工作，因为我是起源的一部分，你也是。我同意有限制与规则，或者说施工规范，如果你想这么叫的话。
 
 ME:So you created a 12th of the universe that was the Origin within the Origin that is actually within yourself. 
 
+我：因此你创造了一个12层级的宇宙，起源内的一个起源，但其实位于你自己的内部。
+
 SE:Well done! 
 
-ME:And the whole point of this was to create a simulacrum of the Origin to allow You to delve into the intricacies of self at a faster rate by creation and division of self-contained parts ofyourself. 
+源实体：理解的很好！
+
+ME:And the whole point of this was to create a simulacrum of the Origin to allow You to delve into the intricacies of self at a faster rate by creation and division of self-contained parts of yourself. 
+
+我：这一切的目的就是要创造出一种对起源的模拟，让你能通过创造和自我分割，以更快的速度深入了解自我的复杂性。
 
 SE:Yep. 
 
+源实体：不错。
+
 ME:Can you next tell me what the role of each of the twelve dimensions is? 
+
+我：你接下来能不能告诉我，这12个维度中，每个维度的角色是什么？
 
 SE:Later,it's time for you to rest. 
 
+源实体：稍后再说，你该休息了。
+
 #### The Source Entity on Stephen Hawking's Eleven Dimensions Theory 
 
-Quite some time later I was discussing the flagrancies of the universe with a friend of mine at one of my local pubs when he agreed that there must be lots of other dimensions out there.He qualified this by stating that Prof.Stephen Hawking had made some changes to his theory of the universe and had established that there must be eleven dimensions.Moreover, he also thought that he was close to having this whole universe thing sewn up and that he (Hawking)might just do it before he died.I put this to the Source Entity to find out why the great Stephen Hawking was at variance with my channeled information. 
+**源实体谈史蒂芬·霍金的11维理论**
 
-ME:So Professor Hawking believes there are eleven dimensions;you have stated that there are twelve.Why the difference?Who is correct? 
+Quite some time later I was discussing the flagrancies of the universe with a friend of mine at one of my local pubs when he agreed that there must be lots of other dimensions out there.He qualified this by stating that Prof.Stephen Hawking had made some changes to his theory of the universe and had established that there must be eleven dimensions.Moreover, he also thought that he was close to having this whole universe thing sewn up and that he (Hawking)might just do it before he died.I put this to the Source Entity to find out why the great Stephen Hawking was at variance with my channeled information.
+
+过了一段时间，我和一个朋友在当地的一家酒吧里讨论宇宙话题，他赞成宇宙中一定还有很多其他维度的说法。他引用了斯蒂芬·霍金的话，说他对宇宙理论做出了一些更正，认为宇宙中存在11个维度。此外，我这位朋友还认为霍金的整个宇宙理论已经接近完善，而在霍金死前也许就能够做到这一点。为了搞清楚为什么伟大的史蒂芬·霍金与我的传导信息不一致，我把这些告诉了源实体。
+
+ME:So Professor Hawking believes there are eleven dimensions;you have stated that there are twelve.Why the difference?Who is correct?
+
+我：霍金教授认为有11个维度，你说过有12个维度，为什么会有这样的差异呢？谁是正确的？
 
 SE:For a start off,our dear spirit Stephen Hawking is very close to gaining a very good personal but limited understanding of the local universe.This he has done with help from his guides in spirit and the ability to think and meditate on unanswered questions for long uninterrupted periods of time,which only a person in his condition has the ability to do.First,the error is a simple one.One forgets that there has to be a base dimension,the one that one exists within.All the others are additional and help to keep the zone intact and in keeping with the need for the tritave principle that we discussed earlier.Second,if you consider that the physical universe actually needs the first of the four tritaves to exist,then the question goes the other way.Why does Prof. Hawking have one dimension too many? 
 
+源实体：首先，我们亲爱的灵体斯蒂芬·霍金已经非常接近于获得关于本地宇宙有限的个人化理解，这归功于指导灵的帮助，并坚持在长时间无打扰的条件下冥想和思考这些未解的问题，只有在像他的这种生活条件下才能做到这一点。首先，他犯了一个很简单的错误，他忘记了首先必须有一个基本维度，其他维度存在于其中。所有其他维度都是额外的，用于保持该区域的完整性，并且确保符合我们之前讨论的三度原则的需要。第二，如果你认为物质宇宙确实需要存在于4个三度中的第一个的话，问题就变了。为什么霍金教授理论中存在那么多一维？
+
 ME:What do you mean?You seem to have turned things around a bit here.
+
+我：你是什么意思呢？你似乎有点兜圈子。
 
 SE:As I previously stated,the dimensions each have twelve frequencies within them.These frequencies are areas within which you live as energetic and incarnate individuals. To move up the frequencies,you have to live in accordance with the rules.The rules ensure that you don't lose your resonant frequency and start to drop down within your dimension of existence.Once you achieve a high state of frequency,you can move up to the next dimension,provided the area of frequency you position your existence within is close to an area of low frequency in the next dimension.As energetic beings,you can,of course,move around to find these areas and move up and down at will-provided,of course,that you move within your allotted dimensional and frequential range,which your level of evolution has given you permission to do so within. 
 
+源实体：正如前面所说的，每个维度都有12个频率。你作为能量和化身个体，就生活在这些频率区域。为了提高频率，你必须按照规则生活。规则确保你不会失去共振频率，在所生存维度中下降。一旦你达到了一个高频率状态，你就可以移动到下一个维度，只要你存在的频率区域有下个相近维度的话。当然，作为能量体，你可以四处寻找这些区域，并随意上下移动。当然，你会在自己进化层级所规定的维度和频率范围内移动。
+
 The first dimensional system,the physical,actually needs three dimensions to exist, including the twelve frequencies of each dimension,that's thirty-six frequencies.The remaining dimensions do not. 
+
+第一个维度系统，也就是物质层级，实际上需要3个亚维度来维持，包括每个亚维度中的12个频率，即36个频率，其余的亚维度则不是这样。
 
 ME:Why not?I thought that they needed to be in threes? 
 
+我：为什么呢？我还以为它们也是3个一组的结构。
+
 SE:They do,but they do not need to be in threes to create an environment to exist within. 
+
+源实体：它们是，但它们不需要以3个一组的结构来创造一个可生存的环境。
 
 ME:Why not? 
 
-SE:Because after and including the fourth dimension,everything else is energetic in nature -energetic,that is in comparison to the first three.So in essence you have twelve dimensions of which ten are workable/habitable dimensions,the first three being equal to one. 
+我：为什么不需要呢？
+
+SE:Because after and including the fourth dimension,everything else is energetic in nature-energetic,that is in comparison to the first three.So in essence you have twelve dimensions of which ten are workable/habitable dimensions,the first three being equal to one. 
+
+源实体：因为在第4个亚维度及之后，与前3个亚维度相比，一切都呈现出能量的本质特性。因此本质上你有12个亚维度，其中10个是可运作或居住的亚维度，而前3个亚维度只相当于1个亚维度，也就是物质层级。
 
 ME:So three plus nine equals ten. 
 
+我： 那么3个变为1个，加9等于10，是吗？
+
 SE:That's about the size of it.The other dimensions work as complete dimensions in their own right.This is because they are higher up the frequency ranges. 
+
+源实体：这与它的大小有关。而所有其他层次的维度自身是作为一个完整的维度在运行，他们属于高频区域。
 
 #### The Source Entity on Dimensions'Reliance upon Frequency and How a Multiverse Works 
 
