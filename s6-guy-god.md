@@ -3890,75 +3890,141 @@ SE:That's about the size of it.The other dimensions work as complete dimensions 
 
 #### The Source Entity on Dimensions'Reliance upon Frequency and How a Multiverse Works 
 
+**源实体谈维度依赖于频率与多维宇宙如何运作**
+
 ME:Are you saying that dimensions are reliant upon frequency? 
+
+我：你是说维度是依赖于频率吗？
 
 SE:Of course,frequency is the padding that keeps dimensions inflated.Dimensional relationship is relative to frequency,and frequency bands are collated and collected into dimensions.This is how a multi-dimensional universe works.If we go back a step and look at the dimensions in their own right,we see that as with the first three dimensions,the second three are linked together,The third three are linked together, and the fourth three are linked together,each in its own tritave.Entities that exist in, say the seventh dimension,will be able to move between the seven and eighth (if at the right frequency).Whereas entities that exist in the eighth will be able to move in the seventh and the ninth (if at the right frequency).In essence the dimensions are linked in threes,as follows:
 
-1,2,3 are linked; 
+源实体：当然，频率是保持维度的填充物。维度之间的关系取决于频率，频率带将聚合成为维度，这就是多维宇宙的运作方式。如果我们退后一步审视维度自身，我们会发现，就像第一个三维度群组一样，第二个三维度群组也是连成一体的。第三个第四个也各自连成一体，各处于其三度之中。比如，存在于第7维度的存有有能力在第7和8维度之间移动（如果处于合适的频率上）。而存在于第8维度的存有能够在第7和第9维度之间移动（如果处于合适的频率上）。本质上这些维度是三组互连的，具体如下：
 
-4,5,6 are linked; 
+- 1,2,3 are linked; 
+- 4,5,6 are linked; 
+- 7,8,9 are linked;
+- 10,11,12 are linked. 
 
-7,8,9 are linked;
-
-and 10,11,12 are linked. 
+- 1、2、3维度互联；
+- 4、5、6维度互联；
+- 7、8、9维度互联；
+- 10、11、12维度互联。
 
 So a 7th dimensional entity can move in the 7th,8th dimensions but will not be able to transverse the 6th without a construct to assist the entity to transverse to a much lower dimension,nor will it be able to move to the 9th as it is too high a jump.This would also be true for a 4th or 10th dimensional entity. 
 
+第7维度的存有可以在第7与第8维度移动，但是不能在没有其他协助的情况下横跨第6层级或者去到更低的层级，也不会跳跃到第9层级，因为它太高了。这对于一个第4或第10维的存有也是成立的。
+
 It is easier to move down the frequencies than up,so an entity that moves into the seventh dimension from the eighth must give up some of his/her/its higher frequencies to move down but also have enough higher frequency in reserve to move back up.In essence,although they can move down to a lower dimension,they can only do so at the detriment of their own frequency,and when moved,they must stay in the highest frequencies of that lower dimension.This same entity will be able to move up to the ninth dimension only with a good level of high frequencies and then he/she/it will only be able to move in the lower frequencies of the higher dimension.Ninth dimensional entities can move into all dimensions within their tritave but would need to surround themselves in a bubble of energy that both permits travel into the lower dimensions and frequencies and protects their intrinsically higher frequencies.
+
+降低频率比提高频率要容易一些。因此，一个从第8维度进入第7维度的存有，必须放弃一部分高频才能下降，但同时也保持了足够的高频用来返回。其实，尽管它们能降到更低维度，但会有损自己的频率，且也必须处于该维度中最高的频率中。依然是这个存有，它也能向上移动到第9层级，但必须达到良好的高频水平，并且它也只能在高维度的较低频率中移动。第9维度的存有可以进入所在三度中的所有维度，但他们需要置身于一个能量泡中，其作用是确保进入较低维度频率的同时保护自身的较高频率。
 
 Jumping between tritaves (lower to upper)is a function of evolution.Achieving the reverse requires protection of the sort described above and can lead to de-evolution if care on behalf of the traveling entity is not taken. 
 
+在三度之间跳跃（从下到上）是进化的一个功能。这个功能的反向从上到下，需要上述保护，如果不采取保护措施的话，就会导致退化。
+
 ME:So based upon this,is Prof.Hawking wrong? 
+
+我：根据这些内容的话，霍金教授错了吗？
 
 SE:I would say that he is getting there.More importantly he is in a position to promote thought on this question,which is good.As for Stephen,he will understand when the time is right for him to understand because for him to understand,he needs the mathematics to back it up and the mathematics required is not available yet. 
 
+源实体：我想说他正在接近正确答案，更重要的是他促进对这个问题的思考，这已经很好了。对于斯蒂芬，时机成熟时，他会明白的，因为他需要数学运算来支持理解，但这个问题所需的数学运算目前还未出现。
+
 #### The Source Entity on Further Clarification of Dimensions and Frequency 
+
+**源实体谈进一步澄清维度与频率**
 
 Later on in the year I was thinking about whether all this held water.I was confused. I believed that what the Source had told me earlier was correct,but I had no real understanding of it.
 
+那年晚些时候，我在想这一切信息是否合理，我被搞糊涂了。我觉得之前起源告诉我的信息是正确的，但是我没有真正理解它。
+
 I personally don't like to be in a position where I don't understand a principle because if I don't understand it,how can anyone else reading this text understand it?That is the point of my writing about it!I decided that I needed further clarification on this whole dimensional and frequency subject and contacted the Source with the view to clearing up all of it in an easy to understand way. 
+
+我个人不喜欢处在似懂非懂的状态，如果我都不理解它，那么其他人怎么能理解呢？这就是我写作的重点。我决定与起源连接，以一种易于理解的方式，进一步澄清整个空间和频率的主题。
 
 ME:I am confused with the whole issue of dimensions and frequency.I still can't imagine it in my mind's eye.I can understand how frequencies work,but I can't see how the dimensions work.I understand that You can have many dimensions occupying the same space,but I just can't see the mechanics of it. 
 
+我：我对整个维度和频率的问题都感到困惑，我仍然无法在意识眼中看到它们。我能明白频率，但无法想象维度是如何运作的。我知道很多维度占据同样的空间，但我还是不懂其中的机制。
+
 SE:Mechanics is a good word,for it is simple mechanics that I will use to describe the functionality of dimensional existence.You remember the dialogue we had on the description of frequency where the increase in frequency turns ice into water and then water into a gas?The vibrational frequency of the ice is low so you can both see and touch the ice as a solid object.The water has a slightly higher vibrational frequency and can still be seen and touched,although it is losing its cohesion and is fluidic in nature.The increase in frequency to turn the water into a gas is also small, but it creates a substance that is neither visible nor touchable but is nevertheless present.It's just that you can't identify it with your five basic senses.You understand this because it is basic physics.You know that it has turned into a gas,and a gas has substance that can be detected by machines.This explains how a frequency change removes the object being changed in frequency out of the visible spectrum and out of the physical touch and feel spectrum. 
+
+源实体：机制是一个好词，我将用它来描述空间存在的功能。你应该还记得我们在描述频率时的对话，提高频率冰会变成水，接着水会变成的气体。冰的频率很低，因此你可以看到并触摸到它的固体。水的振动频率略高，尽管它失去了内聚力呈现为流体性质，但仍然可以看到和触摸到它。将水转化为气体需要增加的频率也很小，但它创造了一种既看不见也摸不着但又存在的物质，这种物质不能用五种基本的感官来识别。我想你是理解这一点的，因为它是基础物理学。你知道它变成了气体，气体可以被仪器探测到，这就解释了频率变化如何将物质移出可见、可触、可感的范围之外。
 
 The best way to describe the functionality of dimension is to use the mechanics of radio waves or electricity used for transmission of audio/visual content through copper wires.An analog radio wave,as with electricity,has both amplitude and frequency.The amplitude determines the signal content,and the frequency determines the transmission speed of the content.Information transmitted in this way can be overlapped with other information simply by changing the frequency enough above or below the first frequency not to interfere with the original information transmitted on it. This allows the basis of radio transmission for many radio stations. 
 
-If you consider that a frequency high enough to not interfere with the one below or low enough not to interfere with the one above is an environment for energetic life to exist within,then you have a basis for further understanding the use of frequency to create a number of living environments within a known frequency range,but this does not explain dimensional existence.Dimensions exist by the rotation of a frequency range. This can be best described in the use of phasing to increase the amount of information transmitted on the same frequency.If the frequency is also rotated by a single degree of angle,then that frequency is also placed in a position of non-interference with the frequency that is at the,let's say,zero angle of rotation.This gives access to all of the frequency ranges possible in the zero angle of rotation in the 1st degree of rotation as well.This would be the same for 5 degrees of rotation,15 degrees of rotation or 200 degrees of rotation,thus giving the opportunity for many phases,up to 360 if you use degrees as your angle of phase. 
+描述维度功能的最好方法，是通过无线电波或电线传输音/视频内容。模拟信号的无线电波就像电流一样，具有振幅和频率。振幅决定信号内容，而频率决定了内容的传输速度。以这种方式传输的信息可以互相叠加，只要第二个频率低于或高于第一个频率足够多，就不会干扰到第一个频率信号的传输，这就是无线电台信号传输的基础。
+
+If you consider that a frequency high enough to not interfere with the one below or low enough not to interfere with the one above is an environment for energetic life to exist within,then you have a basis for further understanding the use of frequency to create a number of living environments within a known frequency range,but this does not explain dimensional existence.Dimensions exist by the rotation of a frequency range. This can be best described in the use of phasing to increase the amount of information transmitted on the same frequency.If the frequency is also rotated by a single degree of angle,then that frequency is also placed in a position of non-interference with the frequency that is at the,let's say,zero angle of rotation.This gives access to all of the frequency ranges possible in the zero angle of rotation in the 1st degree of rotation as well.This would be the same for 5 degrees of rotation,15 degrees of rotation or 200 degrees of rotation,thus giving the opportunity for many phases,up to 360 if you use degrees as your angle of phase.
+
+如果你将一个频率足够高、不影响其下方频率的信号，或将一个频率足够低、不影响其上方频率的信号当成能量生命的生存环境，这此基础上就能进一步理解频率如何用来创造其范围内的各种生命环境，但这还不能解释维度的存在。**频率的旋转形成的维度**。这就类似于使用相位调整以增加同一频率所能传输的信息量。如果某个频率旋转了1度，这个频率就不会干涉到另一个旋转角仍为0度的相同频率，这样0度旋转的信号也能拥有和第一个角度旋转信号一样的频率范围。这对于5度、15度、200度角旋转，以及许多其他的相位是同样道理，直到360度，如果你用度数作为相位单位的话。
 
 Now if you consider that the degree of rotation equals a different dimensional state then you have an understanding of how a number of different dimensions and subsequent frequencies can exist at the same time in the same space.Simplistically speaking,they are separated by angles of phase.Of course,there are not 360 dimensions.There are twelve with the first three creating the basis for one physical dimension and the remaining nine being higher dimensions in their own right.So the space between the dimensions is large enough to ensure that they do not allow any interference with each other,except by local increase in frequency and phase in areas where the local entities are working at a high level of frequency/phase due to their being in harmony with the universe.Therefore,this allows the opportunity to move up the frequential or dimensional ladder or to decrease in frequency and phase in areas where the local entities are working at a low level of frequency/phase due to their being out of harmony with the universe.Then this allows the opportunity to move down the frequential or dimensional ladder. 
 
+现在，如果你把旋转角度等同于一个不同维度状态，那么你就能理解不同维度以及相应频率是如何在同时存在于同一时空的。简单的说，它们是被相位角度划分的。当然，不会存在360个维度。有12个维度，前3个维度作为基础，创造了一个物质维度，剩下的9个分别是较高维度。所以维度之间的空间足够大，确保他们不会互相干扰，除非当某些实体和宇宙和谐相处而处于高频，从而使局部地区的频率和相位增加，因此产生提升频率或维度的阶梯。也可能因为某些实体与宇宙处于不协调的状态，而导致一些局部频率和相位降低，而这样就会产生沿着频率或维度下降的阶梯。
+
 ME:So what you are saying is that dimensional separation is due to an angle of phase. 
+
+我：那么你是说维度是通过相位角度划分的。
 
 SE:Simplistically speaking,yes.Although there are many other ways of achieving the same thing,and these other ways are in use in some of the other universes created by my peers,the eleven other Source Entities.Maybe we can discuss these methods in future dialogues,but right now this helps to briefly explain my construction of this universe. 
 
+源实体：简单说是这样的。尽管我的那些同伴，其他11个源实体在创造其他宇宙的过程中，也使用了其他方法来达到同样效果。也许我们可以在今后谈话中在讨论这些方法，但现在这有助于我简单的解释宇宙的构造。
+
 ME:I have read a number of science fiction books where the characters in the story line move from one dimension to another by "rotating"out of this dimension.Ifind that quite bazaar.It's so close to the description that you have just given me that it could be contrived from my memory and not channeled as part of this dialogue. 
+
+我：我读过许多科幻小说，故事中的人物通过旋转脱离一个维度，移动到另一个维度。我觉得这事很光怪离奇，与你刚刚向我描述的非常接近。这是不是来源于我的记忆，而不是传导所得呢？
 
 SE:Believe me,it's not.The description used by the science fiction writers all of you allude to is but a word used to make the transition from one dimension to another believable from a storyteller's point of view.The fact that the description is close to the truth is not due to the knowledge of the author but is due to the author's higher self having subconscious access to the reservoir of universal knowledge that every entity has access to.Hence,the use of a word that is close to the truth.The very fact that you have been having trouble understanding the functionality of dimensional existence justifies that fact that the description in this dialogue has come from me and not from your memory of a science fiction book you once read.Does this dialogue make an attempt to help you understand the dimensional function of this universe? 
 
+源实体：相信我，不是这样的。你提到的科幻小说作家所使用的描述，只是从讲故事的角度来使维度转换看起来更可信。这种描述与事实接近，并不是因为作者自身的知识，而是由于作者的高我在潜意识层面连接着宇宙知识库。我们每个人都是如此，因此使用了这个最接近真相的词。事实上，正因为你在理解维度功能方面一直有困难，反而证明了对话内容来源于我，而不是你读过的科幻小说的记忆。这个对话能帮助你理解这个宇宙的维度功能吗？
+
 ME:Yes,it does.It helps a lot. 
+
+我：是的，确实帮助很大。
 
 SE:Then I have succeeded in helping you understand. 
 
+源实体：我成功地帮助你理解了他。
+
 #### The Source Entity on the Roles of the Twelve Dimensions of Consciousness/ Awareness 
+
+**源实体谈12个意识/觉知维度的角色**
 
 ME:Now,what about the twelve dimensions.I thought that there were an infinite number of dimensions? 
 
+我：为什么是12个维度呢？我还以为有无数维度。
+
 SE:There are,of course,but I decided that I would apply twelve to the universes that I created.I primarily decided this because there were twelve Source Entities created.It seemed like a good idea at the time. 
+
+源实体：是有无数个维度，但是我决定在我创造的宇宙中使用12。我这样决定主要是因为有12个源实体被创造出来，在当时这似乎是个好主意。
 
 ME:So what are the reasons for the twelve dimensions in an operational sense? 
 
+我：那么，在操作层面上，12个维度有什么意义呢？
+
 SE:Each one is a layer that is closer to the Origin/God,if you like.Each one is special in its own right.They all have a job to do,and as you progress towards the Origin, not only do you progress through the frequencies but you also progress through the dimensions. 
+
+源实体：每一个维度是更接近起源/神的一层，如果你喜欢那么叫的话。每个人都有自己的独特之处，他们都有自己的活要干，当你朝着起源不断前进的时候，你不仅通过频率在前进，也通过维度在前进。
 
 As was previously stated by the Origin,each of the dimensions has twelve dimensions associated with it and nested within it.These are grouped in octaves (tritaves)of three dimensions.This is particularly important for the lower dimensions as they are closely associated with the physical levels.Don't forget that the Origin has 12 x 12 x 12 x 3(tritaves); without this basic structure,they would not be able to function properly. 
 
+正如起源在前面提到的，每个维度内部还有相应的12个维度，这些被分成3个维度的八度一组。这对于较低的维度尤其重要，因为它们与物质层密切相关，别忘了起源有12 x 12 x 12 x 3（三度）。如果没有这种基本结构，它们的功能就不正常。
+
 ME:I got the word "work"rather than "function"properly. 
+
+我：我接收到的是“工作”这个词，而非“功能”。
 
 SE:Don't get confused with this information and the information that I am going to give you.It is different from what the Origin gave you.Also,your own level of reference is so lacking in detail that you won't possibly be able to understand some of it(maybe most of it at times will be right over your head).The difference between work and function is significant,to say the least.Work suggests a task with a pre-set profile, whereas function means that it is...functioning.It does not need to have work to do to allow it to function.It just needs to be!In the instance of a dimension,it functions as a dimension;it does not work as a dimension.It just is.Now then,what makes a dimension work is what the entities that exist within that dimension do within it insomuch as how they relate to it and what they do with it.Many entities that have progressed up the dimensional ladder away from where you currently are projected are able to understand their function and work it to their own advantage.This is also correct for entities that have never felt the need to project themselves down to the lowest levels,as you have,to accelerate their evolution.If you considered that water was a dimension,you would see what I am talking about.Water just is,but you use it for all sorts of things.You work with it to create ice,steam,gases,differing concoctions for personal consumption,washing,cooling etc.,etc.The list is endless. So you see,a dimension IS,and it is what you make it.The twelve dimensions are not specifically what you think they are. 
 
+源实体：不要对这些信息以及我打算传递给你们的信息感到困惑，它与起源给你的信息是不同的。另外，由于你的参考层缺乏细节，因此你可能无法理解其中的一些内容，有时大部分信息你无法理解。工作和功能的区别很明显，工作意味着有预设的一项任务，而功能则意味着它只是在运作，它不必非要有一个工作才能运转，它仅仅是以其所是的状态在运作。在维度中，它作为维度在运作，而不作为维度在工作，就是这样。现在，能让维度工作的，是维度中存在的实体所做的事情，以及其如何关联、如何适应。许多已经进化到超越你所在的维度层级的实体够理解自身的功能，并且将之作为自己的优势而运用在自己的工作中。对那些从未想投射到最低层级来加速进化的实体来说同样如此。如果你设想水是一个维度，你就会明白我在说什么。水就是水，但你可以用它来做各种各样的事情，制造冰、蒸汽、气体、用于个人消费各种的混合物、洗涤、冷却等等无数用途。因此你看，维度就是维度本来的样子，就看你如何使用及塑造它，12个维度并不是你所想象的。 
+
 ME:I would have thought that there are different levels of dimension and that they are parallel to each other,just like we are told by our science fiction writers and physicists. 
 
+我：我认为有不同层级的维度，并且他们是相互平行的，就像科幻小说作家和物理学家告诉我们的那样。
+
 SE:Mmm,they are sort of correct,but I will explain them below. 
+
+源实体：很正确，我会在下面解释。
 
 Dimension Function 
 
@@ -3972,86 +4038,179 @@ Dimension Function
 - 8 Hope(Transform different ideals into form) 
 - 9 Interconnectedness (Access to other dimensions below dimension 9.The first of the free access dimensions) 
 - 10 Temporal Stability-Static function,the ability to change the universe forever(no turning back) 
-- 11 Universal Creation (The dynamic sphere of creation,ever changing-no stability [Chaos], SE level) 
-- 12 Total Awareness Constant connection with all dimensions at all times.Oneness with the SE &O 
+- 11 Universal Creation (The dynamic sphere of creation,ever changing-no stability “Chaos”, SE level) 
+- 12 Total Awareness Constant connection with all dimensions at all times.Oneness with the SE & Origin 
+
+**维度的功能**
+
+- 第1维度：高度（第一层级物质维度）
+- 第2维度：宽度（第二层级物质维度）
+- 第3维度：深度（第三层级物质维度）
+- 第4维度：事件（时间）（第四层级物质维度，但处于无形的边缘）
+- 第5维度：思维形态（创造）（第五层级物质维度，既有形又无形）
+- 第6维度：信念（认知自己能做所能做的）
+- 第7维度：和谐（理解并顺随宇宙流动）
+- 第8维度：希望（将不同的理念转化为有形）
+- 第9维度：内部互联性（随意拜访9以下的其他维度，第一个可自由访问的维度）
+- 第10维度：暂时稳定（静态功能，永久改变宇宙的能力）（不能撤回）
+- 第11维度：宇宙创造（球状的动态创造，永恒变化）（不稳定，混沌）（源实体级别）
+- 第12维度：完全觉知，不间断同时连接所有维度，与源实体及起源合一
 
 ME:What!These aren't dimensions! 
 
+我：什么！这些不是维度！
+
 SE:Yes,they are.You see,the dimensions are dimensions of consciousness/awareness.These are only available as your level of evolution increases upwards.
+
+源实体：它们是的。你看，维度是意识/觉知的维度。只有当你的进化层级上升时，它们才会可用。 
 
 ME:But I thought they were like different levels of physicality. 
 
+我：但我认为它们就像不同的物质层。
+
 SE:They are to a point-this point is where you leave the tangible and move into the intangible,i.e.,you move away from the levels that manifest themselves in physicality as you know/perceive them and move into the non-physical levels that require perception based upon evolution.Only when you have this do you have the ability to use/move through the other dimensions. 
+
+源实体：在某一点上它们是物质的，这个点就是你脱离有形，进入无形，也就是你脱离显化在眼前的物质层面，进入非物质层面，而认知这些层面取决于你的进化程度。只有当你达到了这样的进化程度，才有能力使用或移动到其他维度。
 
 ME:Referring to a conversation I had previously with you,how about aliens and their travel between dimensions-how does this work? 
 
-SE:[It works]because they are working from the 9th dimension and use the bottom five to help them experience things.You also assume that they are ALIENS.They are not. They are just entities dipping into the lower levels to experience certain things to advance their own evolution without the need for the lengthy/complicated process of being incarnated.They don't achieve the same level of inertia in terms of speed of evolution that those who incarnate do because they never experience the "cut- offness"that you experience and feel.But they are nevertheless living,working, moving,and evolving through the dimensions. 
+我：这让我想到我们之前讨论过的话题，外星人以及他们如何穿越维度旅行，那是如何运作的？
+
+SE:[It works]because they are working from the 9th dimension and use the bottom five to help them experience things.You also assume that they are ALIENS.They are not. They are just entities dipping into the lower levels to experience certain things to advance their own evolution without the need for the lengthy/complicated process of being incarnated.They don't achieve the same level of inertia in terms of speed of evolution that those who incarnate do because they never experience the "cut-offness"that you experience and feel.But they are nevertheless living,working, moving,and evolving through the dimensions. 
+
+源实体：他们之中很多在第9维度中运作，并使用底部的5个维度来帮助他们体验事物。你们认为他们是外星人，但他们不是。他们仅仅是可以不经历漫长复杂的转世化身的过程，而蜻蜓点水般进入较低层级去体验某些事物来促进自身进化的存有。从获得进化的速度的角度来说，他们没有转世化身存有们获得的速度那么快，因为他们从未体验过那种分离感。但他们同样也是在不同维度中生活、工作、移动并进化着的。
 
 ME:So hold on a moment.My understanding is that we are all parts of YOU,and that we are,when we are not incarnate,part of everything that is,including the full suite of dimensions.
 
+我：稍等一下。我的理解是我们都是你的一部分，当我们不是肉体化身时，我们是所有一切的一部分，包括整个维度。
+
 SE:That is correct.You are.However,you have to evolve to a certain level before you can move on.You can do anything you want but that is only truly available to you when you have the experience and wisdom to be able to use the power properly. 
+
+源实体：对的。但必须先进化到达一定的层级，你才能继续前进。你是能做任何事情，但也只有当你有经验与智慧去合理使用力量的时候，你才能真正达到随心所欲。
 
 ME:Hang on.This sounds like you are talking about evolution in the physical and not reality! 
 
+我：等等。你谈论的像是物质层次中的进化，而不是实相中的。
+
 SE:It may sound like that,but it is not so.The whole point of you being "individualized" is so that you can all experience things.These experiences are fed back to the Origin and Me for the Origin's benefit,in terms of learning more about Itself and Me because I am interested in achieving the same thing,except by diversifying Myself down into billions of parts.Part of your creation requires you to fully understand yourself as well,in a similar vein to the Origin and Myself.And this only happens through experimentation leading to expanded knowledge and subsequently,evolution.Part of your evolution requires you to understand your limitless limitations,but the limitlessness takes some understanding.For instance,you only know that you can ride a bike when you have learnt how to ride a bike.This is the same for the awareness of the dimensions and your ability to work within and without them and manipulate them at will.Further,your level of evolution allows you to access parts of or all of the dimensions from any particular point.This means that you are able to access the knowledge you have of the manipulation of the energies surrounding and making up the dimensions from any point as well,including that part of you that is projected into the physical.This is the reason why you can communicate with me,and it also justifies the reports of some people's ability to do supposedly fantastic things,such as telekinesis,telepathy,clairvoyance,etc. 
+
+源实体：听起来可能是这样，但事实并非如此。你成为“个性化”的整个意义就在于你可以体验，这些体验经验会反馈回起源与我，让起源对自身有更多了解。因为除了把自己分成几十亿份，我也对同样的事感兴趣。你的部分创造也同样要求你完全了解自己，类似于起源与我自己，这也只有通过实验产生的知识拓展以及进化才能达到。你的一部分进化需要你去理解你无限的有限性，但是理解无限性需要一些理解力。例如，你只有学会骑自行车时，才知道自己会骑自行车。对维度的觉知，在维度内外运作的能力，以及随意操纵它们的能力也是如此。更进一步讲，你进化的层级决定了你可以从任何一个特定点进入部分或所有维度。这意味着你可以从任意点，包括投射到物质界的那部分你获取操控能量的知识，这就是你能和我交流的原因。而且它也证实了为何一些人有所谓的异能，比如心灵制动、心灵感应、遥视等等。
 
 ME:So what you are telling me is that the scientific explanation of dimensions is incorrect? 
 
+我：你的意思是现有对维度的科学解释是不正确的吗？
+
 SE:Not in the slightest.The physical manifestation of what you are experiencing is, therefore,the datum from which your scientists are working.The answer is that the perception of such dimensions is based upon personal growth,and the descriptions of what the dimensions represent are in the former table.Remember the physical side of the dimensions is but a small part of what they are.The rest is literally intangible to you in your current state unless you are evolved enough to be able to cut through and manipulate what is there.Thus,you are allowed to return to your real state whilst in any state,including the incarnated state.This is what is meant by being one with God; this is what is meant by heaven on Earth because it truly is part of the whole.All you have to do is unlock the doors of perception,and you do this through evolution.The level of evolution you have achieved dictates the level of perception that you can bring with you into the lowest physical levels of energy state.This is only possible when you are highly evolved. 
+
+源实体：一点也不正确。科学家们的研究基准是你们现在所体验到的物质性的显化。答案是对这些维度的感知是基于个人成长的，维度的描述我已经在前面列出。记住，维度的物质层面只是它们的一小部分。就你当前的状态来说，剩下的维度部分对你来说还是无形的、无法接触到的，除非你已经进化到足够程度才能够进入并操纵那里的一切。因此，你可以在任何状态下，包括物质化身状态返回到真实状态，这就是与神合一的意义，这就是天堂出现在地球的意义，因为它确实是整体的一部分。你所要做的就是通过进化打开感知之门，你所达到的进化层级决定了你身处最低物质界时所具有的感知层次，只有在高度进化的时候才有这种可能。
 
 #### The Origin's Clarification of the Role of the Dimensions 
 
+**起源澄清维度的角色**
+
 I was starting to get very confused over the dimensions and what they represented.On the one hand,I was being told that they represented different levels of awareness;whereas, on the other side I was being told that they were levels of division in a holistic sense of the Origin-a division of self that was copied to some extent by the Source Entity that looked after (managed?)our universe/s.I was also being confused by the continual reference within myself to the more physical explanation of the dimensions that human science offers us.For instance,the type of science that I was used to,using "human terms"to explain dimensions and their relationship to each other,is more akin to science fiction with its continual reference to parallel universes and wormholes in space time and assumptions that are continually being updated by new discoveries in quantum mechanics-the research of which seems to be,at least in my mind,spurred on by assumptions made by science fiction writers.As hard science in this area always appears to be "catching up with fiction"(are the authors tapping into the Source/Origin?Mmm.I wonder),I am being told from the highest authority,our GOD,the Source Entity and its creator,THE ORIGIN who is arguably God personified and "in total,"that the dimensions are levels of awareness.How could this be? Which is correct?I stood perplexed and even more confused.As a result of this,I resolved to go to the top and ask the Origin what the dimensions were.As I type this last sentence,I start to hear the answer already.I prepared myself for the clarity of mind needed to make contact with the Origin,but the contact was already there. 
+
+我逐渐对维度以及它们代表什么感到困惑。一方面，我被告知它们代表不同的觉知层级；但是另一方面，我又被告知它们是起源在整体意义上的一种自我分裂的层级。这种分裂在某种程度上被看管（管理）我们宇宙的源实体所模仿。我也对自己不断冒出的人类科学对于维度的更加物理学的解释感到困惑。例如，我曾经用熟悉的科学语言，用人类术语去解释维度和它们之间关系的那种科学，更类似于科幻小说，且不断引用平行宇宙和时空虫洞以及一些假想，这些假想正不断被新的量子理论所证实。但量子理论在我看来，很像一种由科幻小说的假想所驱动的理论，这一领域的科学似乎总是在追赶小说。（那些作者连接到了源头/起源吗？我曾这么想过）我被最高权威，我们的神、源实体和它们的创造者——起源所告知，维度就是觉知的层级。这怎么可能呢？哪个是正确的，我感到不知所措，更困惑了。因此我决定去到最高层级向起源询问一下维度是什么？当我输入最后一个句子时，我已经开始听到答案，我理清头脑准备与起源连接，但连接已经在了。
 
 ME:O.K.O.K.,so what is the answer then?I can imagine that there are many scientists lining themselves up to shoot me down on this in a couple of years,so it had better be good. 
 
+我：好的好的，那么答案是什么呢？我可以想象，未来几年中会有许多科学家排着队要把我拨倒。因此，它需要好一点。
+
 O:They would have difficulty in doing so since they don't really understand the data that they are gaining now.They don't have the right reference point to start from,so how can they comment on something that they know nothing about in the most fundamental sense?Remember,they are searching in the dark for something they can't see or feel or even know what it looks like.As a result,when they bend down and pick up a piece of string,they think because they found it in the dark,that it is part of what they are looking for,and,therefore,give it a quantum name,quantum string,or super string. 
+
+起源：他们很难这样做，因为他们并不真正了解他们正在获得的数据，他们没有正确的参照点来开始，那么怎么能评论他们从根本上并不了解的东西呢？记住，他们是在黑暗中寻找他们既看不到、感知不到，甚至也不知道那是什么样子的东西。结果当他们正好遇到一小段绳子时，他们会想，既然在黑暗中发现了它，那它就是他们正在寻找的东西的一部分，因此给了它一个量子类的名称，比如量子弦或者超弦。
 
 ME:I got a picture of a banana then.Why did I type "string"? 
 
+我：我看到了一个香蕉的画面，为什么我会打出“弦”这个词？
+
 O:I guided you because people would not understand the reference to a quantum banana even though the explanation has the same value.Using a name like Quantum Banana Theory would not carry the same level of respect within the circles of quantum scientists.Having said that,I have difficulty in giving string the same level of respect as well.The reality of the matter is "matter."And this gets in the way of awareness and understanding. 
+
+起源：是我引导你这么做的，因为人们不会理解量子香蕉的意思，尽管这个解释其实是等价的。使用像量子香蕉理论这样的名字，在量子科学家的圈子里可不会得到同等级别的尊重。既然这么说了，对于弦这个词，我同样觉得很难给予尊重。这件事的问题就是物质，而这个问题会干扰觉知和理解。
 
 ME:Why? 
 
+我：为什么？
+
 O:Human science is based upon what can be seen,touched,or (more recently)detected. The issue here is that the detectors only detect the physical manifestation of the dimensions and the frequencies that operate within them.This is a much,much smaller piece of the picture than they can possibly imagine.However,there is a clue being given here.That is the use of detectors to detect and present things or events that the ordinary physical senses of the human body cannot normally see,feel,touch,taste,or smell.There are other things happening that scientists were not AWARE of. 
+
+起源：人类科学是基于眼睛能看到、手能摸到，或者仪器可探测到的东西。这里的问题是，探测器只能探测到维度和频率在物质层次显现出来的部分，然而这是超越他们想象的一个大得多的途径中一个很小部分而已。这里的线索就是利用探测器来检测和呈现那些普通肉体感官无法正常看到、感觉到、触摸到、尝到或嗅到的事物。然而还有一些科学家完全觉察不到的事情。
 
 Now here is an exercise in expansive thought.Because scientists can use mechanical means to detect things that they were not previously able to detect,it gives them physicality.It gives them substance,but more importantly,it gives them the door to the truth and the fact that there is more to what they are experiencing than they can detect by physical means alone.They are,therefore,more aware that there is more and that "the more"may not be in the quantifiable physicality of the physical world,and,therefore, must belong somewhere else.That somewhere else is "yet to be defined." 
 
+现在来做一下拓展你思维的练习吧。正因为科学家可以使用机械方式检测他们以前无法探测到的东西，提供物质性验证或内容。但更重要的是，这给予了他们通往真理的大门，其还有更多超出物理检测范围却为他们所体验的事物的这一事实。他们因此更觉察到还有更多不属于这个可量化的物质世界的内容，因此他们属于某个其他地方，而这个其他地方还有待定义。
+
 So to put it in a nutshell,the dimensions are,indeed,levels of awareness,and these levels of awareness are relative to aspects of the universe that are accessible as a direct result of the individual's personal evolution. 
+
+所以简单的说，**维度其实是觉知的层级**，觉知的层级与宇宙的一些面向相联系，而这些面向只有在个体进化以后才可以接触到。
 
 ME:O.K.,let's talk further about the dimensions and my confusion over what they really are. 
 
+我：好的，我想进一步讨论一下关于维度和它们到底是什么的困惑。
+
 O:As I said before,the dimensions are layers of awareness. 
+
+起源：就像我之前说的，维度是觉知的层次。
 
 ME:You said "levels"last time. 
 
+我：上次你说的是“层级”。
+
 O:Levels/layers,they're all the same thing.The level of awareness behest/command in the individual dictates their level of awareness.By this I mean what they perceive as reality measured against what they experience as reality is based upon where their "consciousness"is focused.It is difficult for you to grasp in your current state because of the extreme limitations that are placed upon you in this dimension/level of awareness. 
+
+起源：层级/层次，它们是一回事。个人的觉知水平决定了他们的觉知层级。我的意思是，他们感知的实相与他们体验到的实相是不是相同，是基于他们将意识集中于哪里。当前的状态下你很难理解，因为在当前维度觉知水平中，你受到了极大的限制。
 
 Your level of awareness increases as you progress through the frequencies of lightness. 
 
+当你在光的频率上取得进步时，你的觉知水平就会提高。
+
 ME:But...
+
+我：但是...
 
 O:Before you say that I have switched to a physical description,hear me out.In what you call "spirit,"you have no form or substance,at least not what you recognize as form and substance.You are part of the whole,ME,your SOURCE and every "thing"that is created by us,and all the other entities I have given form [individual identity]. The level of awareness you have is a direct result of the level of experience of other things,things that have been created by you or others.This gives you a capacity for understanding what is created within creation itself,i.e.,what I have created.This removes the limitations of self and mind(spirit)and allows the individual to access information and experience what can only be accessed on the nine physical spiritual levels.The frequencies are levels of physicality whereas the dimensions are levels of awareness-awareness of and experience of the fact that everything is happening all at the same time.Humanity's need for separation of the dimensions into levels or parallelism is a result of a deep down knowing of the greater truth,due to some of the experience and knowledge of the higher self that trickles through the pipe to the subconscious.An inability to intellectualize it is due to a lack of evolution and subsequent awareness.
 
+起源：在你继续说之前，我换一个物质性的描述，请听好。在你所说的“灵”来说，它没有任何形态或内容，至少不是你所认知的形态或内容。你是整体/我/你的源头以及我们创造的万物的一部分，你所拥有的觉知水平是体验其他事物水平的直接结果，这些事物是由你或其他人创造的。这时你能够理解在创造本身中所创造的内容，比如我所创造的东西。这消除了自我和心智（灵）的局限，允许个人获得只有在9个物质灵性频率层次上才能获得的信息和经验。**频率是物质性的层级，而维度是觉知的层级**——对一切都在同时发生着的觉知及体验。人类意识中将维度分成层次的需要，是基于内心深处对更大的真相的直觉和理解，这是来自高我的经验和知识，而无法将其知识化则是因为缺乏进化以及相关觉知。
+
 ME:So when you have a cluster of dimensions together,i.e.,12,you also have a level or levels of physicality associated with them. 
+
+我：因此，当你有一堆比如12个维度的集合体时，也会有与它们相关联的一个或者多个物质层级。
 
 O:Sort of,except that the levels of physicality are not what you expect,i.e.,not at the same level of density. 
 
+起源：某种程度上是这样，但物质层级不是你所想的那样，例如，不是相同的密度水平。
+
 ME:So what level of density are we talking about here? 
+
+我：那么它们是什么样的密度？
 
 O:Levels of spiritual density rather than levels of physical density. 
 
+起源：它们是灵性密度层级，而不是物质密度的层级。
+
 ME:What?You mean there are levels of density in spirit as well!? 
+
+我：什么？你的意思是灵也有一定密度层级？
 
 O:Of course. 
 
+起源：当然。
+
 ME:Are these frequencies as well? 
+
+我：这些也是频率吗？ 
 
 O:Yes,of course,but they only apply to the lower levels of dimension (awareness).After these levels there is no density attached to awareness. 
 
+起源：是的，当然。但它们只适用于较低层级的维度，在这些层级之上，觉知是没有密度的。
+
 ME:Where are these levels in the scheme of things then? 
 
+我：这些有密度的层级在哪里呢？
+
 O:They are what you might call the upper and lower astral levels-the areas where the interface between the true spiritual levels start and the highest physical frequencies end.
+
+起源：它们位于你所说的上层和下层星光层，是较高的物质频率结束并与真正灵性层级开始交界的地方，
 
 #### The Source Entity on Links Between Frequency-Based Universes(Wormholes?) 
 

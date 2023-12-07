@@ -204,11 +204,15 @@ To love our enemies is to love ourselves,for our enemies are our "selves."Recogn
 
 We are here to be of service to those who need help and do so in a selfless way that does not demand reward.Being of service in general creates positive karma(attraction to the higher frequencies),but we must be careful not to get into the mindset that suggests that we will be rewarded at some time,for this creates negative karma(attraction to the lower frequencies).
 
+我们在这里是为那些需要帮助的人提供服务的，而且是以一种无私的、不要求回报的方式提供服务。一般来说，提供服务会产生积极的业力（对较高频率的吸引），但我们必须小心，不要陷入那种认为我们总有一天会得到回报的心态，因为这会产生消极的业力（对较低频率的吸引）。
+
 ### Defining Our Motivation 
 
 **定义我们的动机**
 
 Standing back and considering the motivation behind our actions is necessary.Are we motivated based upon need or greed?Service or selfishness?Any actions that are based upon physical motivations are attractions to negative karma.
+
+我们的动机是需要还是贪婪，是服务还是自私？任何基于物质动机的行为都会招致负面的业力。
 
 ### Avoiding Gossip 
 
