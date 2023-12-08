@@ -3500,7 +3500,7 @@ SE:In a nutshell,yes.
 
 ### Chapter 8 - The Source Entity on the Theories of Creation 
 
-**原始体谈创造论**
+**源实体谈创造论**
 
 #### Creationists'and Scientists'Views of Creation 
 
@@ -4214,179 +4214,355 @@ O:They are what you might call the upper and lower astral levels-the areas where
 
 #### The Source Entity on Links Between Frequency-Based Universes(Wormholes?) 
 
+**源实体谈基于频率的宇宙之间的联系（虫洞）**
+
 ME:One of the things that has bugged scientists and me for some time is the function of a science fiction phenomena turned scientific theory called "wormhole theory,"the so-called link between dimensions or frequencies to aid the travel between distances in our universe to the point where it is almost instantaneous.I guess it was once called hyperspace,but we have gotten sexier in our use of words. 
+
+我：有件事一直困扰着科学家和我很长一段时间，那就是科幻小说中的情节转变成了科学理论中的“虫洞理论”，也即维度或者频率之间的连接，用来协助宇宙间的顺势旅行。我想它一度被称为超空间，但我们使用了更性感的表达。
 
 SE:I don't think you have gotten sexier but possibly more accessible to the common man with the description of scientific data to aid understanding,and,dare I say,allow those with the research purse strings to get a grip on what they are spending their money.For you are more likely to spend money on what you think you can understand than what you don't feel you will ever understand,hence,the use of more basic nomenclature. 
 
+源实体：我不认为你们在这件事上变得更性感了，不过这种科学描述的确有助于普通人理解。请容我这样说，这让那些掌握研究经费钱袋子的人能大致了解一下他们把钱花在哪了。因为你更有可能把钱花在你能理解的东西上，而不是花在你觉得永远不会理解的东西上。因此，要使用比较通用的命名法。
+
 ME:So is it possible to transverse the frequencies or dimensions?Sorry.Of course,it is.You have explained all of this before. 
+
+我：有没有可能穿越维度？抱歉，的确能够穿越维度的。你之前说的一切都是在解释这个。
 
 SE:I have,but let me explain the function in another way,a way that is in keeping with the Wormhole Theory. 
 
+源实体：是的，但让我用另一种方式来解释这个机制，一种可以与虫洞理论保持一致的解释。
+
 If you can consider the universe is made up of many frequencies and that the top frequency allows transition to the next dimension "UP,"you will understand that the bottom frequency allows transition to the next dimension "DOWN,"so to speak.Now it is possible to travel faster by increasing your vibrations or frequencies to those that are higher or lower than those in which you currently exist.But this requires an entity that is advanced in evolution or the use of a specially designed and manufactured machine to do it for you. 
+
+如果你认可宇宙都是由许多频率组成的，你会明白某一维度的顶部频率可以向下一个维度上升，也可以通过下一个维度的底部频率向上一个维度下降。通过提高频率达到比你当前所处频率或高或低的层级，你可以更快的在维度中旅行。但这需要你处于更高的进化水平，或者使用专门设计与制造的机器。
 
 Or...
 
-You can use what is naturally occurring in the nature of the frequencies and dimensions. You can use what you call "wormholes. 
+或者...
+
+You can use what is naturally occurring in the nature of the frequencies and dimensions. You can use what you call "wormholes". 
+
+你可以使用频率和维度上天然存在的东西，可以使用你所说的“虫洞”。
 
 ME:So,what are wormholes? 
 
+我：那么，虫洞是什么？
+
 SE:Well,what I can tell you is that they are neither holes nor worm-shaped,so this will bugger up a few theories and science fiction film footage.They are,however,an area of frequential weakness between frequencies. 
+
+源实体：好的，我能告诉你的是，它们既不是洞，也不是虫状的，所以这将会破坏一些理论和科幻电影情节。然而，它们是频率之间的一个频率薄弱区域。
 
 I shall explain this further. 
 
+我将进一步解释这个问题。
+
 Imagine that the frequency that you exist within is flat,like a huge blanket all over the universe.Now imagine that the frequencies above and below are not only flat as well but spaced equally above and below the frequency that you exist within.We now have three frequencies,a middle "you,"an upper,and a lower,each having its own nominal frequency.Now imagine that we have anomalies within this flat frequential surface where the frequencies are either higher than the nominal or lower than nominal. These are locally higher or lower frequencies that are still part of or in tolerance with your frequential surface.These would look like dips in the surface or lumps in the surface where the higher frequencies or lumps are representative of the local increases in frequency,and the lower frequencies or dips are representative of the local decreases in frequency.The areas of higher frequency are a product of the entities that work in that area who are generally more evolved and,therefore,working at a higher level or frequency.And the areas of lower frequency are a product of the entities who work in that area that are generally less evolved and,therefore,working at a lower level or frequency. You could relate these to two differing races where one race is working in harmony with each other and their neighbors,whereas the other is at war with their neighbors or in disharmony with each other. 
+
+想象一下，你所存在的频率是平的，就像一个铺满宇宙的巨毯。现在想象一下，上面和下面的频率不仅是平的，而且在你所存在的频率中上下是等分隔开的。我们现在有三个频率，中间是你，在你之和之下的频率每个都有自己的标称频率。现在想象一下，在这个平坦的频率面出现了异常，要么高于要么低于标称值。这些局部偏高或偏低的频率，仍然是你们频率面的一部分，或者说可以被容纳。看起来就像是平面上的凹陷或凸起，高频或凸起代表了局部频率的增加，而低频或凹陷代表了局部频率的下降。局部频率升高，是因为在该区域运作的实体更加进化，也因此能在更高的层面或频率上工作。局部频率下降，则是因为该区域工作的实体不那么进化，在较低的水平或频率运作。你可以将他们认为是不同的种族，其中一个种族成员之间与其邻居均和谐相处，而另一个种族则内争外斗，处于不和谐中。
 
 Imagine also that there are dozens or hundreds of areas like this all over the surface, making it more lumpy than flat.The picture you should now be able to visualize is a sheet with lots and lots of lumps and bumps and dips all over it,rather like the surface of a choppy sea.Now imagine that this is also possible in the two frequential planes above and below your plane,and that they also have localized areas of both higher and lower frequencies.You should now have three choppy seas with one above and one below your sea.With the sea,the level of choppiness changes as a direct product of the local wind.As with the sea,the number of and the height and depth of the higher and lower frequency lumps within these other two planes changes as a direct result of the work of the incumbent entities;therefore,the bumps change as does their location.It can,therefore, be seen to undulate in shape.
 
+想象一下，在平面上有几十几百个这样的区域，这使得它更加凹凸不平。你现在应该能想象到的是一张纸，上面有很多很多凸凹起伏，就像波涛汹涌的海面。现在想象，在你频率层上下的两个频率层也可能如此，也有局部偏高和偏低频率存在。现在，你有三个波涛汹涌的海面，一个在你的海域上面，一个在你的海域下面。在海面上局部风向的变化会直接影响海面的波动变化，而频率的海面其较高与较低频率的高度和深度是由所处实体的工作直接造成的。因此，这些凸起会随着这些实体的位置而变化，因此可以看见其形状的起伏。
+
 This movement is a result of the migration of entities of higher and lower frequency around the plane of their existence or their rise or fall in evolutionary levels for one reason or another.The product of this is that at certain points at certain times a higher area of the middle frequency(your frequential plane),may touch or overlap that of a part of the higher frequential plane that is both at a lower frequency and in the same spatial area.This allows an entity to translate from one higher part of a lower frequency to the lower part of a higher frequency,effectively translating to an overall higher frequential plane in the process.However,that entity may not find it particularly comfortable because the natural movement of the plane moves upward in frequency as a result of natural evolutionary movement.It may well move too quickly for it. 
+
+这种情形产生的原因是一些频率或高或低的实体在所处层界中迁移，或者是他们因各种原因在进化层级中提升或下降。其结果是在某一特定时间点中间频率层，也就是你的层面上，某个频率偏高的点可能会接触或重叠上层频率层次中频率偏低同时又处于同一空间的某个点，这会让一个实体能从较低频率层次的高频部分转到较高频率界的低频部分，从而有效转入一个频率普遍高一层的界中。但是，这个实体可能并不觉得特别舒服，因为频率面自然提升运动是自然进化的结果，对于他来说，可能移动的太快了。
 
 Similarly,this can also operate in reverse with a lower frequency allowing an entity to translate to a lower frequency and,subsequently,endure a lowering of its own frequencies,which it will also not find particularly comfortable.Both conditions happen on a continual basis up and down the frequencies and,indeed,up and down the dimensions in a similar way. 
 
+同样的，他也可以反过来进入较低的频率界，也因此需要承受自己频率的降低，并同样会感到不舒服。在频率和维度中，这种上上下下的情况会不断地发生。
+
 Interestingly enough,however,it does have to be said that the higher up the frequencies you go,the flatter the surfaces and the more remote the opportunities to transverse up or down the frequential levels.So the appearance of the level of choppiness is reduced the higher up the frequencies you go.This is a general representation of the increase in harmony,resulting in the reduction in the distance between the entity and the Origin.
+
+但有趣的是，有一点不得不说，那就是你上升的频率越高，频率面就越平坦，在频率间上下横穿的机会就会越小。频率越高，波动越小，这通常代表着和谐性提高了，和谐性的提高使实体与起源之间的距离拉近。
 
 #### Life in Other Dimensions 
 
+**其它维度中的生命**
+
 ME:We have talked a lot about dimensions and frequencies,what they are and how they are separated,but we have not talked about life in these altered states. 
+
+我：我们已经讨论了很多维度和频率，它们是什么以及他们是如何被分开的，但是我们还没有谈到在这些变异状态中的生命。
 
 SE:First,they are not altered states in terms of an environment for existence although to you they may seem to be.They are states in their own right with their own sets of entities that exist within them. 
 
+源实体：首先，就生存环境而言，他们并不是变异的状态，虽然对你来说很像是。他们是独立的状态，有自己的实体生活其中。
+
 ME:Do they have a physical aspect to them as well? 
+
+我：他们也有物质性的属性吗？
 
 SE:In terms of them having differing frequency levels as well,they do,of course,have physical levels as your own dimension.Remember,everything is duplicated;it is just at a different rotational position of phase.The issue for you is this:do entities in other dimensions incarnate into bodies created to exist in lower frequencies,and if they do, what do they look like? 
 
+源实体：就他们也有不同频率的层级而言，他们当然也有物质层级，就如你的维度一样。记住，一切都是复制的，只是处于不同的旋转相位。你的问题是在其他维度上的实体是否也会转世于适合较低频的物质肉体中，如果有，他们看起来是什么样子？
+
 ME:Yes,sort of. 
+
+我：是的，差不多。
 
 SE:Well,the answer is that all but three of the dimensions have entities that exist above the need to be incarnate in physical bodies.They simply do not need to go down to that level. 
 
+源实体：好的，答案是只有三个维度中的实体需要转世化身于物质肉体中，其他维度的实体并不需要这样做。
+
 ME:Are they more highly evolved?
+
+我：他们的进化程度会更高吗？
 
 SE:Not necessarily,it's just that they have not exposed themselves to the experiences that have given you the opportunity to drop down to the physical levels and experience existence at its lowest level of useful frequency. 
 
+源实体：不一定，只是他们没有给自己去经历你们的那些体验的机会，这些体验提供了转世到较低物质界的机会，以及在最低的可用频率中去体验。 
+
 ME:So what do they look like? 
+
+我：他们看上去是什么样的呢？
 
 SE:They are too many and varied to describe in one book,let alone one dialogue,and to be honest,it would not be very useful to you.Humanity has enough imagination to make extremely good guesses at the physiology of physical entities,no matter what dimension they come from.Just look at the creatures you have in your science fiction films.No,it would not be useful to you.However,what I am prepared to share with you is that in every dimension and every frequency,no matter how high,the entities that exist in them have the same level of constraints,physically. 
 
+源实体：他们数量很多，种类也多，一本书都写不过来，更不用说用一段对话了，说实话，这对你来说也不是很有用。无论存有来自于什么维度，人类都有足够的想象力来猜想各种维度中物质实体的样子，只要看看科幻电影里的生物就可以了，这问题对你没有用处。但是我想与你分享的是，在每一个维度和每一个频率中，无论他们层级有多高，在其中的存有在身体上都具有相同层级的约束条件。
+
 Let Me explain more.In your dimension and frequency,if you touch one another or a door or a table top,you feel resistance.This is because you and the objects around you are all at the same frequency.These are your physical boundaries,your physicality. Now if you use the word physicality to describe this resistance to the point of inability to pass through an object,then you have what is called "substance."The more solid or dense an object or entity,the more substance it has and the less opportunity you have for physical "interfraction."Interfraction is a word I use to describe the ability of two objects of differing frequency to mix and merge in the same space at the same time whilst being manifested in both frequencies at the same time,as well.This means that together they occupy space in two separate frequencies simultaneously.They mix atomically, sub-atomically,and energetically to create a single entity or object but are made from two different and independent entities/objects from two independent and different frequencies.This is a rare occurrence at your frequency,but it happens alot in the higher frequencies,especially with entities that wish to share the same experience at the same time.This,in fact,was a method used by human entities some millennia ago when the physical human body was at a much higher frequency than it is today.And is one of the causes of your demise frequency-wise. 
+
+我再解释一下，在你的维度与频率中，如果你们彼此接触，例如接触一扇门或是桌面，你会感到阻力。这是因为你和周围的物体的频率是相同的，这些是你的物质边界，你的物质性。现在，如果你用物质性这个词来描述不能穿越某个物体的阻力，那么你就有了所谓的物质。一个物体或实体的固体性或密度越大，它所拥有的物质性就越多，就越不容易发生物质交存。我用交存这个词来描述在同一空间，同一时刻，两个不同频率物体混合或者融合在一起，以及同时显现在两个频率上的能力。这意味着它们同时在两个单独的频率中占据空间。它们在原子、亚原子、能量上融合在一起，创造出一个独立的实体或物体。这个新事物完全来自两个不同频率的独立物体，这在你的频率上很罕见，但是在较高的频率中很常见，特别是那些希望同时共享同一经验的存有。事实上，这是几千年前人类使用的一种方法，当时人体的频率要比现在高得多，这也是导致你们之前频率终结的原因之一。
 
 However,let's get back to the interaction between entities of the same frequency.In essence,the boundaries between them are similar to those you experience between yourselves and the world around you,insomuch as you can manipulate them physically The main difference with the entities in the other dimensions is that they are able to manipulate the objects around themselves,including themselves,energetically.This means that they don't need to,say,pick things up with an appendage of some sort because they manipulate it with their will just like you do when in spirit or when you are in the lower frequencies and are in complete control of your true abilities.Indeed,to indulge you a little with a description of an entity from an alternative dimension,I will offer the following simple description of an entity that is in one of the other dimensions where the entities are experiencing life in the lower frequencies by choice rather than by karma. 
 
+还是让我们回到相同频率实体之间的互动。本质上，它们之间的界限类似于你自己和周围世界之间的体验，正如你可以在物质上操控他们一样。与其他维度存有的主要区别在于，他们能够在能量上操纵周围的物体，包括他们自己，这意味着他们不需要用某种附件去控制另一种东西，因为他们能一直操纵，就像你在灵的状态或当你处于较低频率时，能完全控制自己的能力。事实上，为了让你对来自另一个维度存有的描述有一点了解，我将为你描述另一个维度。在那里的实体是出于自主选择，而非业力在较低的维度体验生命。
+
 The particular entity I have in mind is physical in appearance in your type of dimensional existence to the point of using a host body,just as you do.However,rather than having a complicated series of energetic and physical levels to work with,it exists independently within each of the levels within which it needs to exist.It is totally fluidic in this sense. As a shape,it is formless but nevertheless physical.The dominant shape is a sphere made of pinky red skin.The organs are entirely designed to take energy from the universe directly rather than by energy transformation,such as the chemical metabolic process of digestion.They are also able to change their structure relative to the needs of the job they have been asked to do by the incumbent spirit.Indeed the whole physical entity could be classed as a single organ that splits itself off to let those parts specialize in certain jobs for the period of time they are required.When they have finished their job, they are re-absorbed back into the whole.Appendages of all shapes and sizes are either grown or manifested when required,as are sensing functions,which are not limited to the five senses that you have in your frequency in your dimension.Its shape and form is purely arbitrary.It is what it needs to be to complete the task it wants to experience.The appendages or limbs that are manifested are created out of the surrounding atomic and sub-atomic material by the direct will of the entity.They are then used for working with substances that are difficult to work with on a physical level with the standard substance that the body is created from. 
+
+我想说的这个特别的实体具有和你们一样的物质外表，它也使用一种肉体载具。但是相比你们需要存在于一系列复杂的物质与能量频率层次中不同，它仅存在于它所属的单个频率层次中，而且它是一种完全的流体形态。它虽然没有固定形状，但也仍然是物质的，它主要的形状是一个由粉红色表皮构成的球体。它的器官被设计成直接从宇宙中获取能量，而不是通过类似消化代谢化学能量的转换过程来获取能量。为了完成灵体相应的职能，他们也能够改变自身结构来完成工作。事实上，整个实体身体可以被归类为一个单独的器官，它将自己分离，让每部分在特定时段从事他们所专长的特定工作，当他们完成工作就会被重新吸收回到整体中，各种形状和大小的附件都是在需要的时候生长或显现出来的。他们的感知功能也是同样的情况。而且并不局限于你们维度与频率中的五种感官，其形状和形式完全是随意的，它这样是为完成体验所需。它显化出来的附件或肢体是该存有直接通过意质支配周围的原子和亚原子物质而创造的，这些被创造出来的附件被用于处理其本身的身体难以操纵的物质层面的工作。
 
 ME:So if the entity needs a metal hammer,for instance,it creates one out of thin air. 
 
+我：那么如果这个实体需要一个金属锤，它就会凭空产生一个金属锤。
+
 SE:Exactly,but not only that,the hammer is physically attached to the entity just as if it had grown there like a hand or a foot.This is the most useful method of using physicality.It is the energetometabolic version of a Swiss army knife as bodies go.This "form"affords the energetic entity that incarnates in this body the best opportunity for interaction with the lower frequencies of its dimension and the others that are also experiencing life at the same time. 
+
+源实体：确切地说不止如此，锤头会附着在这个实体上，就好像手脚一样，这是使用物质最好的方法。就像一把瑞士军刀成为身体的一部分参与能量代谢，这种形式使转世在物质身体内的能量实体可以拥有最佳的在低频维度与其他形式生命互动的机会。
 
 ME:Do many entities use this form? 
 
+我：有许多实体使用这样的形态吗？
+
 SE:Billions of them use this form in that dimension.Some of them even use the form to experience life in your dimension,not that you have recognized them because they are on a slightly different frequency level that is different enough to keep them out of your physical human sight but low enough to let them experience your dimension as well. 
+
+源实体：在那个维度有数十亿实体使用这种形态。其中一些实体甚至使用这种形式在你们的维度中体验生命，你无法认出他们，因为在他们处于一个和你们稍微不同的频率中，这个频率的不同足以使他们处于你们视觉感知以外，但也足够低到使他们保持在你们的维度中进行体验。
 
 ME:I am getting a picture in my mind's eye of a pinky skin shaped blob that is sticking out a tentacle that has grown from the skin instantaneously,rather like the eye of a snail.Its skin is all blotchy,sort of white,very light brown and pink.It has no readily recognizable vision organs or appendages of complexity like humans do.How does it see and sense? What/how does it eat? 
 
+我：在我的脑海里出现一幅画，一个粉红色外皮的团状物体从皮肤上迅速长出一只触角，就像一只蜗牛的眼睛，他的皮肤全是斑点，有点白，很浅的棕色和粉红色，他没有像人类那样容易辨认的视觉器官或附肢。那他怎么看？怎么感觉？他吃什么？怎么吃？
+
 SE:Good.I see that you have been able to tune into that dimension and frequency where this incarnate vehicle shape is at its most prolific.Your questions,however,are rather superfluous as you already know the answers.They do not need to eat as they take in sustenance directly from the energies surrounding and within the dimension and frequency that they are manifest within.In terms of sensory organs,they are not necessary in the way you are referring to,as they use their normal energetic functions for communication and spatial awareness even though they are incarnate into what is classed as a physical body,but what you would classify as a body that is out of phase with the frequency that is used to experience life within.As a result,it is also able to allow the incarnate entity the opportunity to use its spiritual or energetic functions to their maximum potential.Hence,the vision you had of the blob,as you called it,to instantaneously grow appendages and add what you would call inorganic material to it at will to perform certain desired physical functions.They only create new appendages,however,if it is necessary to use physicality to experience what is required.Generally these entities use the physical vehicle to experience the frequency they are working within at its lowest frequential level. 
+
+源实体：好，我觉得你已经能够调频到那一维度和频率。在那个维度，这种化身载具非常繁多。你的问题已经不再必要，因为你知道答案了。他们不需要进食，因为他们直接从所在维度和频率环境能量中获取。就感觉器官而言，因们没有必要采用你的方式，因为即使化身为物质身体，他们也使用能量功能来进行通信和空间觉知。只不过这种物质身体与通常用来体验生命的频率处于相异的相位，因此它也能够允许化身实体最大程度地利用其灵性或能量功能。正如你看到的可以瞬间生长出附肢的团状身体，能长出无机材料以实现某种特定的物质功能。如果有必要经历某种物质性体验，他们会随时创造新的附件。一般来说，这些实体会使用物质载具来体验他们所在的最低频率层级。
 
 ME:But I thought you just said that it was out of phase with the frequency that it is in existence with.If so,how can it be at its lowest frequential level? 
 
+我：但我认为你刚才说过，它与所处频率的相位相异。如果这样的话，它怎么能处于最低频率水平呢？
+
 SE:The lowest frequential level is that which can be achieved with the entity's current level of evolution.That basically means that the lowest level that a particular entity may be able to go down to may actually be several frequency levels above the one that you are incarnate now.In essence the very level to which they have evolved restricts the level to which they can travel.So what they think is their lowest possible frequency is actually well above your own incarnate frequency.In terms of being out of phase,that means that the lowest level that that particular entity can travel down to is a level just above the level that it can manifest in.So it appears in both frequencies,one above and one below,and as a result of being out of phase is less dense in the one and slightly more dense in the other. 
+
+源实体：最低频率层级是指，以现有进化层级可以到达的最低频率层级。这只是意味着一个特定实体可能降低到的最低层级，可能比你现在所转世的层级还要高一些。从本质上说，他们进化的程度限制了他们可以去到的层级，所以他们认为的最低频率实际上可能远高于你所化身的频率。相位相异的意思是，某一特定实体可以降低到的最低层级恰好高于它能显化的那个层级，所以它出现在两个频率层级，一个在上，一个在下。由于相位相异，因此一个的密度较低，另一个的密度稍高。
 
 ME:So it would appear rather rock-like in the higher frequency since it is denser. 
 
+我：那么它是否会在那个更高一点的层级看起来像块石头，因为它密度更大。
+
 SE:No.Density is something that is not applicable in the higher frequencies.Although it would be detectable by those existing in the upper frequency,it would still be transparent,so to speak.This is because the reference to physicality that you keep using is not a law which is in use there;therefore,the "hard"translation of physicality between frequencies is not a natural process in higher frequencies.
+
+源实体：不，密度在高频率中是不适用的。尽管它可以被较高频率的存有们检测到，但它仍然可以说是透明的。这是因为你们人类一直使用的物质性参照并不适用于高频层级。因此，不同频率间物质性的“硬度”变化，在高频世界并不是自然现象。 
 
 ### Chapter 10 - The Source Entity on the Development of Human Beings 
 
+**源实体谈人类的发展历史**
+
 #### The Great Experiment to Help Origin Understand Itself 
+
+**协助起源了解自身的伟大实验**
 
 One of the questions that humanity has asked from time immemorial is "Why are we here?" It's incredible to think that we developed form and sentience out of the primordial soup over a period of millions of years.What are the chances of that happening?Billions,if not trillions,to one!Although I had covered a little bit about why we are here from an energetic entity perspective with the Source Entity of our universes and the Origin,I was intrigued as to what led to us being here in physical form and how the connection between the real us and that bit of us that is squeezed into this physical form interact. 
 
+人类从远古时代就提出一个问题，我们为什么在这里？我们在数亿年的时间里，从原始汤的环境中发展出了形体与知觉，这种情况发生的可能性有多大？数十亿分之一，还是数万亿分之一？关于我们为何在此，尽管我已经从本宇宙源实体以及起源获取了能量角度的解释，但我还是很好奇是什么导致了我们要化身为物质形体，以及本我和挤进这个物质身体的那一点我们之间究竟有怎样的联系？
+
 As it was our Source Entity that created us,I decided to contact it rather than the Origin although I was rather surprised to see that the Origin also chipped in later. 
 
-ME:O.K.,so now I am going to ask the big question that most of the world's religions claim to know and preach about,"WHY ARE WE HERE?" 
+因为是我们的源实体创造了我们，我决定联系源实体而不是起源。但我很惊讶的发现，起源后来也出现了。
+
+ME:O.K.,so now I am going to ask the big question that most of the world's religions claim to know and preach about,"WHY ARE WE HERE?"
+
+我：好的，现在我要问一个世界上大多数宗教也宣称知道答案并宣扬的大问题，为什么我们在这里？
 
 SE:That's easy.We,that is,you,Me,all the entities I have created and all the other Sources and the entities They have created are here to help the Origin understand itself.The better question should have been "Why are you here in human physical form?" 
 
+源实体：这很简单，我们也就是你、我、我所创造的所有实体、其他源实体以及他们所创造的所有其他实体，在这里都是为了**帮助起源了解自己**。因此，你应该这样问，为什么我们要以人类的形体存在于这里？ 
+
 ME:O.K.,so why are we here in physical human form? 
+
+我：好的，为什么我们要以人类的形体存在于这里？ 
 
 SE:To help the Origin understand Itself. 
 
+源实体：为了**帮助起源了解自己**。
+
 ME:What?!Now you are talking in riddles. 
+
+我：什么，你在打哑谜。
 
 SE:Absolutely not.You see,it's all part of the experiment if you want to call it that.Even the lower frequencies and the lower dimensions are part of the Origin.So what better way to understand yourself than to have part of your "self"exist with all its limitations at that level.The Origin has achieved this through Me creating you.As you experience events in your life,so do you evolve.As you experience things in your life,so do I and so does the Origin. 
 
+源实体：绝对不是，你知道这都是实验的一部分。即使是较低维度与较低频率，也是起源的一部分。还有什么方式会比让你的自我带着所有限制存在于那个层级中更能了解自我呢？起源通过让我创造你来达到这一点。当你经历生活中的事件时，你也会进化。当你经历生活中的事情时，我也在进化，起源也在进化。
+
 ME:It sounds to me that it's all being done by remote control. 
+
+我：我听起来像一切都是被远程控制的。
 
 SE:That's a reasonable thought process but incorrect.It's incorrect because you are ultimately part of the Origin.As a result of this,It is experiencing Itself through Itself, but that part of Itself,you,has been given individuality and sentience by Me,who,in turn,was given individuality and sentience by the Origin. 
 
+源实体：你说的听起来合理但不正确，因为你最终还是起源的一部分。因此，他是通过自己经验自己，但那部分他自己，即你被我赋予了个性和知觉，而我也被起源赋予个性和知觉。
+
 ME:Who gave the Origin sentience?
+
+我：那谁赋予起源知觉？
 
 SE:It developed it Itself over countless quadroupillions(zillions upon zillions)of years.The Origin is energy,matter,and form given sentience. 
 
+源实体：它在无数亿万年的时间中发展自己。**起源是被赋予知觉的能量、物质及形体**。
+
 ME:I thought that the Origin wasn't matter? 
+
+我：我还以为起源不是物质呢。
 
 SE:Everything is the Origin. 
 
+源实体：起源是一切万物。
+
 ME:O.K.We are getting off the track of what I wanted to discuss here a little bit. 
+
+我：好的，我们有点偏离了我想讨论的内容。 
 
 SE:Yes,I see,but it is a relevant discussion and a point to which we will return in good time. 
 
+源实体：是的，我明白。但这是一个相关的话题，并且我们将会在合适的时间再回到这一点。
+
 But getting down to it... 
+
+并且会更深入...
 
 It was discovered during the Origin's first efforts to understand Itself that the lower down the dimensions and frequencies It went,the more It lost contact with that part of Itself that was projected to that level-even to the point that It forgot that part of Itself was at that lower level.This was ingrained in us(the Sources)when We were created.We were given all the knowledge that the Origin had at that point in time.As a result,We all had a go at projecting part of Ourselves to the lower levels to experience it first-hand.When I created all of you,all of you knew that to experience the lower levels meant that you had to be vigilant in making sure that you didn't leave part of yourselves behind.Also,it was discovered that the best way to experience the lower levels was to experience them fully, and that meant in a form that was consistent with the density of the energies at those levels.A vehicle was needed to achieve this,and one had to be developed-one that could accept,house/maintain,and later release without harm an entity whose origin was from a higher level. 
 
+起源在第一次努力了解自己期间，已经发现进入越低的维度与频率，它与投射出去的那部分自我就越加失去联系，甚至会忘记在较低层级中的那部分自己。当我们（源实体们）被创造出来的时候，我们天生就明白这一点。在那个的起点，我们被赋予了起源的一切知识，因此我们都想试着将自己投射到较低层级去亲自体验。当我创造你们的时候，你们都明白要去体验较低层级意味着你们必须时刻保持警觉，确保你们不会遗忘某一部分的自己。同时，我们发现体验较低层级的最佳方式就是充分经历，这意味着要进入与那些层级密度相一致的某种形态中，需要开发一种载具来达到这一目标。这种载具必须可以接受、容纳、维持，并随后释放一个来自高层级的实体，而且不会对他造成伤害。
+
 #### The Source Entity's Role in the Development of the Human Form 
+
+**源实体在人类形体发展中的作用**
 
 ME:So you actually developed the human form? 
 
+我：那么实际上是你开发了人类形体？
+
 SE:Not Me personally,although I oversaw it.Some of you were involved in the development. 
+
+源实体：我并未参与，只是见证了这个过程。是你们中的一些人参与了开发。
 
 ME:Us? 
 
+我：我们吗？
+
 SE:Yes,some of you.You see,you would be the beings that would be projecting yourselves into these lower levels,so who better to develop the vehicle you were going to use than you? 
+
+源实体：是的，是你们中的一些人。你想想看，你们将是那些把自己投射到较低层级的存有，那么要开发出你们自己要使用的载具，还有比你们自己更好的人选吗？
 
 ME:So how did we do it? 
 
+我：那么我们怎么做到的？
+
 SE:Over a long time.Seriously it took all of you millennia to develop the human form to what it is now.You went through many,many prototypes. 
+
+源实体：经历了很长一段时间，你们确实是花了无数年才把人类的形体发展成现在的样子。你们经历了很多很多的原型。
 
 ME:So what were the issues? 
 
+我：那么主要问题是什么？
+
 SE:Longevity for a start but more importantly the human form had to be able to exist in the physical levels and the lower spiritual levels that would allow communication with the rest of you,the higher self.This required a certain type of physical form and energy system interdependent upon one another for its survival.This required a lot of inventiveness and trial and error. 
+
+源实体：起初是因为寿命问题，但更重要的是，人类的形体必须能在物质层和较低灵性层中存在，才能与你的其余部分及高我沟通，这就需要某种物质形体和能量系统相互依赖的形态才能使其幸存下来。这需要大量的发明创造以及不断试错。
 
 ME:I thought that You/we could just think something up,especially if we are evolved enough to access the dimensions of awareness that allow this level of creativity. 
 
+我：我原以为我们可以通过思维来直接创造，特别是当我们进化到某个允许这种水平的创造力的觉知的维度时。
+
 SE:Thought forms tend to stay in their area/environment of origin,but they also require their creator to give them attention.Hence,for example,poltergeists hang around people who believe in them as they give them form and energy beyond their original creation.In the instance of creating the best form,you wanted to create a vehicle that was,for a period of time,self-perpetuating.It,therefore,needed to operate without the level of attention required to maintain the level of complication that was required to create a thought form in the physical.It needed to be independent of that.This, therefore,resulted in the design of a "living"vehicle that could use the surrounding energy sources to maintain itself. 
+
+源实体：思维形态往往倾向于停留在它们的发源区域环境中，但它们也要求创造者给予它们关注。因此，举个例子，吵闹鬼会围绕在相信有他们存在的人周围，因为这些人会赋予超出他们最初创造的形态和能量。在创造最佳形体的案例中，你想要创造一种能够在一段时间内自我维持的载具。因此，它所需要的关注度要低于在物质界中创造一个思维形态后维持其复杂性所需的关注度，它不能依赖那种关注。因此，这就导致了一种“活”的载具设计，它可以利用周围能量来维持自身运作。
 
 ME:This sounds complicated,and we all know that the human form is a very complicated thing. So how did we start the development? 
 
+我：这听起来很复杂，我们都知道人体是一件非常复杂的东西。那么我们是如何开始开发的呢？
+
 SE:Small at first.You looked at creating small parts that would work with each other and that could be built upon.These needed to be programmable from Spirit and work based upon this programming. 
+
+源实体：从小开始。你们首先先创造了一些能够基于彼此并相互作用和扩展的微小部件，他们必须可被灵体编程，并根据程序运行。
 
 ME:Are You talking about DNA creating cells?
 
+我：你说的是DNA生成细胞吗？
+
 SE:No,lower.I am talking about the RNA being programmed by the Spiritual program.RNA is an interface medium that exists in the higher physical and lower spiritual levels at the same time.It was the first part of the human form to be developed and,therefore, the most difficult to create and the most important.It is the part of the physical that is in contact with the auric fields at all levels. 
+
+源实体：不，还要更底层。我说的是由灵性程序编写的RNA。RNA是一种交互媒介，它同时存在于较高物质层和较低灵性层面，它是开发出的人类形体的第一部分，因此是最困难也是最重要的创造，它是能与所有层级的人体辉光场都有联系的物质层面的一部分。
 
 ME:I was under the impression that RNA was the medium that transmitted the programming from DNA to the stem cells to create whatever they are destined to be,such as a liver or a heart. 
 
+我：我的印象是，RNA是一种媒介，它将程序从DNA传输到干细胞，使干细胞分化为它要创造的任何目标器官，如肝脏或心脏。
+
 #### The Role of RNA 
+
+**RNA的作用**
 
 SE:That is because you have only one end of the story.Your scientists have only just been able to spot the communication from the DNA to RNA.This is only one way of a two-way communication system and does not take into account the first set of information that was transmitted by the RNA to the DNA.The DNA must feed back to the RNA that it has received the correct information and that it is being passed on to the cell/s that the DNA is held within.Also,RNA is used as a communication medium between cells so they can locate each other and bind together in cells of the same type to create the bodily function they were assigned.You have to consider that many forms of information are being transmitted over RNA and other fluidic mediums, but it is only RNA that is "in contact"with Spirit from a physical point of view.In essence,since RNA is all over the body;the whole body is,therefore,in contact with Spirit,and this is what makes the human form unique.Physical,intermediate/astral, and spiritual-the three-in-one aspect that some of your religions talk about.This is trying to explain something that has been forgotten in the physical.We will discuss this later in another chapter on religion. 
 
+源实体：你的知道只是事情的一个方面。你们的科学家们仅仅发现了从DNA到RNA的通讯，这只是双向通信系统中的一个方向，并且没有发现到由RNA传输到DNA的第一组信息，DNA必须向RNA反馈它已经接收到正确的信息，并已传递到含有此DNA的细胞中。此外，RNA被用作细胞间的通讯媒介，这样他们就可以彼此定位，并在同类细胞中相互结合，创造出特定的身体机能。你要考虑到许多信息形式是通过RNA和其他流动媒介传播的，但从生理的角度看，只有RNA与灵体联系。本质上，因为RNA遍布周身，这让整个身体都是与灵体相连接的。而这正是人类形态的独特之处，它是一种物质、中间体/星光体、灵体三合一的形态。这实际也是你们某些宗教所说的三位一体，那种说法在试图解释一些已经被遗忘的有关我们身体的东西，我们将在后面一章中再次讨论这些宗教。
+
 ME:So You are saying that the most important part of the human physiology is the RNA because it allows the body to communicate with Spirit. 
+
+我：因此，你说人体生理中最重要的部分就是RNA，因为它能让身体与灵体交流。
 
 #### The Earlier Lighter Human Form 
 
+**早期较轻的人类形体**
+
 SE:Yes,but more importantly it allowed all of you to develop the human form in stages as you looked at what physiology and form worked best for the environment it is in. 
+
+源实体：是的，但更重要的是，它允许人体形态按照不同的阶段来发展，因为你们在不断研究什么样的生理和形体最适合它所在的环境。
 
 ME:Hang on.Are You suggesting that there are/have been different human forms? 
 
+我：等等，你是指存在着不同的人类形体吗？
+
 SE:Of course. 
+
+源实体：当然。
 
 ME:Are these the Neanderthals or others? 
 
+我：是指尼安德特人？还是其他人种？ 
+
 SE:Actually,the Neanderthal form was the last,but one modification the human form had to accommodate due to the increase in density that resulted from the reduction in frequency caused by human free will being introduced.It is free will that has caused the fall in frequencies.It is free will that will make it rise as well.The human form before this was a much lighter construct.In fact,the connection with Spirit was such that the incarnate entity could enter and leave more or less at will. 
+
+源实体：事实上，尼安德特人是最后一种是由于人类自由意志导致频率降低从而不得不适应的一种人类形体，是自由意志导致了频率的下降，也是自由意志将导致频率的上升。在此之前的人类形体是一个人更轻的结构。事实上，那时载具与灵体的关系是这样的，化身存有可以随意自由进出肉体。
 
 ME:So what did these earlier lighter humans look like? 
 
+我：那么这些早期的人体看起来是什么样子的呢？
+
 SE:You would consider them as waif-like,almost translucent,even glowing "in the dark." They were certainly not the solid robust physical specimens you have today,and they would not be able to survive in the current level of density experienced at this level of frequency-hence,the need to re-develop the form "on the run"as the frequencies changed. 
 
+源实体：你可以把他们理解为是瘦小的，几乎是半透明的，在黑暗中会发光的样子。他们非常不像你今天所拥有的牢固健壮的肉体样貌，他们也无法在当前的频率密度下生存。因此当频率发生变化时，需要重新开发新的形体。
+
 You have legends about people in Sumeria who were purple in color,and some people born today still display the mark of the Sumerian when they have purple birthmarks. These humans were of a different level of density,and so were the Atlanteans,who were lighter again.These were the times when the Spirit could enter and leave the body at will but not at the same level of ease as the first physical constructs. 
+
+你知道有关苏美尔人是紫色皮肤的传说，并且一些出生在现代的人身上有紫色胎记，也就是苏美尔人的标记，这些人的密度层级不同，亚特兰蒂斯人也是这样，他们的形体都轻一些。在那些时代，人体可以随意进出身体，但还不像人类形态构建的最初阶段那样容易。
 
 #### Back to the Development of the Human Form 
 

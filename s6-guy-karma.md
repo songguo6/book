@@ -220,17 +220,27 @@ Standing back and considering the motivation behind our actions is necessary.Are
 
 When we avoid being pulled into gossip or starting gossip,we are using good judgment. Gossip is the most effective way to accrue the negative karma experienced by mankind. 
 
+当我们避免被卷入流言蜚语或引发流言蜚语时，我们就是在运用良好的判断力。流言蜚语是累积人类负面业力的最有效方式。
+
 Gossip is a particularly insidious pastime as it drags us into the lower frequency energies of another,effectively boosting that person's energy.As more people join in the "gossip," the leader of the gossip becomes the center of a collective that is created by energies that are usually focused upon the derision of another.This is the creation of a collective and its synergetic effects for the wrong reason.This effectively links us as members of the collective to an energy sink that creates an "overlay"mentality that circumvents our personal "mentality/thinking" and destroys our free will. 
 
+流言蜚语是一种特别阴险的消遣方式，因为它把我们拖入他人的低频能量中，有效地提升了他人的能量。随着越来越多的人加入到“流言蜚语”中，流言蜚语的领导者就会成为一个集体的中心，而这个集体是由通常专注于嘲笑他人的能量所创造的。这实际上是将我们作为集体成员与一个能量池联系在一起，形成了一种“叠加”心态，绕过了我们个人的“心态/思维”，破坏了我们的自由意志。
+
 The antidote is for us to not get involved in gossip by finely tuning our "observer selves"- an observational tool that allows us to look from the perspective of an outsider of such discussions.If we see ourselves as already engaged in gossip,it is time for us to say we have no further comment and then walk away.
+
+我们的解药是通过调整我们的“观察者自我”来避免卷入流言蜚语。这是一种观察工具，能让我们以局外人的视角来看待此类讨论。如果我们发现自己已经卷入了流言蜚语，那么我们就应该说“无可奉告”，然后走开。
 
 ### Shunning Judgment 
 
 **避免评判**
 
-Judgment,both individual and collective,is a function of gossip and,therefore,provides a clear and direct path to low frequency existence,creating a downward spiral,frequency- wise. 
+Judgment,both individual and collective,is a function of gossip and,therefore,provides a clear and direct path to low frequency existence,creating a downward spiral,frequency-wise. 
+
+无论是个人还是集体的评判，都是流言蜚语的一种功能，因此，它提供了一条通往低频率存在的清晰而直接的道路，造成了频率上的螺旋式下降。
 
 Judgment is,therefore,something that we should never enter into,for it is a function of personalized perception of the processes that led to a certain position,but not the actual ones that lead to "fact"and not"judgment."
+
+因此，评判是我们永远不应该进入的东西，因为它是对导致某种立场的过程的个人化感知，而不是导致“事实”而非“判断”的实际过程。
 
 ### Choosing Our Friends with Care 
 
