@@ -4566,133 +4566,263 @@ You have legends about people in Sumeria who were purple in color,and some peopl
 
 #### Back to the Development of the Human Form 
 
+**再谈人类形体的发展**
+
 ME:So let's get back to the development of the human form.How did it progress? 
+
+我：让我们回到人体形体发展的问题上，具体的过程是怎样的？ 
 
 SE:You developed a medium(RNA)that could aid the programming of the lowest building blocks of the human form (DNA)and was able to create the type of cells required to form the organs of the body that would sustain it in its physical condition long enough to make the incarnating entity have enough time to experience being in the physical.You then set about trying to understand what a self-sustaining physical body needed to work. 
 
+源实体：你们开发了一种媒介（RNA），它可以协助人体最底层的成分（RNA）进行编程，并且能够创造身体器官所需的细胞类型，支持肉体有足够寿命体验物质世界。接着，你们开始试着去了解一种能够自我维持的物质身体需要什么才能够运作。
+
 ME:So how did we get to the different organs of the body?How did we know we needed a liver or a pancreas? 
+
+我：那么我们是如何想到要有不同器官的呢？我们怎么知道身体需要肝脏或胰腺呢？
 
 SE:After a few dramatic failures,you started to understand that the construct you made needed to get nourishment from both the physical and the energetic frequencies.The first attempts at making the human form simply died of hunger without knowing it was hungry. 
 
+源实体：在经历了几次大的失败之后，你们逐渐明白，身体构造需要从物质与能量频率两方面获取营养。第一次制造出的人类形体死于饥饿，因为他不知道自己饿。
+
 The next objective was to work out how to take nourishment from the environment and turn it into energy that was compatible with your energies as spiritual entities. This meant that you had to develop an energy distribution system that to some extent mirrored the energetic flow.This meant moving the nourishment in a way that it could get to every part of the body and return again if it wasn't used the first time,so you invented the materials to create blood.This in itself wasn't good enough because you needed the blood to accept and give up the nourishment.The area of the body that was doing the work needed its physical energy replenished at the same time as its spiritual energy.Remember,the spiritual energy side of things was a little easier because the energetic side of the human form is mostly energy itself and energy given form to boot! You were starting to develop the metabolic process here and that took time and a lot of trial and error.
+
+下一个目标是研究如何从环境中获取营养，再将其转化为能量，并且是与你们灵性实体相协调的能量。这意味着你们必须开发一个能量分布配系统，并且需要它在某种程度上镜像人体能量流的状态。这意味着要把营养物质运输到身体每一个部位，而且会把第一次会用尽的营养运送回来。因此，你们发明了构成血液的材料，这些材料本身还不够好，因此你们需要血液来吸收和释放营养。身体的各个运作的部位同时需要补充物质能量和灵性能量。记住，灵性能量方面的问题要简单一些，因为人类形体的能量层面几乎本身就是马上就能运作的纯能量结构或赋能形态。此时，你们开始开发新陈代谢的机制，这花费了大量时间和不断的尝试与失败。 
 
 ME:What about the human brain?We put a lot of store in the fact that all of what we are,our personality,our experience are stored in the gray matter. 
 
+我：那么人类的大脑呢？事实上我们在大脑灰质中储存了很多东西，几乎是所有关于我们的身份、人格个性、经验。
+
 SE:Initially there wasn't a brain because the focus of the incarnated Spirit wasn't so narrow. It was all over the body. 
+
+源实体：最初并没有大脑，因为转世灵体的焦点没有这么窄，它是遍布全身的状态。
 
 ME:So why do we need a brain now if we didn't then? 
 
+我：那么如果我们当时没有大脑，为什么我们现在需要大脑呢？
+
 SE:To have a central control system to control the metabolic process of giving nourishment throughout the rest of the body.It controls the rest of the organs,and it continues to do so today.However,there is a level of "local control programming"in each of the organs to cope with the more mundane operations of the organs. 
+
+源实体：为了有一个中央控制系统来控制整个身体的营养代谢过程，它控制着其他器官，在今天也是如此。但是每个器官都有一种本地控制程序以应对器官更加基础的日常运作。
 
 ME:So what else happened to create the human form that we have today? 
 
+我：那么还有什么情况导致开发出我们今天的人类形体呢？
+
 SE:Once you had established that you had to transmit or circulate the blood around the body in the same way as the spiritual energies are distributed around the spiritual bodies, you then realized that the blood had to be cleaned.It was necessary to remove all of the impurities that are gradually absorbed by the blood cells as part of the metabolic process of giving chemicals to the cells that give them physical as well as spiritual energy.Later,however,you realized that there must be a method where the physical body could replenish those chemicals without external spiritual intervention,i.e.,the body had to turn raw material into useable chemical energy.
+
+源实体：当你们完成了血液循环系统，使血液也像灵性能量在灵体一样来周游全身，你们有意识到需要净化血液。作为代谢过程的一部分，当血液向细胞提供化学物质以补充其物质和灵性能量时也会吸收所有杂质，因此有必要清理这些杂质。但是后来你们意识到必须有一种方法，在没有外部灵性干预的情况下，身体可以补充这些化学物质，也就是人体必须将原材料转化为可使用的化学能。
 
 ME:Digestion of external organic matter?What made us recognize this need? 
 
+我：外部有机物的消化？是什么让我们意识到这种需求的？
+
 SE:This was recognized because you were having to change the blood every month or so, plus or minus a week.It simply ran out of nutrients to sustain the body's functions. 
+
+源实体：现在你们已经认识到，人类每个月上下一周的误差会换一次血液，因为血液为了维持身体的功能耗尽了营养。
 
 ME:I thought that today's human form could only last a month if it had water and if no food was available. 
 
+我：我想如果只有水没有食物的话，今天的人体只能维持一个月。 
+
 SE:This is correct but remember that the human body was much different then.It was much lighter energetically and was not as reliant on the need for physical energy as it is now.Thus came the need to physically consume organic matter and mix it with gaseous matter of a form that is readily available in the physical universe.You realized that it must be easily replenished as a by-product of inorganic and organic material interaction,as well as contain the basic building blocks of this universe.The other something would have to create a controllable chemical reaction that would result in the creation of basic food blocks as well as reproduce itself in the process. 
+
+源实体：真确，但要记住，当时人体是非常不同的，能量上它要比现在轻得多，而且不像现在人体那么依赖于物质能量。因此，我们需要生理性地消耗有机物质，并将其与物质宇宙中一种随时可用的气态物质混合在一起。你们意识到，作为无机物与有机物相互作用的副产品，它必须容易获取，并包含这个宇宙中的基本构成元素。还需要创造一种可控的化学反应，其反应生成物就是食物的基本构成，还要能在此过程循环自我再生。
 
 ME:You're talking about oxygen and carbon here,I take it? 
 
+我：你说的是氧和碳，我理解对了吗？
+
 SE:Yes,these two gaseous elements are the most freely available in this type of universe.You used them in the metabolic process within the human circulatory system to create its own nutrients to complement the spiritual energies in a way that was independent of spiritual intervention.Thus you created the self-sustaining human form that was ready to go into action-until you found out about how bacteria and viruses affected this system,of course. 
+
+源实体：是的，这两种元素在这类宇宙中是最可以自由利用的物质。在人类循环系统的新陈代谢过程中，在不受灵性干预的情况下，你们使用碳和氧创造自己的营养以补充灵性能量。 因此，你们创造了一种能够自我维持的人类形体，已经准备好投入运行，直到你们发现细菌和病毒也可以影响人体系统。 
 
 ME:So we had problems with the body getting ill at the very start then. 
 
+我：所以人类身体在一开始就会生病。
+
 SE:Not quite.This happened only when the body needed to operate in a denser environment. 
+
+源实体：不完全是。只有当身体在密度较大的环境中运作时才会发生这种情况。
 
 ME:So why didn't we have problems at the start of development? 
 
+我：那么为什么我们在开始时没有遇到问题呢？
+
 SE:Because as the body was lighter,it wasn't affected by the physical as much.Even though it existed primarily in the physical,it was drawing a lot of energy from Spirit and was,therefore,not so susceptible to the maladies of the world where bacteria and viruses existed.Also,don't forget that the human form was relatively new,and the entities that inhabited these forms were at a higher frequency.Still they were not affected energetically by dysfunctional thought processes that create changes in the surrounding energy fields of the higher human form. 
+
+源实体：因为那时身体更轻，它不太受物质的影响。尽管它主要存在于物质中，但它从灵体中吸取很多能量，因此它不太容易受到细菌和病毒的影响。同样，不要忘记人类形体相对来说比较新，而且居住在人体中的存有的频率是比较高的。在能量上，他们并没有受到失调的思维过程的影响，进而引起高等人类形体周围辉光场产生变化。
 
 ME:Why was that? 
 
+我：这是为什么？
+
 SE:Simply because the human spirit incarnate had not yet been corrupted by the lures of the physical experience and its ability to seduce the incarnate spirit to the point where it wants to stay in the physical. 
+
+源实体：很简单，因为那时人类灵体化身还没有屈服于物质世界体验的诱惑，也没有因诱惑而甘愿停留在肉体中。 
 
 ME:Why would the Spirit want to stay in the physical when it is so much more in spirit?
 
+我：那为什么他更加具有灵的性质，还会想呆在肉体里呢？
+
 SE:Simply because of the forgetting that is experienced as a result of projecting oneself into a level where the level of communication is vastly reduced from that normally experienced by individual spirit. 
+
+源实体：因为遗忘，而遗忘其因为灵体把自己投射到了一个远远低于他日常与其整体的交流水平的层面，就导致了遗忘。
 
 ME:So it is a form of forgetting! 
 
+我：那么人体其实是一种遗忘的形体！
+
 SE:No,it is just a word to explain the experience a spirit has when it can no longer access all that is.In essence,this is because it can't access all of itself and all of creation anymore.It disregards it mainly because it isn't there so it(the bit that's projected into the physical)quietly forgets about it.As a result of this,it thinks that its incarnate world and all the experiences there is all there is.It,therefore,does things to other incarnated humans that it wouldn't normally do in an effort to make its situation better or improve it.This,in turn,creates thought forms that stick in the energy field and create dysfunction in the physical.Because the physical is linked to the energetic,the physical responds to the dysfunctional energy by trying to reproduce its energetic blueprint in the physical.As the physical body gets denser,the seduction increases the desire to do things to improve the physical experience which then results in dysfunctional energy signatures and subsequent changes to the physical body.Ultimately this means that things that age the physical body-things it would normally be in tune with-are no longer in tune.This then causes friction within the physical functions.In this instance,the virus or bacteria that the body is normally in tune with and works with without issue is now fighting against the body.
+
+源实体：不，这只是一个词，用来解释一个灵体不能连接自我整体的体验。其实，这是因为他不能连接自身整体以及所有造物。他忽视他主要是因为他无法体验到他，因此他被投射到肉体里的那部分慢慢的遗忘了这一部分。结果是，他认为其转世化身的世界以及那里的所有体验就是全部。于是，为了改善自身处境，他会对其他化身的人类个体做一些他通常不会做的事。这反过来又创造了一种思想形体粘附于辉光场之上，产生肉体的功能紊乱。这是因为肉体与能量是联系在一起的，肉体会对能量失调做出一种反应，即试图在肉质层面上重现其能量蓝图。随着身体密度越来越大，改善物质体验的欲望越来越大，这又导致了能量紊乱，进而使肉体随之变化。最终，这意味着出现很多导致肉体衰老的事物，它与那些原本和谐的东西不再协调了，这样就会在肉体功能中引起冲突。在这种情况下，那些本来不会影响身体正常运转的病毒或细菌就会与身体对抗。 
 
 ME:You said that viruses and bacteria were in tune with the earlier human body.Is that because they were energy life forms in their own right and,therefore,had a role in the universe as well? 
 
+我：你说病毒和细菌与早期人体是相协调的，是不是因为它们也是独立的能量生命形式，因此也在宇宙中扮演了一个角色？
+
 SE:Yes and no.You see,because the human body was initially a much lighter construct,the denser matter would pass through it or not be able to affect it because it wouldn't have the physicality within which the small life forms,such as bacteria or viruses, needed to grab hold of the human cellular structure and do damage.Also,the higher frequency of the cells would effectively repel the lower frequency of the bacteria by its sheer cleanliness of modulation.This would be a similar effect to that seen when observing magnetic repulsion.Thus,you would have two effects:(1)the lower level frequency bacteria would pass through the human form if the human form was of a high(light)frequency;and (2)there would be a repulsion of bacteria if the frequencies were lower. 
+
+源实体：是这样，但也不是。你知道人类身体最初是一种比较轻的构造，密度大的物质可以穿越而不会影响人体。因为当时的人体还不具有能够允许微小生命，如细菌或病毒可以抓住人类细胞结构并造成损伤程度的物质性。而且，当时细胞的高频率能够通过其纯粹的清洁机制有效地排斥细菌的低频率，这和磁铁的相同磁极互斥的结果是相似的。因此，人体当时有两种效果：(1)、如果人体形态处于高频率，较低层频率的细菌将直接穿过人体。(2)、如果人体频率较低一点，细胞就会对细菌产生排斥。
 
 #### Eating for Longevity 
 
+**饮食与寿命**
+
 ME:So it looks like we sorted it all out with the human form then? 
+
+我：那这样看起来，我们已经将人类的形体梳理得差不多了。
 
 SE:Not yet.You see,once you created a system that could work with energy from both the Spirit and the physical worlds,you had to ensure that the energies would mix and work well together.
 
+源实体：还没有，你想一下，一旦你创造一个既可以从灵界又可以从物质界获得能量的系统，你就必须确保这些不同的能量可以融合在一起，并能很好的协同工作。
+
 ME:I thought that they worked separately because they had to work with the different energy bodies. 
+
+我：我原以为它们是各自单独运行的，因为它们运行于不同的能量体中。
 
 SE:No,they have to interact because each energy system is reliant on the one above and below it-hence,the transmission of dysfunction up and down the energy structures when preconceptions were taken for reality or physical ailments or when addictions are prevalent. 
 
+源实体：不，它们必须有交互，因为每个能量系统都依赖于其上下的能量系统。因此，当人们对现实或身体疾病产生偏见或成瘾现象普遍存在时，就会使功能失调传递到能量结构的上上下下中。
+
 You finally established that certain energies work best with the human form,and these were made more desirable to the human palate in the hope that you would eat the right foods in order to get the right energies to ensure optimal efficiency and longevity. 
+
+你们最终确定某些能量最适于人体的运作，于是让人类在味觉上更喜欢这些物质，以便让人们摄取合适的食物。这样才能得到正确的能量，从而保持最佳效率和寿命。
 
 ME:What do you mean by optimal efficiency and longevity?I thought that longevity isn't an issue with Spirit? 
 
+我：你所说的最佳效率和寿命是什么意思？我以为寿命对于灵体来说不是个问题。
+
 SE:This is to do with the length of time that a spirit is incarnate in the physical.Obviously you want to get the best value for money for your stay in the physical.The object being to make the most of the short time that the body lasts before it starts to degrade. 
+
+源实体：这是指灵体转世于肉体中的时间长短。很显然，你想在化身肉体的这段时间内获得最大价值。在肉体退化之前，人体会充分利用肉体留存的短暂时间来达成目标。
 
 ME:What makes the body degrade? 
 
+我：是什么导致了身体的退化？
+
 SE:Misuse by the incumbent spirit mainly.This is achieved by eating and drinking foods that the body was not designed for in the first place.
+
+源实体：主要是投身灵体对身体的误用。食用或饮用一些不符合人体最初设计的食物导致的。
 
 ME:So what is the body designed to eat? 
 
+我：那么人体被设计要吃什么呢？
+
 SE:Root based foods are the best for the human body because the base minerals and the energies associated with them are contained in the root of the plant.Essentially, anything that is grown in the ground is good because it is surrounded by the upper energy field of the earth.Taking energies from root-based plants means that the body's energy levels are replenished with pure energy that is not contaminated by humankind.However,this is more difficult to achieve in today's world where chemicals are used to "preserve"the plant products in an ideal state of presentation. So-called "organic"foods are better but still not what they should be since all root- based plants should be gathered from the "wild"where the surrounding Earth energies are purest. 
+
+源实体：**根类食物**对人体是最好的，因为基本的矿物质及相关能量都包含在植物根部。实质上，任何土地中生长的东西都很好，因为它们被地球较高层级的辉光场所包围。从植物中获取能量，意味着人体的各能量层会被没有被人类污染的纯能量来补充。然而，在当今世界中这是很难做到的，因为现在使用化学物质给植物保鲜，使其处于理想的呈现状态。所谓的有机食物好一些，但也还不是原本的状态。因为所有根茎植物都应该是野生采集的，因为在野外，植物周围的地球能量是最纯净的。
 
 ME:So does this mean that eating meat or fish is out? 
 
+我：那么这意味着不能吃肉类和鱼吗？
+
 SE:No,but it isn't good.The residual energy left in the system is not of the same frequency as that required to replenish and refresh the energies that are normally generated by the root vegetables.Also,they are not in tune with the spiritual body energies.The result of having energies that are not quite in tune with the natural energies associated with the human construct is that it slows the energy down in the areas where the animal meat is passing through.Continued use of energies that are not in tune with the body results in dysfunction over time because the energies change the functions of the messages sent between cells of similar types.
+
+源实体：能吃，但不是很好。肉类系统中残留的能量与根类蔬菜所产生的用于补充和更新的能量频率不同，并且它们也与灵性身体的能量不协调，摄入的能量与人体构造的自然能量不协调的结果是降低了肉类食物通过的区域能量。持续使用与身体不协调的能量，随着时间的推移会导致身体功能失调。这是因为这些能量改变了相似类型细胞之间所传递信息的功能。
 
 ME:Are You suggesting that eating meat or fish,a food which is not resonating at the same frequency as the human body,results in cancer? 
 
+我：你是在暗示吃肉类或鱼，也就是与人体不同频的食物会导致一些问题吗？
+
 SE:Yes. 
+
+源实体：是的。
 
 ME:Does this also include animal produce,such as milk,cheese,and eggs? 
 
+我：这是否也包括动物产品，如牛奶、奶酪和鸡蛋？
+
 SE:Yes. 
+
+源实体：是的。
 
 ME:How about other things like vegetables that are not root-based? 
 
+我：其他的食物，比如非根类蔬菜呢？
+
 SE:They are not ideal,but the energies are not so far out of the resonant frequencies of the energies provided by root vegetables that they cause dysfunction.All they do is create lack in the longevity of power given to the body,i.e.,how long it lasts in the system. 
+
+源实体：它们不算理想，但与根类蔬菜所提供的能量频率已经相去不远，可能导致一些功能紊乱。它们会降低人体原本的寿命，即系统能持续多长时间。
 
 ME:So it's like comparing a long-life battery with a normal battery. 
 
+我：这就像把一个长寿命的电池和一个普通电池进行比较。
+
 SE:Yes,that's a very good comparison. 
+
+源实体：是的，这是一个很好的比较。
 
 ME:And eating meat or fish is like putting unleaded petrol in a car's engine that is designed for 4 star/high octane fuel. 
 
+我：吃肉类或鱼就像在需要加四星/高辛烷燃料的汽车引擎里加普通无铅汽油一样。
+
 SE:Correct.After a few years,the engine is destroyed because it is burning a fuel that burns too hot and doesn't have the inherent lubrication properties that the lead provides in 4 star/high octane fuel.
+
+源实体：对的。由于燃料燃烧产生的温度过高，并且没有由四星/高辛烷燃料所提供的内在润化特性，几年之后汽车引擎就会损坏。
 
 ME:So we are killing ourselves by eating the wrong food and drink. 
 
+我：那么我们因为错误的饮食而在慢性自杀。
+
 SE:In essence,yes.But that is up to you.You have been given free will to do anything you like in this physical environment with the premise that the experiences that you have are used to evolve yourself and the other human entities. 
+
+源实体：从本质上说是这样，但这取决于你自己。在物质环境中，你被赋予了自由意志，可以做任何你喜欢的事情，前提是将你的经验用于提升自己与其他人类存有。
 
 ME:So You don't mind us making a dog's dinner of our lives. 
 
+我：那么你不介意我们能把自己的生活弄得一团糟吗？ 
+
 SE:There is nothing wrong with a dog's dinner if you are a dog.So why should it be wrong for you to do what you are doing with what you have around you to work with? Remember there is no right or wrong,good or bad.There is only experience. 
+
+源实体：假设你是一只小狗，那么把窝弄得一团糟并没有什么问题。体验自己周围的事物怎么会有错？记住，没有对错、好坏，一切皆是体验。
 
 #### The Need to Eat 
 
+**吃的必要性**
+
 ME:We previously spoke about the development of the physical human form and the need for physical nourishment resulting from the drop in vibratory level.The human form previously was able to exist on universal energy alone due to the higher vibration level. Do you think we could achieve the level in this physicality where we wouldn't need to eat physical food but could gain our nourishment directly from the universe? 
+
+我：我们之前谈到了人类物质肉体的发展，以及由于频率下降，身体产生的对物质营养的需求。由于以前人体的频率较高，因此能够单独依靠宇宙能量生存。你认为我们目前的肉体形态是否还能达到这种水平，即不需要吃食物，直接从宇宙中获得营养呢？
 
 SE:Not only is this possible,but it is happening on an individual basis right now with some individuals.You see,the human form in its current vibratory level needs both physical food and universal energy.The gathering of universal energy is achieved on an automatic basis due to the lack of personal knowledge of this function by the individual.Full use of universal energy is a function of an entity who is both aware and makes use of universal energy for sustenance and other forms of creativity on a daily basis,thereby,negating the need for the lengthy process of ingesting physical nourishment. 
 
+源实体：这不仅是可能的，而且正在一些个体身上发生着。你看，当前频率的人体既需要食物，又需要宇宙能量。由于缺乏相关知识，宇宙能量的收集还依赖人体的自动运转。只有当一个存有的觉知以及使用宇宙能量维持生存及其他创造成为日常习惯，它才能完全利用宇宙能量，并因此不再需要消化物质营养这一冗长的过程。
+
 ME:How does the physical human body gain energy from universal energy? 
+
+我：那么，人体是如何从宇宙能量中获得能量的？
 
 SE:Simply by taking the energy that is required to operate normal cellular function/ reproduction at the sub-atomic level.You see,everything energetic in the physical is translated from the physical into the energetic by the breaking down of the physicality through the giving of energy.For instance,you need fire to create fire.In order to light a match to create the initial spark,you give energy in the form of friction.The friction removes parts of the match's material at the atomic level by making it unstable in its current atomic arrangement.It,therefore,changes to its next stable state which results in the loss of energy to another separate state.This other conditional transition creates what you see as the flame of the match grows and recedes as the translation increases.Then it decreases as the amount of material required to change is reduced as a result of translation.This translation from the physical to the energetic can be achieved in many other ways.The most common way used by the human body is the giving of energy by the secretion of chemicals.When food is ingested into the stomach,it recognizes that it has a chemical imbalance and secretes the correct mixture of chemicals required to effectively break down the food into the energy it needs to feed the body's cells at the sub-atomic level.The chemicals that are not required are removed from the body as waste.Excess energy of the right type is stored within the body but outside of its immediate functionality.You know this as fat.Since the human body was not designed to deal with synthetic materials,the issue with the body's creation of fat is that preservatives in food are mistaken for translatable material.Subsequently,the body has difficulty in finding the right chemical/s later to break down the preservatives into usable sub-atomic energy.The body,therefore, loses its efficiency in this process and increases its stored food as a result of poor translation and the continued ingestion of the synthetic,i.e.,food with preservative content.Additionally,fat that is created from the translation of artificially preserved food is just as difficult to use,so this creates a condition that is difficult to reverse.In fact,it is so difficult to reverse that preservative-free food is then translated into energy when needed in preference to that translated from the preserved;therefore,it is very difficult to remove the fat by natural use.The only real way to remove the fat is to expend more energy than is received by natural un-preserved food than that was created by the preservative-based food. 
 
+源实体：只需从亚原子层面获取细胞正常运作/繁殖所需的能量。你知道通过物质分解并释放能量，物质性能量就可以转换成能量。例如，你需要用火源来制造出火，为了点燃火柴创造出最初的火花，你需要摩擦产生能量。摩擦消耗了火柴，在原子层面上的部分物质火柴原子排列变得不稳定。火柴会变化到下一个稳定的状态下，并且这个稳定的状态会导致能量流失，从而会变成另一种独立的状态。这一转化过程中需要物质多少的变化，使火柴的火苗变大，然后减弱。这种将物质转换为能量的方法，还可以通过很多其他方式实现。人体最常用的方法是通过分泌化学物质来释放能量。当食物被摄入到胃里时，会不会识别出化学上的不平衡，并分泌对应的化学混合物，以便有效地将食物分解成人体所需的在亚原子水平上为细胞提供的能量。人体不需要的化学物质会作为废物从人体中清除出去，可供人体利用的多余能量被存储在身体内部但不是马上会用到的地方，这就是脂肪。而人体产生脂肪的一个问题是，由于人体的原始设计并不能处理人工合成物质。因此，食物中的防腐剂被误认为是可转化的物质而被储存起来。结果是人体很难找到合适的化学物质将防腐剂分解为可用的亚原子形式。在这个过程中，人体脂肪逐渐增加，这是由于转化效率不佳和持续摄入人工合成物质，例如含有防腐剂的食物。另外，人体中由含有人工防腐剂的食物转化而来的脂肪也同样难以被利用，因此这就造成了一种难以逆转的状况——肥胖。事实上，相比含有人工防腐剂的食物，不含防腐剂的食物会在人体需要时优先转化为能量，这让这个过程更加难以逆转。因此，通过身体的自然消耗去减少脂肪是非常困难的。唯一可以真正除去脂肪的法，是消耗更多的能量，要多于所摄入的无防腐剂食物与含防腐剂食物所产生的能量总和。 
+
 ME:So that is how the body creates sub-atomic energy;it uses a chemical process to separate the energy from the matter. 
 
+我：所以身体就是这样创造亚原子水平的能量的，它利用化学过程将能量从物质中提取出来。
+
 SE:Let Me note here that what I have given you is a very simplistic description. 
+
+源实体：请注意，我向你展示的仅是一个非常简化的描述。
 
 #### The Body's Method/s of Converting Universal Energy
 

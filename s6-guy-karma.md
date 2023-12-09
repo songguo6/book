@@ -248,13 +248,19 @@ Judgment is,therefore,something that we should never enter into,for it is a func
 
 Being of good cheer and surrounding ourselves with like-minded individuals whilst incarnate is wise.We should avoid those who drag us down by enticing us to be part of lower frequency actions.
 
+在化身为人时，保持良好的心态并与志同道合的人为伍是明智之举。我们应该避免那些引诱我们参与低频行动，从而拖累我们的人。
+
 ### Colluding to Gain False Friends
 
 **通过勾结而获得的虚假朋友**
 
 A more insidious form of karma can be observed in the need to collude.Collusion is that which we do when we seek favor from others to be part of "the"team,"the"group,or to be with someone of influence whose association,we think,will benefit us in some social, business or egotistical way,thus,giving us the "upper hand." 
 
+一种更隐蔽的业力形式可以从勾结的需要中观察到。勾结是指我们寻求他人的帮助，以成为团队、团体的一员，或与某个有影响力的人在一起，我们认为与他的交往会使我们在社交、商业或自我方面受益，从而使我们“占上风”。
+
 The need to collude is,therefore,based upon physical desires and,as such,attracts those lower frequencies associated with the more subtle aspects of physical existence.
+
+勾结的需要是基于肉体的欲望，因此会吸引那些与肉体存在的更微妙方面相关的较低频率。
 
 ### Seeking Favors,a Form of Collusion 
 
