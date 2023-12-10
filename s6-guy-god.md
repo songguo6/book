@@ -4826,35 +4826,67 @@ SE:Let Me note here that what I have given you is a very simplistic description.
 
 #### The Body's Method/s of Converting Universal Energy
 
+**身体转换宇宙能量的方法**
+
 ME:Then how does it convert universal energy and with what? 
+
+我：那么身体是如何转换宇宙能量，以及用什么来转换呢？ 
 
 SE:The energy used by the physical human body is dependent on the use of certain types of energy and the attraction of such energies.It does this by employing a supplementary energy distribution system,based purely on a direct energy transfer and distribution system.Twelve basic energies are used,and they are collected by all of the major, minor and mini chakras.The minor and mini chakras duplicate the receptivity of the major chakras.Each major chakra has a specific energy to attract and feed into the distribution system.The specific energy a chakra attracts is distributed to the cell/ s with the correct sub-atomic signature via a network of energy lines similar to the Earth's ley-lines but operating in three dimensions.No conversion is needed as it is exactly what is required for correct and continued cellular function.It must also be noted here that all chakras have the ability to project energy as well as attract energy -hence their use in direct contact/hands-on and hands-off healing,which uses the minor chakras'abilities to remove incorrect energies gained by the cellular structure. Usually these incorrect energies are a result of un-pure food (preservatives,etc.) and its subsequent conversion into energy,which is then replaced with pure energy collected from the universe and not converted by the human body's chemical process. 
 
+源实体：人类肉体所使用的能量依赖于某些类型能量的使用，以及对这类能量的吸引。它借助于一种辅助能量分配系统，纯粹基于直接能量传递与能量分配。有12种基本能量被使用，有主要的、次级的、微小的脉轮收集这些能量，次级和微小的脉轮复制了主要脉轮的接受功能，每一个主要脉轮都会吸引一种特定能量并供给分配系统。脉轮所吸收的特定能量，通过一个类似于地球地脉但同时运作于三个维度中的能量线网络被分布到带有正确的亚原子标记的细胞中，这些正是维持细胞正常及持续功能所需要的能量，因此也不需要再进行转换。在这里必须提到的一点是，所有脉轮在吸引能量的同时，也都有投射能量的功能。因此，它们可以通过直接接触双手疗愈和非接触疗愈中使用，通过刺激脉轮来移除细胞结构获得的不适当能量。通常不适当能量来自不纯净的食物，比如含防腐剂的食物等，以及它们转化成的能量。这些不适当能量随后会被人体从宇宙中收集的纯净能量所代替，且不会进入人体的化学转换过程。
+
 ME:Hang on.I thought that the chakras and their network ofenergy lines were a primary system. 
+
+我：等等，我原以为脉轮和能量线网络是基本系统。
 
 SE:No,the primary system is only achieved when the human entity is fully in Spirit.In this instance the human form and the energies required to perpetuate it(the energies of the universe)are one and the same.Humanity can,therefore,be correctly described as energy given individuality. 
 
+源实体：不，基本系统是当人类完全处于灵体状态时才能达到的。在这种情况中，人类形体与维持它的能量（宇宙能量）是一体同一的。那时人类才可以被描述为赋能个体。
+
 #### Eating Animals versus Vegetables 
+
+**吃肉与吃素**
 
 ME:How about the eating of animals versus vegetables? 
 
+我：吃肉与吃素相比会怎样？
+
 SE:This is an interesting one,for the human body is not specifically designed to translate the energy of another similar energy-based but incarnate entity,but this is what you ask it to do.Again,this can cause an imbalance in the energy system which results in the need to be healed.Interestingly enough,shamen used to eat animal flesh with the permission of the entity incarnate in the animal chosen.They did this to allow them to take on the energetic characteristic of that animal for many purposes,including transportation,knowledge,wisdom,communication,and physical manifestation of psycho-spiritual and physical skills.It was only done in strict supervision and as a last choice to solve a certain problem. 
+
+源实体：这是一个很有趣的问题，因为人体并非被设计用来转换另一种相似的基于能量但又转世于肉身的实体的能量，但你又要求它这么做。因此，这可能会导致能量系统中的不平衡，从而产生疗愈需求。有趣的是，萨满巫师曾经可以吃肉，但要经过转世到该动物化身中实体的允许。这样做是出于多种原因，为了让他们呈现所食用动物的能量特性，包括运输、知识、智慧、交流以及心理、灵性、身体技能的物质表现，这只会在严格监督下进行，并且是解决某个问题的最后选择。
 
 ME:Would this explain why many people actually act like animals these days? 
 
+我：这能解释为什么现在很多人都像动物一样行事吗？
+
 SE:The constant eating of meat would and does have an effect similar to what you are suggesting with added complications:(1)the animal has not given its consent to be used in such a poor way;and (2)the characteristics of the animals'personalities are confused/mixed together as a result of the consumption of many different animal types,including fish. 
+
+源实体：经常使用肉类会且已经产生一些如你所说的问题，(1)、动物并未同意要被如此使用，（2）、由于多种不同类型动物混食，包括鱼类，动物的性格特征会混乱混合在一起。
 
 ME:Would this explain why many people who eat meat are intolerant? 
 
+我：这能解释那些食肉的人会比较偏激吗？
+
 SE:It explains it only insomuch as the individuals concerned are no longer able to make clear human judgments. 
+
+源实体：只有当个体不再能做出清晰的人类判断时才会这样。
 
 ME:You mean they act like animals. 
 
+我：你是指他们表现得像动物一样。
+
 SE:That would be detrimental to the animals eaten. 
+
+源实体：这样对所食用的动物也是不利的。
 
 ME:What about vegetables and vegetation? 
 
+我：吃蔬菜和植物呢？
+
 SE:They are part of the earth's eco-system and are designed to provide nourishment for those creatures that are not as highly energized as the human species.They are, therefore,a legitimate but not so efficient means of gaining energy for sub-atomic translation.They are also designed to provide various elemental functions for the earth,such as the creation,translation,and nullification of chemicals and gases essential to the earth's function.We have spoken about root vegetables as a foodstuff, and they are a good substitute for universal energy when it cannot for any reason be translated directly,as it is freely available in the earth.Root vegetables tap into this natural energy for growth and because of this are more easily translated by the human digestive system.
+
+源实体：它们是地球生态系统的一部分，是设计为不像人类种族那样具有高能量的生物提供营养的。因此，它们是一种合适但不特别有效的获取用于亚原子转换能量的一种方式。它们也用于为地球提供各种基本功能，如创造、转化、清除化学物质，为地球正常运行提供必要的气体。我们已经说过，根类蔬菜是一种人类可用的食品。同时，在不能直接转换宇宙能量时，不管出于何种原因，它们也是比较好的替代品，因为根类食物在地球上随处可见。根类蔬菜可以利用自然能量来生长，正因为如此，更容易被人类消化系统所转化吸收。
 
 Remember this though: 
 
@@ -4862,129 +4894,259 @@ Remember this though:
 - The universe is part of us;
 - The universal energy is available to all for the use of all,for the sustenance of all,and for the creativity of all. 
 
+记住这些：
+
+- 我们万事万物都是宇宙的一部分；
+- 宇宙也是我们的一部分；
+- 宇宙能量可以供万物作一切使用、一切饮食生存，及一切创造。 
+
 If you would give yourselves but a moment to stop and truly experience this wondrous recourse and know what you can do with it,you would not clamber over each other for power,wealth,nourishment,celebrity,or love.You would know that you belong and need for nothing because nothing is needed by those who know and work with the universe in true and full understanding. 
+
+如果你愿意给自己哪怕片刻时间让自己停下来，真正体会到这一奇妙关系，并且知道你能为此做些什么，你们就不会为了权利、财富、利益、名誉、爱情而相互攀比。你会知道你属于空无，你无需任何东西，因为对于那些真正完全了解并与宇宙协调的人是不需求任何东西的。
 
 #### The Body Becomes Denser(The Road to Autonomous Biological Reproduction) 
 
+**肉体变得更稠密（生命自动繁殖之路）**
+
 SE:Remember that earlier human forms were much lighter than they are today.Some of your legends tell of humans who could fly,and this is a direct result of them being lighter in the surrounding density of the planet,which was also not as dense as it is today.As more and more entities incarnated into the human form as it was then, the number of physical entities needed to increase with the increase in demand.As these entities incarnated,they experienced more of the universe at the denser levels. The more they became entrenched in the experiences they had at these lower levels, the more they evolved when they came back into the levels of "normal"energy- based existence.The entities that had not experienced incarnation observed how fast those who incarnated were evolving and,therefore,saw this as an opportunity for an evolutionary "fast track."This again resulted in the increase in demand for physical bodies. 
+
+源实体：要记住，早期的人体比现在的人体要轻很多。你们的一些传说中有人类会飞，因为他们比地球周围物质的密度小，不过在当时地球的密度也不像今天那么大。随着越来越多的实体转世为肉体，也需要更多数量的肉体。随着这些实体的转世，他们会在更稠密的层级上体验宇宙，他们越在低层中深入体验，回到正常的能量层级时就会越进化。那些没有转世的实体看到转世过的存有进化速度很快，就将转世视为进化的快速通道，这也导致了对肉体需求的增加。
 
 Since the number of human forms were limited (you had to create them directly from the spiritual energy levels at this point in time),all of you got together to try to work out how to increase the number of bodies without the need to create them yourselves.This meant that the body needed to be able to recreate itself in some way,and that this needed to be designed into the existing model. 
 
+由于肉体的数量是有限的，在当时，你们要直接从灵性能量层面上创造他们。你们所有人聚集在一起，努力研究如何增加肉体数量，而不再需要你们亲自创造，这意味着肉体需要能够以某种方式是自我创造，并把此功能加入现有模型。
+
 ME:We all know about the birds and the bees,so what can You tell me that I don't already know? 
+
+我：我们对小鸟蜜蜂之类的内容已经有所了解，你能告诉一些我还不知道的东西吗？
 
 SE:The birds and the bees,as you know it,is quite a new thing in terms of the length of time that has been spent working on the human form.You see,the information that I have given you about the events that led you to a relatively small understanding about the history of what went on in the moments in time that were used in the development of the human form do not in any way go into the real detail that would adequately describe what humankind in spirit did to achieve the current level of human form. That would require several books and would bore the pants off you,not to mention your potential readers although it may interest some of your scientists.But I will move on. 
 
+源实体：你们所说的小鸟蜜蜂的内容，比起开发人体所花费的漫长时间而言，真的还算是一件新鲜事。你知道，我给你的信息并不多，这让你理解了开发人类形体的历史，并没有更细节的描述人类灵体做了哪些工作才达到现有人类形体的。那会需要几本书，并且会让你烦的要命，更不用说你的那些潜在读者了，虽然也许一些科学家会感兴趣。我还会继续讲下去。
+
 ME:How does this link to the human form getting denser?
+
+我：这与人体密度越来越大有什么关系呢？
 
 SE:Wait and see.The one caused the other. 
 
+源实体：你会看到的，它们一环套一环。
+
 We have just discussed the fact that there were not enough bodies to go around,so to speak.The entities were queuing up to incarnate when they found out that the chance of incarnating would increase their speed of evolution.Creating the human form from Spirit took a lot of effort so an alternative method had to be found,one that could happen independently of spiritual intervention. 
+
+我们刚刚讲到这样一个事实，即肉体的数量不够转世之用。当这些存有发现转世会加快进化速度时，就争先恐后的等待转世。从灵界直接创造肉体需要付出很多努力，因此，必须找到一种替代办法，一种可以不需要灵性干预的方法。
 
 ME:Reproduction! 
 
+我：繁殖！
+
 SE:Of course.It sounds simple from where you are standing now,but it took a lot of "time" to sort out.You see,you had to completely redesign the human form so that it could reproduce itself without the need for external intervention.In essence,the male and female sides of the human genome did not exist.You only had a physical biological form that was designed to exist for a set period of time,and once it reached a set period,it stopped working to a greater extent and so became largely un-useable. 
+
+源实体：当然。这在你目前的角度看起来很简单，但在当时曾花费了很多时间才解决。首先，你们必须重新设计人体，使它在没有外界干预的情况下实现自身繁殖。当时人类基因中没有男性和女性之分，人体只不过是一具物质载体，设计用来在一段时间内存活，一旦它达到生命周期就会停止运作，不再能被使用。
 
 ME:Is this where the three score years and ten legend came from? 
 
+我：这就是七十年一辈子的出处吗？
+
 SE:No,no,but I can see why you might make the link with this.Three score years and ten is an average life expectancy that was invented by the author of the Bible called the Old Testament to try to explain why the human form ceased to function after a certain, consistent time after it was created.He called it the life expectancy given by God to humankind provided they followed God's ways-ways that were largely invented by humankind itself. 
+
+源实体：不，不是，但是我明白你为什么会联想起这个来。人均寿命七十年，这是由圣经旧约的作者发明的。他试图解释为什么人体被创造出来后，会在一段时间后停止运作。他称这是神赐予人类的预期寿命，前提是他们遵循神的方式，而这些方式大部分是人类自己发明的。
 
 But back to the story at hand. 
 
+不过，还是回到正题上来吧。
+
 The design of the human form was at that time not geared up for reproduction in any way,shape or form,and it took considerable thought and experimentation to get it right. You (humankind in spirit,that is)had several attempts at getting it right. 
+
+当时的人体设计，无论是外形还是形式，都不适合于任何形式的繁殖，需要相当多的思考和实验才能达到目标。你们人类灵体们做了很多次尝试才找到解决方法。
 
 #### The First Attempt at Human Reproduction 
 
+**人类繁殖的首次尝试**
+
 ME:Tell me about some of the attempts we had at getting it right. 
+
+我：请告诉我，我们做了哪些尝试？
 
 SE:There were three main attempts,the third being what you have now,so I won't go into too much detail on this one. 
 
+源实体：有三种主要的尝试。第三种是你现在的方式，所以我不会在这方面做过多的细节阐述。
+
 ME:So basically we had two prior attempts at making the human body reproduce itself without spiritual intervention. 
+
+我：基本上说，为了实现无灵性干预的人类繁殖，我们还有前面两个尝试的版本。
 
 SE:Correct.The first version was based upon the reproduction of the original by what you would call "cell division"but on a dual frequency level.The human form was at a higher frequency at this time,thereby making this easier to achieve.In essence the body was able to go"out of phase"with itself to the point where the body was able to create two(or more)versions of the same.One was a body that was half the density of the original.Consider it similar to jpeg compression where you take the data of every, say 3rd or 4th pixel to reproduce the same image but of a drastically reduced file size. In this instance,the reproduction of the human form means that the density of the original body was reduced proportionately by the number of times the body wanted to reproduce. 
 
+源实体：没错。第一个版本是通过你所说的“细胞分裂”来复制原始身体，不过在双频率的层面上进行。那时人体频率较高，因此较容易实现这种方法。本质上身体能够脱离当前相位到一定程度，这使它能够创造出两个或更多相同的版本，他们是原始身体密度的一半。想象它类似于一个图片的压缩版本，你每隔三或四个像素取一个数据来产生相同的图像，但大大降低了原文件的大小。在人体例子中，对人体的复制意味着随着复制次数的增加，原始身体的密度会成比例地降低。
+
 ME:So how did the newly reproduced bodies recreate their density to that similar to the original? 
+
+我：那么这些新繁殖出来的肉体，如何复制出和原始身体一样的密度呢？ 
 
 SE:By normal cell division and growth.The biological body was told at RNA/DNA level to increase its cell count if its overall density was lower than that required to perform in the environmental frequency in which it was working before it was reproduced. 
 
+源实体：通过正常的细胞分裂和繁殖。如果生物体整体密度低于复制前所处工作环境的频率，生物体就会在RNA/DNA层级上被告知要增加细胞数量。
+
 ME:At what age was it pertinent to reproduce using this technique? 
+
+我：到什么年龄可以采用这种技术来进行繁殖？
 
 SE:Obviously an age where the body was self-sufficient to the point where it did not rely on others for its continued existence.The decision to reproduce then would not have been made when it was a four year old,for instance,nor would it have been made when it was about to die.At this point in time the human form was ready built to the adult stage,say 16-18 years old in your terms but was still subject to aging due to its need to interface with the lower frequency levels of the physical and the higher frequencies of the spiritual.The shifting of frequencies required for the human form to exist in both the physical,intermediate,and spiritual frequency levels did and still does age the cellular structure of the human form quite dramatically.The only way to slow this process down is to remove some of the physical strains you put on the body that it is not designed to work with,such as smoking,meat,and alcohol.However, even these don't really make a massive amount of difference compared to having the body exist in one frequency plane only. 
 
+源实体：显然需要在身体可以自给自足，不用依赖他人生存的年龄。例如，人类在4岁时或即将死亡时就不会决定繁衍后代。在这个时间点上，人类的身体已经发育到成人阶段，用你们的话来说就是16到18岁，但由于需要与低频的物质层面和高频的精神层面进行连接，所以仍然会衰老。要减缓这一过程，唯一的办法就是移除你对身体造成的一些压力，比如吸烟、吃肉和酗酒。然而，即使你做出这些改善，与只将人体放于一个频率层面中的情况相比，改善效果也不大。
+
 ME:Sounds like a good method of reproduction to me. 
+
+我：这听起来是一种不错的繁殖方法。
 
 SE:It would have been,but the issue was with the continuing drop in frequencies at that time (which incidentally were light years away from where you are now)that resulted in the need for a denser body.In addition,the subsequent loss of continuity in reproduction was caused by the need for massively increased cell division to compensate.This was specifically noticeable when the reproduction resulted in one body creating more than one copy of itself.The more copies that were made,the more diluted the master became.This resulted in cells being reproduced that only had half the information to pass on to the next generation of cells.Thus,there was great deviation from the normal standard human cellular structure,which then created mutations that were a hindrance rather than a help. 
 
+源实体：本应是这样的。但问题是，那个时候频率在持续下降，导致了需要更稠密的身体。顺便说一下，那个时候距离你现在非常非常遥远。此外，由于需要大量增加细胞分裂来补充，导致了繁殖过程连续性的损失，特别是当繁殖出不止一个身体副本的时候，这一点特别明显。副本越多，原始身体密度越小，这导致被复制的细胞只含有一半的信息可供传递给下一代细胞，与正常的人类细胞结构相比，其结构发生了巨大的偏离，从而导致了突变问题。
+
 ME:Did this matter that much? 
+
+我：这会造成很大影响吗？
 
 SE:Usually I would say no because physical mutations on their own are not an issue,but the mutations also affected the manner in which communication with the spiritual messages were received,as well as what they passed on to the other cells in the communication chain-not to mention what was passed back to Spirit.
 
+源实体：通常我会说不，因为身体自己产生突变并不算问题。但突变也会影响接收灵性信息的通讯方式，并且会影响到在信息链中传递给其他细胞的信息，更不要说回馈给灵体的信息了。 
+
 ME:How did the messages sent back to Spirit affect Spirit then? 
+
+我：那些传回灵体的信息是如何影响灵体的？
 
 SE:Simply put,it affected the energy frequencies in a way that created discord(dis- harmony)with the surrounding energies at the various different levels that were being used as the master "plan"for the human form.It created a change to that master which affected all other human forms currently being used in the physical.In effect it caused mutations to appear in all the other humans that were incarnate. 
 
+源实体：简单的说，它影响了能量频率，在不同的层级上创造了与周围能量的不和谐。而这些层级是人类形体的蓝图，它改变了主蓝图，从而影响了物质界中现有使用的所有其他人类形体，实际上它导致了所有人类化身的突变。
+
 ME:How could that be?I thought that human beings,incarnate,were all independent? 
+
+我：这怎么可能呢？我认为转世的人类化身都是独立的。 
 
 SE:They are to a lesser extent now,and that is shown in the variation of your form when you compare each other side by side.You mutate singularly rather than in multiples,but at that point in time you were all the same-clones,you would call them,who were all linked together from a psycho-spiritual/physical perspective whilst allowing the energy of the incarnate spirit the opportunity to be in and out of incarnation at will. As spirits during this time,you were also able to be in contact with your higher selves all the time,and this was a result of the frequency that this human form was based within.However,this was obviously not optimal from a dysfunctional perspective,as any errors that were created as a result of the "back filling"of cells after reproduction or psychological issues caused eddies in the local frequencies that also affected the rest of humanity.It took a long time to see what was happening and to work out a"fix" for the problem because initially all of you thought the errors were part of your basic design for the human form.In essence,you were trying to fix something that wasn't broken,provided the initial thought process of singular divisional reproduction was adhered to.Once you tried to increase this,the errors crept in,and as with any engineering problem,you get"red herrings"that mislead you as to what the problem is. 
 
+源实体：当时人体的独立性比你们现在要低。如果你把它们仔细对比就会发现你们是单独变异，而不是集体式。但在那个时候，你们都是一体的，你们现在会将之称为克隆人。从心理、灵性、物质的角度看来，他们都是联系在一起的，允许让转世灵体的能量随意进入和离开肉体。在身为灵体的这段时间里，你也可以一直与高我保持联系，而这一点有赖于人体当时的频率。然而，从功能失调的角度来看，它们显然还不够理想。因为当发生繁殖或心理问题后，细胞的回填过程将会导致产生很多错误，这会在局部频率中引发混乱，并影响到其他人类。你们花了很长时间才知道发生了什么，并找到了解决办法。因为最初所有人都认为，错误原因在于人体基本设计有缺陷。事实上，你们在尝试修复一些并不存在的问题，再加上单性分裂繁殖的初始惯性思维的推动，而你们越是这样做错误就越多。而就像任何工程问题一样，你们还遇到了把你们引入歧途的误导信息。
+
 Suffice to say that the errors that were being created both at the human form level and at the master plan level were such that it was deemed necessary to change the method of reproducing the human race to something more robust.This led to the second method of reproduction,the one before the method you have now. 
+
+可以这样说，在人类形体和主蓝图两个层面上产生的错误太多，因此有必要改变，采用一种更稳健的人类的繁殖方式。于是产生了第二种繁殖方法，也就是你们现在的方法之前的另一种方式。
 
 #### The Second Attempt at Human Reproduction 
 
+**人类繁殖的第二次尝试**
+
 ME:O.K.,so we had a second attempt at reproducing the human race in an autonomous way that did not affect the spiritual energetic realms. 
+
+我：好的，那么我们拥有了第二种自发的、并且不会影响到灵性能量领域的繁殖方式。
 
 SE:Not quite.Reproduction on the physical levels always affects the spiritual realms in some way.This is because the physical is still connected to the Spirit,and Spirit is "one"with the universe,Me,and the Origin.You know from basic physics that energy cannot be destroyed,and Sir Isaac Newton stated that every action has an equal and opposite reaction.Newton was not quite right.Physical responses are a "lossy"function with the losses incurred going elsewhere in the universe.Heat,for instance,is a response which is connected to the spiritual realms due to its functional frequency.As it transposes to the spiritual,it is lost in the physical;hence,heat is lost!Lost to the physical energy levels,that is. 
 
+源实体：不完全是这样。物质层面上的繁殖在某种程度上都会多多少少影响到灵性领域。这是因为物质仍然与灵体相连，而灵体与宇宙、我和起源是一体。你们从基础物理学中学到，能量不能被摧毁。并且艾萨克·牛顿说，每一个作用都有一个相等和相反的反作用，但牛顿没有全说对。物理反应是一种有损的机制，只不过它的损失在宇宙的别处发生而已。例如，热反应由于其功能频率是连接到灵性领域的，当它转换到灵性层面，在物质层面上它就消失了，因此热量损失了。也就是说，从物质能量层面上消失了。
+
 In terms of human reproduction or,in fact,any human action,the spirit connected to the physical body is affected in some way.The issue with the first attempt was that the whole of humanity was connected,resulting in the errors seen in one body being transferred to the rest. 
+
+事实上，就人类的繁殖而言，人类的任何行为都会某种程度上影响到与肉体相连的灵体。第一次尝试的问题是整个人类连接在一起，一个身体的错误会被传递到其他所有身体中。
 
 This dilemma was so profound that it led to one solution,to disconnect the physical connection of the group of souls incarnate in the physical.So with this system of reproduction,the information transmitted through the RNA to the physical and back to the spiritual was limited to dealing with the individual spirit concerned.The method of reproduction was maintained,but the number of reproductions was limited to a 1:1 basis.As one human body was approaching the "worn out"stage,another was created by cell division.Remember,the human body was still manifested on a higher frequency level than it is currently,so this was a much easier job to achieve energetically than it would be today.Also,the incarnate spirit was able to communicate with the rest of itself and the rest of "Spirit"at will-something that humankind at its current frequency level cannot do. 
 
+这一困境影响巨大，导致产生了新的解决方案：断开转世灵魂群体彼此间的物质连接。因此，在这个繁殖系统中，通过RNA传递到肉体以及传回灵性的信息过程被限制在与个体灵体发生作用的范围内。之前繁殖的方法被保留，但是复制数量被限制在1:1的基础上。当一个人体接近寿命期末尾，会经由细胞分裂产生另一具人体。记住，那时人体的频率仍然高于目前水平，所此比现在更容易从能量上做到。同时，转世的灵体能够随意与自己的高我部分以及其他灵体交流，这是人类当前的频率水平所不能做到的。
+
 ME:This looks like it sorted the problems out that You previously had! 
 
+我：这看起来像是把你以前的问题解决了！
+
 SE:So it would appear.But the issue here was twofold:
+
+我：看起来是这样，但这带来的问题是双重的：
 
 - 1.The physical body had a reduced "life time"due to the optimal time of reproduction;
 - 2.The physical dysfunctions were not fully worked out. 
 
+- 1.由于存在最佳的繁殖时间，因此每具肉体的寿命缩短了；
+- 2.物质载具的功能紊乱并没有完全解决。 
+
 This meant that over time the errors seen in the reproduction process could mutate significantly as the body re-created itself.During the reproduction cycle,the errors were passed on to next body and the next body and the next body with all the other possible errors creeping in as they did.This was amplified further as the first issue took hold with the reproduction cycle needing to speed up to cope with the reduced life span of the human form.Then there was the need to try and increase the number of physical bodies that could be used for the ever-increasing number of spiritual entities wanting to accelerate their experiences,knowledge,and evolution by experiencing life at its lowest frequencies. 
+
+这意味着随着时间的推移，在繁殖过程中所出现的错误会随着繁殖发生显著的突变，在繁殖周期中，这些错误会被传递给下一代，并代代相传，还会出现其他潜在错误。这一问题被进一步放大，因为繁殖周期需要加速，以解决人体寿命缩短的问题。而且还存在一个需求，就是增加物质载具的数量，以满足不断增长的想要通过体验最低频来加速经验、知识和进化速度的实体们。
 
 ME:So it didn't really do the trick then.All that happened was that You were able to remove the association with the rest of the incarnate humans so that the errors caused by reproduction were not spread to the rest of "humanity in spirit,"so to speak. 
 
+我：那么它并没有真正解决问题。所带来的好处只是去除了与其他转世人类灵体之间的连接。这样繁殖造成的错误就不会扩散到其他部分灵体状态的人类。
+
 SE:It didn't really do that either.You see,Spirit is Spirit and it is "one."So even though We/ you had removed the major method of communication used in the proliferation of error and energy disharmony,it "snuck in"through the back door. 
+
+源实体：其实就连这一点也没有完全解决。你知道灵体就是灵体，它是一。因此，尽管我们已经取消产生错误以及不协调能量的主要通讯方式，但它还是会从后门潜入。
 
 #### Challenges of Human Spirits Sharing Incarnate Bodies
 
+**人类灵体共享转世肉体的挑战**
+
 ME:How could it have done this?I thought that cutting everyone off from each other in terms of the energetic communications via Spirit and RNA would be total. 
 
+我：它是怎样做到的？我认为切断每个人彼此灵体与RNA能量的连接就行了。
+
 SE:Yes,in the normal sense it would be,but there was one activity that incarnate spirits liked to engage in that meant that the errors could creep inin another way.With your current method of reproduction,you're all but on your own,apart from when you are evolved enough to get snatches of coherence of the real world (like now),or if you remember,when you are contact with your higher self and other spirits through astral traveling during your physical sleep time.But remember,two additional things were still happening to those two above. 
+
+源实体：是的，从正常的意义上说是这样。但是有一种转世化身的灵体都喜欢参与的活动，而这意味着错误可能会以另一种方式潜入。现有的繁殖方法中，你们是独立个体，除了你们达到足够进化的程度，并偶尔能一瞥真实的世界（比如现在），人们越来越多的理解了这个实相的连贯性。或者如果你记得在肉体睡眠期间，通过星光层旅行与高我和其他灵体连接的情况。但要记住，上述二者还会有两个额外的情况。
 
 - 1.The errors in reproduction were experienced by the non-incarnate part of the Spirit, affecting it,albeit slightly,by energetic disharmonies. 
 - 2.Spirits were able to share bodies or move from one body to another to experience things that another Spirit thought was particularly good. 
 
+- 1.繁殖中的错误会由未转世的那部分所经历，并受到不和谐能量的轻微影响。 
+- 2.灵体能够共享肉体，或某个灵体从一个肉体移动到另一个肉体中去体验他认为特别好的经历。
+
 ME:So spirits that were incarnate had the opportunity to "hot swap"between different physical bodies at will. 
+
+我：那么转世的灵体有机会在不同的肉体之间进行随意的“热插拔”。
 
 SE:Yes,very much so,and it happened on a massive scale.Moreover,it was not unusual for a human body to have three or four spirits incarnating with it during its lifetime- hence,the proliferation of the errors.In some instances,it was thought to be seen as the solution to the poor availability of human bodies.Why reproduce more human bodies when you can share a body among the four of you?But the errors were created because that human form would have been "custom created,"to an extent,to the frequencies of the very first incarnating spirit,which would or could be out of phase with the others who wanted to take advantage of a body share. 
 
+源实体：是的，而且发生的规模非常大。甚至于在一生中，人体有三到四个灵体转世并不罕见，因此错误会扩散。在某些情况下，人们会认为这是解决人类肉体载具短缺的一个办法，因为既然你们四个灵体可以共享一个肉体载具，那干嘛还要繁殖那么多的肉体呢？这些错误的产生，是因为人体在某种程度上只针对第一个转世灵体的频率进行客户定制的产品，被其他想共享身体的灵体利用时会产生不协调。
+
 ME:I have heard of similar things happening these days;it is called a walk-in. 
+
+我：我听说过，现在也发生过类似的事情，被称为灵体入舍。
 
 SE:A walk-in is a different thing.A walk-in is where the incarnate spirit has literally had enough of incarnate life and gives another spirit the opportunity to incarnate by giving up its own body-still a very rare and privileged incarnation opportunity. 
 
+源实体：**入舍**是另一回事，它是指转世的灵体受够了肉身生活放弃自己的肉体，从而给另一个灵体转世的机会，它的肉体仍然是很宝贵的转世机会。
+
 ME:So the errors/energy disharmonies were passed on due to body sharing? 
+
+我：因此，人体共享导致错误/不协调能量互相传递吗？
 
 SE:Yes,very much so. 
 
+源实体：是的，不错。 
+
 ME:So human spirits used to travel from one body to another to experience things that they weren't experiencing in the body they currently inhabited. 
+
+我：所以，人类的灵体过去也常常从一个身体到另一个身体，去体验他们在居住的身体里没有经历过的事情。
 
 SE:Yes,of course,this was one of the things that you wanted to maintain from the first method of incarnation to the second-the basic ability to remain in contact with the rest of humanity from an energetic point of view.The best way to do this was to be able to move out and away from the physicality that constrained them.However,it was very quickly seen that you could move into another body quite easily.This was mainly possible because there was not the tie with the physical body that is seen in the current method of incarnation,the silver cord. 
 
+源实体：是的，当然。这些是你们想在第一种转世到第二种方式中保留下来的功能之一，即在能量上与其他人类保持联系的基本能力。做到这一点，最好的办法就是能够离开束缚他们的肉体。然而很快人们发现，他们可以容易的进入另一个肉体。与你们现在不，这主要是因为那时灵体还没有与肉体的联系，也就是**灵带**。
+
 As the Spirit experienced the energies surrounding and within the physical form,it took these energies,good and/or bad,on-board as an energetic imprint.This was a true full experience of incarnation done at a "rate of knots"/fast speed [see Glossary]because of the ability to share everyone else's experiences without having to do it all oneself.The issue here is that the energy imprints from energies created as a result of cell division errors made in the reproduction method were also passed on to those who wanted to experience other spirits'experiences in the physical.This perpetuated the error not only locally but with all those who had shared a body.Also,it was not unknown for some bodies to have more than one spirit incarnate in a particular body at any one time. 
+
+当灵体体验到肉体内与周围的能量，这些或好或坏的能量就成为灵体的能量印记，这是一种真正的充分高速的化身体验，因为可以不必亲自经历，就能共享其他每个人的体验。但存在的问题是，在繁殖中由细胞分裂导致的错误所产生的能量印记也会传递给共享肉体的其他灵体。于是，这种错误开始从本地人体传播到共享这一肉体的所有灵体身上。此外，某些人体中任何时候都有多于一个灵体转世其中的情况并不少见。 
 
 ME:So this was really a hot bed of evolution with everything happening fast then. 
 
+我：那么这是一个进化的温床，一切都进行的很快。
+
 SE:Yes,it was fast.As a result,spirits from all over the known and local universes gathered together around Earth to line up and experience accelerated evolution.The only issue was that the vessels that were being used for the evolution of these spirits were not optimal in their ability to reproduce.Thus,the errors incurred in the duplication process created further errors/disharmony in the energy flow of those spirits who used bodies for their evolution,i.e.,that had been reproduced or were the reproductions of reproductions,etc.This caused great disharmony with everyone who incarnated at that time,and the period of recovery from being incarnate almost outweighed the advantages gained.Yes,the spirit evolved rapidly due to the experiences gained by reducing the amount of "connectivity"and abilities associated with the spiritual energies.However,the fall-out in terms of the amount of care required to help the spirit recover from the energetic dysfunctions that they were picking up as a result of all the other incarnate sprits using the same bodies,meant that they might take thousands of your years to get themselves back to where they were energetically before they incarnated.Remember that this was localized to those spirits who incarnated in a finite number of bodies but experienced the dysfunctions of all the bodies that they incarnated within.If they stayed in one body,then they would not have been too badly affected by the energy disharmonies associated with the previous reproduction/s,but as they were "putting themselves about,"they compounded the issue. 
+
+源实体：是的，很快，所有来自已知及本地宇宙的灵体都聚集在地球周围，迫不及待的想体验加速进化。唯一的问题是，肉体容器在繁殖能力上并不理想。因此，在复制过程中产生的错误，进一步导致了使用肉体载具的灵体的能量流的错误和不和谐，这些肉体载具是人体复制品，或是复制品的复制品。这使当时转世的所有人都产生了巨大的不和谐，他们转世后所需的恢复时间几乎超过所获得的进化。确实，灵体进化的也很快，这得益于减少与他们与灵性能量的连接性和相关能力。但是，从共享人体产生的能量失调中恢复所需的照顾，可能需要花费数千年的时间，才能恢复到他们转世以前的能量水平。记住，这些问题只出现在转世到数量有限的肉体内，却体验了所有转世肉体的失调的那些灵体。如果他们转世后，待在一个身体里，就不会受到由之前的繁殖复制引发的能量不协调的严重影响。但是当他们四处转世时，他们就会加剧这个问题。
 
 This compounding of the energy disharmonies and the long time required for the spirits to "normalize"after a round of incarnations meant that you had to look at revising the methods used for incarnating in a physical body. 
 
+能量不协调，以及在一轮转世以后，需要灵体花费大量时间恢复，意味着你们不得不重新改进在肉体中转世的方法。
+
 These were identified as follows: 
+
+这些改进如下：
 
 - Reduce the number of bodily incarnations to one per spirit; 
 - Remove the ability of those spirits who incarnate to move around to other bodies once incarnate; 
@@ -4992,9 +5154,19 @@ These were identified as follows:
 - Reinstate full abilities once incarnation is finished;
 - Create a body that is more robust in its reproductive capabilities. 
 
+- 将转世身体的次数减少到每个肉体载具只能转世一个灵体；
+- 移除转世后灵体可以转移到其他肉体中的能力；
+- 移除转世后灵体之间的连接以及对这种能力的记忆，让他们将不会怀念他们遗忘的东西；
+- 在每个转世过程结束后，恢复灵体的所有能力；
+- 创造一个繁殖能力更强的肉体。 
+
 ME:This sounds like the recipe for what we have now. 
 
+我：这听起来好像是我们现在的样子。
+
 SE:It is in its entirety.In fact,it still is the blueprint for evolution via incarnation.You see, the only difference here is that you had to be cut off from each other to ensure that the energetic disharmonies created by the reproduction process did not spread to others as a result of interaction.Once this was known to be effective,and it is,it was then decided to move on to making the reproduction of the human body more robust.This had to be done in a way that was self-contained whilst working with the energies at the boundary line of the physical and spiritual. 
+
+源实体：整体上是这样，事实上它仍然只是转世进化的一个草图。你看，这里唯一的区别是必须切断彼此之间的联系，以确保繁殖过程产生的不协调的灵性能量不会波及到其他存有。一旦这种方法被证实有效（实际上也确实有效），那么就会继续下一步骤，使人体繁殖能力更加稳健。这种方式必须是独立完成的，并且要在物质和灵性的交界线上与能量配合运行。
 
 #### The Design of Modern Human Beings(The Development of the Current Reproduction Method) 
 

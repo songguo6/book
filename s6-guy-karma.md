@@ -278,11 +278,17 @@ It is important for us to stand back and look at what we do on a daily and autom
 
 How much of what we do is necessary for us to survive?How much is an addiction to physical "pleasure"that is based upon an automated action/response?If we give up our addictions,we will lose automatically generated karma.
 
+对我们来说，重要的是退后一步，看看我们每天自动做的事情。
+
+在我们所做的事情中，有多少是我们生存所必需的？有多少是对基于自动行动/反应的身体“快感”的上瘾？如果我们放弃我们的瘾，我们就会失去自动产生的业力。
+
 ### Noticing Minor Addictions 
 
 **注意轻微的上瘾** 
 
 Being aware of minor addictions is necessary,especially the ones that we may consider to be not an addiction but more of a preference.Addictions of any type are a constant link to the low frequencies.Minor addictions are insidious and invisible to all but the most vigilant of truth seekers.
+
+意识到轻微的成瘾是必要的，尤其是那些我们可能认为不是成瘾，而更像是一种偏好的成瘾。任何类型的成瘾都是与低频的持续联系。轻微的成瘾是隐蔽的，除了最警觉的真相探索者之外，其他人都看不到。
 
 ### Being Addicted to Sex 
 
