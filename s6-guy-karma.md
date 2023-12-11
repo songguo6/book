@@ -304,6 +304,8 @@ Our engaging in sex for procreation is both a necessity and a delight.However,en
 
 When we look at our fears,it is important to notice where they are anchored.Are they about work,relationships,possessions,appearance,personal credibility or money?Any of these are fears that are based in the physical environment and are nothing we would pay any attention to in the energetic.If we don't pay attention to these or any other types of fear in the energetic,then why should we pay attention to them whilst incarnate,for fear is a product of being in the lower frequencies associated with incarnate existence.
 
+当我们审视自己的恐惧时，重要的是要注意到它们的根源所在：它们是关于工作、人际关系、财产、外表、个人信誉还是金钱？如果我们在能量中不关注这些或任何其他类型的恐惧，那么当我们化身为人时，为什么还要关注它们，因为恐惧是与化身存在相关的低频的产物。
+
 ### Choosing Love 
 
 **选择爱** 

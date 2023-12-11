@@ -5170,195 +5170,381 @@ SE:It is in its entirety.In fact,it still is the blueprint for evolution via inc
 
 #### The Design of Modern Human Beings(The Development of the Current Reproduction Method) 
 
+**现代人体的设计（开发如今的繁殖方法）**
+
 ME:O.K.,so in order to stop energetic disharmony across the local energy levels from reproducing the physical body in the way that spread between spirits,we decided to reduce the number of reproductions to one per body.This did not stop the problems entirely because spirits that were incarnate liked to move around from one body to another,so they could experience what other spirits were experiencing in their own bodies.This,in turn,caused problems because the energy disharmonies that were experienced by living in one body were passed on to the next spirit who dropped in for a quick experience of life in the physical from a different angle.This then compounded the issue of spirits returning from "physical living"to spirit because they had to have energy re-alignment therapy,which could take quite a long time,even in spiritual terms. 
+
+我：好，所以为了阻止肉体繁殖产生的本地能量失调在灵体之间扩散，我们决定将复制品的数量减少到每个身体复制一个。这并不能完全阻止问题的发生，因为转世的灵体喜欢从一个肉体移动到另一个肉体，为了体验其他灵体在其他肉体里的经历。这反过来又造成了问题，因为一个肉体里的能量失调会传递给前来短暂体验的灵体，这就使从物质生活返回灵界的灵体必须做能量校准疗愈，这种疗愈哪怕从灵性角度上说也需要相当长的时间。这一切带来的结果就是，需要一个灵体只能在一个肉体中转世，并且转世的灵体不能在两个肉体之间任意移动，此外，转世期间也不知道其他灵体。这样的话，转世的灵体不知道其他灵体体验什么，也就不会想在自己转世期间体验其他灵体的经历，从而可以体验自己完整的一生。在灵体转世在肉体中的短短几十年中，他们是完全独立的。
 
 All this resulted in the need to have one incarnate spirit in one body with no movement between bodies whilst incarnate,and what's more,they would have no knowledge of the rest of spirit whilst incarnate.In this way the incarnate spirit would not know what other spirits were experiencing;therefore,they would not feel the need to experience someone else's experience without having to re-incarnate and experience the whole life for themselves.They were to be completely alone for the short number of years they were in their chosen physical body. 
 
 SE:That summarizes it quite nicely.Don't forget that this was a learning process that lasted for millennia in physical terms and one that you,as spirit,could not have foreseen since the whole point of this experiment was to deal with the physical whilst in the physical realms. 
 
+源实体：总结的不错。别忘了，这是一个在物质界持续了漫长的学习过程，作为灵体的你无法预见，因为这个实验的目的就是在物质领域中认知物质。
+
 #### The Physical Realms Encompassing Ten Levels 
+
+**物质领域包含10个层级**
 
 ME:I thought the physical realms were purely physical,i.e.,as the human body,the Earth,the solar system,and everything else we can see,hear,touch,feel,or taste. 
 
+我：我原以为物质领域纯粹是物质性的，也就是像人类的身体、地球、太阳系，以及其他我们能看到、听到、触摸、感觉、或尝到的一切。
+
 SE:From a lowest of the frequency levels perspective,you are correct,but the physical realms exist up to the 10th level.
+
+源实体：从最低频率层级的角度看来，你没错。但是物质界存在于多达10个层级。
 
 ME:I expected seven levels because they are related to the human energy field,but you are saying that the other three above the 7th level are also associated to the human physical realms. 
 
-SE:In essence,yes.You see,there are seven levels that interface with the physical/spirituo- physical and seven that interface with the spirituo-physical only.The first three levels are just in the physical with the other four being in the realms where the physical is spiritual in existence.These four are the overlapping levels between the two lots of seven levels.Last are the three higher levels,which make a total of seven in the spirituo-physical but ten levels in total and span the physical and spirituo-physical and represent the higher frequencies of spiritual existence that are associated with the physical from the human perspective.These three levels allow the communication with that part of you(the greater majority)that remains in spirit.They act as a filter insomuch as they translate the thousands upon thousands of senses or experiences used/gained in spirit into a generalized response that can be used by the spirit incarnate in its lowest form,the human form.Whilst it is being employed as a vessel for evolution,i.e.,they allow the incarnate being the use of memories and experiences previously encountered in former incarnations or knowledge of activities performed in the spiritual realms that would be of benefit in the physical.More importunately, however,they are the link between the fully spiritual and the spirituo-physical planes. 
+我：我以为有7个层级，因为与人类辉光场有关。可是你说在7层级之上，还有另外3个层级也与人类物质领域有关。
+
+SE:In essence,yes.You see,there are seven levels that interface with the physical/spirituo-physical and seven that interface with the spirituo-physical only.The first three levels are just in the physical with the other four being in the realms where the physical is spiritual in existence.These four are the overlapping levels between the two lots of seven levels.Last are the three higher levels,which make a total of seven in the spirituo-physical but ten levels in total and span the physical and spirituo-physical and represent the higher frequencies of spiritual existence that are associated with the physical from the human perspective.These three levels allow the communication with that part of you(the greater majority)that remains in spirit.They act as a filter insomuch as they translate the thousands upon thousands of senses or experiences used/gained in spirit into a generalized response that can be used by the spirit incarnate in its lowest form,the human form.Whilst it is being employed as a vessel for evolution,i.e.,they allow the incarnate being the use of memories and experiences previously encountered in former incarnations or knowledge of activities performed in the spiritual realms that would be of benefit in the physical.More importunately, however,they are the link between the fully spiritual and the spirituo-physical planes. 
+
+源实体：是这样。你看，有7个层级同时与物质/灵性-物质相互作用，有7个层级只与灵性-物质发生作用。前3个层级是物质性的，在另外4个层级的领域中，物质以灵性形式存在，这4个层级是两个7层重叠的中间部分，最后是3个较高能量层级组成7个灵性-物质层级，但总共是10个跨物质、灵性-物质的层级，代表与在人类肉体有关的较高频率的灵性部分。这3个较高能量层级，可以与你的灵体部分更大部分保持交流，它们对灵体获得的成千上万的感觉或经验进行过滤，使之成为一种通用的反应，以便可以被化身在其最低形式及人体中的灵体使用。当它被用作一个进化的容器时，也就是它们允许化身使用可能对物质生活有帮助的前世记忆和经验以及灵界知识。更重要的是，它们是灵性与灵性-物质层面之间的联系。
 
 ME:But how can a spiritual plane be physical?
 
+我：但是灵性层面怎么又会是物质性的呢？
+
 SE:By association with the human,and this was My choice.You need to have seven levels to be anywhere close to being fully functional in any realm,especially ones as low in frequency as the human.The seven levels provide a minimum continuity of gradient permissible to allow reasonable communication between infinite existence and finite existence,reasonable insomuch as it provides communication.Any fewer and no communication would happen. 
+
+源实体：因为与人类相联系，并且这是我的选择。无论在什么领域，你都需要7个层级你的功能才能全部施展，尤其是在像人类一样的低频领域更是如此。这7个层级提供了一个最小的连续性梯度，使得无限在有限之间可以合理的交流，否则会沟通太少或没有沟通通。
 
 ME:Why would no communication happen if the number of levels was less than seven? 
 
+我：为什么少于7个层级，沟通就不会产生？
+
 SE:Because the graduations between each of the frequencies has to be at a certain level for a particular graduation to be on the edge of the phase of that graduation that is higher than it and the next one that is lower to it.It simply takes seven levels of frequency to get from level 10(and above)to level 4,which is the lowest level you can get to before physical manifestation takes place.Each of these levels acts as a filter.In order to describe what is being fed down the frequencies,each searches for something that is nearest the level being translated to.This is where errors creep in because the data needs to be generalized from one level to another seven times to reach the level of vocabulary available at the lowest.Imagine you have 7,000,000 ways to describe a horse with your method of communication.These include touch,smell,taste,speech, sight,and hearing,plus other senses you have but are not aware of having.Then imagine that each sense is not a sense but a communication medium,and you lose at least 10% of the vocabulary associated with each of these communication methods every time you move down the frequencies.Each downward movement results in a 10% reduction which significantly reduces one's ability to describe the horse. Specifically,the methods that disappear first are those that provide the more detailed description opportunity that only comes with higher functionality seen at the higher frequencies.Therefore,the lower you go down the frequencies,the less you are able to say about the horse.Eventually you get down to the five senses you have in the physical and the few things that are associated with them. 
+
+源实体：因为每个频率之间的梯度必须处于特定层级，因为某一梯度会处于其上或其下梯度的相位边缘。从10层（或更高）到4层，需要7个频率层级，其中第4层是非物质状态所能达到的最低频率，再低就会发生物质显化。每一个层级都是一个过滤器，为了描述向下传递的信息，每个层级都会搜寻最接近下一个要被转换层级的语言。这也是错误可能出现之处，因为信息要达到最低层，需要一层层的编译7次。想象一下，你的交流方法中有700万种方式描述一匹马，包括触觉、嗅觉、味觉、言语、视觉、听觉，还有其他你没有意识到的感官。然后想象一下，每一种感觉不是一种感觉，而是一种交流媒介，而每次降低频率，你就会失去至少10%的与这些交流媒介相关的词汇。每向下降低一个频率，都会导致10%的描述能力下降，这大大降低了人们描述马的能力。具体来说，首先消失的是那些只有在较高频中才有的细节描述方式，因此下降的频率越低，对马的描述能力就越低。最终你剩下肉体中的五种感觉，以及与相关的少数内容。
 
 ME:I have just done the mathematics on the 10% reduction through dropping down seven levels, and it doesn't add up. 
 
+我：我刚刚完成每降一层减少10%，连续降低7层的数学运算，但还没有累计。
+
 SE:The 10% number was used figuratively to demonstrate what could happen.In reality you lose much more in the first levels that you drop.Since the multitudes of senses available at the higher levels are obviously more,you lose more the higher up the frequency ladder you are at the start. 
+
+源实体：10%这个数字只是被用来说明可能发生的事。事实上，在降低一层时，就比原先损失的多得多。因为在更高层级上有大量感官方式，所以信息传递开始的频率层级越高，你们损失的内容就越多。
 
 ME:O.K.,so we have ten auric levels then with the last three(going up the levels)being more to do with communication with the rest of Spirit. 
 
+我：好吧，因此我们有10个人体辉光层，最后3层更多地是与更高灵体部分的交流。
+
 SE:Spot on.Now you have that,so we can move on to the automatic reproduction development of the latest and densest of the human forms. 
+
+源实体：完全正确。现在对此你已经有所了解，我们就可以继续研究比现在最近和密度最大的自动繁殖的人体的开发问题。
 
 #### Back to Human Reproduction 
 
+**再谈人类繁殖**
+
 ME:So we are going to talk about how we as human beings were developed.
+
+我：接下来，我们接着讨论我们作为人类是如何被开发出来的？
 
 SE:Yes.When all of you discovered that you couldn't reproduce robustly by the cell division/ separation method and the link with Spirit maintained at those levels caused energy disharmonies that spread to other spirits,you decided to try to keep any energy-based issues local to the incarnating spirit.Two major changes were made:(1)to make the human reproduction system work in a way that removed as many reproducing errors as possible;and (2)to remove the link to the rest of Spirit whilst incarnate. 
 
+源实体：是的，当你们发现无法稳定地通过细胞直接复制分裂的方法来繁殖，并且复制过程中与相应层级上与灵体的链接还会导致能量紊乱，并扩散到其他灵体的时候，你们决定让任何出现的能量问题都只局限于转世中的特定灵体中。主要发生了两个变化：(1)、人类的繁殖方式需要能够尽量消除复制产生的错误，(2)、移除在转世期间灵体与其剩余部分之间的联系。
+
 ME:But I thought that we are always linked to Spirit/the universe. 
+
+我：但是我以为我们是永远与灵/宇宙联系在一起的。
 
 SE:Indeed you are,so the best way for this link to be severed without actually removing the link is to make the spirit who is about to incarnate "lose its memory"of what reality is.In this way,it would come into the physical world with a clean sheet,with the exception of one or two rules set in place.These rules are the prompts that are set in place to help you achieve the experiences you want whilst in the physical levels.They are the driving force for your achievements whilst you are incarnate.They are your desire to be a doctor or a businessman,nurse or an architect,to live in a certain way, to succeed in a certain way,etc.With some of you,it is discovering who you really are whilst in the physical.A few of you even re-establish contact with your higher selves and some part of the rest of spirit.Interestingly enough,the forgetting rules are much easier to put in place because the lower levels of frequency are natural inhibitors to communication with that part of you that is connected to the whole because of the greatly reduced communication lines.This is,of course,what the Origin and the other Source Entities discovered in the early days of awareness.
 
+源实体：确实如此，因此，在并非真正切断链接的情况下，最好方法是让即将转世的灵体遗忘真实情况。这样它就会像一张白纸般进入物质世界，并且只被植入一个或两个规则，这些规则是为了帮助你在在物质世界中实现想要的体验而设置的一种提示。转世期间，它们是你取得成就的原动力，它们是你想成为医生、商人、护士、建筑师或以某种方式生活取得某种成功的渴望等。对于你们中的一些人来说，就是在物质世界中发现你们真正是谁。你们中的一些人，甚至会重新和高我以及灵体的其他部分建立联系。有趣的是，由于沟通大量减少，较低频率会自然抑制与整体自我的交流，因此遗忘的法则相对更容易实现。当然，这是起源与其他源实体在觉知早期就发现的。
+
 ME:So how did/do we create the forgetting? 
+
+我：那么我们是如何创造遗忘的过程呢？
 
 SE:It is done slowly during the initialization with the physical body,rather like your Alzheimer's but without the trauma.This is done when the fetus is growing in the womb;the link to the physical body is more "pliable"at this stage,allowing the spirit to come and go until the association is complete.The forgetting,although done in stages,is done in such a way so that residual memories don't come to the surface to give the spirit concern by thinking it has forgotten something but can't quite work out what.This is the trauma experienced by Alzheimer's sufferers.The forgetting is only current whilst the spirit is associated with a host body,so when the incarnation is complete,the forgetting is slowly removed.It is completed at a faster rate than the initial forgetting,again to stop any trauma associated with being suddenly bombarded with lots of communication data from all the different senses,including all the memories from past incarnations and experiences when fully connected to Spirit while in spirit.You would be in quite a spin if it happened instantaneously. 
 
+源实体：它是在肉体初始化的过程中缓慢进行的。就像阿尔茨海默症（老年痴呆），但是无创伤的，是胎儿在子宫中生长过程中完成的。在这个阶段，灵体与肉体的联系更加柔软，这种柔软的连接让灵体在与灵肉的关联完成之前，在肉体中来去自由。这种遗忘虽然是分阶段完成的，但它是在不会引起残留记忆浮上意识层面，而使灵体觉得他忘了什么，但又始终无法记起来的情况下完成的。而上述情况便是阿尔茨海默中患者体验到的创伤，这种遗忘只存续在灵体与他的肉体载具关联的时候，因此一旦转世周期完结，也就是肉体死亡，遗忘就会被渐渐移除。遗忘的移除比最初遗忘形成的速度要更快，这仍然是为了避免灵体突然间被来自各种感官的沟通信息轰炸而产生创伤。这些信息包括经历的前世的所有记忆，以及完全与灵体世界链接时出现的体验。如果这些是瞬间发生的，你就会兴奋地晕过去的。
+
 ME:So what about reproduction of the human body?How did we get to the process we have today? 
+
+我：那么人体的繁殖呢？我们是如何发展到现有的繁殖方式的呢？
 
 SE:The method of reproduction you have currently was a bit of a compromise away from the original idea of having a body essentially replace itself with another or derive from itself by splitting itself in two cellularly.Remember,two major errors were being induced as a result of this method:(1)the errors due to the number of reproductions made at any one time(the detail of the body's cellular makeup being watered down in the splitting up of the cells);and (2)these errors worsening and multiplying with each reproduction of a particular body line.So the objective here was to reproduce by growth,growing a body to a known pattern that was free from errors. 
 
+源实体：你目前的繁殖方式与最初的想法也有不少改变，最初的想法是让一具身体通过细胞分裂生成一个新身体来代替自己。还记得吧？这一方法会导致两个主要错误。(1)、与每一次繁殖次数相关所产生的错误。在细胞分裂时，组成身体的细胞细节信息会被稀释。(2)、这些错误随着每一次肉体的复制而不断恶化和扩散。因此，现在的目标是通过一种要经过成长的方式来复制肉体，让肉体成长为一种已知的没有错误的样子。
+
 ME:You're saying we designed the perfect human? 
 
-SE:That would be a reasonable assumption although this is not what we have today,as the body is affected by all sorts of things from reactions to diseases,to errors in matching the pattern for growth. 
+我：你是说我们设计了完美的人类？
 
-When the experimentation started,the idea was for the body to grow its own replacement when it reached a certain point in its existence. 
+SE:That would be a reasonable assumption although this is not what we have today,as the body is affected by all sorts of things from reactions to diseases,to errors in matching the pattern for growth. When the experimentation started,the idea was for the body to grow its own replacement when it reached a certain point in its existence. 
+
+源实体：这本是个合理的设想，虽然今天的人体远非如此，因为人类身体会被各种各样的事物所影响，从各种反应到疾病，再到匹配生长模式过程中发生的各种错误。这个实验最初开始的时候是想让身体到达一定的存续程度时生长出自身的替代品。
 
 ME:A hermaphrodite?! 
 
+我：你指雌雄同体吗？
+
 SE:Yes.It was decided to grow the replacement internally due to the vulnerability of the "fetus."As you well know,the fetus is totally unable to do anything for itself, which was totally unlike the previous design which was basically cloning itself as a readymade,ready-to-use human form.This one needed to be looked after for a good chunk of its life. 
+
+源实体：是的。由于胎儿很脆弱，因此你们决定在体内生长这个替代品。正如你所知，胎儿是完全不能自理的，这与之前的设计完全不同，之前的设计基本上是克隆出一个现成的人体直接可以使用，而这个设计版本在他人生的好一段时间内都需要照顾。
 
 ME:So if this was working,how come we have male and female bodies?
 
+我：如果这样行得通的话，我们怎么会有男性和女性呢？ 
+
 SE:Because it didn't work anywhere nearly as well as it might have because the critical time period between birth and self-sustainability required a significant amount of attention from the host,as you know.Also,the host was particularly vulnerable during the separation (birth)of the replacement,even more so than today from the point of view of predators.Not that there were many in those days since most were in tune with the human species,rather than in fear of it.The main issue here was again in the carrying over of dysfunctional physical material.The problem was that a hermaphroditic reproductive system was basically copying itself in a similar but internal rather than external cell division system-one that started with a small reproduction of itself rather than a full-size reproduction.Therefore all the positive points about a particular body were reproduced,as well as all the negative points.Everything is copied,warts and all.The biggest problem surrounding the hermaphrodite is that one may be immune to a certain virus but another may not. So what we had was a whole bunch of bodies that would suddenly die out if a certain virus was aggressive enough to cause death,whereas a bunch of others would have survived.If these survived a particular virus,another group may well not survive.So what we had was not expansion of the human body,which was the whole point of the exercise.The exercise was to allow more spirits to experience life incarnate,or life in the lowest of the frequencies to allow them to evolve at a faster rate. 
+
+源实体：因为它完全不如预期中管用。因为你知道从出生到能够自我维持的这段时间，需要宿主大量的关注，而且宿主在分离分娩替代身体期间会比在今天还要脆弱。对于掠食者来说更是如此。虽然当时掠食者并不算太多，因为大多数物种都是与人类物种协调一致的，是不需要担心的，但这里的主要问题依然是肉体功能紊乱的物质的传递。问题在于，雌雄同体的繁殖系统基本上还是在自我复制，只不过是一种体内，而不是外部细胞分裂，一种始于小的复制体的方式，而非全尺寸复制。因此，某一特定身体的正面与负面特点都会被复制，一切都复制，毫无保留。雌雄同体面临的最大的问题是，一个人可能对某种病毒免疫，但另一个可能不会。因此情况是，一群人会突然死于某种致命病毒，而另一群人却能幸存。如果这些身体在某种特定的病毒中存活，另一组可能无法存活。所以无法实现人体数量的增长，也即做这些的改进的全部目的。这个目的是为了让某种灵体体验转世，在最低频率中生活，从而加速进化。
 
 Eventually,it was decided to split the reproductive functions of the hermaphrodite into two pieces,a male piece and a female piece.Each piece would be introduced to a body that was designed to deal with each aspects of the job that the hermaphrodite did but in a separate sense.Each one would be allowed access to certain survival traits, instincts,and bodily functions that were pre-programmed into the body at a whole body level by spiritual communication to the body via the RNA to ensure that its function was automatic and did not need the intervention of the incarnate spirit.Although the spirit in its normal environment could have coped with some ease with the control of the human body at the molecular level,it would have taken a considerable amount of its concentration quota,as it is quite difficult to control lower frequency level material. Hence,the need for an automatic function. 
 
+最终，你们决定将雌雄同体的繁殖功能分成两部分，雄性与雌性。每一部分进入一种特定的身体，单独完成它在雌雄同体中对应那一部分被赋予的使命，每种身体都有特定的求生本领、本能以及身体功能。通过RNA将灵性通信带到全身，从而将这些提前编入人体，从而保证其功能的自动化，且不需要所转世灵体的帮助。尽而在正常环境下，灵体可以在分子水平上轻易的控制人体，但仍需要一定量的专注力。因为控制较低频率层级的物质会比较难，因此才需要一种自动功能。
+
 ME:So what else was necessary to make a male and female specific body?What made us decide on the method of reproduction we call intercourse? 
+
+我：那么为了创造男性和女性身体还需要什么呢？是什么使我们决定使用所谓性交来实现繁殖？
 
 SE:The need for the different sexes was two-fold.First,the design of the body could be made simpler and,therefore,more robust from a functionality point of view.Second, the amount of energy needed to hold the "blueprint for creativity"could be shared between two bodies rather than one.This energy is what makes people attracted to each other from a male and female sense.If the two parts of the energy are compatible,i.e.,they have the same basic content in terms of frequency and function, then they can reproduce safely without the risk of dysfunction in the reproduction process.What's more,the replacement that is produced is also a simpler job as it only requires one half of the reproductive function to be copied and,therefore,could be reproduced faster and more accurately whilst in the host.
 
+源实体：需要设计为不同性别有两方面的考虑。首先，身体的设计可以变得更简单，因此从功能角度来看更稳健。其次，保持创造力蓝图所需的能量可以在两种身体而非一种之间共享，这种能量使男女相互吸引。如果能量的两部分兼容，也就是频率和功能的基本内容相同，那么他们就可以安全的繁殖，繁殖过程中不会出现功能障碍的风险。还有，生产替代身体的工作也会更简单，因为只需要一方参与，因此在宿主中可以更快更准确地复制。
+
 This was an essential change from a design point of view as this gave the opportunity for the positive parts of one body(certain immunities)to be included in the reproduced body,which might not carry the same positive points.The down side of this is that there may well be some negatives(susceptibilities)that are also carried across.However,these susceptibilities would be essentially watered down a bit,as they are being introduced into a body that may have some level of inherent protection against them and,therefore, cancel out the full effect of the negative being introduced. 
+
+从设计的角度来看，这是一个重要的改变，因为这提供了机会，使一方身体的正面部分（某些免疫力）引入到所繁殖的身体里，后者可能并未携带同样的正面特征。不利的方面是可能会有些负面脆弱性特性也会交叉转移。然而这些负面特性可以被有效稀释掉一些，因为他们被引入的身体可能含有某些天生的能对抗他们的保护特性，因此抵消了所引入负面特性的整体影响。
 
 ME:So what made us develop the sex organs that we have today? 
 
+我：那么是什么让我们发展出了今天的性器官呢？
+
 SE:This was developed so that the pair of ingredients necessary to unlock the reproduction program to male half and the female half could be commenced in a safe place,one that was free from contamination from airborne infection. 
+
+源实体：性器官是为了让男方和女方能够在一个安全、不受空气污染的地方释放双方各自配备的繁殖原料，以解锁繁殖程序的开始。
 
 It was also decided that this would be best located in one of the body types,preferably the body that would host the growth of the copy during the time of its critical stage of building.This stage,what you call gestation,is when the most important components of the body are created from the raw materials donated from the host body to create the copy,the replacement,the host for a new spiritual entity.These raw materials are not programmed to be anything other than neutral.This means that they are capable of being anything that they are told to be by the RNA.Each of the raw materials is,for want of a better description,a piece ofempty memory but memory with the ability to change itself into anything that it is told to be.When it receives messages from the spiritual energies intersecting the RNA,which then program the DNA,that part of the raw material that is the receiver of the messages is programmed to change into what it is required to be.The DNA then loses and/or relocates certain parts of itself to create the template for the raw material to form itself.This template is on two levels and is represented by two levels of the auric field in adult human beings,level 1 and level 5,one in the physical and one in the spiritual realms/dimensions.It is at this point that the gestation starts to expand and create the copy at its smallest level,the human embryo. 
 
+你们还决定，这个过程最好是位于其中一方的体内，最好是在身体副本发育关键时期容纳他的那个宿主的体内。这个阶段你们称为妊娠期，是身体由宿主人体也就是母亲提供的原材料来创造出胎儿最重要身体成分的时期。这将会创造出一个新的人体副本，一个替代身体供心灵体居住的宿主载具。这些原材料没有任何预编程，是中性的，这意味着它们可以成为RNA告知他们成为的任何东西。每一种原材料都可以被称为是一片空白记忆，一片有能力将自己变成任何东西的记忆。当这些原材料接收到来自RNA的灵性能量时，随即会对DNA进行编程，这些原材料最终就会被编程而变成所需要的样子。DNA会在这个过程中解开，并/或重新定位自身特定部分，创造一个供原材料得以成型的模板。这个模板位于两个层级上，在成人的人体辉光层的第1层和第5层，一个在物质层，一个在灵性层。自此开始，妊娠期开始从最微小的层面从胚胎开始扩展，并创造出身体副本。
+
 ME:We have been through this before though. 
+
+我：我们以前好像讲过这些。
 
 SE:Yes,we have,but as with many things in this dialogue,this is so important that it needs to be discussed again. 
 
+源实体：是的，讲过，但因为这个对话中的很多内容非常重要，还需要再次讨论。
+
 But let us continue with the reproduction of the human body.As I previously stated, it was found that the best place for the growth to occur was in the host of one of the fully grown human bodies,and that the ingredients for reproduction were to be stored in separate human bodies,these were classified as male and female.The sex organs were developed so that the transfer of the ingredients that were not of the host body,the ones that were to grow the replacement,could be transferred in a way that was safe from contamination,and that the percentage success rate would be at its best.This needed both bodies to be part of each other at the point in time when the opportunity for reproduction was optimal,one inserted inside the other-hence,the design of the sex organs,one fitting inside the other to allow the ingredients to mix and work together in a completely safe environment.As you know from other physical beings that transfer the second part of the ingredients external to the body,such as fish,this is not a guaranteed process.Thus,internal transfer was chosen based upon the analysis of success and a variety of methods,some of which are still used by lower physical entities but ultimately resulting in the use of the current method that human beings use to duplicate themselves. 
+
+让我们继续讨论人类的繁殖。正如我之前所说的，胎儿生长的最佳地点是在成人体内，而繁殖所需的原料则分别储存在男性和女性人体内部。性器官的形成是为了使非宿主一方男性的繁殖原料能够无污染地转移，并使成功功率达到最高。一旦达到最佳的繁殖时机，就需要两个身体互相成为彼此的一部分，一个插入另一个。因此，性器官的设计即是，使一方匹配进入另一个中，以允许双方的繁殖原料在一个安全的环境中完美地混合与匹配。正如你所知，有些物质生命存有在身体之外传送第二部分繁殖原料，比如鱼类，这是一种不受保障的受精过程。因此，在分析了成功率和各种方式以后，你们选择了这种内部转移的方式。一些较低级的物质生命仍然采用体外受精方式，但是它们最终还是使用了人类目前采用的方法来复制自己。 
 
 ME:Is it as successful as the previous methods?I get the impression that it is not.The other methods at least yielded one replacement for each "current"body being used for evolutionary growth,whereas this method yields one for every two. 
 
+我：那这种方法是否和以前的方法一样成功？我感觉好像不是，其他的方法至少会为当前的身体产生一个替代品，而这个方法是每两个身体产生一个替代品。
+
 SE:Agreed,it is not the most effective method in terms of the number of host bodies reproduced but it is the most reliable at this point in time,specifically as this is the one that causes the least number of problems in the energetic realms.Essentially, everything is condensed around the one spirit in the one body with neither affecting anything else energetically but themselves in respect to dysfunctional energies. 
+
+源实体：同意，就繁殖数量而言，它效率不是最高的，但却是目前最可靠的，尤其是这种方法在能量领域产生的问题是最少的。本质上，一切都只会围绕聚焦在一个肉体中的一个灵体上，能量功能紊乱也只会影响他们自己，而不会影响到任何其他东西。 
 
 ME:So there are still some energies that affect other spirits? 
 
+我：那么还会有一些影响其他灵体的能量吗？
+
 SE:Yes,but this is relative to the interaction of individual entities and is an energy type that needs to be worked upon to release once attracted.Sometimes this energy takes several incarnations into the physical to clear.The energy is related to something you humans call karma.
+
+源实体：是的，但这与个体之间的互动有关，而且是一旦被吸引就需要想办法释放的能量类型。有时，这种能量需要多次转世到物质界才能彻底清除，这种能量与你们人类所称的业力有关。
 
 ### Chapter 11 - Karma 
 
+**第11章：业力**
+
 #### Karma as Energy 
+
+**业力即能量**
 
 ME:What!?Whoa,hold on here!Are you saying that karma is an energy.I thought it was just a list of issues that you have to work out. 
 
+我：什么！等一下，你说业力是一种能量。可我以为它只是一份你要解决的问题清单。 
+
 SE:I take it you have finished with the evolution of physical human reproduction for the moment. 
+
+源实体：我假设你现在已经弄懂了人类肉体的繁殖进化是怎么回事。 
 
 ME:Yes.No.Oh,I don't know! 
 
+我：是的，不，我还不太懂！
+
 SE:They are one and the same thing.The energy called "karma"is dysfunctional energy that is generated by the association of the spiritual with the physical.It is a natural process of energy attraction based upon dysfunctional interrelationships.This relationship can also be with oneself,from a spirit versus physical entity point of view.Earlier on,I stated that spirits who interacted with each other during the first stage of human beings caused their energies to go out of phase as a result of the sharing and the linking of bodies and spirit whilst incarnate in the less constrained human constructs.This caused individual spiritual entities to affect others in an energetically adverse manner.I did not give a name to this process but I have now,and it is one that you recognize.Surely you can see the link between what you know as karma and the little I have described about the interactions of the spiritual and physical energies and how it relates to the psychological? 
+
+源实体：它们是一回事，同样的东西。被称为业力的能量，是在灵性与物质的整合中所产生的失调能量，它是在互相失调关系的基础上的一种自然的能量吸引过程。从物质身体与灵体的相对角度来看，这种关系也可以是与自己的关系。早先我说过，在人类最初阶段互相影响的灵体，因转世在较少限制的人类结构中而发生身体和灵体的共享与连接，导致他们的能量紊乱失调，这使得个体灵性实体对他人产生了不利的能量影响。我还没有给这个过程起名字，不过现在我有了一个你已经知道的名字，你肯定已经明白了你所知的业力与我简述的灵体与物质能量之间的交互关系，以及它是如何与心理层面关联的吧？
 
 ME:I am struggling a bit,but I can see some similarity.I just didn't expect it to crop up so early in the story line. 
 
+我：有点费解，不过我能看到一些相似之处。我只是没有料到，它会在故事线中出现地这么早。
+
 SE:Karma has always been in the story.It's just that we haven't named it nor have we focused on its name in this manner.We can go deeper with this subject if you want. Remember we have discussed this already. 
+
+源实体：业力一直都存在于这个故事当中，只不过我们没有给它命名，也没有用这种方式关注过它的名称。如果你愿意，我们可以更深入探讨这个问题，记得我们曾讨论过。 
 
 ME:If we must. 
 
+我：如果必须讨论的话。
+
 SE:Yes,we must,as this viewpoint on karma is not so well known. 
+
+源实体：是的，我们必须，因为关于业力的这个观点还不怎么为人所知。
 
 #### Scripture Quotations and Karma 
 
+**圣经引用与业力**
+
 On a number of other occasions when I meditated-sometimes only power meditations of 3-5 minutes-there were sentences given to me that I can only describe as quotations from the 10 commandments.The first of these was Desire not the riches of man but the riches of heaven!This was given to me whilst I was feeling a bit left out when a colleague of mine was promoted.The second time was when I was admiring the shapely body of a young woman I was behind at work.Covet not another's wife!I asked the Origin about this occurrence (similar occurrences were also received by my wife quite independently)to see what the explanation was. 
+
+我在其他若干场合冥想时，有时候只是三到五分钟的深度冥想，得到过一些语句，我只能把他们描述为类似引用自十诫的句子。第一句话是：与其垂涎人间的财富，不如渴望天堂的财富。这是当我因为一个同事被提拔而感到有点被忽视时给我的。第二次，当时我正在欣赏坐在我工位前面的一位年轻女士的曼妙身姿。这句话是：不要觊觎他人的妻子。我问起源关于这个事情（类似的情形我妻子也曾单独遇到过），看看会有什么解释。
 
 ME:Why am I getting quotations of Scriptures that sound like they should be one of the Ten Commandments? 
 
+我：为什么我会得到这种类似出自十诫经文的句子呢？
+
 O:Because you are starting to become.When you become,you start to remember the guidelines to a better life. 
+
+起源：因为你开始自我觉知。当你自我觉知的时候，你就开始记起通往更好生活的指引。
 
 ME:I thought that the commandments were rules to live by. 
 
+我：我还以为戒律是应当遵循的规则呢。
+
 O:They are not so much rules but guidelines that were/are given to all spirits that take on the burden of incarnation in order to evolve faster. 
+
+起源：与其说它们是规则，倒不如说是指引，引导所有承担着肉身的灵体可以更快地进化。
 
 ME:So what do they do for the evolving soul? 
 
+我：那么它们对进化中的灵魂有什么作用呢？
+
 O:They allow the soul the opportunity to incarnate and live in the physical world without the need to be affected by the penalties that can be accrued by not following them. 
+
+起源：它们让灵魂本有机会在转世于物质世界中生活的同时，无需受到不遵守他们所可能产生的可以累积的惩罚的影响。
 
 ME:Are you saying that a spirit incarnate can go through life without collecting karma? 
 
+我：你是说灵体的化身可以不积累业力而生活？ 
+
 O:Of course.But most of you are not able to live by these simple guidelines.If you were able to do so,then you would be able to live a life without the need to covet riches or others' belongings or commit crimes,no matter how small and,therefore,experience what you need to experience without getting bogged down with "getting even"or being better,having more than or bigger,or more expensive houses or cars,watches,etc. 
+
+起源：当然。但是你们中的大多数人无法靠这些简单的指引来生活。如果你能够做到，你将过着一种无需觊觎富人或贪图他人财物的生活，也无需犯下罪行，不论多么小的罪行。并且你会体验到你所需要体验的，而无需陷入永远追求要跟别人扯平或比别人更好，拥有更多更大或更贵的房子、车子、手表等等的困境中。
 
 ME:O.K.Today is more complicated than in Jesus'time. 
 
+我：好吧，今天可比在耶稣那个时代更为复杂。
+
 O:Not so much than you would think. 
+
+起源：差别并没有你想象的那么大。
 
 ME:So how do we turn the other cheek? 
 
+我：那我们怎么把另一边脸也转过来给别人呢？
+
 O:By not getting draw into conflict. 
+
+起源：不陷入冲突就行了。 
 
 ME:Does this mean arguing and hurting people verbally? 
 
+我：你是指也包括从言语上争论和伤害他人？
+
 O:Of course,the individual has to recognize that there is a potential for conflict and avoid it. 
+
+起源：当然，人们需要意识到潜在的冲突，并去避免它。
 
 ME:Even if it means losing face or looking stupid? 
 
+我：即使这意味着丢脸或者看上去很蠢吗？
+
 O:Of course.The key is to learn from the situation before it turns into conflict and then offer to end it by accepting the other's anger energy and,therefore,dissipating it.This is the true meaning of turning the other cheek. 
+
+起源：是的。关键是要在局势转化为冲突之前从中吸取教训，然后通过接受对方的愤怒能量来结束它，从而化解冲突于无形，这才是转过另一边脸的真谛。
 
 ME:This is hard;people will think that you are weak. 
 
+我：这太难了，人们会认为你很懦弱。
+
 O:Not if you accept the situation as a point of learning,a point of growth.When this is apparent (and it will be so very apparent),you will be held in significant light rather than in darkness.Remember,the greatest leaders the world has ever seen had great humility and knew when to learn from a situation rather than to turn it into conflict. No matter how small that conflict is,it still has the potential to attract karma points. The individuals who know these guidelines,know that all people they meet are other souls incarnate doing the best that they can with the limited amount of access to themselves and the universe.They,therefore,have pity and compassion for people who do them wrong rather than reacting in some way that builds up penalty points (karma). 
+
+起源：如果你把这个情境当做是一个学习的起点，一个成长的机会，你就不会这样认为。当这一点被凸显出来（它的确会非常显而易见），你将会身处显著的光明而不是黑暗之中。记住，世界上最伟大的领袖们都非常谦卑，知道什么时候从一种情况中学习，而不是把它变成冲突，不管多么小的冲突都有可能吸引业力点。了解这些指引的个体会知道，他们遇到的所有人都是其他灵魂的化身，都带着对自己及宇宙的有限认知来尽其所能的行事。因此，他们对那些对自己做了错事的人怀有怜悯和同情，而不是以积累惩罚积分（业力）的方式来互动。 
 
 ME:I experienced such an example of how dialogue between two people can become confrontation the very next day at work.I didn't expect it and so was drawn in.Some part of me wanted to win the discussion/argument at all costs,and another just knew that it was pointless and later illustrated how the conversation and potential for confrontation could have been quashed in just a short sentence. 
 
+我：我经历过这样一个事例，就是两个人之间的对话是怎样在第二天的工作中变成对峙的，我没有料到会这样，所以陷进去了。一部分的我想要不惜一切代价赢得这场讨论争论，而另一部分的我则知道这是毫无意义的，还展示了这场对峙本可以仅凭寥寥数语就能平息的对话可能性。
+
 O:Yes,it was a good example. 
+
+起源：是的，这是一个很好的例子。
 
 #### Another View of Karma 
 
+**对业力的另一种观点**
+
 ME:Now you're going to confuse me and the rest of the world.First,my understanding of karma is that it is bad vibes that you accrue as a result of doing wrong to others or even treating them unfairly.Do unto others as you would have them do unto you!To remove bad karma, you have to perform unselfish acts of good for the benefit of others.Second,you tell me that karma is all about the gain or loss of evolutionary "points,"and this is all about living in the best way possible so you do not lose these points.The best way to live was given to humankind by the Ten Commandments,which were the ideal way to live without losing these points-points lost need to be re-gained before evolution can be continued.Third, you tell me that karma is energy and not only that,it is dysfunctional energy that is the result of inharmonious spiritual/physical interaction.Which is correct? 
+
+我：现在你有点把我还有全世界都搞糊涂了。首先，我对业力的理解是，它是由于你对别人做了错事或不公待遇所累积的不好的振动。己所不欲，勿施于人嘛。为了消除不好的业力，你必须为了他人的利益而实现无私的善行。其次，你告诉我，业力都是关于进化积分的得失，都是关于以尽可能最好的方式生活，免得失去这些得分。最好的生活方式，已经通过十诫展现给人类了，遵循它们就不会失去这些需要补齐才能使进化得以继续的分数，就能过上理想生活。第三，你告诉我，业力是能量，又不止于能量，它是功能失调的能量，是不和谐的灵性/物质相互作用的产物。到底哪个是正确的？
 
 SE:It is all correct.You said in the first instance that karma is bad vibes.Are vibes not frequency?Is frequency not associated with the resonance of energy,and is the resonance of energy associated with its position in the physical or the spiritual?The slower the resonance,the lower the frequency and the more sluggish is the action or reaction of the individual at that frequency.The faster the resonance and the higher the frequency,the more zestful is the action or reaction of the individual at that frequency. 
 
+源实体：全都是正确的。第一，你说业力是不好的振动，振动不就是频率吗？频率与能量共振没有关联吗？能量共振与其在物质或灵性中的位置没有关联吗？共振越慢，频率越低，个体在该频率下的行动或反应就越呆板迟缓；共振越快，频率越高，个体在该频率下的行动或反应就越兴致盎然。
+
 In the second instance,you said that I mentioned that karma was evolutionary points that we need to keep whilst incarnate or risk being stuck at a certain level.Are not the evolutionary points the individual frequency levels?Consider the loss of a point like a drop from 1700 GHz to 1699 GHz-does this not represent a drop in the frequencies?Isn't the introduction of sluggishness a result of some interaction or other from your being attracted to a course of action that was not in the guidelines of the Ten Commandments for living the karma-free incarnate life? 
+
+第二个例子中，你说我提到，业力是我们在转世时需要保持的进化积分，否则就会有被卡在某些层级的风险。进化积分不就是个人频率水平吗？想想看，分数从1700 GHz降至1699 GHz，这难道不是表明频率的下降吗？频率下降的产生，不就是因为在一些互动或卷入某些事件时，没有遵从能让生活摆脱业力的十诫的指引吗？
 
 And third,is not the "loss"of frequency a dysfunction of the use of energy?Remember that energy cannot be lost,so what happens to the energy that is lost as a result of your going down the frequencies?It becomes dysfunctional energy,energy with no correct or proper function.So our 1 GHz loss becomes dysfunctional energy with a 1 GHz frequency that is much lower than the frequency that you were and that you now are.Nevertheless, it has an effect on you as a spiritual entity.A 1 GHz loss has an effect that pulls you into a frequency that has no real function even though it is still associated with you.It slows you down and is a drag on your normal high level of function.It is like a weight on one of your ankles.It niggles at you,distracting your attention from the real issues at hand -that of evolving through the experience of things that are not available through the normal spiritual body. 
 
+第三，频率的损失不就是能量使用时的功能紊乱失调吗？记住，能量是不会损失掉的。那么由于频率降低而确实损失了的能量会发生什么变化呢？它变成了失调的能量，失去正确或适当功能的能量。所以我们的那1 GHz的损耗会变成1 GHz频率的失调能量。这1 GHz的频率远远低于你曾经和现在所在的频率，但是它却会对一个灵体实体产生一种影响。例如，1 GHz的损耗会产生一个效应，即把你拖到没有实际功能的频率里，尽管他仍和你有关联。它减慢你的速度，拖累你正常的高水平发挥，它就像赋予你一只脚踝上的重物，不断给你找茬，把你的注意力从手边真正重要的事情上转移开，即通过对事物的体验而进化，而这种体验是在寻常的灵体中所不可能经历到的。
+
 ME:So karma is the accumulation of energy without function,energy which is ours anyway but has been removed from us as a result of some wrongdoing or other,some association with something pre-meditated that affects someone else adversely.This energy that is now without direction acts as a drag on my function purely because it is no longer working with me. 
+
+我：所以业力是没有功能的能量的累积，这些能量总归是我们的，只是由于我们的某些恶行，或者对他人造成不良影响的预谋，从我们这里被移走了。这种现在没有方向的能量，只是由于不再为我所用而成了我人生正常运转的拖累。
 
 SE:That's a reasonable summary of the function of karma. 
 
+源实体：这是对业力功能的合理总结。 
+
 ME:So how do I get this karma energy back and working for me again? 
+
+我：那么我怎样才能把业力的能量拿回来，让它再次为我所用呢？
 
 SE:That gets harder and harder the lower down the frequencies you drop as a result of being attracted to actions that are associated with its levels.It is difficult because the karma energy does not stick together like the normal energy you use.Instead,it stays associated with the action that caused its separation from the main energy source, you,in the first place.So you have two associations for this energy:you as the source and the action that resulted in its separation as the second.The second tries to draw you down the frequencies by making you do other things associated with this energy. The thing you did to cause the separation in the first place causes you to re-offend,so to speak,making the volume of the energy grow.This further augments the spiritual drag on your evolution. 
 
+源实体：由于受到与所处能量层级相关的行为的牵绊，频率降的越低，拿回业力能量就越困难。其中难点在于业力能量并不像通常你使用的能量那样凝聚在一起。相反，它总是与导致和主要能量源头（你）分离的行为联系在一起。所以你与这种能量有两种关联，一种是你作为能量的源头，另一种是导致你与其分离的行为。第二种关联方式会通过让你做与此能量相关的其他事来拖累你降低频率。这些事是你原先所做的导致分离的事情，它会让你不断地再犯，也即不断增大业力能量，这进一步增加了你进化过程中的灵性阻碍。
+
 So the antidote is to operate within the Ten Commandments again;do unto others as you would have them do unto you,an eye for an eye or a tooth for a tooth. 
+
+所以解决的灵药就是遵循十诫。己所不欲，勿施于人。以眼还眼，以牙还牙。
 
 ME:I thought that or "an eye for an eye,a tooth for a tooth"was an aggressive response. 
 
+我：我原本以为以眼还眼，以牙还牙是一种攻击性的回应。
+
 SE:That is just an uneducated interpretation.In essence it means the same as the "do unto others..."routine.If you have caused the loss of an eye,you must give up an eye to recover the situation.If you wish to rise upwards through the frequencies and evolve faster,then you should only do unto others that which will cause their frequencies to rise and,therefore,cause them to evolve faster.This is,therefore,resolved in two ways.One allows someone to cause you the same level of "pain"by allowing them to do the same thing to you as you did to them or another spiritual entity. 
+
+源实体：那只是一种只知其一，不知其二的字面解读，它实际的意思与己所不欲是相同的。如果你使别人失去一只眼睛，你就必须也交出一只眼睛来弥补。如果你希望在频率上提高并且进化地更快，那么你只应对其他人做那些使其频率提高，从而使他们进化地更快的事。因此，这就有了两种解决途径。一条途径是，如果你曾对他人或另一个灵体做过什么行为，你也要允许对方同样对待你，产生同等的痛苦。
 
 ME:I thought that this was specifically tied to the entity who received the wrongdoing.
 
+我：我以为这句话只是特别针对那些受恶行伤害的人。
+
 SE:No,there is no wrongdoing.There is just "doing,"so by definition it can be recovered with the help of another spiritual entity so long as it is pre-conceived in spirit before the incarnation phase. 
+
+源实体：不是的，并没有什么恶行，只有行为。所以从定义上说，只要在灵体转世阶段之前预先设计好，业力能量就可以在另一个灵体的帮助下得以修复。
 
 The second way of recovering the energy is to do "good"or to seek to be of service to the individual you rendered pain. 
 
+修复能量的第二条途径就是行善，或者尽力去为你曾使之痛苦的人服务。
+
 ME:What!If there is no bad,how can there be good?! 
 
+我：什么？如果没有恶的话，又哪来的善呢？
+
 SE:Well put.By "good"I mean that you sacrifice yourself in some way that is related to the initial incident in favor of the spiritual entity that you had that incident with in the first place.This has the effect of canceling the disharmony/dysfunction which then causes the energy to remove itself,therefore,allowing it to return to its source,you. This causes you to rise upwards in the frequencies to a level equal to that lost in the first place. 
+
+源实体：好问题。我说的善，是指与你最初的事件相关的，并且对相关灵体有利的方式奉献你自己，而这个灵体是你在最初时伤害的对象。这样做的效果是消除不和谐、功能失调，从而使能量得以自行移除，从而允许它回到它的源头，也就是你身上去。这使你在频率上得以提升，并恢复到频率降低前的水平。
 
 #### Recovering Lost Frequencies 
 
