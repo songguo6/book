@@ -5548,33 +5548,63 @@ SE:Well put.By "good"I mean that you sacrifice yourself in some way that is rela
 
 #### Recovering Lost Frequencies 
 
+**恢复损失的频率**
+
 ME:This idea that energy is removed from you when you do something outside of the basic rules for existence in the physical is a completely different way of looking at things like karma. 
+
+我：当你违背物质世界基本生存法则做了某些事情，能量将被从你身上移除，这的确是一种全新的看待业力的方式，
 
 SE:It's the only way to look at it.In the physical realms of Earth,karma is not only understood as something negative but something that cannot really be avoided.It is also seen as something that can be put off to the next life,provided you believe that you will get a next life.This is what the Chinese thought,especially the rich and wealthy.Moreover,most people write it off as being too hard to recover from and, therefore,don't bother trying.The crux of the matter is that if you do try to recover lost frequencies(karma),then the rewards are even greater than if you do nothing or didn't accrue karma in the first place as you are "learning"during this process. 
 
+源实体：这是看待业力的唯一方式。在地球的物质领域，业力被理解为某种负面且无法真正规避的东西，如果你相信轮回的话，业力还被看作是会跟随你进入来生的东西。中国人就曾持有这种观念，特别是富有阶层，而且很多人觉得它太难弥补，以至于连尝试都放弃了。问题的关键在于，如果你真的尝试去恢复丢失的频率（业力），你所获得的奖励将比什么也不做或者一开始就不造业甚至更多，因为你在这个过程中获得了“学习”。
+
 ME:Hold on.Are you saying that you do better evolution-wise ifyou do someone some harm and then try to recover it?If that was the case,then every incarnate spirit would be doing as much harm as they could with the hope of recovering the situation to get more evolution brownie points. 
+
+我：等等。你是说，如果你做一些伤害别人的事，然后再尝试修复它，你会进化得更好。如果是这样的话，那么每一个转世的灵体不就会去尽可能地制造伤害，以期通过修复这些状况而为进化获取更多的奖励积分吗？
 
 SE:Isn't that what people are doing now but without the knowledge of how to recover the situation?Is this not why there is so much turmoil in the world? 
 
+源实体：这不正是人们现在在做的吗？只不过他们不知道该如何修复而已。要不当今世界怎么会有那么多动荡呢？
+
 Spirits all over the physical universe are trying their best to evolve back to the Origin as fast as they can,and many of them are using the Earth environment to achieve this.The only issue here is that they are lured into doing wrong in the hopes that they can recover and,therefore,evolve faster.This results in them going further down the frequencies and losing their ability to recognize the way back up-meaning that they go even further down the frequencies since they are only remembering that which is associated with those frequencies:doing wrong to other entities.The loss of the higher frequencies is carried over with them when they return to Spirit,creating"drag."That is why they need help from other light workers who have remained in Spirit.In addition,they need to carry over this burden to the next incarnation for recovery. 
+
+整个物质宇宙的灵体都在尽其所能地进化，以尽快回归起源。其中的许多实体正在利用地球环境来实现这一目标。唯一的问题是，他们受到更快进化的诱惑，寄希望于做错事以后修复即可。这导致他们的频率降得更低，失去了识别回归之路的能力，而这意味着他们的频率会进一步下降，因为他们只记得对其他实体作恶这类频率相关的事情。当他们回归灵界时，丢失的高频率被延续转化为新的业障，这就是为什么他们需要其他仍留在灵界的光之工作者的帮助。此外，他们还要把这个负担带到下一次转世来予以修复。
 
 ME:Why is it carried over to the next incarnation?Why is it not cleared in Spirit? 
 
+我：为什么它会延续到下一次转世？为什么不在临界清除呢？
+
 SE:Because of a universal rule.It states that lost frequencies can only be recovered at the frequency at which they were lost. 
+
+源实体：因为一条宇宙法则，损失的频率只能在上失去它的那个频率中得到恢复。
 
 ME:Why is this? 
 
+我：这是为什么？
+
 SE:It's a bit like losing a penny on a footpath.The only way to find it is to retrace your steps. You can't find the penny where you discovered you lost it,and you can't find it by walking in the same direction you were going.You have to go back to the point on the footpath at which the loss occurred. 
+
+源实体：这有点像在小路上丢了一分钱，找到它的唯一方法就是回溯你来时的脚步。你不可能在你发现钱丢了时所处的地方找到它，也不可能继续向前走而找到它，你只能回到小路上那个你丢失它的位置找。
 
 ME:Is this not linear?I thought that linearity did not exist in Spirit. 
 
+我：这不是成了线性的吗？我以为在灵界中不存在线性。
+
 SE:It doesn't.But in the physical frequencies,it does,and because of this,a link is created between the spiritual entity and that frequency,including the event,where frequency was lost. 
+
+源实体：是不存在线性，但是在物质频率上确实存在线性。正因为如此，在灵体和那个频率以及发生频率丢失的事件之间才会产生连接。
 
 Of course,how you get back to the event is not linear because as an incarnating spirit,you can choose where and when you want to have the stage set up to recover the frequencies you have lost.You can even go back to that point in time where it happened whilst in the Earth realm and re-incarnate in a different or the same body.Both of these are difficult because of the forgetting factor,the temporary loss of higher self memories.As a result this method rarely pays off and as an incarnation to achieve a means to an end,it is a dreadful waste.There are instances,however,where it has and these are noticeable by profound "overnight"changes to the individual's personality and interaction with others in what you would call a positive way.They have "seen the light,"so to speak. 
 
+当然，回到事件的方式不是线性的，因为作为即将转世的灵体，你可以自己选择在何时何地设置舞台来恢复你失去的频率，你甚至可以回到事件发生时在地球领域中的那个时间点，重新转世进入一个不同的身体，或者跟当时一样的身体。但这两种都不容易，因为遗忘因素即高我记忆的暂时丧失。因此，这种方法先有回报，而且将一次转世作为达到目的的手段，也是一种可怕的浪费。然而，也有一些成功恢复频率的事例，可以明显看到一个人的人格及其与他人的互动一夜之间发生了惊人的正面变化，也就是所谓的他们觉悟了。
+
 ME:Tell me more about how frequencies that are lost,karma,slow us down evolution-wise. 
 
+我：再跟我多说一些关于丢失的频率，也就是业力是如何减缓我们的进化的？
+
 SE:What do you want to know? 
+
+源实体：你还想知道什么？
 
 #### The Physics of Karma 
 

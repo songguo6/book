@@ -326,15 +326,37 @@ Love is the antidote to karma,so we must
 
 If we love all of these things in an unreserved way,we will surely avoid karma for life!
 
+爱是业力的解药，因此我们必须 
+
+- 爱上帝； 
+- 爱我们的邻居； 
+- 爱我们的敌人；
+- 爱我们的伴侣/妻子； 
+- 爱我们自己；
+- 爱我们的错误； 
+- 爱我们的成功； 
+- 爱我们当前的经历； 
+- 爱我们的地球； 
+- 爱我们的老师；
+- 爱那些为我们提供经验、学习和进化的“自我”。
+
+如果我们毫无保留地爱所有这些事物，我们就一定能避免一生的业力！
+
 ### Being Calm 
 
 **保持冷静** 
 
 Being of a calm demeanor and entering into everything we do in a calm and collected way, irrespective of the environment in which we find ourselves is so important.When we are confronted with adverse conditions,it is easy for us to become part of those conditions and be drawn into the lower frequencies that created them. 
 
+无论我们身处何种环境，保持冷静的态度，沉着冷静地做每一件事都是非常重要的。当我们面对不利条件时，很容易成为这些条件的一部分，并被卷入造成这些条件的低频中。
+
 By staying calm,we are able to rise above the drama,remain unaffected,and achieve an efficient response whilst staying within the high frequencies.In this way we can and do work with the physical whilst being "in"the physical without being "of"the physical.Thus, calmness is a state of mind that deflects the opportunity for gaining karmic content through spontaneous response. 
 
+通过保持冷静，我们能够超越剧情，不受影响，并在高频范围内做出有效反应。这样，我们就能在身处物质之中又不属于物质的情况下与物质打交道。因此，平静是一种心境，它能转移通过自发反应获得业力内容的机会。
+
 Remaining in calmness in all situations makes our "observer self"come into play.This ensures that the bigger picture is taken into account and allows us to respond in a respectful, thoughtful and knowledgeable way.Thus,we must strive to maintain calmness at all times.
+
+在任何情况下，保持冷静都会让我们的“观察者自我”发挥作用。这能确保我们考虑到大局，并以尊重、深思熟虑和知识渊博的方式做出反应。因此，我们必须时刻保持冷静。
 
 ### Thinking Before Responding 
 
