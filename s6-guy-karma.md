@@ -364,9 +364,15 @@ Remaining in calmness in all situations makes our "observer self"come into play.
 
 It is good practice the moment we wake up in the morning to think about what we can do to avoid attraction to the low frequency energies we call karma. 
 
+从早上醒来的那一刻起，我们就应该思考如何避免被低频能量吸引，我们称之为业力。
+
 Consciously avoiding karma takes significant practice until it is achieved on an automatic basis.If we think about everything we are doing or are about to do with a view toward the possibility of accruing karma and then think about how we can avoid it,we will make inroads into awareness of how to make this practice a regular part of our lives. 
 
+有意识地避免业力需要大量的练习，直到自动实现。如果我们在思考自己正在做或将要做的每一件事时，都考虑到可能会累积业力，然后再思考如何避免业力，我们就会逐渐意识到如何让这种做法成为我们生活的一部分。
+
 Once we have established "karma-safe"responses,then we can do,say and react in those ways in preference to our former instantaneous and "off the cuff"responses and reactions. Once we get used to reacting and working in a karma-safe way,we will notice over a period of time that we are getting"lighter".This is the proof that we are attracting higher frequency energies,accruing positive karma and accelerating our evolutionary process.
+
+一旦我们建立了“业力安全”的反应，我们就能以这种方式去做、去说、去反应，而不是像以前那样“随心所欲”地做出反应。 一旦我们习惯了以“业力安全”的方式做出反应和工作，我们就会在一段时间内发现自己越来越轻盈。这证明我们正在吸引更高频率的能量，积累积极的业力，加速我们的进化进程。
 
 ### Communing with God to Create Heaven
 
@@ -374,9 +380,15 @@ Once we have established "karma-safe"responses,then we can do,say and react in t
 
 When we are in the energetic,we are totally free and have instant communication with our peers and our Creator.We have no constraints and are not encumbered by a physical body, for then we are in our normal high frequency,high dimensional environment. 
 
+当我们处于能量状态时，我们是完全自由的，可以与我们的同伴和造物主进行即时交流。我们没有任何束缚，也不受肉身的束缚，因为此时我们处于正常的高频率、高维度环境中。
+
 When we are incarnate,we are trapped in extremely limited and slow bodies that decay,cut off our communication with our energetic peers and our Creator,and,are subject to pain, discomfort,illness and disease.In comparison to our normal energetic environment,it is hell.We can,however,alleviate the level of hellish experience by endeavoring to commune with the rest of us that is still in the energetic with our Creator,our Source Entity,our God. 
 
+当我们化身为肉身时，我们被困在极其有限和缓慢的身体里，这些身体会衰变，切断我们与能量同伴和造物主的交流，并遭受痛苦、不适、疾病的折磨。与我们正常的能量环境相比，这简直就是地狱。然而，我们可以通过努力与我们的造物主、我们的源实体、我们的上帝交流，来减轻地狱般的体验。
+
 By communing with God and our true selves whilst incarnate,as well as living in a way that does not attract the lower frequencies associated with the physical (karma),we can experience in some limited way that which we experience whilst in the energetic- what we may refer to as "heaven."We can,therefore,through correct living and dedicated meditation,make "heaven"on Earth.To not do so and to go against this way of life,we can and do make our own hell on Earth!
+
+通过在化身时与上帝和真正的自我交流，以及以不吸引与肉体（业力）相关的较低频率的方式生活，我们可以以某种有限的方式体验我们在能量中的经历——我们可以称之为“天堂”。因此，通过正确的生活和专注的冥想，我们可以在地球上创造天堂。如果不这样做，违背这种生活方式，我们就会在人间制造自己的地狱！
 
 ### Being Happy and Kind 
 

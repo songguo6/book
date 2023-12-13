@@ -5608,185 +5608,363 @@ SE:What do you want to know?
 
 #### The Physics of Karma 
 
+**业力的物理学**
+
 ME:Hmm....What will we understand? 
+
+我：我们能理解什么？
 
 SE:Very little beyond what I have already said as your understanding is limited to your physics. 
 
+源实体：除了我已经说过的，很难理解更多了，因为你们的理解力受限于你们的物理学。
+
 ME:Karma is based on physics? 
+
+我：业力是基于物理学的吗？
 
 SE:Everything in these universes is based upon physics.Physics is basically the study of the physical through energy,and energy is what we are all composed of.By definition the study of energy is,therefore,a study of the spiritual via the energetic.
 
+源实体：这些宇宙中的每一样事物都是以物理学为基础的。物理学其实就是通过能量来研究物质的一门学问，而我们都是由能量组成的。因此，从定义上说，对能量的研究就是一种通过能量对灵性的研究。
+
 ME:So explain to me in physical terms this drag that losing frequency has upon a spirit and the attachment of the lost frequencies to the spirit. 
+
+我：那就用物理学术语解释一下频率丢失所产生的对灵体拖拽的影响，以及丢失的频率和灵体之间的联系吧？
 
 SE:You have an example forming in your mind even as we speak,and the analogy is close enough to be correct. 
 
+源实体：在我们说话的时候，你的心里已经有了一个例子，这个类比已经相当接近正确答案。
+
 Imagine a boat on the sea.This boat is in the air but traversing along the top of the water.The air,which has a higher frequency than water,can meet the water but not be submerged.Any air that is submerged comes to the surface because it is at a higher frequency.It can't naturally exist there.The boat is,therefore,traversing on the interface between two different realms of frequency.If the driver of the boat now throws a sea anchor overboard,which is still attached to the boat,the sea anchor slows the boat down without stopping it altogether unlike the anchor that grips the sea bed and stops it dead. The sea anchor is from a higher frequency,air,but it is in a lower frequency,water,and so it travels much slower than the boat,causing drag.It slows the boat down in its own frequency because part of it,which no longer exists in its natural frequency,is now in a lower frequency whilst still being attached to that part that is in the higher frequencies. 
+
+想象海面上有一艘航船，这艘船在空气中，但贴着水面行进。空气的频率比水要高，可以接触到水，但不会被水淹没。任何空气一旦进入水里都会浮出水面，因为它的频率更高，它不可能在水里停留，所以船就在两个不同频率领域之间的交界面上移动。如果这时船的舵手将锚抛向船外，由于锚系着这艘船，它会使船速变慢而又不足以像锚定在海床上那样让船完全停下来。锚来自较高频率即空气中，但它身处在较低频率的水中，因此锚的航行速度也比船要慢得多，从而形成拖拽的力量。它用自己的频率减慢了船速，因为它那脱离了原本较高频率的部分，现在正处于较低频率也就是水中，但同时又仍然与留在较高频率的那部分，船上空气中连接在一起。
 
 ME:So the spirit is the boat and the sea anchor is the karma slowing the speed at which the spirit can move. 
 
+我：那么灵体就是这艘船，而锚就是减慢灵性进化速度的业力了。
+
 SE:Yes,and the more karma,the bigger the sea anchor,and thus the slower the boat.What's more,the ability to rise above the surface of the water upwards in the frequencies is stopped dead as the sea anchor,although slowing movement down in the horizontal movement through the higher frequencies stops the vertical transition to higher frequencies totally until the situation is recovered. 
+
+源实体：是的，业力越多，锚就越大，船速也就越慢。更重要的是，在情况得以恢复之前，锚完全阻止了船在垂直方向上离开水面频率的可能，并且减缓了它的水平运动。
 
 ME:So you really have to sort out your karma as soon as you can. 
 
+我：所以你真的必须尽快解决你的业力。
+
 SE:Yes,and the reasons for this are as I have explained previously. 
+
+源实体：是的，原因我前面已经讲过了。
 
 AS YOU ATTRACT KARMA AND YOUR KARMA INCREASES,SO DOES YOUR ABILITY TO ATTRACT MORE KARMA WITHOUT TRYING TOO HARD! 
 
+**随着你不断吸引业力和业力的增加，你无意间吸引更多业力的可能性也会毫无疑问地随之增加！**
+
 ME:Why is that? 
+
+我：那是为什么？
 
 SE:Simply because you get used to being at lower frequency levels.Initially it is uncomfortable,but after time it becomes acceptable and then comfortable.Once you get comfortable at this level,you are in trouble,and you need help,outside help,to construct a workable plan to move upwards and out of the comfort zone associated with the lower frequency where you have found yourself. 
 
+源实体：很简单，就是你习惯于待在较低的频率层级。最初是不舒适的，但随着时间的推移，它就变得可以接受了，进而变得舒适。一旦你在这个层级感到舒适，你就有麻烦了。你需要来自外部的帮助，去建立一个可行的计划，才能让自己向上提升，脱离开你所处的那个与较低频率相连的舒适区。
+
 You may have noticed that there are some people who are very motivated in their efforts to make achievements,spiritual and non-spiritual.These people are spirits who are trying to increase their frequencies and get closer to where they should be.They also get significant help from lightworkers to keep them on track.They generally appear very driven and single-minded in their approach and only want to do what they are doing. They are single-minded because they know this is their route to liberation from the lower frequencies caused by their constant addition of karma over consecutive incarnations. The issue here,however,is that some incarnates are so determined to succeed that they actually make their situation worse by riding rough shod over others to achieve what they want to achieve.This means that they,in their persistence to succeed,can actually fail. 
+
+你可能已经注意到，有些人在灵性或非灵性方面非常积极的努力上进，这些人都是正在努力提高自己频率的灵体，使图更接近自己本应在的位置，他们也得到光之工作者的巨大帮助，使他们能保持在正轨上。他们通常看起来非常有动力，且专心致志于自己的方式，只想做他们正在做的事情。他们如此一心一意，因为他们知道累世轮回不断积累的业力使他们处于降低频率，而这条道路能让他们解脱出来迈向自由。然而，这里有个问题，一些转世的化身执意想要成功，以至于不惜粗暴践踏他人来实现自己的目标，结果却是让自己的境地变得更糟，这就是欲速则不达。
 
 ME:So you can try too hard. 
 
+我：就是说有些人可能会用力过猛。
+
 SE:Yes,of course.You know yourself that sometimes you need to go backwards to go forwards.Trying too hard creates resistance in its own right.You can only go as fast as circumstances allow,and the correct circumstances are timed to perfection to be present at the right time and place for a reason. 
+
+源实体：当然了。你知道自己有时候需要以退为进，用力过猛本身就会生成阻力。你能走多快，要看环境所允许的程候，而恰当的情境会按一定缘由恰好出现在天时地利齐备的时候。
 
 ME:That reason being we are ready to make the most of whatever the circumstance presented is. 
 
+我：那么缘由就是无论当下的环境如何，我们都做好了充分利用它的准备。
+
 SE:Exactly. 
+
+源实体：没错。
 
 ME:We could write pages and pages on this subject. 
 
+我：我们可以就这个主题写出好多页纸。
+
 SE:You're right.We could write whole books on the subject,but why labor a point when you have hit the nail on the head in a few hundred words. 
+
+源实体：你说的对，我们可以就这个主题写出整本整本的书来。不过如果几百字就能一针见血的说明问题，又何须赘言呢？
 
 #### The Drag on Evolution Caused by Lower Frequencies 
 
+**低频率对进化的阻力**
+
 ME:Is there another way of describing this drag,one that gives an energetic illustration? 
+
+我：还有其他方式来描述这种阻力吗？比如从能量上来解释。
 
 SE:Imagine you are a ball of energy.This is,in fact,not far from what you really are.Now let's see that that ball of energy lower itself to a point where it is close to the interface of another frequency.The attraction to that frequency is such that you dip part of yourself into the lower frequency.In doing this,you find that part of you,that part that was used to probe the lower frequency,is stuck and cannot be moved out of this "lower level."As you make an effort to move away,the majority of your ball of energy does,in fact,move away,but the part of you in the lower frequency remains connected by a thin tendril.No matter how far away you try to move,you get drawn back towards the lower frequency.The tendril acts like a bungee rope so you can move only so far away without being pulled back.Your association with the lower frequency is maintained until you have extra energy to remove that part of you that is at the lower level.Imagine this like part of you is ice when the rest of you is water.To melt the ice,you need to have enough energy given to you to move the water to steam and the ice to water.Then when the energy given to create the steam is removed,the whole of you stays at the primary energetic level of the majority of you as a entity which,in this example,is water.Thus you can see that to achieve this,you need outside help, enough help to temporarily increase your frequencies to those above your normal position.This takes time to plan in order to get all the correct circumstances in the right place at the right time.It also requires the spirit concerned to be patient and follow the plan.
 
+源实体：想象你是一个能量球，事实上这也与你实际所是相去不远。现在我们想象这个能量球不断下降以接近一个更低的频率，你与这个频率间的吸引力非常强，以至于你的一部分进入了它的界面。这么做的时候，你发现自己探入较低频率的那部分卡住了，无法从这个较低层次移出来。当你努力想扯出来时，你这颗能量球的大部分确实能够出来，但是你陷入较低频率中的那部分却被很细的卷须缠住了。无论你试图走多远，你都会被拉回到这个较低的频率。卷须的作用就像是一条蹦极绳，你最远只能走出一条绳的距离。你和这个较低频率的连接会一直存在，直到你有额外的能量将你现在较低层级的那部分移出来。想象一下，这就像你的一部分是冰而其余部分是水。要融化冰，你需要得到足够的能把水化为蒸汽，继而把冰化为水的能量。然后，当保持水蒸气的能量被释放，你将会恢复为原先大部分的你所处的那个初始能量层级，也就是本例中水的状态。由此可见，为了达到这个目的，你需要来自外部的帮助，要足够使你的频率暂时提升超出你的正常水平。这需要花时间来计划，以便在合适的时间和合适的地点获得所有合适的条件，这也要求相关灵体保持耐心，并遵循计划。
+
 Another good example of a higher frequency being dragged down to a lower level is hail. Hail is the lower frequency component of a gas,air while rain is the lower frequency component of water.In this instance the higher frequencies of air are affected by lower frequencies to form clouds,which are on the interface frequency between a gas and the higher frequencies of a solid,water.Further external intervention can cause these clouds to lose energy and become water.Further intervention can cause the water to lose further energy,causing the water to tumble even further down the frequencies making it solidify into hail,ice.This ice is now two frequency levels below where it started and now needs a lot of external help from a higher frequency,heat,to help it on its way back up the frequencies to the level from which it started.This is all simple physics and has simple solutions.Unfortunately,it is not so simple for a spiritual entity to achieve,as this has to be done by itself but with gentle nudges in the right direction by its helpers. 
+
+另一个关于较高频率被拉低到较低水平的范例是冰雹。冰雹是气体及空气中较低频率的部分，而雨水是水的较低频率部分。在这个例子中，较高频率空气受到较低频率空气的影响而形成云，云处于气体与较高频率的固体水之间的频率界面上。进一步的外部干预可以导致这些云层失去能量，变成水。再进一步的干预，还可以导致水失去更多能量，以至继续下降至更低频率，凝固成冰雹或者冰。这个冰雹现在已经比最开始低了两个频率层级，因此需要大量来自更高频率的外部帮助，也就是热量才能使它的频率恢复到一开始的水平。这都是简单的物理学，解决方案也很简单，不幸的是，对一个灵体来说并非如此简单，因为这必须由他自己完成，也需要外部帮助者从正确的方向轻轻推动。 
 
 ME:So how would you use tornados and hurricanes in this example? 
 
+我：那么你怎么用这个例子来解释龙卷风和飓风呢？
+
 SE:That is explained when whole groups of spiritual entities/souls get dragged down the frequencies all at the same time.They all affect each other and cause a cascade effect.
+
+源实体：这可以解释为，当灵性实体/灵魂的频率整体性地被同时拉低，他们互相影响并形成连锁反应。
 
 ### Chapter 12 - Galaxies,Solar Systems,Planets,and Creation
 
+**第12章：星系、太阳系、行星和创造**
+
 #### Creating Earth's Known and Unknown Universe/s 
+
+**创造地球所在的已知和未知的宇宙**
 
 ME:O.K.,we have talked about creating humanity,making humankind reproduce automatically, and creating karma,but we haven't yet talked about the universe as humans see it,here in the physical levels.How was the universe formed,including all the galaxies,solar systems and planets? 
 
+我：好的，我们谈到了人类的诞生，人类的自动繁殖复制，以及业力的产生。但是我们还没有谈论过人类在这个物质层面上所看到的宇宙，包括所有星系、太阳系和行星在内的宇宙是如何形成的呢？ 
+
 SE:First,the universe that you exist in was created by Me as a direct copy of that part of the Origin you would call "void."Second,it is much more than you can possibly imagine for the universe where you exist is more in the spiritual realms than the physical. 
+
+源实体：首先，你所在的宇宙是由我所创造的，是你可以称之为“虚空”的那部分起源的直接复制。其次，你所在的宇宙比你所能想象的要大得多，因为它更多地存在于灵性领域，而非物质领域。
 
 ME:If you had to put a percentage on it,what would it be? 
 
+我：如果用一个百分比来衡量是多少？
+
 SE:Much less than 1%. 
+
+源实体：远低于1%。
 
 ME:That's not a lot.
 
+我：那可真没多少。
+
 SE:I'm being generous at that.You see,the amount of universe that protrudes into the physical is very little.It's the short end of the spectrum.Most entities just don't go there.It's a bore.It's slow.It's not really exciting,and you have to plan like hell to use it as an evolutionary platform.What's more,you can get stuck. 
+
+源实体：我这已经很大度了。你看，进入物质层面的这部分宇宙是很小的，只是频谱的一小段，大多数灵体都不去那里，那里无聊、缓慢，一点也不激动人心，将其用作进化平台还得费尽心机地预先筹划，更何况你还可能困在那里。
 
 But...
 
+但是...
+
 The rewards can be great,and these rewards are why so many entities incarnate.They see it as a short cut.It is a big one,but as you know,it has its problems. 
+
+它的奖励却可能是巨大的，这就是为什么如此多的灵体会转世于此。他们认为这是一个捷径，一个回报丰厚的捷径。但是如你所知，它有它的问题。
 
 ME:So why did You create the known universe? 
 
+我：那么你为什么创造了这个已知的宇宙呢？
+
 SE:And the unknown!The need to evolve Myself.Not to mention to find out more about the Origin,which it is all about. 
+
+源实体：我创造的还有未知的宇宙呢！因为我自己进化的需求。更不用说想更多地了解起源及所有与之相关的一切。
 
 ME:Hang on;You need to evolve as well?! 
 
+我：等一下，你还需要进化吗？
+
 SE:Yes,of course.That is one of the pre-cursors to being created by the Origin as an individual entity. 
+
+源实体：当然了，这是我们作为实体被起源创造的预设目标之一。
 
 ME:Here's me thinking that You twelve were being given free reign to do what You wanted with that part of the Origin that You had been given,but this appears not to be the case.You are governed by rules just the same as us!
 
+我：我以为你们12个对起源赋予你们的那部分可以自由支配，想做什么就做什么。但看来并非如此，你们竟然也和我们一样受规则的制约。
+
 SE:Yes,to a smaller extent.We do have rules to follow as you do,but We can create more,and We do. 
+
+源实体：是的，只是程度较小。我们确实有需要遵循的规则，像你们一样，但我们能创造的东西更多，我们也正是这样做的。
 
 ME:So what do You create? 
 
+我：那你们创造了什么？
+
 SE:Everything that is in the part of the Origin that is allotted to Me and My quest.I create the physical and the dimensional,the temporal and the instantaneous,entities that have collective existence,entities that have autonomous existence,entities that are in existence purely to do work in the physical as maintainers of the balance of existence,and entities that maintain the links between the dimensions and frequencies.I even create entities that look after these entities for Me,and others that in turn look after them.Even the planets and solar systems have entities looking after them,maintaining them,keeping the balance so that the physical experience is kept optimal. 
+
+源实体：起源中所有分配给我的和供我探寻的部分。我创造了物质和维度、时间和瞬间、集体存在的实体、独立存在的实体、为维护存在平衡的纯物质存在的实体，以及维持维度与频率之间联系的实体，我甚至还创造了为我照看以上这些存在的实体，以及反过来照顾他们的实体。连行星和太阳系们也有实体在照看、维护它们保持平衡，以使物质体验维持最佳状态。
 
 #### Reasons the Source Entity Created the Planets,Stars,and Solar Systems 
 
+**源实体创造行星、恒星和太阳系的原因**
+
 ME:So why did You create the physical universe with all of its planets,stars,and solar systems? 
+
+我：那你为什么创造这个有着所有这些行星、恒星和太阳系的物质宇宙呢？ 
 
 SE:I created them to provide a multiple learning/evolutionary environment for as many entities as possible to experience existence as much as possible,all at the same time. This is achieved in all the available dimensions and frequencies possible to maximize this work and enables the Origin to gather information about itself as fast as possible. The physical bodies that you call solar systems are entities in their own right.They experience life from a different perspective,the perspective of the slow moving,long existence side of the physical dimension while you are affected by the actions of others who use you as a habitation medium.This habitation is not necessarily true for all in the physical either.It can be in higher frequencies that are assigned to a particular planet or the dimensions that it also exists within.Some planets have several groups of entities living in/on the shelter of a planet at the same time with none of them being aware of each other's existence whilst others will co-exist with full knowledge of each other's'presence,and more still having a mixture of both.Your Earth is one of these mixed existence environments. 
 
+源实体：我创造它们是为了给尽可能多的实体在尽可能大的程度上的同时体验而提供多重的学习进化环境。这可以通过最大化地利用所有可能的维度和频率来实现，从而使起源能尽可能快地收集有关自身的信息。你们口中的太阳系这些物质体，它们本身也是实体。它们从一种不同的视角体验生命，一种从物质层面来看运动缓慢且寿命长久的视角，同时受到那些把它们作为栖居载体的其他实体的行为影响，它们可能不一定栖居在物质层面，也许在分配给某个特定行星或它所在维度的更高频率上。有些行星上存在数个实体群，它们在同一行星上生活却互不知晓。而另一些行星的实体则在在完全知晓彼此的状态中共存，更多行星是以上两种情况的混合。你们的地球就是这些混合的生存环境之一。
+
 #### The Names of Sentient Entities 
+
+**有知觉实体的名字**
 
 ME:The Earth is said to have the name Gaia. 
 
+我：据说地球的名字是盖亚。
+
 SE:Yes,this is the name it gave itself,one that could be recognized by all entities that shared its environment.All sentient entities give themselves a name,or something to be recognized by.This can be a frequency signature or a favorite form that is adopted when in communication with other entities.Others are simply recognized by their thought processes,but these are those entities that are close to the Origin. 
+
+源实体：是的，这是他给自己取的名字，也是被所有共享他的环境的实体所认可的一个名字。所有有知觉的实体都会给自己一个名字，或者其他可供辨认的东西。这可以是一个频率签名，或者是与其他实体沟通时最喜欢采用的某种形态，还有些仅仅凭他们的思维过程就可被识别，不过这些都是非常接近起源的实体。
 
 ME:So all of the planets and stars in our physical universe have names.
 
+我：所以我们物质世界中的所有行星和恒星都有名字。
+
 SE:Yes,to a greater extent. 
+
+源实体：在很大程度上是的。
 
 ME:Are these the names we would recognize?For instance,would the planet Jupiter be called Jupiter? 
 
+我：这些名字是我们认识的吗？比如木星这个星球会被称为木星吗？
+
 SE:No,that is a name that humans have given to it,but it,nevertheless,recognizes that it has a name given to it by humans for the use of humans to describe that part of its existence in the physical. 
+
+源实体：不，这是人类给他的名字，但是他也知道它有一个人类赋予的名字，以便人类用来描述他在物质世界的存在部分。
 
 ME:So Jupiter exists in other dimensions as well. 
 
-SE:I would have thought that was obvious as the physical protrusion is gaseous in nature, but yes,it does,as do other planets and stars. 
+我：那么木星也存在于其他维度了。
+
+SE:I would have thought that was obvious as the physical protrusion is gaseous in nature, but yes,it does,as do other planets and stars.
+
+源实体：我觉得这很明显，因为它凸显的物理性质是气态，但是它的确存在于其他维度，跟其其他行星和恒星一样。
 
 ME:So again,planets are sentient entities as well. 
 
+我：再次明确一点，就是行星也是有知觉的实体。
+
 SE:Yes,they are.In general they are not as miniscule as yourselves in this physical environment.But there are planets that are on a much smaller physical level that operate in a similar way to the ones you recognize but also make up the fabric of physical space as well. 
+
+源实体：是的，他们的确是。一般来说，他们在物质环境中不像你们那么渺小，但是也有些行星在物质形态上要小得多，他们同样也按照与你们所知的行星类似的方式运行，而且也是物质空间的构成部分。
 
 #### The Fabric of Physical Space 
 
+**物质空间构造**
+
 ME:What do you mean when you say they"make up the fabric of physical space"?Are you talking about atoms,quarks,and lower sub-molecular constructs?
+
+我：你说它们是物质空间的构成部分，这是什么意思？你是在说原子、夸克和更低的亚分子结构吗？
 
 SE:I talk about the fact that there are whole galaxies,solar systems,and planets that are small,much smaller than the ones that you recognize as everyday planetary systems. These are entities/groups of entities with living beings existing on different levels of dimension and frequency either singularly or all at the same time,just as you are. They are also in existence in your physicality,but,as a result of their sizes,you bear them no heed as they don't show up so readily on your telescopes as"real"planetary systems.In essence,they tend to be together rather than separate though they present themselves as galaxies in the form of what you would call gas clouds or nebulae. They are whole civilizations on the micro level.These gas clouds/nebulae are literally teeming with life on all levels,from the highly intelligent to the benign,each being created as a result of My splitting Myself up. 
 
+源实体：我说的是这样一个事实，就是存在着非常小的星系、太阳系和行星，比你们平常知道的行星系统小得多。他们上面生存着有生命形式的实体/实体群，这些生命形式或单一或全部同时存在于不同层级的维度和频率，就像你们一样。他们也存在于你们的物质世界中，但是由于它们的大小，你对他们毫不留意，因为他们可不像真正的行星系统那样轻易地被你们的望远镜观测到。实质上，他们倾向于聚在一起，而不是分散开来，他们以你们所谓气体云或星云形式的星系呈现。它们是微观层面上的完整文明体系。这些气体云/星云在各个层级都充满了生命，从高度智慧到良善的类型，都是通过我的自我分裂创造的。
+
 You also mentioned atomic structure in your question.Was this with a view to asking if they also contained physical or energetic life? 
+
+你的问题中还提到了原子结构，这是为了询问他们是否也包含物质的或能量生命吗？
 
 ME:Yes,it was.It just seems possible that as physicists find smaller and smaller parts that make up atoms,they must go right down to miniature solar systems and planets. 
 
+我：是的，是这样。这看起来很有可能，当物理学家发现了原子中越来越小的组成部分，他们一定会进而发现微型太阳系和行星。
+
 #### A New Look at Gravity
+
+**看待引力的新视角**
 
 SE:I see your thought process,but this is not totally correct as everything is part of life.In this instance,they are,indeed,part of the framework of creation on both the physical and energetic levels.These lower levels of physicality are mainly in place to create the glue that holds the physical universe together.They provide a force that you call "gravity."Gravity is a poor description because it makes you think of one thing,the attraction of physical bodies,but in essence it is much more than that.Gravity is also a communication medium between the different frequencies and dimensions. In what you call "interstellar space."There is nothing but these small microscopic constructs or atoms,and these are used to communicate the form of the universe and how it moves in its environment.They both hold it together and,if you like,provide the communication channels from one part of it to another,instantaneously.Just as electrical messages are sent from one part of the human body to another to move a limb,so are messages via the force you call gravity,sent around the construct called the physical universe.The more important thing to note here is that this happens on all the frequency and dimensional levels as well;hence,gravity is a whole lot more than you are currently aware of. 
 
+源实体：我知道你的思路，但这并不完全正确，因为一切都是生命的一部分。在这种情况下，物质和能量层面上，他们都是创造架构的一部分。这些较低层面的物质频率主要作为将物质宇宙连接在一起的粘合剂而存在。他们提供了一种你们称为万有引力的力量，万有引力或者说重力是一个很不恰当的描述，因为它会让你想到一件事，即物体之间的吸引，但实质上它远不止于此。引力也是不同频率和维度之间的通信媒介，在你所说的星际空间中，只有这些小小的微细结构或原子，它们被用来表达宇宙的形态，以及它在环境中的运动方式。他们把宇宙连接在一起，如果你喜欢这样描述的话。他们还提供从一部分到另一部分的即时通信渠道，就像要移动肢体，电信号会从人体的一个部位传递到另一个部位一样，信息也在物质宇宙的构造中通过引力传递。需要注意的更为重要的一点是，这发生在所有的频率和维度层级上。
+
 Gravity is an interesting energy and one that is employed by many of the more highly evolved entities that exist in the physical.It can be used to manipulate the local space and allow access to other parts of the universe via the communication channels created by the gravity network.This is achieved by converting the physical objects or energies into "gravitic"energies and converting them back again,thus,effecting a travel translation that allows translation from one side of the universe to the other,for example.This is not restricted to linear travel either as it can be used to move the physical out of the linear time frame,which encompasses the basic physical universe,and into another time frame of choice.As I have stated before,there is no such thing as time except in the minds of men,but it does provide a limited understanding of the concept of events in existence that is relative enough to be notable as points in time-time being spherically inter- dimensional as a limitation factor to the advanced entity but of no consequence to the highly evolved entity who exists at every level on every dimension simultaneously.Time has been created by men for men to enable them to try to understand the universe from their limited perspective.It has little use elsewhere and is at worst something that can be or must be manipulated. 
+
+所以引力的含义远比你目前所知的要多，引力是一种有趣的能量，被物质界的许多进化较高的实体所使用。它可以用来操纵一个局部空间，使用引力网创建的通信管道访问宇宙的其他部分，将物质体或能量转化为引力能，然后再将其转换回来就可以实现。因此，可以实现诸如从宇宙的一边到另一边的穿越旅行，这不限于线性旅行，因为可以用它将物质移出包括基本物质宇宙的线性时间框架，进入另一个选定的时间框架。如我之前所说，并没有时间这种东西，它只存在于人类心智里。但时间确实提供了对于事件存在这个概念的有限认知，这种存在有足够的相对性，以至于可以被当做时间上的点，也就是维度间球状分布的时间。对较高级实体来说是限制因素，但对于那些同时存在于所有维度、所有层级的高度进化的实体来说则无关紧要。时间是人创造出来的，是为了让人能够从他们有限的视角去理解宇宙，它在其他地方几乎毫无用处，最坏的情况莫过于它成为了一种能够和必须被控制的东西。
 
 #### Physical or Energetic Life on Atoms?
 
-This does not answer your question about atoms and whether or not there are civilizations of much smaller entities living on them like you live on planet Earth. 
+SE:This does not answer your question about atoms and whether or not there are civilizations of much smaller entities living on them like you live on planet Earth. 
+
+源实体：这没有回答你关于原子的问题，以及是否有更小实体存在的文明，就像你们在地球上那样生活在其中。
 
 ME:No,and I think I would like a definitive answer that I (and others who read this)can understand. 
 
+我：是没有，我还是想要一个明确的答案，一个我以及其他读者可以理解的答案。
+
 SE:Mmmm,I see your problem.You are looking for a definitive answer where in reality there is none. 
+
+源实体：我知道你的问题了，你想寻找一个实际上并不存在的所谓确切的答案。
 
 ME:What?!
 
+我：你说什么？
+
 SE:There is no definitive answer because everything that is,is changing,so what is definitive now,may not be definitive later. 
+
+源实体：没有确切的答案，因为万物皆无常，现在确定的不见得之后还是确定的。
 
 ME:You're talking in riddles.You are playing with me! 
 
+我：你说话跟猜你似的，你在和我玩呢！
+
 SE:Not in the slightest.That is not the point of this channeling.Just to give you a reference though,it is,of course,possible that energetic entities can link themselves to the tiniest of physical manifestations with the view to achieving some sort of greater understanding of what happens when they interact with such particles.It's just that it doesn't happen at this level at the moment.They may prefer to see how the interaction of several sub-particles influences a larger particle,just as you do in particle and sub-atomic physics,but they don't currently.Not because they can't,but because it is not important to them in the greater scheme of things.So to answer your question for the here and now,currently there is no life on atoms,electrons,quarks, etc. 
+
+源实体：一点也没有。我们的传导不是为了那种目的。给你一个参考吧，能量实体当然可以让自己与最微小的物质形式产生连接，以便更好地理解与这些粒子相互作用时会发生什么，只是目前在这个层级上还没有发生这些。他们可能更想看看几个次粒子之间的相互作用是怎样影响到更大的粒子的，就像你们在粒子和亚原子物理中所做的一样。但是他们当前还没有这么做，不是因为他们做不到，而是在大方向上这些对他们不重要。所以在此时此地回答你的问题，目前没有生命存在于原子、电子、夸克等粒子中。
 
 #### The Origin As Created and Creator 
 
-ME:O.K.,so I need to get back to the creation of the universe and ask another question that has been nagging humankind for centuries.Is there anything that isn't created in the universe/ s that we exist within?Is there anything that just is,was,will be in existence without first being created,made,or thought up?
+**起源：被造物与造物主**
+
+ME:O.K.,so I need to get back to the creation of the universe and ask another question that has been nagging humankind for centuries.Is there anything that isn't created in the universe/s that we exist within?Is there anything that just is,was,will be in existence without first being created,made,or thought up?
+
+我：好，我要回到宇宙创造的话题，并提出另一个困扰了人类几个世纪的问题。在我们所在的这个宇宙中，有没有什么不是被创造出来的？有没有什么东西不是事先被创造制造或者构思出来的，就只是在，存在，将在？
 
 SE:Everything that is,is created (by someone or something).Even the Origin is created.The Origin is creation given thought and form. 
 
+源实体：每一样存在的事物都是被某人或某物创造的，甚至起源也是被创造的，起源是被赋予思想和形式的创造。
+
 ME:Something created the Origin then? 
+
+我：是有什么东西创造了起源吗？
 
 SE:No,the Origin is creation. 
 
+源实体：不，起源就是创造。
+
 ME:But you just said that "even the Origin is created"!This tells me that the Origin had a creator to create it in the first place.Now I am confused! 
+
+我：但你刚刚还说，甚至起源也是被创造的。这让我觉得起源最初也有一个他的创造者，现在我糊涂了。
 
 SE:The Origin is created and creation as one.To be created does not mean that you must first have a creator.This is thinking in the tense of the human condition,that there is a start and a finish,a beginning and an end,an up and a down,a left and a right,an upper and lower frequency,an upper and lower dimension.Everything that is,exists at the same time.Is this still such a hard concept for you to follow? 
 
+源实体：起源是创造与被创造的合一。被创造并不意味着先要有一个创造者，这是在人类时间观念下的思维，认为有开始和结束、起点和终点、上和下、左和右、更高和更低的频率、上面和下面的维度。所有存在的事物都是同时存在的，这个观念对你来说还是那么难以理解吗？
+
 ME:Give me some latitude here so that I can understand once and for all. 
+
+我：容我琢磨一下，让我可以一劳永逸的理解。
 
 SE:In essence,the Origin was created and creates itself all at that same time.It is continually improving the way It was created and how It creates in order to better Itself and everything that is part of it.To do this well,It needs to also understand Itself better, hence the creation of the twelve source entities.
 
+源实体：本质上，起源创造自己和被创造是同时发生的。它不断地改进它创造和被创造的方式，以使自身和其中的一切变得更好。要做好这一点，他还需要更好地了解自己，于是他创造了12个源实体。
+
 ME:If it is continually re-creating Itself,It must re-create us as well.This means that It must un-create to re-create and,therefore,in the process of changing what was once created,It must destroy it.What I am getting to here is that we as individuals must be continually changing as a result of this,and,therefore,everything that I remember must be different to what I previously remembered,i.e.,one moment I exist,the next I don't,the next I do,but in another form in another environment. 
+
+我：如果他不断地重新创造自己，他也要重新创造我们。这意味着他需要为了重新创造而撤销创造。因此，在改变已创造之物的过程中，他要将之摧毁。在这里，我想要说的是，由于这个缘故，我们作为个体必须不断变化，并且我所记得的一切都必须要与我先前所记得的不同。也就是说，这一刻我存在，下一刻我不存在，再下一刻我又存在了，只是以另一种形态存在于另一个环境之中。
 
 SE:This is not the case.If it was,then there would be no "comparator"and,therefore, no method of comparison,nothing to compare the improvement with.To this end, the Origin granted the twelve and what They create,immunity from change created by the Origin.Lessons learnt and discoveries made by Us and Our creations are also experienced by the Origin.They are used to affect changes to Itself.There are some subtle changes that affect Us but none that affect Our individuality and knowledge that is,has,and will be accumulated because they are only allowed to take place once the previous condition has been fully experienced by the Origin and recorded for prosperity. 
 
+源实体：不是这样的，否则就没有比较工具，更没有比较的方法，改进也就无从谈起了。为此，起源赋予12个源实体以及他们的造物免受起源所创造的变化的影响。我们和我们的造物所获得的经验和所进行的探索也是起源的体验，它们被用来影响起源自身的变化，有一些微妙的变化会影响我们，但完全不会影响我们的个体性，以及正在、已经和将要积累的知识，因为这只可能发生在前一环境被起源完全体验并且被充分记录之后。
+
 ME:You mean the memory of the Origin. 
 
+我：你是指起源的记忆。
+
 SE:Not quite.You see,if the Origin had a memory in the style that you know as humans, when It changed or re-invented Itself,It may well have lost what It experienced in the past,present,and future of the specific NOW as a result of changing Itself into Its new self,therefore,creating a new NOW.Like Us,the Origin is trying to experience as much as it can,in as many ways as it can.In doing so,It placed part of Itself outside of the churn of change so that nothing could be lost or forgotten.The Origin basically stores all of Its possibilities,including what the other FREE and independent parts of Itself experience,in a single place in a single area of records.
+
+源实体：不完全是。要知道，如果起源有一种人类那样的记忆类型，那么当他改变或重新创造他自己的时候，他很可能已经失去了他在过去、现在和未来所体验到的这个特定的此刻，因为他把自己变成新的自己，也就创造了一个新的此刻。和我们一样，起源尝试以尽可能多的方式，去尽可能丰富地体验。在这么做的时候，他把自己的一部分置于动荡的变化之外，这样就不会有什么被丢失或遗忘。基本上，起源在记录中储存了他所有的可能性，包括他那些自由和独立的其他部分的体验都记录在单独区域的单独位置。
 
 ### Chapter 13 - On the Outside 
 
 #### The Peace of Going Within Before Going into the World 
+
+**入世之前进入内在的平静**
 
 ME:In some of my earlier dialogues with you,I have needed to count my way up to a certain level of energy before I could talk with you or the Origin.I now find that I don't need to do this for this type of dialogue but have found consolation in going there recently,especially as I haven't been there for some time.In fact,not since the direct line of communication was apparent. 
 
