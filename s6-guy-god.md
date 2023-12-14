@@ -5962,149 +5962,296 @@ SE:Not quite.You see,if the Origin had a memory in the style that you know as hu
 
 ### Chapter 13 - On the Outside 
 
+**太阳系的故事**
+
 #### The Peace of Going Within Before Going into the World 
 
 **入世之前进入内在的平静**
 
 ME:In some of my earlier dialogues with you,I have needed to count my way up to a certain level of energy before I could talk with you or the Origin.I now find that I don't need to do this for this type of dialogue but have found consolation in going there recently,especially as I haven't been there for some time.In fact,not since the direct line of communication was apparent. 
 
+我：在先前，我和你的一些对话中，我必须要先想办法把自己提升到某个能量层级，然后才能和你或起源交级。现在我发现我不再需要为对话那么做了，但是最近发现我能在那种能量层级上找到安慰，特别是我已经有段时间没去了。事实上自从可以直接交流以后，我就没去过了。
+
 With all of the heavy distractions that I am experiencing at work and home at the moment,I find it quite consoling to raise my energies to that level every morning before I go to work.I like going up to the top frequencies where I go through to the top of the universe and out into the God energies. 
+
+由于现在我在工作和家庭遇到的种种严重分心的事情，每天早上上班前，把能量提升到那个能量层级，我会感到相当安慰。我喜欢去到宇宙顶端的最高频率处融入神的能量中。
 
 When I do this,I actually feel that I am becoming lighter,thinner,faster,and more coherent.I feel that I rise out of the fuzzy darkness and move into realjet black darkness before breaking out into the brilliant white light.
 
+当我这样做时，我实际上感觉自己变得更加轻盈，更加纤细，更加迅捷，更加连贯。我感到自己从模糊的黑暗中升起，进入真正的漆黑的黑暗中，然后冲入明亮的白光。
+
 What is interesting though is that thejet black also feels high in energy and is similar to that of the energy of the white light.When I am in the black,I feel like I am on the outside of a sphere looking at a perfect set of stars,each having perfect intelligence.Ifeel that I know them,I have always known them,and,that they have always known me.Then when I rotate myself out of the black,I feel that I am everywhere and nowhere all at the same time,that I am all there is and all there is,is me. 
+
+有趣的是，漆黑的黑暗感觉也具有很高能量，与白光的能量相似。当我在黑暗中的时候，我觉得自己就像是在一个球体外面看着眼前完美的星群，每一颗星星都有着完美的智慧。我觉得我认识他们，我一直认识他们，他们也一直认识我。然后当我从黑暗中旋转出来，我感到自己无处不在，同时又所在无处。我感到我是所有一切，而所有一切皆是我。
 
 SE:This is wonderful,for you are at the very start of your enlightenment. 
 
+源实体：这真是太好了，因为你正处于觉醒的最初阶段。
+
 The black area you refer to as being "jet black"is the universe that I have created for all of you to evolve within.This is your universe in all its "multi-frequencied,"multi- dimensional,multifaceted grandeur.You are on the outside,the very edge,the boundary of the known and unknown universe.This is it-all there is,all there ever will be,all there ever was,all there ever can be. 
+
+你所说的漆黑的黑色区域，就是我为了让你们所有人进化而创造的宇宙。这是你们的宇宙在多重频率、多重维度、多重辉煌本质中的真实形态。你在他外面，非常靠近边缘，在已知和未知宇宙的边界，这就是他所有此时的一切，所有未来的一切，所有曾经的一切，所有可能的一切。
 
 The perfect stars that you see are the guardians of the universe.Those spirits who have chosen to dedicate themselves to the maintenance of the universe in every way,right down to the lowest frequencies and up to the largest galaxy within the largest universe within this universe. 
 
+你看到的完美星体是宇宙的守护者，他们是一些选择以各种方式致力于维护宇宙的灵体，下至最低的频率，上至这个宇宙中最浩瀚的宇宙中最庞大的星系。
+
 #### Earth-A Universe Within a Universe 
+
+**地球，宇宙中的宇宙**
 
 ME:You mean we are in a universe within a universe?
 
+我：你的意思是我们存在的宇宙也容纳在另一个宇宙中。 
+
 SE:But of course.Does a multiverse not need to be contained in some way,if not for the sake of being tidy?Hence,the spherical shape that you have experienced.Each universe and each galaxy has a job to do in the greater scheme of things.The perfect stars or spirits are perfect because they have reached the highest level of attainment an individualized spirit can reach.Some of these have visited your planet in your frequency.A few have even walked amongst you at your lowest level trying to help you raise your game in the frequency stakes.They,like Me,experience everything that you experience,know all that you ever knew and will ever know and are with you every second of the day and night.Everything you do is known and experienced whether it is in the physical or in the energetic.These spirits are the recorders,the promoters,the recommenders,the changers,the maintainers of the physical and energetic universe.They are forever changing the environment in the most subtle ways possible to increase the efficiency of the universe and its opportunity for promoting evolution of the individualized energy,the spirit. 
+
+源实体：那是当然。要不是为了简洁的缘故，何必要有以某种方式嵌套的多维宇宙呢？所以就有了你体验到的球形宇宙结构。在更宏大的计划中，每个宇宙和每个星系都有自己的任务要做。完美的星体或灵体之所以是完美的，是因为他们达到了个体灵体所能达到的最高水准的造诣，其中一些已经在你们的频率拜访过你们的星球了。有的甚至还曾在你们最低的频率上与你们并肩而行，试图帮助你们在这场频率赌注游戏中提高自己的频率。他们和我一样，体验着你们所体验的一切，知道你曾经知道和将要知道的一切，并且分分秒秒日日夜夜的与你同在。你们所做的每一件事，无论是物质上还是能量上的，他们都知道并惊艳着。这些灵体是物质和能量宇宙的记录者、推动者、推荐者、改变者、维护者，他们永远以最微妙的方式改变环境，以提高宇宙的效率，为宇宙促进个体化的能量，也为灵体的演化提供更多机会。
 
 #### The Origin,the White Light 
 
+**起源：白光**
+
 ME:So what about the white light? 
+
+我：那么白光是怎么回事？
 
 SE:That is simple.That is the Origin,God,or whatever fashion you want to call it.The Origin is best as it was the Original recognition of self within the vast area of energy that is the great All.It is not surprising that you felt you were part of the All when your consciousness penetrated that area,for it is what you are truly,part of the all. Everyone and everything is part of the all and to be part of this on a level of the lowest consciousness,that which you experience in the Earth plane,is the most exciting of all for this is when you,at your lowest ebb are at last aware.You are aware that you are whole and that you are part of something much,much bigger than that small part of you that is sectioned off to experience the lowest frequencies. 
 
+源实体：很简单，那就是起源、神或上帝，或者随便你用什么方式称呼。称为起源最贴切，因为这是巨大能量领域一切万有对自我的原初认知。当你的意识渗透到这个区域时，你感觉到自己是一切万有的一部分，这并不奇怪。因为这就是你真正所是，一切万有的一部分。每个人每个事物都是一切万有的一部分，并且当你在最低意识层级，即地球层级上意识到是他的一部分是最令人兴奋的，因为这是当你在最低潮时终于醒悟的。你醒悟到你是完整的，你是一个宏大事物的一部分，远远大于那个被划分出来体验最低频率的一小部分的你。
+
 In your newly re-discovered ability to sit at the table of God,in His light,you are well on your way.All you have to do is let His light fully into your life and be truly one with God, for this,in essence is your true heart's desire.This does not mean that you need to join a church,become a Christian,a Muslim or a Buddhist,for these are man's inventions.They are graven images to be worshipped by the gullible,by the weak of mind.They tell of the truth but do not allow you to be in the truth,for they are developed,although with a bit of truth to entice,outside of the truth for the benefit of men who seek power over men and not over themselves. 
+
+你重新发掘出让自己重回神的视角，与他的光同在的能力。你所要做就是与神真正成为一体，让你的光充分照进你的生命。因为这实际上是你真心的渴望，这并不意味着你需要加入教会，成为基督徒、穆斯林或佛教徒。因为这些都是人类的发明，他们是雕刻的造像，供亲信者与心灵薄弱者崇拜。他们讲述真理，却不让你融入真理。因为他们虽然包含一些真理做诱饵，而在真理之外设计用于服务于一些人的利益，他们追求控制他人的力量，而非掌控自我。
 
 #### Life on Other Planets 
 
+**其它行星上的生命**
+
 ME:From my previous dialogue with You,I am aware that humanity is part of the greater picture and is,when disincarnate,able to travel the universes and their frequencies.I also know that there is obviously life of the energetic and physical all over the universe as well.But what about those planets close to Earth?Do they have physical life that we have not yet been able to detect?Or...
+
+我：从之前与你的对话中，我了解到人类是更大图景的一部分，并且不在化身中时能在宇宙及其各个频域中畅游。我也知道整个宇宙很明显的遍布着能量和物质形式的生命。但那些靠近地球的行星呢，他们有没有我们还未能发现的物质生命呢？或者...
 
 Are we as an incarnate race pretty much alone? 
 
+作为参加转世化身的种族，我们是孤独的吗？ 
+
 SE:First,you are never alone for the Origin and I are always with you,all of you,all at the same time.Second,life is not specifically physical in nature.So when you say incarnate life,that can also include physicality that is semi-energetic,gaseous and liquid in nature.There are also other forms of life that are incarnate that are made of substances that are not yet recognized by humankind but are nevertheless incarnate in function and existence. 
+
+源实体：首先，你们从来不是孤独的，起源和我总是和你、你们所有人同时同在。其次，生命本质上并非只是物质性的，所以你在说化身生命时也包括半能量态、气态和液态性质的物质体，还有其他形式的化身生命，由人类还未发现的成分构成，但同样是具有功能和真实存在的化身。
 
 I can see you frowning so I will elaborate.Anybody that is able to accept as a host an energetic entity,call it a "spirit"if you want,allows incarnation.Don't forget that the word incarnate is a Latin word and literally means "in the meat."It is a very old word and was used as a bit of joke on Earth by those who first inserted a portion of their energetic self into a vehicle that was best suited to the frequencies of the environment that they wanted to experience.At first the bodies used in the Earth sphere were of a higher frequency,much higher than they are today.As a result they still afforded the energetic entity or spirit the communication it required to maintain contact with the rest of itself and the rest of energetic intelligence throughout the universe I created.With the human vehicle being at this level of frequency,it was more akin to the gaseous nature that exists in and around other planets and allowed longer life and easier movement when long distances were to be travelled. 
 
+我看到你都皱眉头了，那么我再说的详细点。任何能够接受一个能量实体，你可称之为灵体的宿主都可以允许转世的发生。别忘了转世这个词来自拉丁语，字面意思是“在肉中”。这是一个非常古老的词语，地球上那些最早转世的灵体使用这个词时有点开玩笑的意味。他们将能量自我的一部分嵌入某个最适合他们想体验的环境频率的载具中。起初，在地球环境中使用的躯体频率较高，比现在的高得多。因此，他们仍然能够为能量体或灵体提供一种交流，以保持其与自己的其余部分以及我所创造的整个宇宙中的其他智慧体的联系。当人类载具处于这种频率水平时，它的性状更接近于存在于其他行星之上及其周围的气态形式，其寿命更长久，并且更易于远距离旅行。
+
 #### Jupiter and Ganymede
+
+**木星与木卫三**
 
 I am telling you this as a prelude to what is currently happening in and around the spherical bodies you call "planets"in your own solar system or local universe.Almost all of the planets in your solar system have either supported or continue to support the opportunity to play host to spirits who wish to incarnate into a body that is best suited to experience the predominant environment that a particular planet affords.As you can imagine,Jupiter is a very good host for gaseous bodies and currently hosts over a million entities experiencing life in the magneto gaseous condition.The entities in the gaseous environments of Jupiter like to manipulate the local magnetic forces to create structures for them to gravitate around and art forms for their enjoyment.They have even been known to create planets out of the materials available with certain magnetic properties. Ganymede is one of those planets created for fun and experience.I know you call it a moon,but it was originally created to be a planet in its own right. 
 
+我要跟你讲的是，在你们自己的太阳系或局部宇宙中，你称为行星的球体及其周围如今正在发生的事情的序曲。你们太阳系中的几乎所有行星都曾经或仍旧可以作为宿主，允许灵体转世，这些灵体会转世到最适合体验特定行星所提供的环境的化身躯体中。你可以想象，木星对于气态躯体来说是一个非常好的环境。目前有超过100万的灵体在那里体验磁性气体环境下的生命。在木星气体环境中的灵体喜欢利用当地的磁力来建造便于他们利用引力四处游历的结构，以及令他们愉悦的艺术形式。他们甚至已经用一定磁性的现有材料创造出了行星，木卫三就是为了娱乐和体验而被创造出来的行星之一。我知道你们称它为卫星，但就它本身而言，它原本是要被创造成为一颗行星的。
+
 #### Mars 
+
+**火星**
 
 Mars is good at offering life experience in the mineral biased and atomic level conditions. Mars is good for its contemplative properties as the interaction with the planet in this incarnate condition is,as you can imagine,at a drastically reduced level.However,it does allow the entity to travel around the planet by transferring the intelligence of the entity from one mineral to another,allowing the entity to travel through the rock at an impressive speed.The entities on Mars enjoy playing games and revel in one you might call mineral pinball.They do this by making themselves the pinball itself,by making their energetic level impervious to certain minerals as they speed along making them bounce off the one that they are impervious to.The crystalline is best for them travel- wise as its straight structures allows direct movement,whereas other minerals afford a more "country lane"method of getting from A to B as they bounce off the impurities that are inherent in the rock they exist in.They don't create areas for habitation because they use the whole planet as their environment,not just the surface as humanity on Earth does. 
 
+火星擅长提供偏矿物性的和原子水平的生命体验。火星的沉思性能极佳，因为在这种转世条件下，你可以想象，与星球的互动水平非常低。然而，它允许实体通过将自身智能从一种矿物传送到另一种矿物的方式，以惊人的速度穿越岩石，在星球上旅行。火星上的实体喜欢玩游戏，对一种你可以称为矿物弹珠的游戏非常痴迷。玩这个游戏时，他们把自己当成弹珠，通过控制能量水平，使自己的能量不会渗透进某些矿物，从而能在飞直撞击中从这些矿物上反弹开。对于他们的这种移动来说，晶体是最佳选择，因为它的平直结构允许他们在其中进行直线移动。而同样是从A点移动到B点，其他矿物则提供更加曲折的乡村小径式的路线，因为他们在这些矿物中移动时，会被里面的杂质弹开，形成曲折的移动路线，他们没有建造居住区，因为他们把整个星球作为生存环境，而不像地球上的人类那样只生存于地表。
+
 #### Venus 
+
+**金星**
 
 Venus offers a mixture of both gaseous and liquid-based incarnation opportunities with both playing host to a couple of 100,000 entities that want to experience life at the frequencies that allow life to occur at these elementary levels.They enjoy the changes in morphology they experience by mixing the gaseous and the liquid together at different dimensional levels as well as frequencies.They create structures out of gas,ice,and liquid by using the magnetic properties inherent with these physical materials,giving them memory so that they can change the shape based upon the time of day or the mood they feel.They have games where they try to get as many structures out of a certain mixture of liquids and gases as they can in a finite time period.They enjoy the variation in structural art that they create as a result. 
 
+金星提供气态和液态两种化身机会，接纳了几十万个实体，他们想在这种基本层面的频率下体验生命的发展。他们喜欢在不同的维度和频率下，将气态和液态混合在一起来体验形态的改变。他们利用气体、冰和液体等物质材料中所固有的磁性特点来创造结构，赋予其记忆，让这些结构可以根据一天中的时间或者他们的心情来改变形状。他们有一种比赛，即在有限的时间内，用某种液体和气体的混合物，造出尽可能多的结构。他们享受由此创造的各种结构化艺术。
+
 #### In the Heart of Earth's Sun 
+
+**在太阳的中心**
 
 As with atomic levels of experience being enjoyed by the entities in the Jupiter sphere, so are well over a billion souls enjoying being in the heart of your local star,the Sun. Here they experience what they can do on an atomic and sub-atomic level by mixing the physical atoms with time-,magnetic-,gravity-and frequency-based modifications.They particularly enjoy making elements in this environment that are not native to the Sun and its solar system at this frequency.In addition,they delight in the properties that these new materials could offer a fully physical incarnate entity,such as those on Earth. In fact,these entities are in constant communication with incarnate entities on Earth that are able to understand some of the concepts used to create these new elements that allow them to be re-created in the Earth sphere. 
 
+就像木星的灵体享受着木星上原子水平的体验一样，有超过10亿的灵魂也乐于待在你们的恒星——太阳的中心。在这里，他们通过将物质的原子与基于时间、磁性、重力和频率的转化相结合，在原子和亚原子水平上体验他们可以做的事情。他们特别喜欢在这样的环境中制造该频率下太阳及太阳系原本没有的元素。这些新材料的特性让他们兴奋不已，因为这些材料可以像地球上的一样，提供完全物质性的化身载体。事实上，这些太阳实体一直与转世在地球上的能理解创造这些元素概念的实体保持沟通，使他们能在地球上重新创造出这些元素。
+
 #### Other Entities in Earth's Solar System 
+
+**地球所在太阳系中的其它实体**
 
 ME:So there are lots of entities in our solar system? 
 
+我：在我们的太阳系中有很多实体存在吗？
+
 SE:There are many others that I haven't mentioned,for every one of the planets that revolves around your sun has some form of entity associated with it. 
+
+源实体：还有很多我没有提到的，因为每一颗围绕你们的太阳运转的行星都有某种形式的与之相关的实体。 
 
 ME:Why is that?Is it because they all have a job to do relative to that planet? 
 
+我：那是为什么？是因为他们都有关于那个星球的任务要做吗？
+
 SE:Bingo!Yes,it is.But it's more than that.You see,all entities have a role to play in the evolution of themselves and the gathering of knowledge via personal experience. This,as I have stated before,is to help accelerate the Origin's learning about Itself in every way possible.The payoff to the individual entity is that each is given singularity and individual thought to be able to achieve this goal.The opportunity for these particular entities is to learn what it means to attend to the needs of the larger entities that you call planets.Each of these planets has a role to play in the local universe-one that has an effect on many frequency/dimensional levels all at the same time and as a result needs the help of other smaller entities. Planets provide much in the physical and dimensional universe.First,they provide stability from a gravimetric point of view and a focal point for "loose"matter to coalesce and clean up the physical side of the locale.Second,they provide a locale for entities to work within.Third,they provide a common cause for those entities to work with. Working together for a common cause in the name of the Origin is the most important thing an entity can do in the universe.Fourth,they provide substance for the larger universe since the universe is a being in its own right.Whereas the planets are the substance for the universe,the entities that work on,in,and with the planets tend to the balancing needs of that planet.Essentially they groom and fine tune or make adjustments to the functionality of the planet at every level,ensuring that it functions at peak performance. 
+
+源实体：答对了，是这样的，但不止于此。你看，所有的实体在自身进化以及通过个人体验汇集知识的过程中都要扮演某个角色。正如我之前所说的那样，这是为了用所有可能的方式促进起源对自身的了解。对单独的实体而言，其回报则是他们每一个都被赋予个性和独立思维，以便完成这一目标。某些特定实体的任务是去学习如何服务于更大的实体，即行星。这些行星中的每一个都在局部宇宙中同时对多个频率/维度层级产生影响，因此他们需要其他较小实体的帮助。行星在物质和维度宇宙中提供了很多东西。
+
+- 首先，他们提供了重力视角上的稳定性及松散物质结合的聚焦点，并清理物质层面的场域。
+- 其次，他们为实体提供了活动场所。
+- 第三，他们为那些一起合作的实体提供了一个共同的目标，以起源的名义向着一个共同目标一起努力，是一个实体在宇宙中可以做的最重要的事。
+- 第四，他们为更大的宇宙提供了物质成分。
+
+要知道，宇宙本身就是一个实体。鉴于行星是宇宙的物质成分，在行星上、行星里以及与行星一起工作的实体服务于平衡这个星球的需求。本质上他们在各个层级对行星的功能进行修饰经调或调整，确保它在最佳性能下运行。
 
 #### Neptune's Function and Entities 
 
+**海王星的功能和实体们**
+
 For instance,the entities that are associated with the planet Neptune work on the dimensional and frequency shifts that are necessary to keep the mass of the planet together.The function of Neptune is the attraction and storage of gamma radiation. Keeping such radiation under control is essential to this solar system because it specifically helps maintain the good physical health of the vehicles you call human beings.Without Neptune storing and processing the stray gamma radiation in this area, the physical side of the human entity would dissolve since gamma radiation affects the communication between the DNA and the cellular structure of the body,and,therefore, its desire to maintain cohesion. 
+
+比如，与海王星相关联的实体做着维度和频率转换的工作，这是将行星团维持在一起所必须的。海王星的功能是吸引和储存伽马射线，控制好这种辐射对这个太阳星来说必不可少，因为这特别有助于你们人类载具保持良好的身体健康。如果没有海王星储存和处理这个区域里杂散的伽马射线，那么人类实体的物质部分就会瓦解。因为伽马射线会影响DNA与身体细胞结构之间的信息传递，从而影响到躯体凝聚力的维持。
 
 #### Uranus's Functions 
 
+**天王星的功能**
+
 Uranus performs a similar function but with a similar form of energy that is destructive to other physical life forms on the Earth,specifically those who synthesize energy from the particles responsible for illumination in the physical dimensions.This energy is not yet known to humankind and as such should stay unknown because it would provide a formidable weapon resulting in the ruination of crops and forestry. 
+
+天王星具有类似的功能，它带有相似的能量形式，但这种能量对地球上其他物质生命形态具有破坏性，特别是对那些从物质维度中的照明粒子中合成能量的生命形态。这种能量还不为人类所知，它也应当继续不为人知，因为它能制造出导致农作物和森林毁灭的强大武器。
 
 ME:So are these entities in Neptune more or less advanced than energetic humanity? 
 
+我： 那么海王星里的这些实体是比能量态的人类先进还是不如人类先进呢？
+
 SE:They are both.Such as is the combination of beings that are in and around the Earth sphere.There are many entities that are associated with Earth as I have stated in previous dialogue.They are classed as nature spirits,animals,plants,and,of course, humans.
+
+源实体：都有。地球内部和周围的各种实体也是。正如我在之前的对话中说过的那样，有许多实体跟地球有关联，它们被分为自然精灵、动物、植物，当然还有人类。
 
 ME:What is the job of Pluto and Mercury?What role do they play in the stability of the solar system and ultimately,I guess,the universe?And what about the entities who work with them? 
 
+我：冥王星和水星又有什么样的任务呢？它们在太阳系乃至宇宙的稳定中发挥了什么样的作用？还有那些和他们一起工作的实体又是如何的呢？
+
 #### Mercury's Functions and Entities 
+
+**水星的功能和实体们**
 
 SE:Let's deal with Mercury first as its closest to the sun.Your scientists have noticed that Mercury,like your moon,always has one side facing the sun.This is an intentional action by the entities that are working with Mercury to establish a balance in environmental conditions that is only possible at the cusp of the hot and cold sections of the planet,the light and dark sides,if you wish.In this "band"around the circumference of the planet exists a special kind of environment that allows the mixing of certain minerals and gases,each of which are not able to be achieved in their native environments of the hot (light)and cold (dark)sides of the planet.This area provides the most unique opportunity for a form of physical life to exist.Thereby, it allows an energetic entity to "incarnate"into a physical form that is not only compatible with the frequencies of this planet but also able to work at its lowest level without destruction due to the extremes of either side.The entities,if you were to see them,would appear to be bubble-like shapes with sensory organs covering the whole of the outside of the "skin"of the bubble.They manipulate the materials around them by using their normal energetic functions of what you call telekinesis as they work directly with the materials at the energetic level.By manipulating the properties of the atomic structures of certain materials that are created within this band,they are able to make the planet locally heavy,which is the way they make the planet face the sun in a non-rotational orbit.Literally,the heavy ring around the periphery of the planet is attracted in preference to the rest of the planet's mass,stopping its normal rotation dead in its tracks. 
 
+源实体：让我们先从水星开始，因为它是最接近太阳的。你们的科学家已经注意到，水星和你们的月亮一样，总是用同一面朝着太阳，这是与水星合作的实体有意为之，为的是在其环境条件下建立一种平衡。这种平衡只能存在于星球极端炎热和极端寒冷的区域，你也可以称之为明面与暗面。环绕行星一圈的这个环带环境很特殊，可以生成某些矿物质和气体的混生物。而在行星的炎热光明面和寒冷黑暗面的原生环境下，这种混生状态都是不可能出现的。这个区域为了一种物质生命形式的生存提供了最独特的机会。因此，它允许一个能量实体化身为这样一种物质形式，不仅能与这个行星的频率兼容，而能工作于其最低层级，并不受行星两种极端环境的破坏。这些实体，如果你看得到它们，形如气泡，感觉器官覆盖在整个气泡皮肤的外面，他们可以通过他们的一种正常的能量功能，即你们所谓的心灵制动，直接在能量水平操作它们周围的材料。通过操纵在环带区域生成的某些材料中的原子结构性质，它们能够使星球的局部变重，从而使星球一直面向太阳，以不自转的轨道围绕太阳公转。准确的说，这个沉重的行星外环比星球的其余物质受到更大的引力的作用，从而完全制止了星球在行进中的正常旋转。
+
 #### Pluto's Functions and Entities 
+
+**冥王星的功能和实体们**
 
 Pluto offers opportunities that most other planets could not,purely because its position is away from the central source of heat,the sun.The entities that work with planets are specifically involved with the ice-based intelligence that exists in the permafrost that surrounds the planet.This intelligence is,of course,linked to the Origin,as all intelligence is,and as a result,it has an energy all of its own in order to exist.There is an interesting correlation with the mineral-based entities that exist on Mars,insomuch as the ice-based intelligence exists within the solid ice only and avoids the more liquid states that the ice sometimes achieves.Even though this liquid ice is something akin to helium or carbon dioxide in essence,it is not and can be better described as a variant of the rarer airborne gases in the Earth's atmosphere,such as argon,krypton,neon,etc. Hence,its white-like appearance even though there is not much light that far out from the sun's natural illumination properties.Ironically,the planet's job in this solar system is to provide warmth for those entities that exist in lower temperatures in and around the outer reaches of the solar system.It acts as a sort of beacon or lighthouse to space- faring entities who are looking to visit this solar system,as it provides an energy that is detectable long distances away as a result of its mixture of so-called rare gaseous elements at super low temperatures. 
 
+冥王星提供了其他大多数行星无法提供的机会，纯粹是因为它的位置远离太阳这个中心热源。在这个行星上活动的实体，与围绕着星球的涌动层中的基于冰的智能有着特别关联。当然，就像所有智能一样，这种基于冰的智能也与起源相连接。为了生存，它也有自己独特的能量形式，这与火星上存在的基于矿物的实体有着有趣的相关性。因为基于冰的智能只存在于固态冰中，而它们会避免有时冰会出现的液态形态。尽管液态冰本质上与氦或二氧化碳类似，但它不是。可以把它更贴切的描述，为地球大气层中更稀有气体的变种，类似氩、氪、氖等。因此，即使因为远离太阳自然光而没有太多光线，它仍然呈现白色的外观。滑稽的是，这个星球在太阳系中的任务却是为那些存在于太阳系外围附近较低温度区域的实体提供热能。他对于想拜访这个太阳系的太空旅行者来说，就像是某种路标和灯塔，因为他提供了一种可以被远距离探测到的能量，那是他在超低温下混合了所谓稀有气体成分的缘故。
+
 In essence the entities are the same as you.They are energy-based beings,and they have a place in the workings of the universe the same as you do.They also aim to evolve over time and experience life in as many different ways as they can in order to give the experience they have back to the Origin. 
+
+实质上那些实体和你们是一样的，他们是基于能量的存在。和你们一样，他们在宇宙运作中有自己的位置，其目标也是随着时间进化，并尽可能以不同的方式体验生命，以便将自己的体验带回起源。
 
 #### Sentient and Communicative Planets 
 
 ME:So what do they experience?It must be significantly different to what human beings experience. 
 
+我：那行星体验的是什么？肯定与人类的体验大不相同。
+
 SE:It is certainly very different and this is the point;they experience different things than other entities,things in ways that could never be experienced by an entity in a smaller body. 
+
+源实体：当然是非常不同，而且这也是他们存在的目的。他们体验的事物不同于其他实体，是处于较小躯体中的实体所永远无法体验的。
 
 Planets are not just lumps of rock and gas.They are totally sentient in their own right, and they have an incarnate "life span"the same as incarnate humanity does.As with humanity,each entity is able to do whatever it wants as it is one with the universe in every way.However,unlike incarnate humanity,they do not lose their contact with their higher selves because they are more integrated into the system of the universe and are not independent on the structure.
 
+行星不仅仅是石块和气体的结合，他们自身完全有知觉，也同样具有化身身体的寿命，就像人的肉体一样。如同人类每个实体都能够做它想做的任何事情，因为它在任何方面都是与宇宙一体的。然而，与人类的肉体化身不同的是，他们并没有失去与自己高我的连接。因为他们更多地与宇宙系统结合在一起，而不是独立存在于自己的结构上。 
+
 ME:So planets are entities that are part of the structure of the universe. 
+
+我：所以行星是作为宇宙结构一部分而存在的实体。
 
 SE:In a way yes,a living part of the structure.As you are aware,they have an attractive force you call "gravity,"and this is one of the ways that the local parts of the universe are maintained spatially.It also allows the migration of smaller parts of the universe,as the gravity that is produced by the planets is given direction and force.It is not,as you think,spherical to the planet.Each planet can create gravity in any form it likes,and the methods that it uses are relevant to the job it needs to do.For instance,gravity is a function of universal love,and as part of universal love,it has natural attraction.It is the attractive properties that planets use to hold things together from an energetic and physical perspective.It is also used as a communication medium between the planets and suns themselves. 
 
+源实体：从某种意义上来说，是的，他们是宇宙结构的一个有生命的部分。如你所知，它们具有你们称为万有引力的吸引力。这正是宇宙局部维持空间状态的一种方式，引力也使宇宙中更小的部分能够迁移，因为行星产生的引力能够提供方向和力量，但这种引力对于星球来说并不是你所以为的球形。每个星球都可以任意创造任何形式的引力，而如何使用它则与星球需要做的任务有关。在某种意义上说，引力是大爱，或者说是宇宙之爱、普世之爱的一个功能。作为大爱的一部分，它具有自然的吸引力。行星利用此吸引属性将能量和物质聚合在一起，它也被用作行星以及恒星之间的信息传递媒介。
+
 #### Gravity as Planetary "Telepathy" 
+
+**引力是行星的心灵感应**
 
 ME:How do they do that?By pulsing the gravity or by making waves of some kind? 
 
+我：他们是怎么做到的？通过引力脉冲还是制造某种形式的波？
+
 SE:Not a bad guess although you're not guessing in totality since you are picking up the information from the universe as we speak.You are dual channeling.Well done,the more work like this you do,the more open to your real capacity you become as you start to open channels of communication that you previously did not use as an incarnate human.
+
+源实体：虽然没全猜中，但也猜的不错。因为就在我们说话的时候，你也在从宇宙中提取信息，你是双重管道。好样的，这样的工作做的越多，就越能展现你的真实能力。因为你开始打开沟通管道了，这些管道是你以前是为化身人类尚未使用过的。
 
 Gravity is not what you think it is,for as a part of the universal love.It is similar in nature to what you would call "telepathy"for it operates in these frequencies,for want of a better word.If you could see the gravity beams spread out with your physical eyes,they would look like a lattice connecting the planets together.The communication between them looks like red/pink flashes that change shape,speed,hue,coalescence,and direction.Communication is instantaneous as the beams are interconnected on many, many levels all at the same time with time having no influence because it doesn't exist and is a result of the level of interconnectivity.Of course,the visual aspects of what I have just described are only one aspect of phenomena that is associated with communication between the entities called planets;communication occurs on as many levels as there are interconnections.The rest are emotional levels of sorts where communication is in feelings gained as a result of experiencing different things on different levels. 
 
+引力并非你们想象的那样，而是作为宇宙之爱的一部分，它的性质类似于你们所说的心灵感应，因为它运作的频率，还没有更好的词汇来表述。如果你的肉眼能看到伸展开的引力束，它们看上去就像一个把行星们连接在一起的网格，它们之间的沟通看起来像是会改变形状、速度、色调、组合和方向的红色或粉红色闪光。由于引力束在许多层级上同时相连，因而沟通是即时的，而且不受时间影响，因为时间本不存在，只是互联的层级使然。当然，我刚刚描述的视觉景象，只是行星之间交流现象的一个方面。交流在所有互联层面上发生，其他还有情感层面，在这些层面交流的是情感，这些情感是在不同层级上体验不同事物而获得的。
+
 #### Planet Earth's Love for Humanity 
+
+**地球对人类的爱**
 
 The planets consider the smaller entities that exist within their environments as brothers but are sometimes confused in the way they treat their host,especially the humans.With the way that humanity is treating Earth currently,it is possible to consider humans as a virus,killing Earth with pollution.This pollution is unnecessary for the evolution of the human species but is a necessary learning curve for the current species to go through to understand the problem that pollution causes to the physical manifestation of the planetary being where their physicality exists and the overall effect that they have on themselves by destroying the very environment that was created in perfection for their progression.Even with this misuse of itself,Earth loves all of humanity with all its might. 
 
+行星把生存于自己环境中的较小实体当做兄弟，但有时候会对小兄弟们对待自己这个宿主的方式感到困惑，特别是人类这个兄弟。当前人类对待地球的方式就好像病毒一样，正在用污染杀死地球。对于人类的进化来说，污染是不必要的，但它对于目前的人类来说，却是必要的学习过程。它能让人类理解污染所处星球的物质活动造成的问题，以及当他们摧毁这个为了人类进化创造的完美环境会给自身带来的综合影响。地球尽管被如此错待，它仍然尽其所能的爱着所有人类。
+
 Don't think that the work of the planets is just at the macro level that you perceive them to be,for whatever they do on the macro affects the micro level as well.This is duplicated on many levels of size that are both too small and too big for humankind's current level of science to recognize.There is size,dimension,and frequency involved in this universe, and all are the playground of the evolving entity.Whatever the planets do in this size is mirrored in the micro-verse.Whatever is done by the planets in the larger macro-verse is mirrored in the minor-verse where you currently exist.Although I have mentioned but three sizes of universes,there are,in effect,many in-between them,each providing an opportunity for the entity to evolve in some way.More importantly,the size of the dimension changes its characteristics and,therefore,increases the opportunity for more entities to incarnate and evolve by experiencing different things. 
+
+不要以为行星的工作只在你以为的宏观层面上，因为宏观上的任何事情都会影响到微观层面，这在许多层面上都是一样的，有些无比微小，有些无比宏大，都是人类目前的科学水平所无法触及的。这个宇宙涉及到大小、维度和频率，这些都是实体进化的游乐场。无论行星在这个尺寸做什么，都会镜像映射于微观宇宙，而无论行星在更大的宏观宇宙做什么，都会镜像映射在更小的那一面，也就是你们现在所在之处。虽然我只提到了三种宇宙规模尺度，但实际上在他们之间还有很多种规模尺度，每一种都为实体以某种方式进化提供机会，更重要的是维度的大小是会改变的，从而为更多实体提供转世而通过体验不同事物而进化的更多机会。
 
 #### The Limitless Universe and Evolution 
 
+**无限宇宙与进化**
+
 ME:I thought that if the size of the universe was smaller,it would be limited by the size of the atoms and molecular structure of where we are now. 
+
+我：我以为如果宇宙的尺度更小的话，就会受到我们现在这种原子和分子结构大小的限制。
 
 SE:No,this is a common mistake that scientists make.They base everything on the universe that they exist within and use that as their datum.This is not the case because the universe is not limited by size in a 3-dimensional way;in fact,it is not limited at all.
 
+源实体：不，这是科学家都会犯的共同错误。他们基于自己生存的宇宙去理解一切事物，但事实并非如此，因为宇宙并不受三维大小的限制，实际上宇宙不受任何限制。
+
 You see,the physical size of molecules is not appropriate in the construction of objects. Consider your bricks.They might be small in size but together they can build huge buildings.This you can see and understand very easily,and in your minds you give no limitation to how big the building might be simply because you are going from small to big.However,when you go from big to small you are constrained by what you have discovered.The smallest thing that you have discovered to date is the components of the atom you call quarks,such as up,down,top and bottom.You think that these components are the smallest in the universe,but this is not the case.Although energy is without form,it can create objects that are many magnitudes smaller without limits.In fact,there are whole universes that occupy the space of a quark and smaller particles also provide the same opportunities.In this way,an entity can experience many existences within the same physical spaces but at differing sizes,so to speak.In essence,this expands the opportunity for physical incarnation.Also,the interspacing of frequencies between these smaller molecules allows the use of the same base level of molecule used in different dimensions.For instance,you could have ten molecules close to each other but with each one supporting a different dimension.This means that the so-called physical is interacted by different frequencies and,therefore,different dimensions,which ultimately means that a particular solid or physical object is not only part of the universe or dimension that we see it in,but it is also a part of many others at the same time. 
+
+你知道分子的物理尺寸跟物体的构建是不相称的。想想你们的砖块，它们可能尺寸很小，但聚在一起就可以建造巨大的建筑物。这点你轻而易举就能看到并理解，而且你心里没有对这建筑物的大小设限，就因为你看到的是由小到大的变化。然而，当变化是由大到小时，你就受到你所发现的东西的制约了。你们迄今所发现的最小的东西就是原子的组成部分，你们称之为夸克，就像上夸克、下夸克、顶夸克和底夸克，你们认为这些组成部分是宇宙中最小的东西，但事实并非如此。尽管能量没有形体，但它可以创造出无限小的物体。实际上在夸克的空间存在着完整的宇宙，而且比夸克更小的粒子里也有。这样，可以说一个实体能够在同一个物质空间体验多种存在方式，只是大小不一，本质上这增加了物质化身的机会。此外，小分子之间的频率间隙，还能让不同的维度使用同一基本级别的分子。例如，你有10个互相靠近的分子，但每个分子支撑不同的维度，这意味着所谓的物质是不同频率的相互作用，因此也是不同维度的相互作用。这归根结底意味着，一个特定的固体或物体不仅仅是我们看到的它所在宇宙或维度的一部分，它同时也是其他许多宇宙或维度的一部分。
 
 I can see that you are struggling with this a bit,so I will explain it in terms that you, as an engineer,will understand.Consider an object in a Computer Aided Engineering (CAE)environment;it is a whole object that is built up of many layers.Each layer represents a certain level of conformity,convention,or function.All these layers not only create the whole object if allowed to be together,but they can be separated out from the whole to create a separate object,an object that exists in its own right but only on one level.Now if you consider the possibility of having parts of that object on that one level also containing parts that are on different levels as well,parts that on their own are meaningless and are without individual function,then you start to see the interconnectedness of the greater object and,therefore,the ability to use that same object on different levels at the same time.This is how the dimensions work.The different levels are the frequencies that separate out into the dimensions.Now,if you consider that the higher the frequency,the smaller the object can be,then you can now appreciate that objects and even whole universes can be much,much smaller than you can ever imagine. This is not to say that it is a rule that the higher the frequency,the smaller the underlying physicality of a universe because a universe of the same size as your current one can also be extremely high.There is no boundary or rule to this;it is entirely dependent on the Source Entity for a particular environment on how it is constructed.I merely comment on the environment I constructed. 
 
+我看到这对你的理解稍微有点费劲，所以我将用你作为一个工程师能够理解的术语来解释它。设想一个处于计算机辅助工程环境中的物体，它是一个由多层建构构成的整体，每一层代表一定程度的一致性、协议或功能。所有这些层级不仅能聚在一起创造出整个物体，他们还能从整体分离创造出可以单独存在并且只存在于一个层级上的个别物体。现在，如果你设想一下这个可能性，那个物体的一些部分在某一层级，同时这些部分包含该物体在不同层级的其他部分。这些其他部分本身没什么意义，也没有单独的功能，那么你就开始看到更大整体的相互关联性，于是开始了解这个更大整体，同时在不同层级使用同一物体的能力。维度就是这样运作的，不同的层级是在维度中分隔开来的频率。现在，如果你想象一下频率越高，物体就越小，那么你就可以体会到物体甚至整个宇宙都可以远远比你所能想到的要小的多得多。这并不是说频率越高，宇宙的体量必然越小，没有这样的规则，因为与你们当前宇宙大小相同的宇宙也可能是频率非常高的。那此没有任何界限或规则，这完全取决于源实体是如何构建一个特定环境的，我讲的只是我所构建的环境。
+
 ME:If I read between the lines,what you are saying is that the planets that we know could not only be energy beings in their own right but could also be the smaller part of a larger object or be the larger whole of trillions upon trillions of smaller objects.Not only that,it could exist on many different levels or frequencies all at the same time. 
+
+我：言外之意，你是说我们所知道的行星不仅自身是能量实体，还可能是更大物体的较小组成部分，或者也可能是数以亿万计的较小物体所组成的更大整体。不仅如此，它还可以同时存在于许多不同层级或频率上。
 
 SE:That is about the size of it.
 
+源实体：那就是它的基本尺度的含义。
+
 ME:So how small can an entity go before it can't be an integral part of a collection of interlaced, multi-dimensional,multi-frequencied physical objects? 
+
+我：那么作为一个交织的、多维的、多频率的物质集合体的不可分割的组成部分，一个实体到底能有多小？
 
 SE:There is no limit.All size issues are based upon the evolutionary level of that individual entity simply because it is a self-defeating thought process.The entity is truly in its rights to not advertise this,as it would create self-doubt.Let Me stress here that self- doubt is only manifested and,therefore,prevalent in the physical.It has no place in the spiritual or even the higher frequencies of the physical since they are close to the spiritual frequencies in nature,and at this level entities know who and what they truly are. 
 
+源实体：小到无限。所有尺寸问题都来源于某一个个体的进化水平，因为这是一种自找麻烦的思维过程，他真的最好不要陷入这样的思辨，因为这会创造自我怀疑。我想再次强调，自我怀疑只会出现并遍布于物质世界，对于灵体则不存在这个观念，甚至在物质的较高频率也没有这个问题。因为他们更接近于本质的灵性频率，而这种层级的实体知道他们真正是谁，是什么。
+
 ME:So are there different spiritual entities for the different sizes of planets or physical entities? What I mean to say,are there limits on the type of spiritual entity to the point that they can only incarnate into a certain size of physicality? 
+
+我：那么对于不同大小的行星或物质体是否有不同的灵体？我的意思是说，有没有限制说什么类型的灵体只能化身成什么尺寸的物质体？
 
 SE:There is no such limitation,for it is the right of the entity to manipulate its own environment to experience what it want to experience.Suffice to say,there is little difference between the sizes and the evolutionary opportunities that they present from the planetary perspective.There are some significant differences from the biological entities'points of view,for they are able to access much finer energies whilst incarnate in these much smaller dimensional/universal environments. Planetary experience is all about working with the larger points of function within a specific universe.It is not about working on the self although the self does gain from such an experience.Those in the planetary incarnation are working on maintaining the integrity of the very fabric of the universe.They are working specifically for the whole in a wholly selfless manner.This level of service is also seen by entities incarnating in the flesh who think not of themselves but only of the welfare of other incarnates around them.In doing so,they afford themselves access to the greater God (good);they lose all self-doubt in the process and,as a result,accelerate their own progression.This is how the entities who incarnate as planets progress;they only do it for the greater good and not knowingly or meaningfully for their own progression although they,nevertheless,do progress,which is a rightful function of the work they do for,in your particular instance,humanity. 
 
+源实体：没有这样的限制，因为实体有权操纵自己的环境来体验他想体验的东西。一言以蔽之，从行星角度讲，尺寸大小对进化机会的影响几乎没有什么区别。但是从生物体的观点来看，的确有一些显著的差异。因为当他们转世于那些小得多的维度/宇宙环境时，能够接触到精细得多的能量。行星体验则是关于与特定宇宙中较大功能点的合作，他并非着眼于自我体验，虽然他们自己也可以从这样的经历中获益。他们化身为行星的灵体，致力于维持宇宙特有结构的完整性，他们完全无私的专门为整体而工作。这些服务层次也可见于转世于肉体的实体，他们不想着自己，而是只考虑他们周围其他实体的福祉。在这样做的时候，他们为自己开启了通向更伟大的神的门。在这个过程中，他们不再有任何自我怀疑，因此加速了自身进步。这就是化身为行星的实体的进步方式，他们只是为了更广大的利益而行事，而不是刻意或者有目的地为了自己发展。不过尽管如此，他们的确在进步，这是他们所做的事情带来的一个必然结果。按你们的情况而言，就是为人类服务。
+
 #### The Functions and Entities of Nebulae 
 
+**星云的功能与实体**
+
 ME:You have told me that planets are incarnate entities and so are suns,but what about other universal phenomena,such as nebulae.Are they incarnate in some way? 
+
+我：你曾经告诉我，行星是一种化身实体，恒星也是，那么其他宇宙现象。 比如星云是怎么样的呢？它们也是某种方式的化身吗？不星云是杂散，物质，是还没有被利用的聚集能量。 这种形式的能量也可以用来创造行星系统和其他维持宇宙的物质或非物质体。 当然，星云的确也是许多想体验相关能量的实体的奇迹。 之所包些实体，将自己的某些部分用来帮助维持宇宙，包括用于收集这些杂散物质，并将其一致方便的位置。 以工匠来使用，于是就创造出你们所看到的星云。虽然这种物质没有形态或趋向，但是通过由高度进化的个体赋予其智慧和独立思维，它也可以被给予形态和趋向。 实际上如果这个高度进化的个体愿意的话，它可以用自己的一部分在能量上创造出另外一个自自己这样创造出来的实体拥有物质和能量，但是没有形态，它有自由意志吗？ 就像我们一样，在他那个存在的实点还没有，因为它仍然是新生的需要一个方向，他最终将能够用自己的物质独立创造，还会在获得更多经验以后，拥有自己的形态，他的主要目标之一，就是赋予自己更多物质，实别是当他有机会成为一个星球或其他密度较大的物体是在此过程中，这个新形成的实体通过清理更多的杂散物质，把它们吸引到自己身上。 然后赋予它形态和范围，以及他为自己创造的智慧，从而对宇宙起到至关重要的作用。 这点非常重要。因为宇宙中有许多进化机会，而宇宙中能够体验进化的部分越多，起源能体验的就越多。 实质上，这种类型的实体有两个功能作为保洁，它清理没有气象或目目标的物质，同时使这些物质成为被赋予了智能的较小粒子和能量集合的组成部分。 从而有机会去体验自身作为宇宙一部分的精力。这些实体能进化到什么程度，可以说没有限制进化，永无止境。 一个实体可以随着时间的推移，从进化阶梯的最底端上升到它能力的最顶端。 我看见你皱眉头了，那么我就进一步解释一下吧。在我们以前的讨论中，我描述了我是怎样通过自我分裂和分割，创造出一系列宇宙以及你们这些个体的那些在我创造时处于我注意力边缘的实体，没有获得处于我注意力中心的那些实体被赋予的相同特质。 因此，他们作为个体的能力受到了他们所获得的质量，或者说注意力的限制。 事实上，他们可以实现自身质量所限定的范围内的任何目标。 别误解我的意思。他们并不次于那些在创造时期受到我全面关注的实体。 在神的眼里，一切都是平等的。而且我和起源都一样的爱，我们的所有造物。 当我创造的时候，就是起源在创造。当你创造的时候，起源和我也都在创造，因为创造是一体的。
 
 SE:No,nebulae are stray matter,coalescent energy that has not been put to use yet.This type of energy can and is used to create planetary systems and other physical and nonphysical objects used for maintenance of the universe.Nebulae do,of course, house many entities who wish to experience the associated energies.
 
@@ -6122,7 +6269,11 @@ SE:The sky is the limit,so to speak.Evolution has no limitations,and an entity c
 
 #### Human Incarnation of Animals and Planets 
 
+**化身为人类的动物和行星**
+
 ME:In a previous dialogue,we discussed the possibility of animal-based entities gaining so much evolution that they could,if they desired and in rare circumstances,cross over to the human levels.Is this possible for these entities of differing qualities to also progress to human levels? 
+
+我：在之前的对话中，我们讨论了这样一种可能性，那些努力争取更多进化的动物类实体。 如果他们有强烈意愿，在极少数情况下可以跨越到人类层级，即么？ 上述具有不同特质的实体，是否也有可能晋级为人类呢？不能正如你所说，只有在非常罕见的情况下，一个动物类实体才能够进步到这个更高的层级。 这是通过该实体对人类的可观奉献和两者间持续了相当长时间的相互关爱才能达到的。 我们是在说几十万年的两三个实体之间扯不断的那种联系，即使动物可以转世和脱避于另一个人家同另一个人一起工作和经历要达到这种进化跳级的水平，其与前者的联系是不能被打破的。 关于行星实体。由于不存在能量类型上的相似性，也没有这种演化机制，他们也就无法从行星实体跳跃到人类实体。 当然，他们受益于与不同层级的实体之间的互动，并以自己独特的方式进化。 只是因为他们在这么多不同的方面，完全不同于人类物种，使得两者间不可能发生进化转换。 说实话，为如此，不同层级的实体提供这种机遇。因为我不在我的计划之中，因为我看到创造宇宙的秩序之美。 这种层面整体经验的全时机遇，只能通过差异，在不同层面上同时实现这种差异就来自于最初的创造。 从这个意义上说，宇宙是完美的，而且其中每一个实体都是完美的，而并不想修改这个完美的宇宙。 因为对于让它旅行他被创造的角色来说，任何修改都会使它变得不够完美。 我创造一个宇宙来实现一个目标，并把创造性的想法发送给起源和我用来创造它，而法是纯粹的回应是纯粹的，创造是纯粹的。 因此，所创造出来的也是纯粹的，我不会更改那些由纯粹的心智和思想所创造出来的东西，
 
 SE:No.As you said,it is only in very rare circumstances that an animal-based entity is able to progress to this higher level,and this is achieved by the considerable dedication of that entity to the human entity and the constant reciprocal love of the two over a significant period.We are talking hundreds of millennia here with the connection between the two or three being unbroken.Even though the animal may incarnate and live in the protection of another's household,working with another human entity,the link with the former must not be broken to achieve this level of evolutionary jump. 
 
@@ -6130,9 +6281,15 @@ In the case of planetary entities,there is not the closeness of the energy type 
 
 ### Chapter 14 - Other Major Civilizations on Earth 
 
+**第14章：地球上的其他主要文明**
+
 #### Defining a Major Civilization 
 
+**主要文明的定义**
+
 During my dialogues with the Source Entity,I broached the subject of other major civilizations on Earth other than human beings.I expected these to be dolphins,but I was taken in a completely different direction. 
+
+在我与原世纪的对话中，我提到了地球上除人类之外的其他主要文明的话题。 我原以为这些会是海豚，但我却被带到了一个完全不同的方向。那么你确实是说有不止一个主要文明，主要文明的定义是什么呢？ 一个认识到起源和我的文明，还有别的吗？比如科技科技并不是主要文明的恰当标志。 我知道人类会从这个方面来考虑，但这其实毫不相关科技导致了许多文明的衰落。 他们原本可以成为伟大的文明。那么伟大文明的标志是什么？一个与宇宙协调一致的文明，这对大多数人来说可能有点奇怪，但这却是一个伟大文明的真正标是这些文明中的化身，既在自然的约束下行动，又有意识的在与我的合作中进化，这比主要文明意义更加重大。 因为他们的觉知水平更进一步，并处于与自己的持续沟通中，当然也包括与我的沟通，在你问我关于与他们自己的持续沟通。 这个问题之前让我先来问你一个问题，这是什么意思？我正要问你这个，这就是我插入这个问题的原因。 我会说与他们自己保持持续沟通，明显涉及到与高我和与他们文明里的其他个体的联系很好。 你看仅与自己沟通联系其实还不够。因为即使你意识到了有更大的实效，并且能够与我和起源沟通，你仍是孤立和隔离的。 在真正伟大的文明里，他们与其他化身以及他们自己都保持着连接。 实际上他们是一体的，但也是独立的。他们知道每个人为了集体利益，应该做什么？ 他们并不是为了仅仅为了自己而尽量做好，而这却是目前转世在地球上的大多数化身正在做的事情，他们一起合作用各自的精力互相帮助，互相促进进化。 这个主题下的一切都是为了整体的利益而行动，而不是为了个体，这就是一个伟大文明的标志。
 
 ME:So you ARE saying that there is more than one major civilization.What is the definition of a major civilization? 
 
@@ -6156,7 +6313,11 @@ SE:Good.You see it is not really good enough to just be in contact with yourself
 
 #### The Om,a Great Civilization as an Object of Focus with Earth 
 
+**OM：一个以地球为关注对象的伟大文明**
+
 ME:Have there been any really great civilizations on Earth? 
+
+我：地球上有过真正伟大的文明吗？ 有一个，但那个文明现在既不存在于这个维度，也不再完全把地球作为关注对象呢？ 你说的关注对象是什么意思加，那么他们现在在哪里？在一个不同的频率维度，在宇宙中自由的生活，你是他们的一份子，他们被称为啊他们已经超越了存在于地频中的需要。 正为了包括我在内的所有化身的利益，而共同维护这个特定的宇宙，我是他们的一份子。 如果我真的是他们的一份子，为什么我会转世？在这个低频里了，我被开除了吗？ 远非如此，你和其他一些个体选择花费多次转世来帮助那些刚刚开始转世的人，借此加速他们自身的进化，他们都在共同努力，他们都试图把地球成为一个伟大的文明，但这需要时间依我看，需要相当长的时间。 现在的世界是完全混乱和不和谐的。从你的角度来看，是比实际的更糟糕，但不要忘记，我可以看到一切我可以看到一切正在如何发展，包括你们为了帮助目标实现而做的所有贡献。 听起来不错。是的，那么来自地球的那个伟大文明发生了什么呢？ 他们并不是来自地球，他们来自我就跟你们是从我而来的一样。 是的，但他们经历了什么？
 
 SE:One.But that civilization is neither resident in this dimension nor is it still fully associated with Earth as an object of focus. 
 

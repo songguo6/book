@@ -396,7 +396,11 @@ By communing with God and our true selves whilst incarnate,as well as living in 
 
 It is easy to always smile when we remember our knowledge of the greater reality.Saying "Good morning"to others,always replying in a positive manner,opening the door for the person behind us,and letting the other person have the parking spot or pull out into the queue before us is a natural part of that remembrance.Why wouldn't we provide help to those who need it,assist those in need of an escort across the road,and make a habit of being kind and doing "good"things? 
 
+当我们记住自己对更大现实的认识时，就很容易始终保持微笑。对别人说“早上好”，总是以积极的态度回答，为后面的人开门，让别人占到停车位或在我们之前把车停到队列里，这些都是这种记忆的自然组成部分。我们为什么不向那些需要帮助的人提供帮助，帮助那些需要护送过马路的人，养成善良和做“好事”的习惯呢？
+
 These small things increase our frequencies,as well as the frequencies of those around us. In doing these small things,we decrease our opportunities of accruing the lower frequencies associated with karma,not only for us but everyone else.This in itself is a great kindness and an even greater service as it increases joy in the world.
+
+这些小事能提高我们的频率，也能提高周围人的频率。在做这些小事的过程中，我们减少了与业力相关的较低频率的累积机会，不仅对我们自己如此，对其他人也是如此。这本身就是一种伟大的善举，更是一种伟大的服务，因为它增加了世界的快乐。
 
 ### Addressing Our Responsibilities 
 
@@ -404,7 +408,11 @@ These small things increase our frequencies,as well as the frequencies of those 
 
 Just because we are seekers of the truth,know the greater reality,and commune with God on a daily basis,it doesn't mean that we are able ignore our roles and responsibilities whilst in the physical.We planned these responsibilities as part of our experiences,our learning, and our evolution.To ignore them means our incarnation is meaningless and will result in karma with the need for us to incarnate again to fulfill the experiences set out in our previous plan. 
 
+虽然我们是真理的追寻者，了解更伟大的现实，每天与神交流，但这并不意味着我们可以忽视我们在肉身中的角色和责任。我们计划将这些责任作为我们经历、学习和进化的一部分。忽视这些责任意味着我们的化身毫无意义，并将导致业力，使我们需要再次化身来完成之前计划中的经历。
+
 We are here to know the greater reality,to know God and to deliver our earthly duties with skill and perfection,thus avoiding karma in the process.
+
+我们在这里是为了认识更伟大的现实，认识上帝，并以娴熟的技巧完美地履行我们在尘世的职责，从而在此过程中避免业力。
 
 ### Allowing Others to Have Their Beliefs 
 
