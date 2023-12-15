@@ -6251,21 +6251,35 @@ SE:There is no such limitation,for it is the right of the entity to manipulate i
 
 ME:You have told me that planets are incarnate entities and so are suns,but what about other universal phenomena,such as nebulae.Are they incarnate in some way? 
 
-我：你曾经告诉我，行星是一种化身实体，恒星也是，那么其他宇宙现象。 比如星云是怎么样的呢？它们也是某种方式的化身吗？不星云是杂散，物质，是还没有被利用的聚集能量。 这种形式的能量也可以用来创造行星系统和其他维持宇宙的物质或非物质体。 当然，星云的确也是许多想体验相关能量的实体的奇迹。 之所包些实体，将自己的某些部分用来帮助维持宇宙，包括用于收集这些杂散物质，并将其一致方便的位置。 以工匠来使用，于是就创造出你们所看到的星云。虽然这种物质没有形态或趋向，但是通过由高度进化的个体赋予其智慧和独立思维，它也可以被给予形态和趋向。 实际上如果这个高度进化的个体愿意的话，它可以用自己的一部分在能量上创造出另外一个自自己这样创造出来的实体拥有物质和能量，但是没有形态，它有自由意志吗？ 就像我们一样，在他那个存在的实点还没有，因为它仍然是新生的需要一个方向，他最终将能够用自己的物质独立创造，还会在获得更多经验以后，拥有自己的形态，他的主要目标之一，就是赋予自己更多物质，实别是当他有机会成为一个星球或其他密度较大的物体是在此过程中，这个新形成的实体通过清理更多的杂散物质，把它们吸引到自己身上。 然后赋予它形态和范围，以及他为自己创造的智慧，从而对宇宙起到至关重要的作用。 这点非常重要。因为宇宙中有许多进化机会，而宇宙中能够体验进化的部分越多，起源能体验的就越多。 实质上，这种类型的实体有两个功能作为保洁，它清理没有气象或目目标的物质，同时使这些物质成为被赋予了智能的较小粒子和能量集合的组成部分。 从而有机会去体验自身作为宇宙一部分的精力。这些实体能进化到什么程度，可以说没有限制进化，永无止境。 一个实体可以随着时间的推移，从进化阶梯的最底端上升到它能力的最顶端。 我看见你皱眉头了，那么我就进一步解释一下吧。在我们以前的讨论中，我描述了我是怎样通过自我分裂和分割，创造出一系列宇宙以及你们这些个体的那些在我创造时处于我注意力边缘的实体，没有获得处于我注意力中心的那些实体被赋予的相同特质。 因此，他们作为个体的能力受到了他们所获得的质量，或者说注意力的限制。 事实上，他们可以实现自身质量所限定的范围内的任何目标。 别误解我的意思。他们并不次于那些在创造时期受到我全面关注的实体。 在神的眼里，一切都是平等的。而且我和起源都一样的爱，我们的所有造物。 当我创造的时候，就是起源在创造。当你创造的时候，起源和我也都在创造，因为创造是一体的。
+我：你曾经告诉我，行星是一种化身实体，恒星也是，那么其他宇宙现象，比如星云是怎么样的呢？它们也是某种方式的化身吗？
 
 SE:No,nebulae are stray matter,coalescent energy that has not been put to use yet.This type of energy can and is used to create planetary systems and other physical and nonphysical objects used for maintenance of the universe.Nebulae do,of course, house many entities who wish to experience the associated energies.
 
+源实体：不，星云是杂散物质，是还没有被利用的聚集能量。这种形式的能量也可以用来创造行星系统和其他维持宇宙的物质或非物质体。当然，星云的确也是许多想体验相关能量的实体的栖居之所。
+
 There are entities that have dedicated some part of their existence in helping maintain the universe,and part of that is the "rounding up"of this stray matter and moving it to a convenient location for future use,thus creating what you see as nebulae. 
+
+有些实体将自己的某些部分用来帮助维持宇宙，包括用于收集这些杂散物质，并将其移至方便的位置以供将来使用，于是就创造出你们所看到的星云。
 
 Although this matter has no form or direction,it can be given form and direction by a highly evolved individual giving it intelligence and independent thought.In essence, if that individual wishes,it can give part of itself to energetically create another.This creates an entity that has matter and energy but no form. 
 
+虽然这种物质没有形态或趋向，但是通过由高度进化的个体赋予其智慧和独立思维，它也可以被给予形态和趋向。实际上，如果这个高度进化的个体愿意的话，它可以用自己的一部分在能量上创造出另外一个自己，这样创造出来的实体拥有物质和能量，但是没有形态。
+
 ME:Does it have free will like we do? 
+
+我：它有自由意志吗？就像我们一样？
 
 SE:Not at that point of its existence as it is still newly born and in need of direction.It will eventually be capable of individual creativity with its own matter and,therefore, form as it gains more experience.One of its primary goals is to give itself more substance,especially if it is given the opportunity to become a planet or other denser body.In doing so,this newly formed entity performs a vital function for the universe by cleaning up more stray matter,by attracting it to itself,in turn giving it form and direction and the intelligence that it is creating for itself.This is very important as there are many opportunities for evolution in the universe,and the more parts of the universe that can experience evolution,the more the Origin experiences.In essence,the function of this type of entity is to both perform a sort of janitorial role, sweeping up matter that has no direction or cause and at the same time giving it the opportunity to experience that which it is part of-the universe-by being part of a smaller collection of particles and energy that is given intelligence. 
 
+源实体：在他那个存在的实点还没有，因为它仍然是新生的，需要一个方向。他最终将能够用自己的物质独立创造，还会在获得更多经验以后拥有自己的形态。他的主要目标之一，就是赋予自己更多物质，特别是当他有机会成为一个星球或其他密度较大的物体时。在此过程中，这个新形成的实体通过清理更多的杂散物质，把它们吸引到自己身上，然后赋予它形态和范围，以及他为自己创造的智慧，从而对宇宙起到至关重要的作用。这点非常重要，因为宇宙中有许多进化机会，而宇宙中能够体验进化的部分越多，起源能体验的就越多。实质上，这种类型的实体有两个功能：作为保洁员清理没有趋向或目标的物质，同时使这些物质成为被赋予了智能的较小粒子和能量集合的组成部分，从而有机会去体验自身作为宇宙一部分的经历。
+
 ME:How far can these entities evolve? 
 
+我：这些实体能进化到什么程度？
+
 SE:The sky is the limit,so to speak.Evolution has no limitations,and an entity can, over time,go from the very bottom of the evolutionary ladder to the very top of its capability.I see that you are frowning,so I will explain further.In our earlier discussions,I described my creation of this set of universes and of your selves as individual entities via my own separation and division.Some of the entities,those on the edge of my attention during the time of creation,were not endowed with the same qualities as those in the center of my attention;thus,their abilities as individual entities were limited to the level of qualities they received.In essence,they can achieve anything they want within the boundaries set by their qualities.Do not get Me wrong;they are not any lesser entities than those entities who were in my full attention during my period of creation.All are equal in the eyes of God and both Myself and the Origin love all that We have created.When I create,the Origin creates; when you create,both the Origin and I create,for all is together in creation. 
+
+源实体：可以说没有限制，进化永无止境。一个实体可以随着时间的推移，从进化阶梯的最底端上升到它能力的最顶端。我看见你皱眉头了，那么我就进一步解释一下吧。在我们以前的讨论中，我描述了我是怎样通过自我分裂和分割创造出一系列宇宙以及你们这些个体的。那些在我创造时处于我注意力边缘的实体，没有获得处于我注意力中心的那些实体被赋予的相同特质。因此，他们作为个体的能力受到了他们所获得的质量，或者说注意力的限制。事实上，他们可以实现自身质量所限定的范围内的任何目标。别误解我的意思。他们并不次于那些在创造时期受到我全面关注的实体。在神的眼里，一切都是平等的，而且我和起源都一样的爱我们的所有造物。当我创造的时候，就是起源在创造。当你创造的时候，起源和我也都在创造，因为创造是一体的。
 
 #### Human Incarnation of Animals and Planets 
 
@@ -6273,11 +6287,15 @@ SE:The sky is the limit,so to speak.Evolution has no limitations,and an entity c
 
 ME:In a previous dialogue,we discussed the possibility of animal-based entities gaining so much evolution that they could,if they desired and in rare circumstances,cross over to the human levels.Is this possible for these entities of differing qualities to also progress to human levels? 
 
-我：在之前的对话中，我们讨论了这样一种可能性，那些努力争取更多进化的动物类实体。 如果他们有强烈意愿，在极少数情况下可以跨越到人类层级，即么？ 上述具有不同特质的实体，是否也有可能晋级为人类呢？不能正如你所说，只有在非常罕见的情况下，一个动物类实体才能够进步到这个更高的层级。 这是通过该实体对人类的可观奉献和两者间持续了相当长时间的相互关爱才能达到的。 我们是在说几十万年的两三个实体之间扯不断的那种联系，即使动物可以转世和脱避于另一个人家同另一个人一起工作和经历要达到这种进化跳级的水平，其与前者的联系是不能被打破的。 关于行星实体。由于不存在能量类型上的相似性，也没有这种演化机制，他们也就无法从行星实体跳跃到人类实体。 当然，他们受益于与不同层级的实体之间的互动，并以自己独特的方式进化。 只是因为他们在这么多不同的方面，完全不同于人类物种，使得两者间不可能发生进化转换。 说实话，为如此，不同层级的实体提供这种机遇。因为我不在我的计划之中，因为我看到创造宇宙的秩序之美。 这种层面整体经验的全时机遇，只能通过差异，在不同层面上同时实现这种差异就来自于最初的创造。 从这个意义上说，宇宙是完美的，而且其中每一个实体都是完美的，而并不想修改这个完美的宇宙。 因为对于让它旅行他被创造的角色来说，任何修改都会使它变得不够完美。 我创造一个宇宙来实现一个目标，并把创造性的想法发送给起源和我用来创造它，而法是纯粹的回应是纯粹的，创造是纯粹的。 因此，所创造出来的也是纯粹的，我不会更改那些由纯粹的心智和思想所创造出来的东西，
+我：在之前的对话中，我们讨论了这样一种可能性，那些努力争取更多进化的动物类实体，如果他们有强烈意愿，在极少数情况下可以跨越到人类层级。那么上述具有不同特质的实体是否也有可能晋级为人类呢？
 
 SE:No.As you said,it is only in very rare circumstances that an animal-based entity is able to progress to this higher level,and this is achieved by the considerable dedication of that entity to the human entity and the constant reciprocal love of the two over a significant period.We are talking hundreds of millennia here with the connection between the two or three being unbroken.Even though the animal may incarnate and live in the protection of another's household,working with another human entity,the link with the former must not be broken to achieve this level of evolutionary jump. 
 
+源实体：不能。正如你所说，只有在非常罕见的情况下，一个动物类实体才能够进步到这个更高的层级。这是通过该实体对人类的可观奉献和两者间持续了相当长时间的相互关爱才能达到的，我们是在说几十万年的两三个实体之间扯不断的那种联系。即使动物可以转世和生活于另一个人家，同另一个人一起工作和经历，要达到这种进化跳级的水平，其与前者的联系是不能被打破的。
+
 In the case of planetary entities,there is not the closeness of the energy type or the evolutionary function to allow the jump from planetary entity to human entity.Of course,they gain from the interaction they have with different levels of entities,and they evolve in their own way as a result.It's just that they are such a completely different species in so many different ways than the human that it makes an evolutionary crossover impossible.To be honest,it is also not in my plans to have this opportunity available between such differing levels of entities,for I have seen the beauty in the order that has resulted in the creation of this universe.The total opportunity for universe- wide holistic experience can only be achieved at different levels simultaneously with the differentiation that has resulted from this creation.In this sense,the universe is perfect and so is each and every entity that works within it.I have no desire to modify this perfect universe,for to do so would make it less perfect to achieve the role that it was created for.I created a universe to achieve a goal and sent the creative thought out to the Origin and Me to create it.The thought was pure,the response was pure,and the creation was pure;therefore,the created are pure.I will not change that which is created from purity of mind and thought.
+
+关于行星实体，由于不存在能量类型上的相似性，也没有这种演化机制，他们也就无法从行星实体跳跃到人类实体。当然，他们受益于与不同层级的实体之间的互动，并以自己独特的方式进化。只是因为他们在这么多不同的方面完全不同于人类物种，使得两者间不可能发生进化转换。说实话，为如此不同层级的实体提供这种机会，本来也不在我的计划之中，因为我看到创造宇宙的秩序之美。宇宙层面整体经验的全部机遇，只能通过差异在不同层面上同时实现，这种差异就来自于最初的创造。从这个意义上说，宇宙是完美的，而且其中每一个实体都是完美的。我并不想修改这个完美的宇宙，因为对于让它履行它被创造的角色来说，任何修改都会使它变得不够完美。我创造一个宇宙来实现一个目标，并把创造性的想法发送给起源和我用来创造它，想法是纯粹的，回应是纯粹的，创造是纯粹的，因此所创造出来的也是纯粹的。我不会更改那些由纯粹的心智和思想所创造出来的东西。
 
 ### Chapter 14 - Other Major Civilizations on Earth 
 
@@ -6289,7 +6307,7 @@ In the case of planetary entities,there is not the closeness of the energy type 
 
 During my dialogues with the Source Entity,I broached the subject of other major civilizations on Earth other than human beings.I expected these to be dolphins,but I was taken in a completely different direction. 
 
-在我与原世纪的对话中，我提到了地球上除人类之外的其他主要文明的话题。 我原以为这些会是海豚，但我却被带到了一个完全不同的方向。那么你确实是说有不止一个主要文明，主要文明的定义是什么呢？ 一个认识到起源和我的文明，还有别的吗？比如科技科技并不是主要文明的恰当标志。 我知道人类会从这个方面来考虑，但这其实毫不相关科技导致了许多文明的衰落。 他们原本可以成为伟大的文明。那么伟大文明的标志是什么？一个与宇宙协调一致的文明，这对大多数人来说可能有点奇怪，但这却是一个伟大文明的真正标是这些文明中的化身，既在自然的约束下行动，又有意识的在与我的合作中进化，这比主要文明意义更加重大。 因为他们的觉知水平更进一步，并处于与自己的持续沟通中，当然也包括与我的沟通，在你问我关于与他们自己的持续沟通。 这个问题之前让我先来问你一个问题，这是什么意思？我正要问你这个，这就是我插入这个问题的原因。 我会说与他们自己保持持续沟通，明显涉及到与高我和与他们文明里的其他个体的联系很好。 你看仅与自己沟通联系其实还不够。因为即使你意识到了有更大的实效，并且能够与我和起源沟通，你仍是孤立和隔离的。 在真正伟大的文明里，他们与其他化身以及他们自己都保持着连接。 实际上他们是一体的，但也是独立的。他们知道每个人为了集体利益，应该做什么？ 他们并不是为了仅仅为了自己而尽量做好，而这却是目前转世在地球上的大多数化身正在做的事情，他们一起合作用各自的精力互相帮助，互相促进进化。 这个主题下的一切都是为了整体的利益而行动，而不是为了个体，这就是一个伟大文明的标志。
+在我与源实体的对话中，我提到了地球上除人类之外的其他主要文明的话题。 我原以为这些会是海豚，但我却被带到了一个完全不同的方向。那么你确实是说有不止一个主要文明，主要文明的定义是什么呢？ 一个认识到起源和我的文明，还有别的吗？比如科技科技并不是主要文明的恰当标志。 我知道人类会从这个方面来考虑，但这其实毫不相关科技导致了许多文明的衰落。 他们原本可以成为伟大的文明。那么伟大文明的标志是什么？一个与宇宙协调一致的文明，这对大多数人来说可能有点奇怪，但这却是一个伟大文明的真正标是这些文明中的化身，既在自然的约束下行动，又有意识的在与我的合作中进化，这比主要文明意义更加重大。 因为他们的觉知水平更进一步，并处于与自己的持续沟通中，当然也包括与我的沟通，在你问我关于与他们自己的持续沟通。 这个问题之前让我先来问你一个问题，这是什么意思？我正要问你这个，这就是我插入这个问题的原因。 我会说与他们自己保持持续沟通，明显涉及到与高我和与他们文明里的其他个体的联系很好。 你看仅与自己沟通联系其实还不够。因为即使你意识到了有更大的实效，并且能够与我和起源沟通，你仍是孤立和隔离的。 在真正伟大的文明里，他们与其他化身以及他们自己都保持着连接。 实际上他们是一体的，但也是独立的。他们知道每个人为了集体利益，应该做什么？ 他们并不是为了仅仅为了自己而尽量做好，而这却是目前转世在地球上的大多数化身正在做的事情，他们一起合作用各自的精力互相帮助，互相促进进化。 这个主题下的一切都是为了整体的利益而行动，而不是为了个体，这就是一个伟大文明的标志。
 
 ME:So you ARE saying that there is more than one major civilization.What is the definition of a major civilization? 
 
@@ -6349,13 +6367,21 @@ ME:But what did they do?
 
 #### A Civilization That Created Heaven on Earth 
 
+**创造了人间天堂的文明**
+
 SE:They created heaven on Earth.Everyone worked together in harmony without conflict. They saw areas of improvement from a natural point of view and worked together with nature to make those changes.Nature is that part of Me that is assigned to maintaining the physical universe.Everything they did was aimed at improving their collective situation,that situation being one of physicality.They understood that the best evolutionary way forward was to work together with the universal rules on evolution in the physical.We have already spoken about-the rules for not incurring karma or evolutionary loss of frequency that results in one's being stuck in the physical planes.This problem,I have to say,was very rare indeed with this civilization. They were both very aware and lucky enough to have started to incarnate when the frequencies of Earth and the surrounding universe were very high.Nevertheless,the risks were just as high in terms of being caught in the traps of the physical world. 
+
+他们在地球上创造了天堂，人人和睦相处没有冲突。 他们从自然的角度看到了一些可以改进的地方，并与大自然一起合作进行改变。 自然是我用来维持物质世界的一部分，他们所做的一切都是为了改善他们集体的状况及物质上的状况。 他们明白最好的进化方式，是尊重物质界进化的宇宙法则。 我们已经说过了，那种法则不会招致引力或在进化上损失频率，而导致一个人被困在物质层面。 我不得不说这个问题，在这个文明里却是很少出现，他们很清楚，也很幸运。 在地球和周围，宇宙的频率非常高的时候就开始转世。尽管如此，陷入物质世界陷阱的风险同样很高。 你这里讲的不是很清楚，感觉这个文明对于个人起源以及你自己的进化和体验都至关重要。 然而你没有告诉我，他们在科技上达到了什么程度，他们有能力去其他星球吗？ 他们发明了远程传送吗？他们解决了医疗问题吗？他们在那里做了什么？
 
 ME:You're not being very succinct here.This civilization seems to be of paramount importance to the evolution and experience of the individual and the Origin,as well as Yourself.Yet You are not telling me what they achieved technologically.Did they achieve the ability to move to the stars?Did they invent teleportation?Did they solve medical issues?What where they, what...? 
 
 #### Technology as a Red Herring 
 
+**科技如同红鲱鱼**
+
 SE:Stop!You are missing the point.The way to the stars from your perspective is not with machines but with the self.This civilization achieved all that they needed to achieve to move on to the next level of evolution without the need for technology.The need for technology is a red herring,a distraction,a lack of understanding;it is "miss-direction."You see,it is not technology that helps you evolve.It is one's understanding self and the workings of the universe.This is only possible when the individual stops thinking of himself/herself and starts to think of the bigger picture.How can he/she help others?Which opportunities have been presented but not embraced are opportunities missed?These are all things that the enlightened individual is aware of and takes advantage of.This is the trait of the individual incarnates that collectively make up a great civilization. 
+
+你没有抓住重点在你的视角中得到其他新球器的这件事，其实无需凭借机器，而是通过自己这个文明实现了进入下一发展阶段所需的一切，而无需科技对科技的需求，就像鸿飞鱼是分散注意力的东西，是缺乏认知的表现。 这是个歧途，你要知道帮助你进化的不是科技，而是对自我和宇宙运作的理解。 只有当一个人停止思考自己而开始思考更大的图径时，这种理解才会成为可能。 他如何能够帮助别人有哪些呈现出来，但没有把握住而错过的机会。 这些都是觉悟了的人，能够意识到并加以利用的这就是聚合成一个伟大文明的个别化身的特征。 我想提出一个问题，这个对话被称为神的历史。我们现在更多的是在谈论人类的历史，我们谈论这些完全合适。 从你的角度来看，神是创造的始作俑者，这是对的。同样你们也都是你们称之为神或者起源的实体的一部分。 就像我一样，但你们所有人也把我称为神，因为我是你所在宇宙的创造者。 我的历史也包括我在探索自己的过程中所创造的，许多住在各个维度和频率中的种族，我也在和这些种族交流。 就像我正在和你们很多人交谈一样，其中的一些种族能完全认知到有更大的实像。 而另一些种族的认知则与你们类似。在这种情况下，谈论与人类相关的神的历史是比较合适的。 因为这符合你们的理解框架，你们无法从另一个种族的角度理解神的历史。 因为文化上的差异会太大。这个理解的一部分就是要学习被你们遗忘了的你们自己种族的历史，你们与我及种族的互动。 因此试着参考更高的智去去理解。在现在这个特定的进化阶段，人类还不能完全接受自身是更大事物的一部分。 因为人类看不到自己呈现在眼前的事实。这也是我讲这个高阶历史课的演变。 因为他讲述的是与源头的关系，以及他在漫长的经历中的演变。 好的，我想我现在明白了，我们已经谈论过，我们称之为人体的这个载具的发展，以及他现在和以前是如何被用于个体的进化体验的。 我还记得刚才谈到了在地球上出现过的不同文明，其中有些伟大的文明，你能举个例子，具体描述一下吗？ 译者注，红飞鱼，比喻使人分心的事物源自用。红色熏干飞鱼的气味。 训练狗狩猎看猎狗是否能够抵抗飞鱼的味道而找到猎物。
 
 ME:I would like to call a point of order.This dialogue is called the History of God,and we are talking more about the history of humanity at the moment. 
 
@@ -6367,7 +6393,11 @@ In the past we have talked about the development of the vehicle we call the huma
 
 #### Mechanization and Fall of a Great Civilization 
 
+**一个伟大文明的机械化与衰落**
+
 SE:The best example of a civilization that covers all of those criteria is the race that lived in the environment you would classify as Eden.As you are aware from your own legends, the only thing that is known worldwide about this is that there were two people involved,one called Adam and the other called Eve.These were supposed to be the male and female of the human species with the female eating fruit from the forbidden tree,which resulted in the downfall of the Garden of Eden.Prior to this story that has been told in many forms over the millennia,this particular civilization had indeed achieved greatness.
+
+有一个种族是符合那些条件的文明的最好例证。 他们曾生活的环境，类似你们心目中的伊甸园。正如你们的传说所讲的，全世界对伊甸园都了解的一点，就是那里有两个人，一个叫亚当，另一个叫夏娃，他们本是人类种族的男性和女性，女性吃了禁树上的水果，导致了伊甸园的堕落。 在这个几千年来，以多种形式讲述过的故事发生之前，这个文明确实创造了伟大的成就。 伊甸园这个名字并不是这个文明聚集地的正确叫法，但为了保证连贯性，我还是用它吧，因为他更容易理解。 从本质上讲，称这个文明为伟大文明有以下原因。第一，他与地球的自然运作和谐一致。 第二，他们彼此和睦相处。第三，他们理解相互之间在进化角度上的需求，而且每个人都都把他人放在自己之前。 第四，他们与地球及周围的维度和频率上的其他实体保持着联系沟通。 第五，他们能够利用环绕在他们周围的能量，用他为整体利益服务，包括建立住宿和提供食物。 第六，他们能够与当时居住在这个星球上的动物密切交流。 那么他们为什么没能延续下去？他们为什么现在不在这里？他们决定从物质角度对创造力进行试验。 他们发现可以用能量创造出能为他们做事的东西，使自己从埋头于手边事物的状态中解放出来。 他们制造了机器吗？他们发明了一些你们可以称之为科技的东西。 是的，你可以叫他们机器，但他们不是你认知中的那种机器，他们由渗透在维度或频率之间的能量构成，从周围吸取能量，以自动完成自己的使命工作。 第么，他们做了什么？他们提出了的能量，这些能量用于生产，如根类蔬菜和浆果等食物中人类所需的营养元素，他们还进化了与水有关的能量，水是一个在建筑和食物里被大量使用的基本元素。 即使在当时由于火山活动，水也很容易被污染，所以他们需要对水进行定期进化。 而且因为人体主要成分试水，所以他们用纯净水来治疗那些被破坏或磨损的人体部位，他过能量水可以被转变成任何东西。 但所有这些机器带来的一个大问题是那些被机器取代的流程已被人类遗忘。 因为人们自己不需要再做了。这就像你们使用过的对数表，现在计算器就能为你们计算了。 所以现在整整一代的学生都不知道对数表是什么，更不要说使用它了。 这也正是这个文明所经历的，他们创造出越来越多的机器来做越来越多的事，因为来越没有自己去亲力亲为的必要。 因此，他们忘记了操纵和控制能量的基本知识。当机器最终开始出现故障时，最初如何制造他们的知识已经不复存在了，人们自己没有能力操纵能量去做，需要这些机器做的事，那些技能早已没人传授，因为他们不再被重视，因为机器们能够永远工作下去，但是没有机器可以永远工作下去。 即使是基于能量的机器，因为在他们不断使用能量，按照程序制造东西的过程中，他们的功能性也终会衰竭。 那么他们还制造了什么其他的机器吗？首先我需要提醒你，这些机器是基于能量的显化物，而不是你目前使用的物质设备，例如飞机汽车或电脑，他们是由该文明中最优秀的头脑开发出来的，可以使人们从那些不得不集中精力完成那些辅助生存的苦差事力解放出来，像对大多数机器一样，此后不断的有其他熟悉这些机器性能的人对他们进行改进。 不过正如我刚才所说的，一旦机器完善到不再需要任何改进的地步，他们就不再被理会而被遗忘。 一旦机器们被遗忘了，等创造和维护他们的人离开了地球，回到自己的能量状态，创造或维护他们的知识就丢失了。 这也是你们当前这个文明，最近经历到并有机可查的事情，有一些现存的设备完全被误解了。 金字塔就是这样一个例子，散布在世界各地的埃及艳后的针，也就是古埃及方间碑，也是他们仍然在运作着。 但是他们运作的成果并没有被利用起来。说到那些机器做了什么的问题，我可以给你一个他们所执行任务的小清弹。 第一，进化水稻。第二，给使用植物提供能量。第三，纠正能量的调节性是植物最大限度的增长。 第四，显化物质形态，以用作住房交通等。第五，传输能量供个人使用。 第六，为交通建筑的能量通道提供能源。第十，使用能量清洁人体内的能量通道。 第八，利用能量使人体重返青春。第九，给通信线路提供能量。 第十进化大气。第十一指导天气系统更新水源。 第十二，直到地球的能量系统，以清洁其辉光能量层，这些只是制造出来的主要机器，还有很多其他执行次要任务的机器。 第有这一切的结果是这个文明确实有机会过得很轻松。 第现真实的自我，并与高我沟通，他们这样做了相当长的一段时间。 但问题是，他们开始专注于他们所使用的载际的物质层面，包括身体和情感上的刺激，或者说感觉这意味着一段时间以后，他们失去了与自己的高。 我接触的需要。因为他们过于专注自己的物质层面。我们一直在讲使用静国时伊甸园堕落的故事。 这个故事的重点是什么？重点在于这些自动装置使日常生活中与高我的持续沟通，以及对能量的使用变得不再必要造成了人们与高我和宇宙连接的断裂，一以任何形式的机械化自动化都会导致错失。 因此，经过这个故事的寓意并不是果实，或者说机械自动化，科技本身要被禁止，而是如果不能明智的使用，最终将会导致衰败。 等一下，你刚刚给了我一个绝佳的用你的话，说是伟大文明的例证。 但现在你又告诉我，他没能成为伟大文明，并且衰落了。这在用词上是个很大的断裂，一个拥有所有上述特征的伟大文明，怎么会因为使用科技而导致自身的衰落呢？ 抱歉，让你困惑了我给你的这个文明的例子，它不仅是个伟大文明。 同时它也由于原始体错误的集体性思维，而脱离了伟大文明的行列。 我应该讲一讲，我们谈到的第一个种族，那个文明却是伟大，他们取得了巨大成就。 我不得不说，从你们的角度来看，那是一个非常高频的时期。 那个文明地球太阳系信息和宇宙是年轻的纯洁的，没有被某些文明的错误决策和由此导致的频率丢失而玷污。 不幸的是，人类文明成功的创造了最大的频率下降，因此也成功的受到来自周围维度和频率的其他文明的关注足迹。 讽刺的是，过去那个人类文明比今天这个要伟大与伊甸园种族相似，在某些小的方面，人类所做的事，与伊甸园种族完全相同，这些正发生在你们的眼皮底下，每个人都想要科技带来的比便利。 每个人都希望得到物美价廉的东西，这会导致两种代价。 第一，所需设备较低的货币成本，以及第二对地球造成的高昂代价，也就是消耗地球自身监测和清洁其能量系统所需的主要资源。 而这些资源是其他生物的生存所必须的，大部分资源被耗尽的速度之快，令人折舌。 而机械手段来解决所谓世俗事物的需求，导致你们失去了传统的记忆，以及与地球自然的和谐，失去了与地球精灵的沟通，他们和地球一起为了维护地球，而工作也失去了和自我的沟通，那是你的一部分，你其余的部分也是我的一部分，是原始体的一部分，并且最终是起源的一部分。 所以伟大可以导致衰败。是的，可以，但也可以带来更恢宏的伟大。 这就是在过去的几千年中，一些来到你们这个物质层面的实体体，试图向你们所有人解释的。 但不幸的是，这后来被用于自我标榜自我标榜也同样导致了衰落，这些实体都是谁。 你以前与我讨论过的那些穆罕默德耶稣和佛陀在对进化的贡献上，以及对宇宙和你的存在的理解上，你觉得还有哪些其他文明值得想一想
 
 The name Eden is not the correct name for the area that this civilization was concentrated within,but for the sake of continuity I shall use it as it is easier to relate to. In essence,this civilization can be called great for the following reasons: 
 
@@ -6433,7 +6463,11 @@ ME:What other civilizations do you think were significant enough to talk about i
 
 #### Atlantis 
 
+**亚特兰蒂斯**
+
 SE:There are many races that were understood to be great but again fell into decay.There are many more of these than there are races that were totally successful.All progressed to higher frequencies together;therefore,I would choose not to dwell on the point that they failed to progress.There is no such thing as failure,don't forget,only experience, but to look at what they achieved whilst they were on the up.I see in your mind that you would like to talk about the race of man that was centered in the city of Atlantis, but many people have written channeled works on this civilization.From the general point of view,you would not be adding anything new,but I will add a little. 
+
+源实体：有很多种族曾被认为是伟大文明，但最后也落入衰败。 这类种族比完全成功的种族要多得多，所有一切都会一起进展到更高的频率。 因此，我不打算过多的谈论，他们未能取得进展的问题，别忘了没有失败。 这回事只有经验要看他们在上升的过程中所取得的成就。 我知道在你头脑里，你想谈谈以亚特兰蒂斯为中心的那族人，但是很多人已通过传导作品记述了这个文明。 总的来说，你已经没什么新的东西可以添加了，但我可以补充一些许多传导作品已经指出，亚特兰蒂斯人也是科技专家，就像另一个受到科技影响而衰退的文明一样。 他们专注于使用晶体来投射和控制能量，以帮助他们制造物质生存所需的东西。 他们在生物工程方面也非常出色，擅长利用水晶能量技术重组人类基因创造出人类和动物的混血生物，其中有些混血生物的故事，今天仍然在神话中流传。 他们甚至将基因从一种动物交换到另一种创造出完全杂交的动物，每一种混血都是为了在文明中执行某些工作或功能而被创造的。 有些是为了战争，有些是为了制造业，而有些是为了性快感，使用人类与动物的混血，甚至是动物生物工程的最糟糕的情况，是，用来显示社会地位创造出最新奇的生物。 曾被这个文明认为是极大彰显了财富和社会地位。一些亚特兰蒂斯人，甚至把自己的大脑重新设计成了喜欢的动物的形式。 因为他们觉得这会使他们在社区高层里有更高的地位。同样几千年来传说中的那些会说话的动物，就是这个曾经伟大的文明在走向腐朽堕落的年代里曾发生的事情的残疾。 那么为什么我们今天在这里看不到这样的混血呢？他们肯定已经对自身进行了繁衍和延续。 对，但这不是一条，我想让人类一直走下去的道路。首先是因为缺乏形体上的稳定性。 其次，因为这会最终导致比你们现在地球上某些地区不同种族之间发生的更为严重的问题，那就是歧视。 此外我也希望清理物质形体的基因库，而且意识到这个文明衰落的时候，正是做这件事的理想时机，这也得到了那些仍在正在或刚刚回到真实存在的能量层面的所有人的赞同。 从本质上讲，亚特兰蒂斯人创造了一个形式多样的马戏团文明，你再也分辨不出原本的血统是什么样了？ 每个人都在某种程度上被改变了。更重要的是，这些混血人的繁殖能力，不如当时真正的人类形态稳定许多，变得不遇再重复一次。 为了让我的来自能量的孩子们能够体验提供给他们的所有频率而载具与灵体之间的比例非常失衡，因此，创造一种能够自我繁殖的载具是非常必要的。 于是我允许这个文明走向了自我毁灭。在最后一个灵体离开地球，回归更高频率后，我进化了地球，你是怎么进化更高地区的？ 我允许地球在这个文明中心的地标形成了一个薄弱处，并以炽热的熔岩覆盖了这个地区，然后我用海水将其冷，却让熔岩里和海洋中的矿物混合起来，通过蒸汽清洗净化了剩余的土地，剩余的土地，你是指亚特兰蒂斯人所在的沉到了海底的那块地区吗？ 他没有沉默，他被水覆盖了当水与熔岩接触时，水变成了气体，于是土地又露出来了，这创造了一个在相当长的时间内，硫磺含量都很高的生态系统。 因为流使任何生物都很难自然生长。所以从事地球健康工作的实体自然精灵们费了很多力气，才将硫从地球上清除剩余的矿物质恰好益于植物生命的存在，所以植物生命迅速的成长，以支持重新引入人类形态。 那么亚特兰蒂斯之后的文明是什么？就是现在的这个将一些在亚特兰蒂斯时代在地球上发展起来的科技传授给刚刚进化并被重新引入的人类，这对他们是有利的。 这些技能被传授给了一些能够自由来去随意回到他们的能量体状态的实体，他们能够记得他们顺利完成物质世界使命所需的一切。 因此他们能够为那些转世实体指引方向。也就是我和那些想要通过地球环境获得最大收益的更有经验的化身者们所希望的的方向。 你的意思是你有一个临界的人类议会或者委员会来监控那些转世的化身的命运。 是的，这就是阿卡西记录的目的。那么这个新引进的拥有科技的种族叫什么名字呢？ 埃及人
 
 Many channeled works have identified that the Atlanteans were technologists as well,as well as another civilization to be affected by technology-based decay.They concentrated on the use of crystals for projecting and controlling energy to help them manufacture what they needed to survive in the physical.They were also very good with bio- engineering and,using the crystal/energy technology,they were adept at re-designing the human genome to create hybrid human/animal entities.Some of these are the talk of legends even today.They even swapped genes from one animal to another to create fully hybrid animals.Each of these hybrids was created to perform certain jobs or functions within the civilization.Some were for war;others were for manufacturing,whilst some were for sexual pleasure.The worst case for the use of hybrid human animal or even animal/animal bio-engineering was to show social status.Creation of the most diverse creature was a great show of wealth and social standing.Some Atlanteans even had their own brains re-engineered into that of a preferred animal form if they felt that this would give them greater standing within the higher echelons of the community.Again,the stories of talking animals that have been passed down in legends through the millennia are the remnants of what was going on in the decay years that led up to the fall of this once great civilization. 
 
@@ -6463,9 +6497,15 @@ SE:Egyptian.
 
 ### Chapter 15 - The History of Humanity 
 
+**第15章：人类的历史**
+
 #### Cleansing Earth after Atlantis 
 
+**亚特兰蒂斯陨落后地球的进化**
+
 ME:So you and the committee changed the way that humans preferred to see themselves back to what it was originally. 
+
+我：所以你和议会把人类从他们想看到的面目，改回了他们本来的样子。 是的，正如我刚才所说，你们称为埃及人的种族是亚特兰蒂斯文化灭亡后，第一个被引入到地球上的文明。 你前面说过，你用制造火山喷发以及随后海水冲洗陆地的方法进化了地球。 这听起来很像诺亚建造方舟来应对的那场大洪水很好的观察力。 然而我的确也强调了，我并没有制造火山喷发。因为大部分亚特兰蒂斯人居住的岛上没有火山，不是在地壳上引发了类似于你们所说的地震的裂沟。 但是这场地震也使熔岩前从整个岛屿周围浮出水面，清除了地表上所有的具有足够活性，足以重新创造人类与动物混血物种的脱氧和糖核酸。 但你设法保留了所有人类和动物的纯种基因库。是的，包括植物生命是了进化目的，而协助启动纯净的人类种族所需要的，一切都被允许。 从进化过程中保留下来。这个过程包括以下内容制定一个地球维护计划，但持当地的生态系统动植物和自然精灵提供对过去事件教训的充分了解，以帮助进步那些幸存下来的人类形体被非常有经验的，没有失去任何正常灵性能力的实体所使用，这使得他们能够从文化科技和进化的角度来快速推动新人类的启动，并且对需要在地球的自然约束下工作有着与生俱来的深入了解。 那么方舟是什么样的呢？地球上的每个个人都以为它是一艘大船。正如我们的传说和圣经旧约中所说的那样，方舟仅仅是个保存基因样本库的安全地点。 在这种情况下，基因库需要完整的样本。因为亚特兰蒂斯人所使用的基因操作的技术和知识会被禁用，以留出位置给其他成长区域。 尽此，方舟的主要任务就是让动物们能够存活足够长的时间，而不发生基因突变，直到他们将要居住的土地准备好，让他们能够自然的生活。 尽管使用了能量的方法来创造这片土地。土地也需要一段时间才能稳定下来。 在物质层面，所有的事物都需要时间来稳定。为了让生物在这个层面上独立存在，有必要辅以时间，让他们以自然的方式以一种与渗透到这个频段的能量相匹配的方式来适应环境，这是生活在最低频率和维度的最重重要的事情，这些尸体需要在环境中与环境一同生活，而不是围绕着环境活动。
 
 SE:Yes.And as I just said,the race of man you called Egyptian was the first civilization to be placed on the Earth plane following the demise of the Atlantean culture. 
 
@@ -6489,7 +6529,11 @@ SE:The ark was merely a place of safety for the gene pool samples to be kept.In 
 
 #### The Egyptians'Contributions 
 
+**埃及人的贡献**
+
 ME:So what about the Egyptians,what did they contribute? 
+
+我：那么埃及人呢，他们贡献了什么？他们是世界上这个地区人类重新生成的跳板。 等一下，我刚刚得到一个图像，一种感觉，地中海的洪水，就是你曾经用来净化亚特兰蒂斯的大海。 是的，你的直觉很好，现在你知道了洪水的传说是从哪里来的？ 你也大概知道了亚特兰蒂斯人的位置被称为埃及的地区是最好的，仅次于亚特兰蒂斯人的土地特性。 从自然角度来看，这是第一个变得足够纯净而可以使用的地方。 一会和我在很大程度上参与了方舟中存放的生物的引进机遇。 埃及人被教导要遵从地球的能量，顺应让他们能重建人类生活的自然机遇。 在潜意识中，他们认识控制这些能量的实体。于是他们给这些实体起了名字，并根据他们亚特兰蒂斯时代记忆中的种族外形给他们一形体。 于是，重要的实体被赋予了形象，类似于他们记得的亚特兰蒂斯首领为显示自己重要性而制造的形象。 于是在动物头部的人就用来形象的描述这些实体所能控制的能量。 例如那被称为太阳神神这个词的意思是负责任者，其在第六维度层级上照管这个星球的能源，阿努比斯负责自然生物，如植物鱼类和哺乳动物。 他与一群你们称之为自然精灵的助手合作，其中一些也被赋予了他们自己曾经的名字和外形。 关于他们，你还能告诉我些什么，他们居住的土地繁茂又肥沃。 他们在这样的环境中与大自然共存繁荣了几千年，师从携带所有才能转世的实象。 也就是是从那些在地面上扮演过助手角色的进化了的实体，他们学到了许多动物，他与一些涉及到获取和使用亚特兰蒂斯人曾使用过的能量。 为了做到这个，他们被教会如何建造一些装置和设备，能够利用这些能量并存储起来，以供将来使用。 那些没有习惯于在物质层面接触这种能量的人，必须具备纯净的心灵和清澈的思想，才能获得这些技能。 由于需要高度的纯净，只有少数能专注无私奉献的生活境界的人才能得到这种教导。 当那些新人类的教导者离开地球层面，回到能量状态时，他们留下了教师来代替自己，但适合当教师的人数却越来越少。 随着合适人选的减少，向谁传授知识的忧虑就增加了。在这种忧虑和急切需要传授技能的状态下，他们教导了一些不那么纯净的人，这又再次导致了以潜力为基础的文明的发展，并最终带来衰败，足足经历了两万五千多年的时间才才恢复到了目前人类存在状态和进化的程度。 正如你所看到的事情远远不尽如人意，但是你们正在慢慢的改善，我对此倍感鼓舞，再多给我讲讲埃及人吧，特别是金字塔，他们是做什么的，他们到底是如何建造的，我们似乎要涉及的更多的是人类历史而不是神的历史。 是的，我知道，但是我需要知道这些这个讲完后，我们可以回到你的主题。 好的，当他们第一次被引进到他们居住的地方时，他们并没有被称为埃及人。 事实上，他们是在一个启动运行状态中被引入的启动运行状态是什么意思？ 你的意思是，他们突然出现了吗？一个现成的文明前一天他们还不在那里，第二天他们就出现了，包括房子和所有一切差不多是这样。 你要知道我急于让这个进化之轮尽快的再次滚动亚特兰蒂斯人的脱离正正轨，是很多机会都失去了。 所以我渴望尽快重新开始。我进化完这个地区之后，最好的办法就是把地球上最初的亚特兰蒂斯文明的一块插入另一个时间线，但把所有的球形记忆都从这个种族删除了，并给他们几个完全觉知的人来把他们往正确方向上引导球形记忆是什么？ 从线性角度来说，就是一种能通过记得以后会发生的事件，而影响此时此刻的能力。 你们地球上有些人已经开始回忆起如何做到这一点了，他们就是可以预测未来的灵媒。 那么什么是完全觉知呢？甚至刚才谈到的那些有能力回到源头的实体，而且能自己随意回来的人吗？ 那些有能力接触阿卡西记录灵性议会以及他们自己的高傲，能让自我的人是吗？ 正确，你可能觉得这很奇怪，但是经过了四十三次试图在地球层面用物质生物形态的人体获得最佳结果的尝试，我开始变得有点不耐烦，只是不想再从头开始了。 所以我决定以半成品的形式开始一个新的文明。这就解释了一个考古学家们无法解释的现象。 证据显示，埃及人是突然出现的那是因为他们就是那样凭空出现的。 当他们被植入新的环境时，只有几千个壮年个体，但从房屋到商店到农业，到工业都是已经准备好，可以立即运行的那些有完全觉知的指导者被置于首要阶层职位上，以便能够传授知识，给众多新的转世者，教他们如何利用他们周围的自然资源。 当然他们也有一定程度的预编程记忆，可以做一些基本的事情。 而那些表现出纯净心灵潜质的人，这被指导学习如何取得和利用这个层面上环绕着他们四周的能量。 这些觉知者聚集给他他们展示了什么呢？他们被教导如何通过专注冥想来接通周围的能量，用思想之纯粹为负能气，只有少数人能够完成，因为这意味着完全的无私无妄，他们必须显示他们能够驾驭通向纯净的三大属性。 一爱二力量三智慧，这其中的每一个都各有其诱惑力。 一旦掌握，他们可以成为有益于他人的重要工具，能掌握这三者的人是非常罕见的。 只有那些显示了这个能力的人才会被教授操纵能量所需的技能。 他们被展示的第一件事是如何影响一个物体的分子结构，这可以实现两件事。 一他们可以通过重新分布分子来改变物体的形状。二他们可以影响物体的维度稳定性，直至那个物体既不在这个维度，也不在另一个维度，从而使他们可以轻易的操纵或运输那个物体。 接下来他们接受了使用这些技能的培训，创造出能够大规模利用和存储能量的构造，以供个人和集体使用。 你是在说金字塔吗？还有其他，你们没有发现的构造，他们仍然完好无损的。 按照当初设计和建造的目的，在运作收集储存和重新发送能量。 这些构造中的一些在不断的排出多余的能量能量团导致了地球周边的变化。 他们把这些事件称为地震，我想地震是和板块运动有关的吧。 是的，但是什么造成了板块运动呢？这不是地球自己做的，这不符合他自己的利益，这些构造也被用于其他方面，比如能量疗愈重建破损的机体和复制重要的器具。 由于缺乏物质科技和配套工具，这些构具无法靠能量操纵以外的任何其他方式制造，他们也用于联络受过正确训练的人，可以利用这些构造所收集的能量与迁移到宇宙，其他地方的人类种族进行交流，与亚特兰蒂斯人一样，这些人中的一部分，最终改变了他们物质身体的基本外形，但只是为了使肉体更好的适应生存环境，而不是像亚特兰蒂斯人那样出于自我本位的社会的或者性的原因而改变他们的身体。 这些人中的一些人非常善于使用能量，可以用意念来漫游星空。 他们本体中被限制在肉身的那部分被暂时释放在他返回肉体之前，都可以与他们能量体的，其余部分相连接。 所以说金字塔是用来收集能量的，或者是某种占星观测装置。 这两种不同的理论都是有道理的。是的，他们都是对的，但并不像所谓的专家和理论家们所描绘的那样。 你说地球上有过四十三个文明，我们是第四十四个文明的一部分。为什么我们没有看到他们的任何文物，有什么考古学发现可以支持这样的说法吗？ 你们这些现在的人类都是如此的自负，以至于认为自从发明内燃机电器时代以来，你们就是无与伦比的了。 那么让我告诉你吧，人类形态存在的时间，以你们以为的久远的多某些分支已经有十万年以上的历史，接近于从上一个版本到现在这个版本的时间跨度大概有政负一万年的误差。 等一下你之前的话，让我以为在亚特兰蒂斯人和有历史记载的人类之间只有两万五千年的间隔。 是的，是你以为亚特兰蒂斯人与当前的人类版本不是一代的，这是不对的。 你还记得吧，亚特兰蒂斯人处于身体和社会的原因，通过改变基因来改良自身，这并不意味着他们不是现在这代人类文明的一部分。 再者，我已将他们进化来重新开始了。那并不是引入一个新的人类种族，而是这个版本的人类被赋予了第二次机会，一个重新开始的机会，一个朝着在灵性议会，人类化身的灵魂组成的集体委员会，希望人类种族去往的方向上获得成功的机会。 这是否意味着我们应该能看到某种物质证据能证明我们认为的曾经最成功的人类版本曾在地球上出现过，并有足够高的，我们能够识别的科技水平呢？ 你把科技等同于你们现在常见的科技事实并非如此。因为几千年来出现过各种各样的科技，从生物的到电子的到空间动力的到更宏大的再到灵性的这些技术以及技术组合都被使用过，其中最具生产力的是灵性。 不过我对最新版本的人类所做的贡献印象深刻。这主要是因为你们被赋予了完全的自由意志，能够做你想做的事，而不需要征询人类集体的意见。 但这也是一种干扰。你们在寻找的证据是无法以你们所能认知的方式找到的。 因为你们一直在寻找纯粹的物质证据。有些证据要从你们自己的内在去寻找这关乎你们同胞之间的互动，这是真正的遗产，是过去文明的真正证据，可以直接将你们引向源头或和起源。 因为这些证据完全是关乎同伴情谊的，为了整体利益而共同努力。 但是如果你想寻找可以量化的证据，你可以调查两个区域，一是有金字塔的国家附近的沙地里。 二是南极附近的机械力，你的意思是，我们可以在这些地区看到先进文明的真实证据吗？ 对，那么为什么我们不知道这些呢？为什么我们还没有看到这些呢？ 为什么我们还没有把这些公布出来，在电视上播放出来，在高水准刊物上刊登学术论文，因为世界性的发现，生活科技的新思想。 为什么为什么？为什么？为什么？因为你们有很多位高权重的人，靠着现有的理论功成名就考古学家们已经发现了一些这方面的证据。 但是由于一系列原因没有公布第一。因为这会毁掉他们现有的职业。 第二。因为他们一旦不畏艰险的把新证据拿出来，就会受到那些身居高位，靠现有理论城市的人的严厉抨击。 第三，后者中已经有一些人知道这些信息了，有许多宗教信仰中的高位者会为得到这些信息，而不惜杀人灭口，然后再销毁信息，从而维持自己的地位，以及自己所信仰的信仰的地位。 你是在说聚集到这一代人类种族化身的历史。我们当中有些人知道的比我们大家所了解的要多得多。 尽管他们如果把这些信息展示出来，他们的事业就有可能取得更加巨大的成功。 毕竟现在这个文明如此化身，更多的了解自己来自哪里以及生命到底是怎么回事，但是他们却宁愿阻止这些信息，以延续他们的职业。 那些基于旧理论的职业，是的，这就是正在发生的事情。你看那些靠现有理论而掌权的人害怕会失去一切。 他们对人类意识的提升毫无兴趣，哪怕这从根本上会有助于人类获得频率上的提升，并因此而进化的事情。 他们所感兴趣的只是眼前眼前他们拥有些什么？他们眼前拥有的是对他人思想的权利，而这会带给他们更多的权利。 在一个被大多数人认为是唯一的生存环境的地方，他们拥有潜力，于是他们就与这个幻象一起玩下去。 那么谁拥有这个知识呢？谁能够控制已经挖出来的数据，当地的高级官员总的来说，他们明白这些知识的意义。 在某些发现中，那些触手可及的技术远远超出他们的理解。 在另外一些发现中，技术较低级，但仍有重要意义。许多发现能帮助世界上的贫困者富裕起来。 这也是把这些知识隐藏起来的另一个原因，而以一知半解的知识确实是一件危险的事。 在这件事情上，是的，这实际上是因为有限的知识，不仅培养出优越感情节，而且还有高度的恐惧。 对未知基于未知，可能会引发的事情的恐惧。你知道当你对一件完全陌生到想听外来物般的事物有了一点认知，你就会对他的创造者感到害怕。 这意味着那些感到害怕的人，认为别人也会感到害怕，所以他们忌惮引起恐慌，而隐瞒信息。 实际上唯一的恐慌在他们自己的头脑里，那就是对变化的恐惧，
 
 SE:They were the springboard for the re-generation of the human race in this part of the world. 
 
@@ -6594,13 +6638,21 @@ SE:In this instance,yes.This is really because limited knowledge not only foster
 
 #### Older Civilizations-Again A Return to Earlier Civilizations - Physical Evidence of Earlier Civilizations 
 
+**再次回到早期文明上古文明的物证**
+
 ME:So let's get back to the issue of older civilizations.I read in a book by Erich Von Daniken many years ago that it was entirely possible for twenty civilizations to rise and fall in the space of 1,000,000 years with 50,000 years in between them and no evidence available to us to prove their existence in anything other than legend.Is this a reasonable statement?
+
+我：那么让我们再回到古老文明的问题。我多年前在埃利希冯丹尼肯的一本书中读到在一百万年的时间里，完全可能有二十个文明的兴起和衰落，每个文明之间有五万年的时间相隔。 但是除了传说以外，没有任何可获得的证据，能证明他们的存在每个说法合理吗？ 完全合理。事实上，曾经有过的文明远远多于二十个。 因为兴衰的程度与他们对所在世界星系或者宇宙的影响程度有很大关系，有些在灵性方面取得了巨大的成就。 而另一些则在物质方面取得了巨大的成就。事实上，在物质上取得的成就。 文明比较常见，从物质的角度看，正是灵性与物质之间的关系，决定着某个文明在衰退后能够留下的遗迹的数量。
 
 SE:Entirely so.In fact there have been many more than twenty,as the level of rise and decline is entirely relevant to the extent to which they spread their influence in the world or galaxy/universe.Some achieve greatness in terms of spirituality whilst others achieve greatness in terms of physicality-in fact,it has been physicality that has been the norm.From a physical perspective,it is the relationship between the spiritual and the physical that gives rise to the amount of detritus that a particular civilization leaves behind when it declines into decrepitude. 
 
 #### Physical Ascension of Former Civilizations 
 
+**上古文明的物质性扬升**
+
 Let's put this into clear perspective.The really great races that have existed on or around the Earth environment did not always leave anything behind.In many cases they took their whole civilization with them,especially if they ascended to higher frequencies.This also included the dwellings in which they lived. 
+
+让我们把它说清楚，在地球及周边环境中存在过的真正伟大的种族，很少留下什么东西。 在很多情况下，他们把他们的整个文明一起带走了，尤其当他们扬升到了更高频率时，带走的，也包括他们的住所。 你是说整个文明都可以扬升到更高的层级，把包括房子在内的所有东西都带走。 如果他们愿意是的，要知道，养生并不是一种要把具有个人保护功能的熟悉物品。 比如房屋或生产工具全部都舍弃掉的纯粹灵性状态。 为什么？因为在个体放下对外部支持的需求或渴望之前，其养生会经过许多个层级，其中一些较低的层级仍然接受与物质世界相近水平的物质条件。 尽管对于更低层级的观察者来说，这些层级或肉眼不可见的。 事实上，那些较高层级的的环境与你们现在生活的环境并没有太大区别。 唯一的区别是你们依赖于物质科技，而不是在更高灵性领域中行使神赋予的灵性能力。 而他们使用的其中一些科技是物质技术与灵性能量的结合。 这是亚特兰蒂斯人曾经的状态吗？在一定程度上似的，既然就像我之前提到的，他们受到肉体生活物质体验的诱惑，以至于误入了歧途。 
 
 ME:You're saying that whole civilizations can ascend to higher levels and take absolutely everything with them,houses and all. 
 
@@ -6616,23 +6668,41 @@ SE:Yes,to a certain level although as I have previously mentioned,they were sedu
 
 #### Atlantean Architecture Present Today 
 
+**亚特兰蒂斯建筑现身今日**
+
 ME:So why haven't we seen any of their architecture if they were so engrossed in the physical? 
+
+我：既然他们这么专注于物质，那么为什么我们没有看到你们的任何建筑，你们见过的有许多亚特兰蒂斯文明的例子可以被大众看到其中一些被过去三万五千年间，地球地形的自然变化而隐藏，而其他的是大家都能见到的如金字塔，还有一些在地表以下如埃及的塞加拉文物表面的磨损和裂痕，为他们的实际年代提供了证据。 然而，你们的学者无法跳出思维盲区，于是只给了他们实际年龄的十分之一。 因为他们有他们认为的正确的日期数据，但事实并非如此。我给你举个发射出去的火星探测器的例子，他有两套校准系统工质和音质造两个校准系统的差异，造成了灾难性的损失，这是设备坠毁，不能工作。 多年来，从事这个项目的科学家们深信一切，毫无纰漏，直到在探测器坠毁后，他们才发现问题所在。 这与考古学家和宗教团体的领袖是一样的。他们只有在所有人都看到证据，而不仅仅是他们看到时才会意识到他们的错误。 你只需看看遗留下来的文物的错节就可以了解创造他们所需的文明程度，高质量的大规模生产，不可能由家庭手工业来完成。 这是这些细节无可辩驳的显示了古代文明的真实科技水平。
 
 SE:You have.There are many examples of the Atlantean civilization available for all to see. Some of it is hidden by the natural change in the Earth's topography over the past 35,000 years whereas others are visible for all to see,such as the pyramids.There are others just below the surface,such as in Sakura,Egypt.The wear and tear on the surface of the artifacts gives evidence to their actual age.However,your scholars are not able to think out of the box,as you call it,and,therefore,credit them with a tenth of their actual age because they have date data which they believe are correct,but they are not.I give you the example of the Mars probe sent that had two sets of calibration: metric and imperial.The difference was catastrophic as the device crash landed and failed to work.For years,the scientists who worked on the project were convinced that everything was correct.It was only after the probe crashed that they found out what the problem was.This will be the same with the leaders of archaeology and religion. They will only realize their errors when the evidence is there for ALL to see and not just them. You only have to look at the detail of the artifacts that are left behind to understand the level of civilization required to create them.High quality mass production does not happen on the scale of a cottage industry.It is the detail that gives the game away in terms of what the truth is in the technology that was available to older civilizations. 
 
 #### "Neanderthal" Civilization 
 
+**"尼安德特文明**
+
 For instance,the race of man you call "Neanderthal"were actually a very highly evolved and spiritually aware race of beings,who made the very best use of their physical bodies to help them evolve and move on up the frequencies.They worked in tune with the land and the animals,which,in turn,helped them.They were also in constant communication with their higher selves.Those who elected to be their guides constantly fed back to Spirit the wonder of working with the universe at this level of frequency,even if it was painfully slow and restrictive.However,they still knew what they could do with their spiritual faculties,and,as a result,worked in harmony with the energies that were found at this level and those other energies that interfaced with this level.With this common knowledge,they created their dwellings and devices of convenience to help them in their everyday lives and made physical life more tolerable for those of them who,like your current iteration of man,were not totally in tune with the wider reality. 
+
+例如，被你们称为尼安德特人的人类实际上是一个高度进化和具有灵性意识的种族，他们充分利用自己的肉体来帮助自己进化和提升频率。他们与土地和动物和谐共处，而土地和动物也反过来帮助他们。他们还不断与更高的自我沟通。那些被选为他们的向导的人不断地把在这种频率水平上与宇宙合作的奇妙反馈给灵体，即使这种合作是痛苦的、缓慢的和受限制的。然而，他们仍然知道自己的灵性能力可以做些什么，因此，他们与这一层次的能量以及与这一层次相联系的其他能量和谐共处。有了这些常识，他们创造了自己的住所和方便的装置，以帮助他们的日常生活，并让那些像你们现在的人类一样与更广阔的现实世界不完全协调的人们能够更舒适地享受物质生活。
 
 #### Construction of the Pyramids 
 
+**金字塔的建设**
+
 How do you think the large constructions you call the pyramids were made?It certainly wasn't with logs and rope and soft metal chisels.It was with the use and fundamental understanding of the underlying energies that were available to those who took the time to develop what every one of them was able to do,but few bothered to learn.They worked with the energies they exist within and had command over.It is the ability to use these energies that results in the lack of archaeology that proves the use of technology that was more than would be expected of a human being at a particular point in time,taking into account the technological position of humankind today.This point is humankind's total dependence on physical tools rather than their using the spiritual/energetic tools available to them if only they would open their eyes,and more importantly their hearts, for this is the blockage to man's spiritual growth.
+
+你认为你们称之为金字塔的大型建筑是如何建造的？ 当然不是用木头绳子和软金属凿子就能建成的。而们通过对潜在能量的使用和根本理解这种能量，只要花时间去开发，每个人都能使用，但是很少有人愿意学习他们与他们内在的能量一起工作并指挥他们正是由于当时使用了这种控制能量的能力，导致考古发现都缺乏使用科技的证据，关注今天的人类科技水平。 人们无法将当时建造金字塔所需要的科技水平与那么远古的人类文明挂上钩。 当今的人类完全依赖于物质工具，而没有利用他们本可以使用的灵性能量工具，他们需要做的只是张开眼睛，更重要的是打开心灵，因为眼睛和心灵的关闭，正是人类灵性成长的阻碍。
 
 ### Chapter 16 - Space-faring Humans 
 
+**第16章：航空人类**
+
 #### Early Energetic Humanity's Space Travel in an Environmental Bubble 
 
+**早期能量态人类在环境泡中的太空旅行**
+
 ME:As we were ending the previous dialogue,I was thinking of getting back to the backbone of this communication in total,that being the history of God.I got the image of humans in space on a space craft that was,well,flimsy to say the least.From our point of view,we have only just made it across the gap between our planet and its moon and deposited some rather basic hardware there.I have been surprised to note that this is open to abuse by conspiracy theorists. 
+
+我：当我们结束前面的对话时，我在考虑重新回到这个交流的图像，这就是神的历史。 我接收到了一幅在太空里人类乘坐航天器的图像，感觉说他简陋都客气了。 从我们的观点来看，我们只是跨越了地球和月球之间的距离，在那里存放了一些相当基础的印件。 我很惊讶的发现，这给了阴谋论者造谣的机题。阴谋论者们错了，月球登陆的确发生过，而且我和那些人的灵体一直在一起看的津津有史。 至于你在头脑中看到的图像，这很有意思，主要是因为人类大多数星际旅行都是以能量的形式进行的。 你可能挑选了一幅人类还处于能量流动状态时的画面，那是他们决定主要从物质层面勘察那些太空中的结界及你们口中的行星。 当么这些行星本身也是实体。实际上你所看到的机器并不是你们认知里的太空船这种机器能让人类的能量体存在于更致密的能量中，而不会失去于他们更高能量状态部分的连接。 那么是谁发明创造了他们？我之前说过，当时能量态的人类正在把自己的频率调低，直到能在现在人类身体存在的频率和维度中显化出来。 这被用作一个进化的跳板。总的来说，人们认为调查呈现在他们面前的环境会很有趣。 为了调查，他们现在开始意识到的这个新环境，他们认为需要创造一个泡泡，一个能维持他们惯常频率的环境。 泡这个泡泡你也可以称之为非船，它能够同时在两种环境中移动，因此乘客可以和其余能量态的人类及他们自身完全灵性的处在非化身状态时的正常维度和频率的那部分保持联系。 然果。人类在这个阶段是能量态，他们又怎能转世肉体呢？与你们当前的密度水平相比，他们是能量态，不要忘记你们在频率阶梯的底部。 所以任何超过你目前水平的东西，对你们来说都是能量态而实质上。 尽管我把他们描述成能量态的人类，他们却是处在一种物质形式，只是不如你们现在的物质态这么监视，这意味着如果现在有这样一个人站在你旁边，你将无法看到它，因为它处于更高的频段。 然而由于他们处在流动状态频率在不断降低，你可能会从眼角撇到他们。 就像人们声称看到了他们所以为的鬼一样。所以他们乘坐的幽灵态太空船游历物质世界，这个用于很妙，不过不完全是这个泡泡，是一个具有两种环境属性的构造，它需要具有能在两个频率之间滑动的性质。 这是才可以让乘客在两个频率中同时存在，而且不会受到低频的影响。 它是如何制造的呢？你总是用构造这个词，它是通过操纵能量和改变某些能量的吸引力来制造的。 这样他们就创造出了一个物质层，这是由一些专门从事能量操纵的转世实体完成的。 他们实质上是通过将能量减速或加速。这时两个或更多能量粘在一起，而创造出一种新的混合能量。 一种能在拟定工作频率间滑动的能量与所有能维持在较高频率的构造一样。 这种构造也呈现为球形，这很常见与你们的高密度，宇宙中的许多能量一样，这是一个很好的例子。 行星，特别是那些且你们称为恒星的，也是这样的。通过使用这个和其他相同原理的构造，他们遍访了你们口中的物质宇宙，他们访问了许多星系观察学习，并与物质互动，他们尤其感兴趣的是这个层级的能量互动以及所创造的东西。 他们就这样给自己，从而也是给起源和我带回了很多对这些低贫层级的认识，那些我们还没有经历或理解的原因。 我还以为你知道一切的一切不是的，这就是为什么你们现在在这里的原因，他们遇到过其他物质实体吗？ 当然了，如果你还记得在对话开始的时候，我就告诉过你，我把自己分成了两半，一半是整体的我的一部分及起源的一部分。 我用这一部分创造了你们所在的环境。另一半是我创造的成百上千万的东西，他们并不都是人类。
 
 SE:Well,the conspiracy theorists are wrong.The moon landings did actually happen,and I was with the spirits of those humans all the way,watching with interest. 
 
@@ -6664,7 +6734,11 @@ SE:Of course.If you remember at the start of this dialogue,I told you that I sep
 
 #### Entities with Singular or Collective Free Will
 
+**拥有个体或集体自由意志的实体**
+
 ME:So just how many physical life forms are there in the universe you created? 
+
+我：那么你创造的宇宙中有多少物质生命形式呢？ 你想让我把所有的生命形式都算出来吗？你肯定只是指那些你认为归有知觉的一类吧。 什么是有知觉的存有，我会认为所有生命形式都有某种形式的知觉。 是的，但我会让你再次问一遍你的这个问题，一边把数量缩小到你能理解的范围。 好吧，那些有个体或集体自由意志的实体大概有四十一万五千个。 那是这些实体的种族的数量，是那些实体的种族的数量。
 
 SE:Do you want Me to count all of the life forms?Surely you only mean those who are what you classify as sentient. 
 
@@ -6682,7 +6756,11 @@ SE:That's races of beings.
 
 #### Shape Shifters 
 
+**变形种族**
+
 ME:And each of them is incarnate in the physical? 
+
+我：他们每一个种族都化身在肉体中吗？也有的在周围的维度频率里，不要忘记转世，并不仅仅存在于纯粹的物质世界。 他可以在另一个维度或频率而仍以物质化身存在处于更高频率的化身载具。 对于进化目的之实现，而不比更低频率的差，从有限的不同的角度去体验事物，是你们存在于物质环境中的目的。 因为你真的就是你所有经历的总合。我看到你脑海中出现了许多有知觉转世载体的外形和形状的图像。 是的，他们似乎从实到源应有尽有。对他们是的，他们中的一些甚至能够为了完成任务而将外形变成最适合的样子，每种外形都有其特定的用途和发展机会变形种族。 我以为那是科幻作品里才有的。你以为你说的那些科幻小说的想法是哪里来的？ 他们那不过是来自更大的实像。当然这些生物体不在你们的维度和频率。 因为在你们这个层级变形需要过多的能量。不过经过一定程度的训练，这也是可以实现的。 但是其所需的投入程度和专注力，是你们绝大多数人永远也无法达到的。 为了将人类再去提升到可以实现这个技能的频率上需要有巨大的专注，更不用说需要大量身体和心智上的磨练。 当人类最终再次提升频率后，这将变得更有可能。那么这些生物体为什么要有不同的外形呢？ 难道没有一种最佳的身体条件吗？是有的，所谓条件是相对于载体需要运行的环境而言的。 因此，海豚有他们的外形，你们有你们的外形，地球上每个现存的有知觉物种，也同时存在于另外的媒介或频率维度，似乎的确存在一种模式，仅某些外形可以相对独立的复制，这是出于利益考虑的。 因为一旦物质载体被灵体的能量部分，即真实的实体设计出来，他们所处环境的生态结构也会变化，适应并呈现出之前不存在的机会。 这从进化的角度来看，无疑是有益的。
 
 SE:And the surrounding dimensions/frequencies.Don't forget that the act of incarnation is not specific to the fully physical as it can be classified as physical,but in another dimension or frequency.Just because a vessel for incarnation is in a higher frequency, it does not make it any less a vessel for evolutionary purposes.It is the act of experiencing things from a restricted/different perspective that is the objective of your physical existence,for you truly are the sum of all your experiences.I see that you have a number of images in your head of the shape and form of the variety of sentient incarnate vessels. 
 
@@ -6700,7 +6778,11 @@ SE:Yes,there is and that condition is relative to the environment that the vesse
 
 #### Dolphins,Space-faring and Sea-faring Sentient Beings 
 
+**海豚，航空和航海知觉生物**
+
 ME:How many sentient races of beings are there on Earth? 
+
+我：地球上有多少个有知觉的物种有三种，但是很快就会有第四种的计划了。 如果我看到他们，我能认出来了，你们以为认识的是别人的全貌，但你们其实并不很确定。 因为你期待有知觉物种拥有能证明他们的知觉的科技。但科技并不总是知觉存在与否的证明。 科技的缺乏也不足以证明文明或进化的落后，你们的海豚就是一个例证。 你们会震惊的发现，海豚是航空生物，也是航海生物。作为一个文明，他们的进化程度极高，被地球及其居民的福祉做出了卓越的贡献。 海豚怎么可能是航空生物，难道他们会用某种能量构造江水输送到太空，而且还没有被我们的雷达网络发现，不是的，他们能利用自己的思想能量态的自我，他们的自我来遨游宇宙，你们能完全掌握自己的能量，而且仍旧生存在比人类更高的频率中。 尽管他们在人类频率下滑的过程中受难良多，但他们仍设法保持住了自己的频率。 如果海豚的频率比人类高，为什么他们能在我们的频率中被看见呢？ 处于更高的频率，不意味着一们会从你们这个频率的观察者的视线里消失。 这在若干层级都不会发生。此外，海豚喜欢让自己被你们看见，这样，你们就不会在这个频率里感到太孤单。 因为在一个看不到大部分实像的地方，会让人感到孤单。海豚种族在能量层面给了人类很多帮助。 而且与人类灵性也会保持着联络，从整体上对影响人类的决策过程提供支持，他们是怎么做到的呢？ 他们在海里，而人类在陆地上，虽然我们也能去海里，你忘了吗？ 他们跟你们不在同一个频率上，他们实际上做的就是你们所谓的星光层旅行，他们离开他们的海豚身体，用能量态的身体与人类议会会晤，他们仍然处于能够随意来去的阶段。 事实上，他们从来没有像人类那样失去这个能力，他们可以随意离开自己的身体，去任何他们想去的地方。 他们也经常这样做。他们也经常离开地球环境与银河系乃至宇宙，其他区域与他们同级别的其他能量种族进行交流。 那么他们为什么没有科技事们有，只是你们没有能力探测到再者，他们的科技也不是你们能认识或理解的那种科技。 他们的科技主要是基于能量的，因此比他们的物质身体的频率要高，科技不一定是电机械或计算机化的，真正的科技使用的是自然能量与宇宙合作，协助宇宙来帮助你们自己。
 
 SE:Three,but soon there is a plan for a fourth. 
 
@@ -6726,7 +6808,11 @@ SE:They have,it's just that you don't have the ability to detect it.But again,it
 
 ### Chapter 17 - The Second Silver Cord 
 
+**第17章：第二条灵带**
+
 We were talking about being highly evolved when I suddenly saw an image in my mind's eye of a human form with two lines of communication to Spirit.I decided to digress in this direction before ultimately returning back to the question of the History of God. 
+
+我们谈到高度进化的时候，我的脑海中突然出现了一个与灵界，有两条连线的人影。 我决定在这个方向上先跑个题，然后再回到神的历史的问题。我得到了一个关于与灵界的第二条连接的影像，他就好像第二条灵带凝视者在星光体旅行中所注意到的那种绳索观察的不错。 那他到底是什么呢？一个提供附加带宽的额外通信线路吗？正是达到这种加强的沟通水平，需要一定的进化程度，并且不易维持，因为他可能会被遗失掉，这是什么意思？ 我们在拥有了他以后还能再失去它。是的，怎么会这样呢？ 很简单，不使用它就是了。正如你们地球上说的，不进则退，忘记他就会失去他。
 
 ME:I got an image of an additionallink to Spirit,almost like a second "silver cord,"the cord noted by clairvoyants who witness astral traveling. 
 
@@ -6746,7 +6832,11 @@ SE:By quite simply not using it.As you say on Earth,"If you don't use it,you los
 
 #### The Challenges of Having a Second Silver Cord 
 
+**拥有第二条灵带的挑战**
+
 ME:How can you forget about something as important as a second silver cord?It seems so fundamentally obvious that this would make your interaction with this level so entirely different to what most people experience that it would stand out like a sore thumb. 
+
+我：怎么可能会把像第二条林带这么重要的东西给忘了呢？ 显而易见。第二条零带会使你与这个层面的互动，跟大多数人的完全不同，以他的显眼程度怎么会被忽视？ 确实如此，这里的问题是，人们通过这种额外层级的微妙交流，获得了一些信息和经验，并从整体宇宙的视角评论，他们对内部及周边之所见或所觉所知或所感的时候，会被那些没有体验过这些事的人，当做是疯子的胡言乱语，有这种意识提升经历的人，要么在年幼时就被父母告知他们，不可能看到他们所看到的，要么就是被学校里的朋友们嘲笑他们被诊断为精神障碍，比如精神分裂症或者被简单定性为爱幻想的人。 因为那些无法用这种方式看到或感觉到的人只会把注意力放在周围看得到的东西上，这就是他们的注意力力从正在发生的或他们正在参与的事情上移开了。 最终，那些被不断灌输，说他们不可能看到物质世界没有的东西的人开始相信这些说法或者主动把能力关闭掉，以变得足够正常，去适应社会融入同伴或者绝父母能恢复这种能力的人很少，而能够充分利用所知的人，或者是一直在使用，还是像你这样重新发现能力的就更少了。 在那些能充分利用这种能力的人当中，许多人会从事临事传导职业。 在那种集市帐篷或公寓，暗示里，通过算命来赚点小钱，或者赚点不那么小的钱。 另一些人用这种能力喂养虚荣自负或推销自我，随后导致能力提升到达贫贫，以至于无法进进步灌输到体验更多的宇宙，并错失了体验。 另一个进化的绝佳机会，只有非常分常少的人认识到他他的真正意义，并愿意利用这个机会去启蒙他人，帮助他们进一步进化，这是一个巨大的遗憾，但他正在被慢慢克服。 因为越来越多的人不再顺从于接受别人告诉他们的所谓现实实相，而是更愿意相信他们实际经历的东西。 当这样用高层沟通能力，体验到类似事物的人越来越多的彼此相遇或聚在一起，分享他们的经验与知识，他们就越发证实自己的个体经验，也就越能充分打开真正沟通的机会。 因此，最终他们会越发意识到，他们也必须传播这些话语来帮助别人进化。
 
 SE:And it does.The issue here is that the information and experiences that you achieve with this additional level of subtle communication are such that when people comment upon what they see (or perceive),know or feel in terms of what is in and around them from the whole universe perspective,they are considered by others who don't experience such things as the ramblings of a mad person.People who experience heightened awareness are either told by their parents when they are young that they can't possibly see what they are seeing,or they get ridiculed by their friends at school. They are classified as having psychiatric disorders,such as schizophrenia,or they are simply condemned as those who fantasize because those who can't see or sense in that way place their attention on what they see around them.
 
@@ -6758,7 +6848,11 @@ Only a very,very few recognize it for its true meaning and take on-board the opp
 
 #### Availability/Choice of a Second Silver Cord 
 
+**第二条灵带的实用性及选择**
+
 ME:So the second silver cord is only available to those who are evolved enough to be able to potentially use these abilities. 
+
+我：所以第二条零带只有那些进化到足以使用这些能力的人才可以使用那些觉得自己可以使用灵带的实体会为自己所化身的物质身体安排与灵带的连接。 但是我原本以为所有足够进化的时器，都会自动拥有这些灵带。至少这是你刚刚给我的印象处在恰当进化层级的所有时会都能使用并接通额外的灵带。 但也有人认为他们无法充分使用这额外的沟通能力，因此便放弃了这个机会。 这一切听起来似乎有点空白。我本来以为所有物质层面的实体，都渴望抓住机会，拥有加强的正常的沟通水平。 因化的机会并不总是需要与灵体的进一步连接。甚至在许多情况下，为了使自由抑制在不预知命运的情况下，为了的发挥其随机性，而最好不要有这个额外的连接预知命运吗？ 是的，预知命运运，这是聚焦在导致事件完成的关键点的能力。 你注定要完成的事件可以称为命运，知道将要发生的事情是一只命运好吧。 所以你是说他们宁愿不要这些，让他们有能力看到未来的连接能力，而是看看自己需要做什么，来让某些特定事件发生？ 简而言之。是的，那么为什么还会有实体愿意有这个额外的连接呢？ 因为他们认为这些连接可以加速自己和他人的进化，而这是一个巨大的承诺。 因为它能够影响整个局部创造。
 
 SE:Those entities that feel they are able to use them arrange for them to be associated with the physical body they are about to incarnate into. 
 
@@ -6784,13 +6878,21 @@ SE:Because they think they can accelerate the evolution of others as well as the
 
 #### Local Creation 
 
+**局部创造**
+
 ME:Local creation?What is that?I thought that creation was everything? 
+
+我：局部创造，那又是什么呢？我以为创造设计所有事物局部创造，只影响该局部，而不影响创造的其他部分。 比如在这个星球的这个层面上发生的事情就是局部创造，试图促进创造以及他们自身进化的实体，无论其作用有多大或多小，都会创造出使所有与地球上的化身相连的实体都受影响，并最终得到提升的状态。 当局部创造得到提升，它也会影响到我所创造的其他东西，因而影响到这个星球以及与之相联系的物质和非物质层面的利益。 这意味着从更广的角度来看，将自己与创造联系在一起的实体也在协助其他原实体以及起源的整体创造过程。
 
 SE:Local creation is that which affects only itself and not the rest of creation.For instance, what is happening on this plane on this planet is local creation.Entities that try to affect the evolution of creation (as well as themselves)no matter how big or small that effect is,create a condition where all the entities that are associated with incarnation on the Earth plane are affected and ultimately elevated.When local creation is elevated,it also affects the rest of what I have created-hence,the interest in this planet and the physical and nonphysical planes associated with it.That means that the entities that have associated themselves with creating are assisting the other Source Entities and the Origin in the process of universal creation on an inclusive scale. 
 
 #### The Burden/Gift of Having a Second Silver Cord 
 
+**拥有第二条灵带的负担和礼物**
+
 Hence,the burden on the entities that choose to incarnate and evolve with this extra cord is immense as they live their incarnate lives always in the knowledge that they are part of something big and that they have something significant to do.Some work this out earlier in life;some work it out later in life,and some,of course,never do for whatever reason. 
+
+因此选择带着这个额外的零带转世和进化的实体的负担是巨大的。 因为他们活在肉体中的时候，总是觉知到自己是某种巨大事物的一部分，并且有些重要的事情要做，有些在生命的早期就做到了。 有些在晚些时候才做到，而当然也有些因为种种原因一直没有做到。 我从来没想过，这还能是一种负担。当他们在决定转世于什么地区，什么年代时，他们同样并不认为这是一个负担。 事实上他们很自豪，很高兴或者说很荣幸，因为他们有机会帮助那些不够进化的个体进化，他们很高兴能参与如此重要的服务。 为什么是这样？他们为什么对服务他人感到荣幸？因为当他们服务他人时，他们也在服务自我在这样做的时候，他们越多的服务他人也就越能提高他们服务自我的水平，这是一个无休止的螺旋式上升过程。 就是说如果每个实体都截知到正在发生的事情，他们就会通过帮助别人来帮助自己，不论作为一个整体都会更快速的在频率上共同提升。 那你为什么说这是一个负担呢？因为当你没有意识到，但是你却有一种有什么更重要的事情要做的不安改世，不论你在物质世界有多成功，你都会对你自己和你所做的事情感到不满。 事实上你越成功就会越不满意，为什么会感到更不满意呢？ 如果比如你是一个成功的商人，因为你的成功只在一个方面，只在物质方面，而且这也仅仅是利于你自己，并不是利他的，但是有些在物质世界中非常成功的人，也为别人做了很多善事，比如经营慈善事业的人，像救助儿童会乐事会，甚至还有绿色和平组织。 是的，但这些善始终有多少，只是为了自己的小我，而非为了大众的利益呢，对不起，我没明白你的意思。 我说的是将这些手段用于自我标榜的人，仍然坚定的处在物质层面上。 然而，那些为他人谋福利，不求回报，出于同情，会把这样的工会才供给他们所助之人的人才是与他们的人生计划同步运作的。 不论他们是否意识到这点，大多数真正觉知的实体是在幕后工作的，而非在吸引公众眼球的第一线，在不求回报的地方，才能做出最好的工作。 他们不追求任何回报，因为这一切都是出于对工作的热爱，而不是出于对小我的热爱，或是随之而来的那些诱惑。
 
 ME:I never thought that this would be considered a burden. 
 
@@ -6818,9 +6920,15 @@ SE:What I am saying is that those who use these vehicles for self-aggrandisement
 
 ### Chapter 18 - The Records/Database,Akashic and Others 
 
+**第18章：记录数据库，阿卡西及其它**
+
 #### Recorded Physical and Spiritual Experiences of Entities 
 
+**实体的物质和灵性体验记录**
+
 ME:In a previous dialogue you mentioned records!Are you talking about the Akashic Records? 
+
+我：在之前的对话中，你提到过记录据说的是阿卡西记录吗？ 那只是他们的一部分功能，不过基本上是的。据说我们人类可以为了我们自己的目的和学习访问这些记录。 据说他们记录了我们所有的生命，我们做过的所有一切以及我们将要做的一切确实如此。 但是访问是受限制的，特别是当你处于物质化身世，因为获得这些知识会阻碍由物质体验所能获得的学习经验，阿卡西记录是这些记录的一部分，只与人类的存在有关，其他记录的则是其他实体的婴儿被冠以别的称呼。 不过他们本质上都是同一个数据库的组成部分。但是这个数据库阿卡西记录也包括起源的集体经验吗？ 是的，但如我刚才所说阿卡西记录的这一部分，只是关于人类的集体经验和个体经验。 当然，这不仅仅是指人类自身物质肉体的体验，还包括你们这种实体在物质和精神领域所积累的全部体验。 你们的每一种体验都记录在起源的这个区域。当我在灵体状态时，我也可以看到起源的体验吗？
 
 SE:This is one part of their function but essentially,yes. 
 
@@ -6836,7 +6944,11 @@ ME:When I am in spirit,can I look at what the Origin has experienced as well?
 
 #### Possible Integration of Lives and Experiences of Other Entities Within One's Life 
 
+**整合其它实体的生活与经历的可能性**
+
 SE:To a lesser extent,yes,especially if it is considered to be of use to you in your own quest for experience and personal understanding.To this end,it is also possible for you to look into the lives and experiences of other entities and integrate them or part of them into your own area of the Akashic,the one that you carry around with you. 
+
+源实体：在比较小的程度上。是的，特别是，如果他对你寻求自己的体验和个人理解有用的话，为此，你也可以查看其他实体的生活和经历，并将他们或其中的一部分整合进你自己的阿卡西记录区域，也就是你随身携带的那部分记录，我们随身携带的自己的阿卡西记录部分。 你说的是什么意思？你自己的个人记忆，你有回忆不是吗？是呀？
 
 ME:What do you mean by our part of the Akashic that we carry around with us? 
 
@@ -6846,7 +6958,11 @@ ME:Yes?
 
 #### Three Types of Memories
 
+**三种记忆**
+
 SE:I can see that I need to clarify again. 
+
+源实体：看来我又需要澄清了，你有三种记忆。第一来自起源的那一部分记忆。 这种记忆是人类阿卡西记录的一部分起源原实体以及所有与这个宇体这其维度相连的灵性实体都可以访问。 从本质上讲，阿卡西记录服务于与本宇宙物质显化相关的所有灵体。 这些物质显化形式被分别保存。以便一目了然的看到他们的出处还可以比较不同类型实体所获得的不同经验。 所有记录供所有实体访问，所有记忆，都可以在某一个实体处于物质化身世被用作它自己的经验。 第二，作为你能量体的一部分记忆，这种记忆只属于你，它不包括访问第一种记忆的能力，但包含了你整个存在过程所累积的个人体验。 只有当你是完整的，也就是你的任何一部分都不再处于物质化身真的时候，你才能访问这个记忆。 第三，在你转世时，作为你的一部分记忆，从物质角度来看，这实质上是白纸一张，但是包含着一些潜在的记忆，个人的或者输入的。 如果要进行一个需要一点经验上的帮助的特定任务或体验。 那么这些记忆就可以在物质界备使用。
 
 You have three memories: 
 
@@ -6864,7 +6980,11 @@ This is essentially a clean slate from the physical point of view but contains a
 
 #### The Uses of Imported Memories 
 
-ME:You just mentioned imported memories.Do you mean that we can use other peoples' memories to help us solve problems? 
+**输入的记忆的作用**
+
+ME:You just mentioned imported memories.Do you mean that we can use other peoples' memories to help us solve problems?
+
+我：你刚刚提到了输入的记忆，你的意思是说，我们可以使用别人的记忆来帮助我们解决问题吗？ 正如我上面所说的那样，所有记录都可以在某一个实体处在物质化身时被用作他自己的经验。 然而，在特殊情况下，如果被认为对你的下意识有时是这一识有意，并能在计划阶段起到指导作用的话，其中某些记忆会被输入到你自己的记忆中。 在那一次转世中起作用，这也可能包括那些来自于我们认为是外星人的实体的记忆或经历吗？ 是的，尤其是在需要像技术或艺术方面引入某些进展的时候，这种记忆就像不知从哪里冒出来的，激进新颖又奇特，而且令人难以置信。 当他来自一个人时，这个带来崭新变化的人，就会被认为是一个天才。 当他来自一群人时，这是因为对他们中的任何一个人来说，这些知识要交给一个人来完全掌握，实在太多了。 所以他们每个人掌握了这个图景的一部分，每一部分对其他人的成功来说都是至关重要的。 他们就会被认为是一个天才群体。
 
 SE:As I said above,"All records can be used as experience by another entity when incarnating into the physical."However,some of these can,under special circumstances,be imported into your own memory for the duration of an incarnation if it is seen as being beneficial to you in your next incarnation(and sometimes during your current incarnation)and your guides during the planning stage. 
 
