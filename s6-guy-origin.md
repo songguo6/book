@@ -1,7 +1,5 @@
 ![](img/s6-011.png)
 
-**基于[DeepL](https://www.deepl.com/)翻译**
-
 ---
 
 The Origin Speaks : A Channelled Work 

@@ -1,7 +1,5 @@
 ![](img/s6-001.png)
 
-**基于[DeepL](https://www.deepl.com/)翻译**
-
 **The World Satsanga: The First Ten Years Book 1** 
 
 **Lectures on the Greater Reality By Guy Steven Needler**

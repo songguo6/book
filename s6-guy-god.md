@@ -6994,7 +6994,11 @@ SE:Yes.This is used specifically when a certain advancement in technology or art
 
 #### Use of the Akashic Records to Learn "What If" 
 
+**使用阿卡西记录学习“假设会如何”的模拟场景**
+
 ME:O.K.,so as far as I understand,the Akashic records are a recording of all of the entities associated with the physical universe and its dimensions.It is part of the memories of the Origin and the Source Entities,and it is outside "change"that can be initiated by the Origin.This seems straight forward. 
+
+我：好的。据我所知，阿卡西记录是与物质宇宙及其维度有关的。 所有实体的记录，它是起源和原始体的记忆的一部分，它是起源发起的外在变化，这个感觉挺好理解的。 阿卡西记录远不止这些是吗？还有什么呢？它是比一段记忆更为有用的工具，那么它还能用来做什么呢？ 你可以研究事件的相互作用，以及每个事件如何影响个体。过去现在和将来在有限的时间段内，你可以做一些改变来影响这些事件观察，接下来会发生的情况，你可以用它规划使你的转世达到预期最佳状态所需要发生的事件，包括加入安全保障措施，这样它就能负责其他实体做同样事情后造成的一些改变。 所以你是说阿卡西记录也可以用作一个巨大的。如果会怎样的情景模拟器远不止于此。 一个灵体可以在他的肉身记忆中插入其他灵体生活和经验的记忆，看看他们将如何影响他的生命计划。 然后这个灵体可以调整记忆结构，去除某些经验或这些经验的一部分，来规划最佳的生活体验和结果。 当然这只是一个投影，而且只在某个特定的时间点有效，因为转世的灵体一旦进入肉体，就不再具有第二种记忆的优势来帮助自己做决定了，从而可能会对一个决定做出与阿卡西记录所显示的不同的判断。 如此一来，其他化身的互动也会受到影响。而他们对相关决定的回应发生的变化，从会影响其转世计划。 你说过阿卡西记录远远不止于此。是的，他也让你有机会进入其他化身的生活经历。 他们过去现在和未来生活存在的体验都被储存在阿卡西记录里，你可以进进入他们体验，他们仿佛亲身经历一样，甚至体验中的感觉和真实的时间一样长等等。 你刚才说到他们的生活体验都被储存在阿卡西记录里的任何实体，这是暗示有一些实体的生活体验，并不在阿卡西记录里吗？ 的确如此，是有一些不在里念，有一些生命，对于整体经验的总体效果没有影响，或者他们属于那些已经迁移回源头，甚至是起源的高等实体，因而已经不再参与其中了。 对起源来说，他们并没有丢失，什么都不会也永远不会失去。 因为他们被存放在他的整体记忆中了。只不过对于那些只能访问阿卡西记录的实体来说，不能获取这些记忆，别忘了阿卡西记录是与在这个特定宇宙中运作的实体及其维度有关的。 他同我和其他原实体创造的其他宇宙中的实体并不相关，因为他们有自己的体验和成就的独立记录。 这些记录有不同的名字。那么阿卡西记录的名字是阿卡西，这是什么意思呢？ 名字肯定有什么意义吧，因了给事物分门别类的贴上相应标签，本质上名字并不需要有什么特别的意义或功能，那是人类的需要，也是具有类似的群体因化水平的其他实体所特有的需要。 阿卡西的本意是永恒，这是一种永远无止境恒长的状态。 从你们的观点来看，阿卡西记录一直存在，并将永远存在。 因此他们是这个宇宙的永恒记录，跟我多说说阿卡西记录的情景，假设模拟功能吗？ 这不是被个体使用的功能，因为它同时有需要太多灵魂互动，所以不能被个体使用。 为了实现某个集体目标而共识的一大群实体可以使用它，你们也是这些大群组中的一员，名些大群组可以是远来自地球的化身实体无关的。 比如你们群组也可以是来自因进化机缘，而只与地球联系在一起的实体。 这些群组是做什么的，他们帮助文明朝着某一个能提升进化机会的方向发展，这是做好事进化的机会，并不总是意味着一个人必须做你所谓的好事好和坏事，评判人与人行为的具有决定和分离性色彩的语言工具，人们更喜欢使用好这个词，也喜欢被这样形容。 但是这并不意味着好人的进化速度会比坏人快进化是关于体验，以及在呈现给个体的某些体验中认出进化机会。 例如，如果一个实体一直在地球上做好人，他会因为不够真实而遭到当地社群排斥这种体验，本身就有其进化积分，因为被看作是伪善或帮到忙的人，会伴随产生一大堆情绪，同样做坏事，这也可能会有他能够加分的一面。 因为某些情况下做坏事会带来悔恨的情绪，本身就是一种强大的情感和进化体验。 你看为了能够进化，你必须从梯子的最底下一起开始，这意味着你需要经历尽可能多的事情，无论好坏，这样你就可以在某种程度上达到一种平衡的存在视角，并且获得让你和你的同伴在化身中一起进化的必要经验。 一旦完全理解了这一点，你们就可以身处较低频率肉身的同时，在较高频率中开展团队合作。 这意味着你们可以一起改变文明的进程，或改变当地群组的同时，来帮助他们进化，为此寻找最佳路径的最好场所，就是阿卡西记录。 有趣的是，受到正在阿卡西记录中运行的情景，假设模拟影响的实体。 假如他们当时还没有转世，也会意识到他们将会如何受到影影响？ 这通常意味着在阿卡西记录周围会有一群观众，他们主要是出于兴趣，但也会对策略改进提供意见。 这一定意味着有数千甚至数百万的实际会同时参与到正在上演的情景。 假设模拟中是这样的，这就是为什么他并不会经常开演。因为这需要所有这些实体为了情景模拟的成功，在同一时间一起工作情景模拟的结果，还需要得到受影响的实体的同意。 因为这可能会以某种方式影响到他们的进化过程。哇，那么这种情景假设模拟多久会上演一次呢？ 我已经解释过他什么时候发生。但是我猜你想问的是一个情景模拟的上演需要什么条件？ 是的，就是这个你仅仅大致描述了一下，为什么？因为这没有说明何时会发生在需要对文明的发展方向做出重大改变的时候，我们会用阿卡西记录进行这种层次的情景模拟，要么是为了使该文明不至于灭绝，让它灭绝，太浪费了。 尤其是当他在整体框架中还要发挥部分作用时，要么是恰逢帮助这个文明更快进化或者前进到下一个发展阶段的适当时机，我在这里使用文明一词。 因为我说的是正处在物质频率维度中的实体，这些是情景假设模拟的最佳使用场所。 因为转世在这里的实体们不再记得自己的生命蓝图是什么？更不用说他们处于这个层面时所使用的身体在记的计划了。 那么你真正想说的是情景，假设模拟很少被使用，而且只是为了帮助处在较低频率的时期才被使用的总结的不错。 所以这个宇宙中，所有人类和其他实体存在的总和都存储在阿卡西记录中。 所以可以用它来预测所有文明的方向。这个方向可以被那些设计文明走向的灵体部体，改变变阿卡西记录的假设情景模拟功能，可以让他们精细的调整，他们的计划，以获得理想的结果。 正是这样。更重要的是，这正是人类在世界危机时期所做的事情。 你看进化并不是单凭运气，人类和其他化身种族持续处于监平之下，并且不断被修改，以确保加速进化过程增加进化的机会。 你们有没有停下来？想过为什么现在地球上的生活节奏是如此之快？ 为什么这么多的发明会开花结果？是的，我们似乎总在东奔西跑，以至于没有时间留给自己去做冥想和高哦，甚至是和你连接。 是的，但这个奔波背后的真正原因是什么？
 
 SE:There is more to the Akashic than that. 
 
@@ -7068,7 +7072,11 @@ SE:Yes,but what's the real reason behind this rushing around?
 
 #### Current Experiments on Earth
 
+**当前地球上的实验**
+
 ME:I have no idea.Is it part of an experiment? 
+
+我：我不知道它是某个实验的一部分吗？这个宇宙和它的所有维度都是一个实验。 但是目前的确有一两个小实验正在进行。第一个是看谁能够与他的高额连接上，从而能在令人分心的新鲜刺激的信息轰炸中进入真正的实像，并且帮助他们去教导别人做到同样的事。 第二个是把体验的基础水平提高一到两个等级，直到你们可以和其他化身一起合作，并因此增加整个化身物种的进化机会。 此外，提高一两个等级也会提升你们自己的基准频率水平，使你们所有人都再次对更大时相变得更加敏感，从而使你们回到在你们存在的此刻，本应处于的位置。 目前你们体验的所有技术都不错，但是他们掩盖了你们真正的潜能。 因为通过引入人造手段来解决那些由于人类没有处在本应处于的频率而产生的问题。 凭借你们的真实能力，你们其实不需要周围这些人造的设备或机器，这就是你们作为一个种族所需要克服和理解的东西。 实际上这确实也是一个速度竞赛。从这个词的本意来说，人类正在急速回归源头回归起源。 为什么是一个种族？我以为一个实体的进化是个人的事，最重要的是体验不同的事情，让你作为一个实体得到成长，而回归源头只是个人的选择，回归源头的确是个人的选择。 如果你觉得合适，你也可以自由的选择。不这样做，这是一场比赛，只是因为大多数实体真的希望回到源头来享受和抑与完整的感觉。 这是分享他们对起源的贡献，对自身和所处环境的认知与体验。 这是他们存在的终极理由，即帮助起源更好更快的了解自身。 更重要的是以一种他自己原本意想不到的方式，是我以为起源能够想到一切，并且体验一切。 当然可以，但是这样做的好处是作为较小的实体，你可以以一种更加个性化的方式来体验事物，甚至超过起源。 只因为你没有被更大的事物分析。其实你可以深入了解那些从起源的角度看来，不感兴趣的世节要做到这一点，你需要变成更小的实体。 这就是为什么起源创造了我。而我接下来创造了你们所有的个体，去了解细节，并尽快带着这些信息回归起源，阿卡西记录只是人类经历过可能经历或想要经历的全部综合体验的存储库，这些都是在受限环境中基于自由意志的选择很好，但你只提到了人类。 你之前强调过所有化身生命的过去，现在和未来的生活信息也都存储在阿卡西记录中，你现在有点较真了。 当然我说过物物质宇宙及其维度和频率中的所有实体化身的所有生命体验都存储在阿卡西记录中，我只讲了人类纯粹，是因为那是与我沟通的这部分。 你目前之所在。如果我把你的其余分身所在之处也包括进来，你只会感到困惑。
 
 SE:The whole of this universe and its dimensions is an experiment,but yes,there is a small experiment or two going on at the moment.The first one is to see who is able to make contact with their higher selves and,therefore,break into the real reality whilst being bombarded by all these new distractions and to help them to teach others how to do the same.The second is to bring the base level of experience up a notch or two,up to the point where you can work together with other incarnate entities and,therefore,increase the evolutionary opportunities for incarnate-kind in total. Additionally,raising yourself a notch or two will increase your base line frequency levels to one where all of you will become more sensitive to the greater reality again, thereby,putting you back to where you should be at this point in your existence. 
 
@@ -7088,7 +7096,11 @@ SE:You're being pedantic now.Of course,I mean all the life experience of all inc
 
 ### Chapter 19 - Living Many Incarnations Simultaneously
 
+**第19章：同时的多个化身**
+
 ME:Whoa!That was a big jump!One minute we are talking about humankind and the Akashic records,the next you drop in the insinuation that we are living more than one life at once. 
+
+我：哇，这是个很大的跳跃。 前一秒我们还在谈论人类和阿卡西记录下一秒，你就暗示我们同时过着不止一个人生，现在是时候把它放进谈话里了。 我之所以这样做，是因为首先我们开始在阿卡西记录这个话题上都签字了。 然后现在是引入多个人生并存话题的恰当时机，为什么一个实体想要同时拥有不止一个化身人生呢？ 前一个人生好像就已经占据了我所有的时间，同时经历多个化身的做法是绝大多数灵魂的常规和普遍策略，目的是加速进化潜能。 为什么我们会认为自己只过着一个人生呢？因为你们有限的意识觉知你的意识特特别专注于你所转世的本宇宙和这个维度的这个肉身假使你在你并没有觉知到你拥有能进入你处于化身状态或处于能量状态的其他自我部分，就像大多数人一样，在这样的能力的情况下，进入了自己的其他部分的。 此时此刻的体验当然并没有时间这回事，这会让你发疯的。 事实上，现在就有一些在地球转世的人能时常进入到他们同时刻其他部分的体验。 这些人在哪里？他们为什么不用高音喇叭，把他们的精力昭告天下告诉其他人真相远比我们的无感所接受到的要多得多。 因为他们都在精神病院里，他们不能妥善应对他们所经历的事情。 因为他们不知道他们到底在经历什么，更糟糕的是，他们周围或亲近的人也不明，所以而且不理解他们更为糟糕的是，他们想不出办法来解决他们面临的问题题。 因为这超出了他们的理解范围，这个问题，被精神病院的医护人员搞得更加复杂了。 因为他们只会根据医学院所学到的知识去处理精神问题，精神病院里的所有病人都是在同时经历着许多人生吗？ 当然不是了，许多人并没有经历自我其他部分的体验，而只是能够进入与地球相关的其他维度的更大实效。 所以他们能看到其他事迹地球上的其他问题。这些我们大多数人看不到或者感受不到的东西。 正确好了，我们跑题了，同时存在众多化身的话题，值得重点讨论。 正如我之前所说的那样，这是一种普遍的做法，几乎从人类发展伊始，就一直被采用。 如果你还记得在这个对话的早些时项，我们讨论了人类能量体研制物质身体的问题，以及在尝试转世初期的共享身体有关的一些问题。 由于人类形态的物质和能量设计不完善所导致的身体和能量失调的共享扩散情况，物质身体的共享会造成能量功能失调情况的蔓延。 从某种意义上说，这是让人们开始多个平行人生的最初诱因，将自我分裂为更小碎块的做法，直接来源于模仿起源和其他原始体的类似做法。 因为起源和原始体发现这样的方式会使进化更有效。那么我们的不同化身都被限制在地球层面了吗？
 
 SE:It was the right time to drop it into the conversation.I did so for the following reasons: first,we were starting to go around in circles about the subject of the Akashic.Second, it is the right time to introduce the subject of living many lives concurrently. 
 
@@ -7118,7 +7130,11 @@ ME:So are we limited to the Earth plane?
 
 #### In Earth's Universe:in Any Dimension,on Any Planet,in Any Galaxy,at Any Time 
 
+**在地球所在的宇宙：任何时间，任何星系，任何星球，任何维度**
+
 SE:No,this is the whole point.You are able to and do have several parts of yourselves incarnate all at once in as many physical or dimensional locations as you deem necessary.This can be in any dimension on any planet in any galaxy at any point in time (event)of this universe.In essence,one part of you can be with Me now having this dialogue,being just on the border of awareness,whilst another part of you can be in another dimension as part of another race,either incarnate or disincarnate with full knowledge of who,what,and where the other sum parts of yourself are.And you are able to communicate with them and to relish in the experiences they are having and being fully able to make use of them as evolutionary opportunities in the environment that that part of you is currently experiencing. 
+
+源实体：不而且这才是一切的重点。 你可以，而且确实有好几个部分。同时化身于你认为必要的多个物质或维度空间中，可以是这个宇宙任何时间点的事件中，任何星系的任何星球的任何维度上。 实际上你的一部分可在现在你正处在觉知边缘的状态与我进行对话，而你的另一部分可以在另一个维度，作为另一个种族的一员，不管是转世肉身还是脱离肉身，都完全知晓你的其他所有部分是谁在哪里做什么，你可以和他们交流，并且品味他们所拥有的体验，从而能够充分利用他们作为这部分的你在当前正经历的这个环境中的进化机会。 所以作为一个多化身的时期，我也很可能在这个宇宙的某一个世界上是个穴居人，而同时在另一个地方，你是一一个跨维度的操纵者，在你原本的能量环境里监控着一切。 没错，你看这是你在最短时间内体验你想体验的一切的最好方式。 那么如果我的某些部分能够接入并体验到我的其他部分在这个宇宙的其他地方的体验，为什么还有另一些部分的？ 我比如现在正在予以沟通的这个部分，我不能接入呢，那是你个人选择的问题。 而且你也要权衡拥有这样的能力和知识，给处在那个环境的那部分的，你带来的好处。 最重要的是，这种知识会影响你试图在化身中进化成就的可信度。 因为为了让这个化身发挥最佳表现，需要与更大时相相分离，在没有预知能力的情况下，让决策的体验最大化，并让渴望体验个体化的灵魂，完全沉浸在分离个体中体验的效果最大化。 第一个重要的因素是在所有层面体验生命的潜在可能。因此，能同时以个人身份在特定事件或时代，从所有角度及从各种丰盛影响力和贡献程度来理解一个文明，从而最大限度的增加化身到物质层面所带来的进化机会。 我热切的希望能帮其他有机会阅对本文的人清楚了解，这对于他们个人来说意味着什么，这对他们有什么影响，他们应该担忧吗？ 他们应该害怕吗？他们应该兴奋吗？我觉得愿意对更大识相的可能性。 敞开胸怀的人，只会因这种知向而受到启发，那些会害怕或担忧的人，可没有准备好阅读这些文字，一开始也不会购买一本讲述这些细节的书了。 不过我们也没有必要进入更深一步的细节了，因为太复杂，只会把人搞糊涂。
 
 ME:So it is quite possible for me as an entity to be a cave man on one world in this universe... 
 
@@ -7138,7 +7154,11 @@ SE:I would not expect anyone who is open to the possibility of greater realities
 
 #### The Downside of Communicating with Other Parts of Self
 
+**与自己的其它部分沟通的弊端**
+
 ME:I just think that it would be interesting for others and myself to understand a little bit more about what it is like to be one of those beings that are both aware of the fact that other parts of their higher selves are living other lives,having other experiences and are able to tap into them to use those experiences for potential use in the environment in which they are incarnate. 
+
+我：只是觉得对其他人和我自己来说多了解一点这样一种实体的体验。 他们记明了自己高，我的其他部分在过着其他生活有着其他体验这个事实，又能在需要时直接在自己当前的化身环境中，与这些其他生活链接一定会是一件很有趣的事。 对于很多实体来说，知道这是更大实相的一部分就够了。他们不渴望或不需要与自己的其他部分保持持续的接触或沟通。 他们意识得到，但决定把精力聚焦于当前维度中的事情上。 他们知道探究他们正在经历的其他生活会分散注意力，对他们目前的化身没有太大帮助，想想你自己的状况能进入你的另一部分。 正在经历的，比如中世纪的生活，对你现在的化身有用吗？ 大概没用有这种接入你的另一部分，所经历的生活的能力，比如进入一个能够遨游时空。 而且从你们的角度来看，是没有肉体化身的文明中，能帮助你理解你自己的体验和进化，进而理解这些事，如何跟你的整个进化进程相契合吗？ 我会觉得相当有趣，但是很难。是的，你会觉得很有趣，但这会非常分心，而且可能会对你此时此刻所学的东西起相反的作用。 正因为如此，知道这个概念就行了，不用过多，了解细节，否则会对这个本不该太让人沉湎的话题琢磨过多，而不是让人有机会扩展他关于何为真实现实，或者说实相的思考。
 
 SE:To many entities,knowing that this is part of the greater reality is enough.They do not desire or need to be in constant contact or communication with the other parts of themselves.They are aware but decide to focus their energies on doing the jobs at hand in the dimension they are projected into.They know that delving into the other lives they are living would be a distraction and would not help them too much in their current incarnation.Consider your own situation.Would being able to tap into a life that another part of you is having,say,in the Middle Ages,be useful to you in your current incarnation? 
 
@@ -7152,7 +7172,11 @@ SE:Yes,you would find it interesting,but it would be a major distraction and one
 
 ### Chapter 20 - Illness 
 
+**第20章：疾病**
+
 Being trained in a couple of healing techniques,such as Reiki and energy-based healing (Brennan Healing Science)from one of Dr.Barbara Brennan's direct students,who also provided a significant amount of content of the course based upon the work of John and Eva Periakos,I was aware of how dysfunctional thoughts can cause energy-based dysfunction which affects the human body physically.I had also seen how other more open-minded physicians were recognizing and advocating the knowledge that some physical ailments are manifested from energetic or psychologically induced conditions. 
+
+我曾接受过大量的疗愈技术的训练，比如灵气以及一种从芭芭拉布兰能的一个直系学生那里学到的能量疗法，或者说布兰能疗法，他还提供了大量基于约翰和伊瓦皮拉克斯的课程内容。 因此，我明白扭曲的思想如何能造成能量层面的功能障碍，从而影响人的物质身体从也见过其他一些更加开明的医生或可并宣传这方面的医识，也就是某些身体病痛的显现，其实是由于能量或心理状况所导致的。 我之所以会想起这件事，是因为我最近受到背痛的折磨，都两个月了还没好，我得承认。 虽然作为一个好动的人，我并没有完全给他自我疗愈的机会。但是尽管如此，我却不能把这疼痛归咎于我做的锻炼，正好有人给了我一本约翰萨诺医生的书和一张光盘，他的书里专门讲到背痛，实际上是我们孩童时期的心理状况造成的，而且那个小孩仍然存在于我们的无意识之中。 我开始来了兴趣，我看了那张光盘和书里的相关章节，果然我的背痛在一个周内就消失了。 此外，有一次在我去上班前在做晨间冥想时，我接收到一条信息，就是要为这本书写一个关于疾病的简短章节，经过几天的思考，我照常把这个主题交给原实体进行讨论。 哦，我不得不说，我有点诧异，我们竟然还没有讨论过。这个。其实我们提到过一点点，我们谈到过不同的实体，为了体验而占据同一个肉身，他们之间的互动会导致出现身体问题。 我们确实谈过，只是如此重要的一个问题。我很惊讶，他竟然成了被留到这本书，最后才谈论的话题之一。 我猜这是因为很多情，其他人已经就这个问题出过书了。
 
 I was pondering upon this as I had recently been experiencing a bad back,which was not getting better even after two months!I have to admit though that,as an active person,I was not totally giving it the chance to heal itself,but,nevertheless,I could not attribute the exercise I was doing to the pain I was feeling.Hence,when I was given a book and a DVD by a John E.Sarno,MD who had specifically written about how backache was essentially born from psychological conditions that we have carried with us as a child,and that "child was still with us in our unconscious,"I started to take interest.I watched the DVD and read the relevant parts of the book and bingo,my back problem disappeared within a week.
 
@@ -7168,7 +7192,11 @@ ME:I suppose it is because many other people have already published on the subje
 
 #### The Role of Pain in Getting Us Back on Track 
 
+**疼痛的作用是让我们回归正轨**
+
 SE:Mmm,not convinced.O.K.,let's look at this from a different angle. 
+
+源实体：不太有说服力。好吧，我们从另一个角度看看这个问题吧，作为一个能量体，你能自由自在的做，你想做的事，没有人会干涉你。 但是作为一个转世，在物质身体中的能量体，你会被其他人的低频思想产生的很多较低的频率所影响，结果就是你会受到情绪矛盾的影响。 这些矛盾极为微妙，你的潜意识几乎无法觉察到潜意识和无意识心智识。 基于第二和第三层能量，灰光场的理性思维无法被潜意识。 立马察觉到这两个层级的认知作用都与身体和潜意识相连。 由于他们存在于不同的能量层，所以不能被潜意识。你作为能量实体的最低认知功能所识别或了解。 因此，当你经历某事时，潜意识会记录下对所经历活动的逻辑反应，而无意识和潜意识会把交流情感共情等更高功能上的情感体验记录下来。 潜意识把体验合理化为令人向往的享受的和有教育意义的世俗的，然而却始终是进化过程的一部分。 注意它无所谓好坏，它只是经验性的，而无意识与潜意识则在必要性与和异性的更加精微的维度上，将这种体验合理化，正是这两者对人类身体有着最大的影响。 因为他们携带着在完整能量自我与较小化身自我之间交流的更大机会。 这些层级的交流涉及身体而非心智功能。因此，在正确的时间采取正确的行动时，已产生感觉良好的因素，也就是不去逆流而行。 因此，他们可以被归类为当行动方向与计划相符或不相符时，物质身体所发生的一种非理智或非逻辑的自动反应。 这个计划是指在转世前选择的进化机会，以以及经历这些机会的最佳时刻，沿着正确的道路做正确的事会带来从肉体的角度看来，一种无法描述的完满的感觉，而沿着错误的或非最佳道路行进的后果。 这会带来身体上的疲惫和迟缓的感觉。这还会造成情绪上的问题，比如恐惧，他是没有按照事先规划好的道路走的直接产悟。 这通常显现为身体上的不适，这是最佳的描述方式。因为这是能量自我，让化身自我知晓所传递信息的最有效的方法，告诉他，有些事情偏离了计划，转世机会没有得到最大选择。 这一般是直接指向某些方面的行为和相关选择，这是化身实体与能量部分保持联系的那部分会尽最大努力警告潜意识去解决手头上的问题。 这时与这个体验相关的感觉或情绪就会被释放出来，而造成痛苦。 尤其于是，当情绪积存太久时，以促使潜意识注意到手头上的问题，这些痛苦的感觉往往过于巨大，以至于有些化身难以承受。 于是就会以能量的形式被肉体所吸收，被吸收后就会产生能量的不和谐，这会影响到身体器官的正常功能，以及称为灰光场或者说气场的更高能量界面相关的潜在能量流和能量互动能量紊乱，会导致物质身体的功能紊乱以及疾病疼痛。 这是因为物质身体的功能正在与紊乱的能量相抗衡，可以把它想象成试图接收，注重能量，却被应塞给了一个立方体的能量。
 
 As an energetic entity,you are free to do what you will with no one else interfering with your work.However,as an energetic entity incarnate in a physical body,you are influenced by many lower frequencies that are created by the lower thoughts of others. As a result,you are subject to emotional contradictions,which are so subtle that they are barely detectable with the conscious mind.The sub-conscious and the un-conscious mind is rational thought that is based upon the second and third energy/auric levels and is,therefore,not immediately accessible by the conscious.These two levels of cognitive application are both tied in with the physical body and the conscious mind.Due to their existence on a different energetic level,they are not recognized or accessed by the conscious mind,the lowest cognitive application of you as an energetic entity. 
 
@@ -7182,7 +7210,11 @@ The result is that the part of the incarnate entity that is in contact with the 
 
 #### Correcting/Removing Pain 
 
+**修正，去除疼痛**
+
 Me:So this is what pain is and how we get it. 
+
+我：所以这就是疼痛是什么？以及它是怎么来的？简单来说是的，那么我们该如何修正它呢？ 通过调频到这个疼痛，尝试去了解为什么会有这个疼痛，要想这么做，你就不能忽略任何显现给你的图像。 因为那个功能失调可能延续了从几分钟至几十年，甚至是几辈子之久。 一旦被认知到能量流就被修正了，也就不再被物质身体所吸收，也就不再需要通过扰乱身体来警告潜意识有失常情况，这样就可以恢复正常了，你就可以无病无痛的在物质世界继续顺流前行了，这个管用吧，管用相当管用。 那么一般的疾病呢，一般疾病怎么了？那面讲的对，它也适用。
 
 SE:That's it in a nut shell. 
 
@@ -7200,21 +7232,37 @@ SE:What about it?It applies to the comments above.
 
 #### Challenges of Higher Energetic Frequency Individuals in Low Energetic Frequency Environments 
 
+**高频能量个体在低频能量环境中的挑战**
+
 ME:But there must be other reasons why we get ill other than those created by energetic disharmony. 
+
+我：但是除了能量失调之外，肯定还有别的使我们生病的原因没有了，所有的疾病都来源于能量上的协调问题。 听我说，我想我明白你要说什么疾病，永远都是能量失调的产物。 然而，它也可能是由于处在与你不相协调的能量层级里引起的。 举个例子，如果你所在的人类载具的能量系统本来是为了生活在较高能量频率而设计的。 而你所处的周围环境的频率就比理想状态要低。那么你的能量身体和物质身体之间就不协调了，物质身体能够在一定程度上应对这种不和谐，而且仍然表现出功能正常。 也就是说，身体的脉轮和器官有一个可以正常工作的容许的这种功能正常的表象可以持续若干年，有时会是几十年，但最终这种不和调会开始让你付出代价。 身体中最不能应对能量，处于容许度极限的那个器官将会开始失常，可以把这个看作是一个电动机被不断的无规律的开关开关，反电动式的破坏，导致电机功能退化，最终产生故障。 如果某些器官衰竭就会造成人体死亡。
 
 SE:No,it all comes from energy-based harmony issues.Listen,I think I understand what you are getting at now.Illness is always a product of energy dysfunction.However,it is also a product of being in an energy level to which you are not attuned.For instance, if you are in a human vehicle whose energy system is designed to exist in a higher energetic frequency and the ambient frequency that you find yourself in is lower than the desired frequency,then the harmonics between the energetic and physical bodies will be incorrect.The physical body can cope to a certain level with this level of disharmony and will appear to function as normal,i.e.,the body's chakras and organs have a tolerance within which they can work.This appearance of correct functionality can exist for years,sometimes tens of years,but eventually the disharmonies will start to take their toll.The organs of the body that are least able to cope with the energies that are at the lower end of the tolerance will start to fail.Consider it like an electric motor being switched on,off,on,off constantly but irregularly.The back EMF (electromotive force)causes damage resulting in degradation of the motor's functionality,which eventually leads to failure.With some organs in the physical human body,this failure can result in its demise. 
 
 #### Chakra and Organ Transplants 
 
+**脉轮与器官移植**
+
 Organ failure can also be attributed to chakra failure when the chakra affecting the energy regulation of the physical organ associated with it no longer performs its function.The physical organ also ceases to perform its function,again resulting in the demise of the physical body.The only way out of this is the transplanting of a new chakra and quite possibly a physical organ at the same time although if caught in time the chakra transplant can reverse the energetic damage of the physical organ.Interestingly enough,the rejection issues your doctors have encountered with some of the more major organs are related to the further energetic disharmonies created by the replacement of a physical organ without the associated original chakra also being transplanted.If this were known by your doctors,they would see the need to work side by side with energy healers who could perform transplants of the correct chakra associated with the donor organ.An added bonus is that they would no longer need to have immuno-suppressant drugs administered to the patients post organ transplant because the organs would not be rejected by the body's energy system,for all would be in harmony. 
+
+器官衰竭，也可能是由于脉轮失效，也就是影响某物质肉体器官能量调整的脉轮不再工作了。 于是物质器官也就停止了工作，导致物质身体的死亡。唯一的补救措施是移植一个新的脉轮，同时也很可能需要一个新的肉体器官。 不过如果治疗及时移植的脉轮，可以修复物质器官的能量损坏。 有趣的是你们的医生所遇到的某些主要器官的排异反应，同时是指移植了物质器官，而没有移植相应脉轮，所以造成了进一步的能量失调。 如果你们的医生能够认识到这一点，就会明白需要与能量疗愈师合作，后者可以移植跟捐献器官相匹配的脉轮，这样做的附加好处是他们不再需要让器官移植术后的病人吃抑制免疫力的药了。 因为一切都是和谐的身体的能量，系统不会排斥新的器官了。
 
 #### The Rule of Longevity 
 
+**寿命规则**
+
 In essence,physical illness and demise is the result of the gradual damage caused by lower frequencies in your environment.The rule of longevity is that the lower the ambient frequency,the shorter the lifespan of the human vehicle.In its current state of creation,the human vehicle is not designed to be used in the lower frequencies that the Earth is currently experiencing.The human body was designed to work within energies of a much higher level,which allowed it to exist for the thousands of years it was originally designed for.The proof of this is in front of your face.Just look for the cities around the world where people are low of spirit,and you will see people of low life spans. Where people exist in areas where they are high in spirit,they live much longer.Raising the frequency of the Earth is the only solution to removing disease,dysfunction,and early demise of the physical form. 
+
+从本质上说，物质身体的疾病和死亡，是由于你们环境的低频率所造成的渐渐是损坏。 寿命的规律是周围频率越低，人体寿命越短。在创造的当前阶段，人体不是为地球现在所处的低频率而设计的人体本来是为了在高很多的能量层级而设计的。 在那个能量层级下，人体按照原先的设计可以存活几千年。 这个证据就在你们眼前看看世界上那些人们精神堕落的城市，你就会发现那里的人短寿。 而在人们精神高尚的地区，他们的寿命就会长很多，提高地球频率，是消除疾病功能障碍和肉体早逝的唯一解决办法。
 
 #### I Am Part of God 
 
+**我是神的一部分**
+
 ME:So how do I know that I am part of God/the Source/the Origin?I have no one telling me that I am part of God. 
+
+我：那么我怎么才能知道我是神源头起源的一部分呢？ 没有人告诉过我，我是神的一部分，你由我来告诉你，可是我怎么知道你是真实的。 如果你是真的肯定，所有人都会熟知你这完全取决于进化和截知程度，只有那些足够进化的人，才能认识到更大的实像。 他们知道我他们是存在于一起的。
 
 SE:You have Me telling you. 
 
@@ -7224,7 +7272,11 @@ SE:It is all about evolution and awareness.Only those who are evolved enough are
 
 #### Communicating with the Cells in Our Bodies 
 
+**与我们身体里的细胞交流**
+
 ME:But surely a God that is so big would not be able to communicate with Its lower parts. For instance,I cannot talk to the two cells in my liver that are exchanging oxygen and nutrition with the rest of my body.I simply don't know how to do so.I doubt if these two cells know that I exist as their "God." 
+
+我：但是如此宏大的神肯定没办法和较低级的部分交流。 比如我无法跟我肝脏里正与其他身体部分交换氧气和氧分的两个细胞交谈，我完全不知道该如何与他们交谈？ 我怀疑那两个细胞是否知道我作为他们的神的存在。第一，如果你真的想你就可以跟他们交谈。 因此他们知道你的存在，因为他们是专门为你物质身体的利益而工作的细胞可比，你想象的更智能。 还记得吧？他们是由RNA传给DNA的指令，直接创造的RNA跟你的灵体有着不间断的联系细胞。 通过RNA，从灵体接收下一步该做什么的指令任务完成后，再把信息传回灵体。 因此他们与灵体有持续的接触，而你的理智却没有。因为你总被你周围发生的事情分析。 所以你跟自我我交流的能力被削弱，甚至被忽略了。你这话不是认真的吧，我怎么能跟我的身体在细胞的层次进行交流。 如果不用显微镜的话，我的肉眼都看不到细胞。
 
 SE:One,you could talk to them if you really wanted,and two,they know you exist because they work specifically for the benefit of your physical body. 
 
@@ -7234,7 +7286,11 @@ ME:You can't be serious about this!How can I communicate with my body at a cellu
 
 #### Seeing the Cells in Our Bodies
 
+**看到我们身体里的细胞**
+
 SE:I am deadly serious.All you need to do is focus on an area of your body with your mind's eye and zoom into that area.Most of the time your communication will be the same as we are doing here,communicating by talking in your mind.But when you get better at concentrating and shutting out the distractions of the physical world,you will even be able to see these cells and appreciate the surface of them to the point where you can see the communication interactions of the cells and the RNA and how the cell changes its shape,how the color of its outer surface changes,and how it grows/ creates different types of tendrils that have different shapes and,therefore,different specialties.You will see these tendrils come and go from the surface of the cell as they are reabsorbed back into the body of the cell when they have finished the job they were doing.You will marvel in the beauty of the work they do and the efficiency in which they perform their work. 
+
+源实体：我是非常认真的，你只需要用你一实验聚焦在身体的一个部分，并放大那个部分。 多数时候你的交流就像我们现在做的一样，通过你的意念交流。 而当你能更集中精力屏蔽掉物质世界里分馨的事情，你甚至可以看到这些细胞并欣赏他们的样子，直至看到细胞与RNA之间的交流互动，看到他们如何变形，如何变换表面的颜色，如何生长，创造出各种不同形状不同特性的卷息，你会看到这些卷息在细胞表面忽隐忽现。 因为当他们完成了任务后，就会被细胞体收回。你会惊叹于他们所做工作的美丽与效率。 我刚刚看到了，你描述的景象太奇妙了。当科学家们用电子显微镜或高精度光学显微镜研究细胞时，他们能看到我刚看到的你所描述的这些吗？ 有时候能他他们倾向于看到他们想看到的这会把他们局限在时间中的一点。 这意味着他们只看到了这些细胞，变成了做某事所需要的交流。媒介时的样子，他们没有停留足够长的时间，看不到通信卷息发生变化，他们只看到了细胞的认知卷息。 我觉得他们能看到，因为他们有时会用胶片拍摄细胞的分裂或突变。 是的，他们是拍了，但是我说的卷息式亚原子级别的用电子显微镜很难看到，除非他们知道他们在看什么。 另外他们用电子显微镜观察到的运动或变化的记录方式并不完善。 我觉得这些还是不够有说服力可能吧，但这是真的要知道，如果放在四百年前，那些使用比空气重的机器飞行的人会被称为巫师会议教徒。 但是今天这件事已经被大家习以为常了。
 
 ME:I just got an image of what you were just describing.It's fantastic.When scientists are studying cells with electron microscopes and other high powered optics,do they see what I just saw and what you were describing? 
 
@@ -7250,7 +7306,11 @@ SE:Maybe,but it's true.Remember people who fly in heavier than air machines woul
 
 #### Cancer Cells 
 
+**癌细胞**
+
 ME:O.K.,O.K.I have a question on cancer cells. 
+
+我：好吧好吧，我有个关于癌细胞的问题。好的，问吧，如果细胞随时都在通过RNA与灵体接触，那么癌细胞是如何形成甚至存在的呢？ 即使是癌细胞，也与你的灵性能量有联系。他们跟所谓的好细胞一样，也是按照知识行动，但不同之处是他们是听从灵体，只是去做错事的细胞。 实质上，你在物质层面的互动影响着高层级灵性能量的频率不调整，这导致发往那些细胞的指令的转移混乱，使他们行为异常。 在这种情况下，可能是细胞在该分解的时候不分解或者未做某件工作，制造出多于所需的细胞，甚至是攻击已知的好细胞。 这就有点像你开着车直接去撞墙。你在正常情况下可不会这么做的对吧？ 那么灵体怎么会只是细胞去做措施呢？我以为灵体是纯洁的，因为和物质身体的互动，破坏了能量的和谐流动，改变了它的含义或目的。 这是由于转世到人体的那部分，你对你遭遇的情况产生不良反应的结果。 你的不良反应是因为你位于灵体调整，于是也就看不到导致一切发生的过程中的美。 也就是说，你不会接受并从中学习，相反你拒绝并觉的受够了。 如果能把这情形当做一个学习机会来接受会产生顺畅的能量流，但现在能量流被中断了，于是产生了稠密的能量，阻碍了流动，甚至改变了能量特性，也就改变了传递过来的信息。 所以你是说我创造了我自己的癌症。是的，但如果你与宇宙灵体，我相和谐，你就不会创造出它了。 
 
 SE:Go ahead;ask away. 
 
@@ -7268,7 +7328,11 @@ SE:Yes,but you wouldn't create it if you were in tune with universe/Spirit/Me.
 
 #### Byron on Another Approach to Self-Healing 
 
+**拜伦谈另一条自我疗愈之途**
+
 Being in tune with universe/Spirit/Origin/Source is all part of our maintaining a state of wholeness and wellness.This leads me to the subject of healing self when that balance has been interrupted. 
+
+与宇宙灵气，起源源头保持协调，就能保持我们完整与健康。 这把我引到了平衡，被破坏后的自我疗愈话题。一个星期二的早晨，我照常以连接地球能量哈拉以及打开迈伦，开始我的冥想，然后我直接去到第二十七层去见拜伦。 与此同时，我的思维转到了自我疗愈的想法。拜伦把胳膊搭在我肩上，我们一同走出了黑暗，那是我对二十七层的感知来到一个靠近海边的每一地方，有着连绵起伏的山丘和一小片树丛。 这是我特地为你建造的一个心理空间。因为你喜欢地球层面上的这类东西，所以我把他们放到一块好，让你高兴。
 
 One Tuesday morning I started my meditation with my usual linking with the Earth energies (Hara)and opened up my chakras.I then zipped up the 27th level to see Byron.As I was doing this,my mind wandered to the thought of self-healing.He put his arm over my shoulder,and we walked out of the dark that was my perception of the 27th level into a beautiful field with rolling hills and a small wood next to the sea. 
 
@@ -7276,7 +7340,11 @@ B:This is a mental construct I have made especially for you.Since you like all o
 
 #### Healing at the Etheric Body and Ketheric Template Levels 
 
+**以太体和因果模板层的疗愈**
+
 ME:Thank you.I have a question.I know that physical dysfunction is a result of a distorted perception starting at the ketheric template level [See the Glossary and Appendix for further information on the ketheric template.],but I have had this thought that self- healing can also be from the physical plane up. 
+
+我：谢谢你，我有个问题，我知道物质身体的功能障碍是由于从因果模板开始的观念扭曲所造成的。 但是我有个想法，就是自我疗愈，也可以从物质层面自下而上进行关于灵性模板的进一步信息参见附录。 没错，是可以的，要做到这点个体需要调频到以太体或蓝色矩阵，从那一点开始启动修复。 关于以太体的信息，请参见附录，那该怎么治愈自己的疾病呢？比如哮喘，你通过修复以太体有功能障碍疾病或损伤的部位方式是想象以太体那个部位的能量，网格被重建或加固。 接下来想象那个被影响的部位被玫瑰光所包围，造成身体影响的扭曲观念，可以通过做个人的功克来消除决定于这种疾病相关的错误或感知幻觉和假设是什么，然后改变心态，怎么能做做到呢？ 用你的例子，如果你到了一个城市后有哮喘的问题，你可能会发现你的扭曲的看法是住在城里，对你不好。 这个曲解可能来自于你小时候父母的某一个评论，这个关于城市空气被污染了的评论可能会被编程进你的潜意识，让潜意识认为所有城市都充满了灰尘和污染的空气。 于是当你到达一个城市时，就会哮喘发作。如果你住在一个城市，你就会一直哮喘，直到这个心态，通过个人功克而改变，并且肺部以胎体得到再生于以要从以太极和更高的层级来治愈自己。 是的，你需要从因果层开始，因为它是与化身物质肉体有关的，较高层级中的第一层，在第八层以下，一共有十个频率层级与人体有关。 参见附乳，那么改变扭曲的观念本身能治愈你吗？只有当他还没有表现为肉体疾病的时候，如果有肉体疾病，你还需要治愈受到影响的那部分。 以态体拜伦在讲这个的时候，我的感知聚焦到了我自己的以态体里。 我看到我体内和体表所有的三维蓝色能量线就是这样，你还会发现每个不同的器官以及其他身体部位的能量都有着很细微的差别。 我能看到不同的器官或身体部位有着不同的颜色和深浅，对不同的颜色对应于不同的频率组成每个器官或身体部位的细胞的DNA对这种能量进行反应，从而使细胞在它所处频率下，根据需要而变化。 你是说并不是DNA决定一个细胞的功能是什么？而是对应那个器官的，以态体的频率决定的。
 
 B:That's right.It can be.To achieve this,the individual needs to tune into the etheric body(the blue matrix)[See the Glossary and Appendix for further information on the etheric body.]and effect repairs from that point. 
 
@@ -7308,11 +7376,19 @@ ME:You mean the DNA doesn't dictate what a cell's function is?It's the frequency
 
 #### RNA-Etheric Body Frequency-DNA 
 
+**RNA，以太体频率，DNA**
+
 B:That's right;the DNA of the cell waits to be told what it is supposed to do.It waits to receive its programming.It gets this from the frequency of the etheric body it receives via RNA.When it receives this frequency,it switches itself to the correct code for that frequency and makes the cell perform the role required of that organ and the frequency of that organ on the etheric body level. 
+
+拜伦：是的细胞的DNA等着被告知他该做什么，他等待接收它的编程。 RNA传递来自以太体的频率。当DNA接收到这个频率，就把自己转换到与钠个频率相对应的编码，而使细胞扮演某个器官及此以太体层面中，该器官所处频率所要的角色。
 
 #### Stem Cells 
 
+**干细胞**
+
 ME:Wow!So what would happen if I put a liver cell in the frequency of the heart? 
+
+我：哇，那么如果我把一个肝脏细胞放在心脏的频率里会怎么样呢？ 他会过早的死掉，因为他已经收到过作为肝脏细胞的编程，DNA就像一个一次性编程的微型处理器芯片，这是人体的一个安全措施。 一旦细胞受到它的编程，它的整个寿命都限定在那个模式里，细胞寿命也取决于它需要做的功作。 有些细胞可以被编程并被植入任何一个器官或身体部位的以态体频率来帮助修复，你们称他们为干细胞。 如前所述，当这种细胞接收到一个频率，DNA会把那个细胞的功能按照所接受的频率和与器官所需频率对应的细胞类型进行转换。 然而这也不是完全必须的。如果一个人可以调频到被损坏部位的以太母板频率在那里重建，以太模板发起正确的医院，即克服，由因果层以及自大往下一直到物质层的其他层的扭曲观念所造成的疾病，并通过理解这个观念上的扭曲是什么和为什么会产生来纠正他那么肉体的功能障碍就能被治愈。 我以为DNA是建造生命的基石。没错，不过是以太体通过RNA告诉DNA对于所居住房子来说，DNA是什么类型的专实决定权，掌握在以太体的能量频率上。 第二天在和我妻子讨论之后，他当时做的工作是通过改变基因来治疗卵巢癌，我继续与拜伦对话。 我妻子告诉我，他的一些同事在用替换某些细胞DNA的办法来进行DNA治疗。 他说他们认为这样就可以不需要肝细胞来做治疗了。这个办法是有可能的，但得到新的DNA的细胞运作，不会像肝细胞那么有效，但肝细胞还没有被身体的某个特定部位，比如心脏相关的，以太体的能量频率所编程，为什么会这样？ 他好像认为这个是可行的。
 
 B:It would die before its time because it has already received its programming as a liver cell.The DNA is like a onetime programmable (OTP)microprocessor chip,and this is a safety feature of the human body.Once a cell has received its programming,it is stuck in that mode for its life span (which is also determined by the job it has to do).There are cells that are ready to be programmed and that can be inserted into the etheric body frequency of any organ or body part to effect repairs.You call these stem cells.Again,once they have logged into a frequency,the DNA switches the functionality of the cell to that required of the frequency received and required of that cell type for the frequency relating to that organ's functional requirements.However, this is not totally necessary.If an individual can tune into the template frequency of the damaged area,rebuild the etheric template in that area,and initiate the right intentions of overcoming the dis-ease created by the distorted perceptions created at the ketheric level(and its subsequent cascade down the other levels to the physical level)and correct the distortion in perception by understanding what it is and why it arose,the physical dysfunction can be healed. 
 
@@ -7330,7 +7406,11 @@ ME:Why is this?She seems to think it will work.
 
 #### Mismatch Issues of DNA Replacement in Cells 
 
+**细胞内DNA替换的不匹配问题**
+
 B:As I said,it will but not as well as the newly programmed stem cells.This is because a cell whose DNA has previously been programmed has adapted itself to the job required of that part of the body. 
+
+拜伦：正如我说的这是可以的，只不过不会像新编程的干细胞那么好，这是因为一个DNA，曾被编程的细胞已经适应了那个身体的特定部位，需要它做的工作，你的意思是它无法变成别的种类，不能他们工作是因为它拥有某些工具，比如化学指令接收器感受器传送器，再加上其他一些功能和所有细胞一样。 然而举例来说，如果一个细胞以前是一个肝脏细胞，它就不会在心脏细胞专用工具，细胞会在它的DNA被施加，以肝脏的以态体频率时，把那些特定工具或功能抛弃掉。 然而它会被编程为存活特定的时长，细胞已经有一定程度的衰老了，这还会导致另外一个不匹配的问题。 那为什么干细胞就更好呢？因为他们拥有行驶人体任何功能可能会用到的所有工具就等待着以太体能量给DNA编程，告诉他们将会是什么细胞。 另外他们在这个状态是很笨重的。因此，当他们按照编程的要求进行变换时，他们会丢掉原先作为万能细胞时的所有多余的包袱，以便有效的作为某种特定细胞而运作，比如作为肝脏细胞而非心脏细胞。 另外，像前面提到的一个被编程的细胞的寿命也已经被设置好了。 尽管如果需要的话，细胞可以长生不死。但是一旦他们被告知他们的功能，他们的寿命就会为了适应更新陈旧组织的需求而随之改变。 所以比如一个肝脏细胞的正常寿命，比心脏细胞的短。那么他实际上在心脏的环境里，也只能存活到肝脏细胞的寿命，这就造成了兼容的问题。 因为心脏细胞本应活的更长。
 
 ME:Do you mean it can't change to something else? 
 
@@ -7342,7 +7422,11 @@ B:Because they have all the tools they will ever need to perform any function in
 
 #### The Effect of Transplanting a Liver Cell into the Diseased Section of a Heart 
 
+**移植肝脏细胞到心脏病灶部位的后果**
+
 To summarize,a liver cell can have its DNA changed to that of a heart cell,and it can be transplanted into a diseased area of a heart,but it will not function as well as a stem cell that is introduced into the energetic frequencies of the etheric body of a heart.Although it will survive,it does not contain the tool kit of a heart cell.It contains the tool kit of a liver cell and will try to use these "liver tools"to work in a heart environment,which it can't do effectively,but it will,nevertheless,try to do but poorly.This level of poor efficiency will be noticed by the heart's defense system because some of its tools will not be compatible,and the cell will eventually be removed/forced to die.How fast this happens is determined by how fast the heart's defense system picks up the anomaly.So it will do some good,but it will be limited. 
+
+总结一下，可以把肝脏细胞的脱氧核糖核酸，变成心脏细胞的脱氧核糖核酸也可以移植到心脏病灶部位。 但是他不会像被导入心脏，以太极能量频率的干细胞那样运作的那么好，虽然它也能存活，但但没有心脏细胞的工具箱，它有的是肝脏细胞的工具，到于是这会尽量使用这些肝脏工具在心脏环境里工作，这当然是没什么效率可言的，但呢仍会尽力工作，只是做不好。 因为他的一些工具不匹配而造成的这种低效率，会被心脏的防御系统注意到于是这个细胞最终会被清除强制死亡这件事有多快发生，取决于心脏的防御系统，多久能发现这个异常，所以这么做会有些用，但却十分有限。 是以这种基因操作是徒劳的。是的，但正如你们所说的救命道操，有些人会认为运转不畅的心脏，也总比没有心脏强。 一个半吊子的心脏比没有心脏好，这种治疗会有它的用处，但这只是暂时的治疗，直到这些规则被更好的理解。
 
 ME:So this type of genetic manipulation is fruitless. 
 
@@ -9376,7 +9460,7 @@ Guy Steven Needler
 
 The following is derived from instructions I received by my energy healing teacher,Helen Stott,who was a direct student of the Barbara Brennan School of HealingTM. 
 
-#### How to Perform Core Star Meditation y
+#### How to Perform Core Star Meditation
 
 The core star is the essence of who you are.It is described as the source of your physical body's energy.It is the location of your soul and contains the energetic content of the "spirituo-physical,"as well as the individual resonant signature of the incarnate energy that houses the essential objective of your incarnation.Without the soul,your physical body would not function,and your energetic self would not be able to experience the physical realms.Meditating on the light of the Core Star can be used for protection,healing,and understanding your soul's purpose.Please allow up to one hour in a quiet place with no disturbances. 
 

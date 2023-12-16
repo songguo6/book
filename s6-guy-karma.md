@@ -1082,11 +1082,19 @@ False oneness is achieved via association of like-minded individuals working tog
 
 Another way for us to avoid attaining karma is to avoid being "in beholden"to another in any way,shape,or form offered outside of "service. "This could take the form of finances, favors,assistance,or direction.  
 
+我们避免业力的另一种方式是避免以任何方式、形式或形式在“服务”之外“蒙恩”他人。这可以采取财政、恩惠、援助或指导的形式。
+
 When we are held "in beholden"to someone who gives us help outside of "service,"that individual/"helper"gains control over us,the receivers of the help. Thus that person is able to hold us in ransom until we render a "certain"and usually "unknown"level of help in return.  
+
+当我们“蒙恩”于在“服务”之外给我们帮助的人时，那个人/“帮助者”获得了对我们(帮助的接受者)的控制。因此，那个人能够控制我们，直到我们提供“某种”和通常“未知”的程度的帮助作为回报。
 
 The most difficult type of help to repay that is given outside of "service"is "favor"or "assistance"that leads to or provides significant benefit to us as recipients. This can result in our being"in beholden"to that individual for the rest of our incarnate existence with our repeatedly receiving reminders of the level of help given us in the past. In this way we are kept under control and in misery.  
 
+最难回报的“服务”之外的帮助是“恩惠”或“援助”，导致或为作为接受者的我们提供重大利益。这可能导致我们在我们余下的轮回生活中“蒙恩”于那个人，我们不断地收到过去给予我们的帮助程度的提醒。这样，我们被控制在痛苦之中。
+
 Thus,the only way we should give help is in "service"and receive help when the helper is providing us help under the pretext of being in service to us. This ensures that we are not"in beholden"to the helper,nor is the helper "in beholding"to us. Both are free to exist without the need to "give"in return. 
+
+因此，我们应该给予帮助的唯一方式是在“服务”中，当帮助者以为我们服务为借口提供帮助时，我们也接受帮助。这确保了我们没有“蒙恩”于帮助者，帮助者也没有“看重”我们。两者都可以自由地存在，而不需要“给予”回报。
 
 ### Creating Self-Generated Karma 
 
@@ -1094,7 +1102,11 @@ Thus,the only way we should give help is in "service"and receive help when the h
 
 The ego is our "on-board"method of creating self-generated karma. We must beware of the ego and avoid its ways of creating karma while we are working within the physical environment. This includes working with those who are also incarnate.  
 
+自我是我们创造自我产生的业力的“上船”方法。当我们在物质环境中工作时，我们必须小心自我，避免它创造业力的方式。这包括与那些也转世投胎的人一起工作。
+
 Our ego was created during our incarnation process and is a transient condition that dissolves when this incarnation ends. As such,our ego does its best to perpetuate its own existence in ignorance of the fact that it cannot ultimately curtail its inevitable demise. In its ignorance,however,it perpetuates itself by luring us into a false sense of innocence that makes us negate its existence by attracting us to materialistic thoughts,actions and habits that make us "feel good"about our "self"through falsehoods. We must be vigilant and notice the conditions that make us "feel good"so we are not misled by the ego.  Some of these are position,status,appearance,belongings,influence and credibility with others. Clearly we generate some of these through "good living"as well whilst also being aware of karma;however,this can only be achieved if they are generated outside of ego's influence and are received in humility. 
+
+我们的自我是在我们的转世过程中创造的，是一个短暂的条件，当这个转世结束时就会消失。因此，我们的自我尽其所能地延续自己的存在，却忽视了它最终无法阻止其不可避免的灭亡这一事实。然而，在它的无知中，它通过诱惑我们进入一种虚假的无辜感来延续自己，这种无辜感使我们通过吸引我们到物质主义的思想、行为和习惯来否定它的存在，使我们通过谎言对我们的“自我”感到“感觉良好”。我们必须警惕并注意使我们“感觉良好”的条件，以免被自我误导。其中一些是职位、地位、外表、财产、影响力和与他人的信誉。显然，我们通过“美好的生活”也产生了一些，同时还意识到业力；然而，这只能在它们不受自我影响的情况下产生，并在谦卑中获得。
 
 ### Being in Fear 
 
@@ -1102,7 +1114,11 @@ Our ego was created during our incarnation process and is a transient condition 
 
 Without doubt,fear is a low frequency emotion. We can be in fear of something without even recognizing it as fear or,indeed,a low frequency emotion per se. While incarnate,we often focus on that associated with our physical existence rather than remembering that we are very high frequency energetic entities momentarily incarnating in physical forms for evolutionary purposes.  
 
+毫无疑问，恐惧是一种低频率的情感。我们可以对某事感到恐惧，而甚至没有意识到它是一种恐惧，或者，事实上，它本身是一种低频率的情感。在投生时，我们经常专注于与我们的物质存在相关的事情，而不是记住我们是高频率的能量实体，为了进化的目的暂时投生到物质形态中。
+
 As we become absorbed by fear,we are attracted to the lower frequencies by default. As such,our evolutionary progression is held back until we recognize and are able to resolve our attachment to fear and its low frequency energy. We can only achieve this by dedicated meditation on attaining full and direct communion with our Creator. This will lead us to recognition of our divinity,oneness with our Creator,and subsequent infinite longevity or immortality as an individualized unit of our Creator God. 
+
+当我们被恐惧所吸引时，我们默认地被吸引到较低的频率。因此，我们的进化进程被阻碍了，直到我们认识到并能够解决我们对恐惧及其低频率能量的依恋。我们只能通过专注于冥想来实现与我们的造物主充分和直接的沟通。这将引导我们认识到我们的神性，与我们的造物主的合一，以及随后作为造物主上帝的一个个性化的单位的无限长寿或不朽。
 
 ### Generating Karma Due to Boredom 
 
@@ -1110,7 +1126,11 @@ As we become absorbed by fear,we are attracted to the lower frequencies by defau
 
 From an evolutionary perspective when we create self-generated karma,it is like shooting ourselves in the foot. Self-generated karma,in essence,encompasses everything that is identified in this guide. Much of our karmic debt is a result of being "drawn into"various different situations by others,such as gossip,blame,crime,etc. ;however,we can also create karma whilst totally isolated,both in location and in interactions with others.  
 
+从进化论的角度来看，当我们创造自我产生的业力时，就像是在自己脚下开枪。自我产生的业力，本质上，涵盖了本指南中所确定的一切。我们的许多业债是由于被他人“拉入”各种不同的情境，如八卦、指责、犯罪等； 然而，我们也可以在完全孤立的情况下创造业力，无论是在位置上还是在与他人的互动中。
+
 Self-generated karma is,therefore,created by the attraction to and intoxication of low frequency thoughts,activities and habits. This happens when we are in a state of boredom and is created by the ego's need to maintain control of the so-called "conscious self. "In this instance,the antidote is for us to use the time available (free time that results in boredom) to meditate on "just being"or contacting our Creator God,thereby using spare time in a most productive way. 
+
+因此，自我产生的业力是由低频思想、活动和习惯的吸引和陶醉所创造的。当我们处于一种无聊的状态时，就会发生这种情况，这是由自我维持对所谓的“有意识的自我”控制的需求所创造的。在这种情况下，对我们来说，解药是我们使用可用的时间(导致无聊的空闲时间)来冥想“只是存在”或与我们的造物主上帝联系，从而以最富有成效的方式利用空闲时间。
 
 ### Avoiding Coercion 
 
@@ -1118,9 +1138,15 @@ Self-generated karma is,therefore,created by the attraction to and intoxication 
 
 Coercion is generated by persuading others to do our bidding rather than doing things ourselves. It is a practice we must shun at all costs if we are to avoid karma. Whereas persuasion is based upon our presentation of compelling evidence to encourage individuals to change the direction of their thought processes,coercion is insidious because it is brought into play to support the demands of the coercer through devious means,like threats to an individual's business or social position,family,and/or person or is favor-based.  
 
+强制是通过说服别人去做我们的命令而不是自己做事情。如果我们要避免业力，我们必须不惜一切代价避免这种做法。然而，劝说是基于我们提出的令人信服的证据，鼓励个人改变他们的思维过程的方向，强制是阴险的，因为它是通过不正当的手段来支持强制者的要求，比如威胁一个人的生意或社会地位，家庭，和/或个人或以帮助为基础。
+
 To avoid karma resulting from the use of coercion,we must observe the methods we use to negotiate when negotiation is required. We must ensure that we employ only pure thoughts and true evidence in the negotiation process and not personality-and/or position-based persuasion or coercion.  
 
+为了避免因使用强制而导致的业力，当需要谈判时，我们必须观察我们用来谈判的方法。我们必须确保我们在谈判过程中只使用纯粹的想法和真实的证据，而不是基于个性和/或地位的劝说或强制。
+
 If someone requests or we see that someone needs a favor,we should freely give it "in service"and not as a means of coercion. 
+
+如果有人要求或我们看到有人需要帮助，我们应该自愿地“在服务中”给予，而不是作为一种强制手段。
 
 ### Apportioning Blame on Others 
 
@@ -1128,7 +1154,11 @@ If someone requests or we see that someone needs a favor,we should freely give i
 
 If we apportion blame on another as a disguise for our shortcomings,we are disowning our actions and the results of those actions. Moreover,if we accept the accolades of success in tandem with apportioning blame to others,whether or not they are responsible,we are taking advantage of them in a most blatant and profiteering way. Thus,if we select so-called desired outcomes and discard undesired outcomes and then apportion the results of undesired outcomes upon those who may not be able to defend themselves,we are acting in a most irresponsible manner. In so doing,we are missing an opportunity for learning from that experience and evolving.  
 
+如果我们把责任推卸给别人来掩饰我们的缺点，我们就是在否认我们的行为和这些行为的结果。此外，如果我们接受成功的荣誉的同时又把责任推卸给别人，不管他们是否对此负责，我们就是在以最明目张胆和牟利的方式利用他们。因此，如果我们选择所谓的期望结果，抛弃不期望的结果，然后把不期望的结果的结果推卸给那些可能无法保护自己的人，我们就是在以最不负责任的方式行事。这样做，我们错失了一个从经验中学习和进化的机会。
+
 Apportioning blame is a double edged sword,for it not only adds karma but also negates the opportunity for evolutionary progression. 
+
+责怪是一把双刃剑，因为它不仅增加了业力，而且否定了进化进步的机会。
 
 ### Using Others for Self-Gain 
 
@@ -1136,7 +1166,11 @@ Apportioning blame is a double edged sword,for it not only adds karma but also n
 
 To use others for self-gain,a form of coercion,is a particularly effective way to accrue karma.  It can be addictive,specifically if we are successful in the use of a particular individual and easily gain that which we desire. Through using others for self-gain,low frequency behavior is perpetuated and augmented as more and more success is achieved. Indeed,as an individual gains confidence in using others for self-gain,the use of others increases accordingly. Unfortunately so does the attraction to low frequency behavior. Additionally, because the level of confidence derived through expected success and improved coercive skill increases,there is further temptation to "use"others to the point of its becoming normal behavior for that individual.  
 
+为了个人利益而利用他人，是一种强制性行为，是一种特别有效的积累业力的方式。它可以让人上瘾，特别是当我们成功地利用某个特定的人并轻易地获得我们所渴望的东西时。通过利用他人来获取个人利益，低频率行为会随着越来越多的成功而得以延续和增强。事实上，当一个人在利用他人来获取个人利益方面获得信心时，对他人的利用也会相应地增加。不幸的是，低频率行为的吸引力也会随之增加。此外，由于通过预期的成功和提高强制性技巧而获得的信心水平会增加，“利用”他人的诱惑会进一步增强，直到它成为该个人的正常行为。
+
 The antidote is wonderfully simple in this instance. It is applied by doing ourselves that which we would use others to do. Thus,we achieve that which we gain through "our own hard work"and can justify the pleasures,satisfaction,and accolades bestowed upon us,for we will have not received them off the backs of others. 
+
+在这种情况下，解药非常简单。我们会让别人做的事情，我们自己也应该去做。这样，我们就能通过“我们自己的努力”来实现我们所获得的，并能证明我们所获得的快乐、满足和嘉奖是合理的，因为我们不会从别人的背上得到它们。
 
 ### Committing Crime 
 
@@ -1144,9 +1178,15 @@ The antidote is wonderfully simple in this instance. It is applied by doing ours
 
 Crime of any sort creates karma. If we know what is right and what is wrong according to the law and choose to do wrong,we have created karma.  
 
+任何种类的犯罪都会创造业力。如果我们知道根据法律什么是对什么是错，但却选择去做错事，我们就创造了业力。
+
 Although it is recognized in many spiritual circles that there is no right or wrong,no positive or negative,and that there is only experience,it is a very wise incarnate that knows that there are certain paths that we must take in order to maximize evolutionary opportunities whilst within the lower frequencies of the universe,the Earth plane. As incarnate entities, we must recognize that there is a need to reduce the number of incarnations necessary for us to ascend beyond the need for incarnation-based evolution.  
 
+尽管在许多灵界中都承认没有对或错，没有积极或消极，只有经验，但一个非常明智的化身知道，在宇宙的低频率，地球层级内，为了最大化进化机会，我们必须采取某些特定的路径。作为化身实体，我们必须认识到，为了超越基于化身的进化需求，我们必须减少必要的化身数量。
+
 Committing a crime in this instance is not only an effective way of creating karma,it is also an effective way to reduce and even stop our evolutionary growth. Stopping or reducing our evolutionary growth opportunities is,therefore,a crime in itself-one that perpetuates karma. 
+
+在这种情况下犯下罪行，不仅是一种创造业力的有效方式，它也是减少甚至停止我们进化成长的有效方式。因此，停止或减少我们的进化成长机会本身就是一种罪行——一种使业力永久化的存在。
 
 ### Causing Physical Harm 
 
@@ -1154,13 +1194,23 @@ Committing a crime in this instance is not only an effective way of creating kar
 
 Knowingly and deliberately doing physical harm to our "human"incarnate vehicle is defiling the very temple that we reside within-even though our residence is on a temporary basis.  
 
+有意识地、故意地对我们的“人类”化身工具进行物理伤害，就是玷污我们居住的神庙——即使我们的居住是暂时的。
+
 Knowingly and deliberately doing physical harm to another's "human"incarnate vehicle is not the behavior of an evolved individual and invokes tremendous karma and low frequency attachment,especially when the act of "doing harm"brings pleasure.  
+
+有意识地、故意地对他人的“人类”化身工具进行物理伤害，不是进化个体的行为，会引发巨大的业力和低频连线，特别是当“伤害”行为带来快乐时。
 
 Clearly we can and do have accidents when embarking upon experiential work as incarnates,and this is accepted. It is accepted because it is the "experiential content,"the learning and subsequent evolutionary aspect of experience that results from accidental damage of our human vehicle,for this is ultimately part of our life plan.  
 
+很明显，当我们作为化身开始体验工作时，我们可以而且确实会有意外，这是可以接受的。这是可以接受的，因为这是“体验内容”，学习和随后的进化方面的体验，这些体验来自我们人类工具的意外伤害，因为这最终是我们生命计划的一部分。
+
 Deliberately damaging the incarnate vehicle in some way to perpetuate its existence in general,such as with amputation,surgery,etc. ,is acceptable though. This is because the reasons for such actions are understood and recognized as part of the plan.  
 
+然而，以某种方式故意破坏化身工具以使其普遍存在，例如截肢、手术等，是可以接受的。这是因为这些行为的原因是被理解和认识为计划的一部分。
+
 The antidote in all instances is to respect,maintain and nurture the human vehicle and recognize its true worth,importance and longevity. In this way we also respect the "vehicles"of others whilst also recognizing the necessity for the evolutionary growth of the incumbent spirits. 
+
+在所有情况下，解毒剂是尊重、维护和培育人类工具，并认识到其真正的价值、重要性和寿命。这样，我们也尊重其他人的“工具”，同时认识到在职精神进化发展的必要性。
 
 ### Harming an Animal Body 
 
@@ -1168,13 +1218,23 @@ The antidote in all instances is to respect,maintain and nurture the human vehic
 
 As with the incarnate human vehicle,knowingly and deliberately doing physical harm to an "animal"incarnate vehicle is not the behavior of an evolved "incarnate"individual and invokes tremendous karma and low frequency attachment. This is especially true when the act of doing harm brings pleasure.  
 
+与化身人类载体一样，有意识和故意地对“动物”化身载体造成身体伤害，不是进化“化身”个体的行为，并唤起巨大的业力和低频连线。当伤害行为带来快乐时，尤其如此。
+
 We should recognize that spirits that incarnate as animals are very special gifts to us at this level of frequency,for they provide much needed unconditional love and company.  
+
+我们应该认识到，在这个频率水平上，化身为动物的灵魂对我们来说是非常特殊的礼物，因为它们提供了非常需要的无条件的爱和陪伴。
 
 Although not the same energetically as those who incarnate in the human vehicle,animal spirits are also on the evolutionary ladder and respond positively in this respect from human love,care,and happiness. They are also individualized units of our Source Entity,our God.  
 
+尽管与那些在人类载体中化身的灵魂在能量上不相同，但动物灵魂也在进化阶梯上，并从人类的爱、关心和幸福方面做出积极的回应。它们也是我们源头实体的个性化单位，我们的上帝。
+
 In many cases animal spirits take on heavy burdens for us in our daily striving for survival in the physical universe,including being an essential component of the ecosphere. As such,the animal incarnate vehicle must be respected and maintained in the same fashion as we look after our own human incarnate vehicles.  
 
+在许多情况下，动物灵魂在我们每天在物质宇宙中为生存而奋斗的过程中，为我们承担了沉重的负担，包括成为生态圈的基本组成部分。因此，动物化身载体必须得到尊重和维护，就像我们照顾自己的人类化身载体一样。
+
 We invoke the antidote to accruing low frequency energy when we recognize the true nature of animals as being "one with God"and,therefore,created in equality with our energetic selves. In essence,however,they have a higher level of purity when incarnate,for they are fully aware of the fact that they in most cases are dependent upon incarnate mankind's good will for their evolutionary progress. This level of purity is something incarnate mankind should aspire to. 
+
+当我们认识到动物的真正本性是“与上帝合一”，因此，与我们充满活力的自我平等创造时，我们就调用积累低频能量的解毒剂。然而，本质上，当他们化身时，他们拥有更高层次的纯净，因为他们完全意识到，在大多数情况下，他们依赖于化身人类的善意来推动他们的进化进程。这种纯净的层次是化身人类应该渴望的。
 
 ### Harming Flora 
 
@@ -1182,13 +1242,23 @@ We invoke the antidote to accruing low frequency energy when we recognize the tr
 
 Knowingly and deliberately doing physical harm to a tree,plant or vegetable is an act of violence against an aspect of our physical environment,nature,and,therefore,our Creator, The Source Entity. Committing flora-related violence,therefore,creates flora-related karma.  
 
+有意识地故意对一棵树、植物或蔬菜造成身体伤害，是对我们物质环境、自然界，以及我们的造物主、源头实体的一种暴力行为。因此，犯下与植物群落相关的暴力行为，就会创造与植物群落相关的业力。
+
 Although perceived by incarnate humanity as a lower life form,the kingdom of flora is extremely important from both a gross physical and energetic perspective to the perpetuation of the environment that supports the human physical form.  
+
+尽管被化身人类视为一种较低的生命形式，但从总体的物质和能量角度来看，植物王国对维持支持人类物质形态的环境极为重要。
 
 Clearly we have the authority to use nature to feed,clothe and house us,and this is accepted as essential for our well-being. We incur flora-related karma when we abuse this authority for personal or corporate greed or misdirected desire and destroy or fail to maintain those aspects of nature that are available to help us perpetuate our incarnate vehicles.  
 
+显然，我们有权使用自然来为我们提供食物、衣服和住房，这被认为是我们幸福的必要条件。当我们为了个人或集体的贪婪或错误的欲望而滥用这种权力，破坏或未能维护那些可以帮助我们延续化身工具的大自然方面时，我们就会招致与植物群落相关的业力。
+
 It is just as important to clear flora-related karma as normally accrued karma because both are functions of low frequency actions.  
 
+清除与植物群落相关的业力与清除通常积累的业力一样重要，因为两者都是低频率行为的功能。
+
 The antidote in this instance is to be "in joy"of that flora which surrounds us. We must nurture it,tend to its needs,and maintain it whilst recognizing how we can maximize nature's potential for evolution,for it can and does evolve as we live in harmony with it. 
+
+在这种情况下，解毒剂就是“在我们周围的植物群落中快乐”。我们必须培养它，满足它的需要，维护它，同时认识到我们如何才能最大限度地发挥自然进化的潜力，因为当我们与自然和谐相处时，它可以而且确实在进化。
 
 ### Wasting Natural Resources
 
@@ -1196,9 +1266,15 @@ The antidote in this instance is to be "in joy"of that flora which surrounds us.
 
 The minerals that we use to create metals,ceramics,fuels and other materials are a gift to us from the earth. The earth in its sentience recognizes that our incarnate "human"vehicles are the tools we use for accelerating our evolution,and,as such,it supports that which we do with its minerals provided we use them for a high frequency existence that results in an increase in evolutionary content.  
 
+我们用来制造金属、陶瓷、燃料和其他材料的矿物是地球给我们的礼物。地球在它的感知中认识到我们化身的“人类”工具是我们用来加速进化的工具，因此，它支持我们用它的矿物所做的，只要我们把它们用于高频的存在，从而导致进化内容的增加。
+
 When we abuse this gift through inappropriate mining,extraction and refinement techniques due to personal and corporate greed,the earth suffers as a result,and we gain“earth-based"karma.  
 
+当我们由于个人和集体的贪婪而通过不适当的采矿、提取和提炼技术滥用这份礼物时，地球就会因此遭受痛苦，而我们就会获得“基于地球的”业力。
+
 Inappropriate mineral extraction causes an imbalance in the ecosphere that affects the stability of the earth's crust as well as its magnetic properties,atmosphere,and weather systems. This creates further imbalance and ultimately adversely affects incarnate mankind's ability to work with the earth and attract evolutionary content.  When we realize that the earth is our benefactor and work with her in a high frequency harmonious way,we help maximize Earth's evolutionary content and as a result,negate karmic links with the earth. 
+
+不适当的矿物提取会导致生态圈的不平衡，影响地壳的稳定性以及它的磁性、大气和天气系统。这会造成进一步的不平衡，并最终对化身人类与地球合作和吸引进化内容的能力产生不利影响。当我们意识到地球是我们的恩人，并以高频率和谐的方式与她合作时，我们就帮助最大化地球的进化内容，因此，消灭了与地球的业力联系。
 
 ### Making Comparisons 
 
@@ -1206,9 +1282,15 @@ Inappropriate mineral extraction causes an imbalance in the ecosphere that affec
 
 When we make comparisons of any sort,it breeds discontent within us that breeds further comparison that leads to minor depression. Minor depression is fueled by comparison-generated discontent which creates a descending spiral-based loop that leads to major depression. Such a downward spiral is extremely difficult for us to recognize within ourselves and is even more difficult to reverse.  
 
+当我们进行任何形式的比较时，它在我们内心滋生不满，滋生进一步的比较，导致轻度抑郁。轻度抑郁是由比较产生的不满所加剧的，它创造了一个下降的螺旋环，导致重度抑郁。这种向下的螺旋对于我们来说是非常难以识别的，甚至更难逆转。
+
 However,comparison can also be used as an antidote or can even negate the potential start of this condition if we use it properly and with observational care. If done correctly, comparing where we are in lieu of where we were can provide a spiritual function.  Therefore,by observing what we have personally attained and thus comparing ourselves with ourselves,we can create a level of contentment and happiness.  
 
+然而，如果我们正确地使用它，并以观察的谨慎，比较也可以被用作一种解毒剂，甚至可以否定这种情况的潜在开始。如果做得正确，比较我们在哪里，而不是我们在哪里可以提供一种精神功能。因此，通过观察我们个人所取得的成就，从而与我们自己比较，我们可以创造一种满足和幸福的水平。
+
 When we are happy and content with what we have achieved,it brings a warm glow to us that illuminates the darkness and raises our frequencies as a result. Thus,it creates an ascending spiral-based loop that results in enlightened function and repeated frequential ascension. 
+
+当我们对我们所取得的成就感到快乐和满足时，它给我们带来了温暖的光芒，照亮了黑暗，提高了我们的频率。因此，它创造了一个上升的螺旋环，导致启蒙功能和重复频率提升。
 
 ### Complaining:a Low Frequency Intoxication 
 
@@ -1216,11 +1298,19 @@ When we are happy and content with what we have achieved,it brings a warm glow t
 
 Complaining about our position,status,situation,lack of ability,lack of help,health,or even that we feel we have been given a raw deal in some way is a function of low frequency intoxication.  
 
+抱怨我们的职位、地位、处境、缺乏能力、缺乏帮助、健康，甚至我们觉得我们被以某种方式对待是不公平的，这是低频中毒的功能。
+
 Low frequency intoxication is a karmic function that results in our being so engrossed with physical existence that we forget that we are here to experience,learn and evolve. It makes us forget that this existence is an illusion,a VERY temporary illusion at best. 
+
+低频中毒是一种业力功能，导致我们如此专注于物质存在，以至于我们忘记了我们在这里是为了体验、学习和进化。它让我们忘记了这个存在是一种幻觉，充其量是一种非常短暂的幻觉。
 
 We are "incarnate"here to experience low frequency thoughts and/or feelings and learn to be victorious over them and thus evolve in the process.  
 
+我们“化身”在这里是为了体验低频的想法和/或感觉，并学会战胜它们，从而在这个过程中进化。
+
 When we can adopt the very useful tool of the "observer self,"we can identify the early occurrence of such thoughts and recognize them for what they are-signs of low frequency intoxication. When we recognize this,then we will be able to succeed in the face of low frequency adversity. 
+
+当我们能够采用“观察者自我”这个非常有用的工具时，我们可以识别这种想法的早期发生，并认识到它们是什么——低频中毒的迹象。当我们认识到这一点时，我们就能够在低频逆境中取得成功。
 
 ### Needing to Be in Control 
 
@@ -1228,19 +1318,31 @@ When we can adopt the very useful tool of the "observer self,"we can identify th
 
 Being "in control"is like colluding with a false friend. Although control is useful in situations that require us to control ourselves and others,such as in emergencies or situations of crisis,it is detrimental outside those contexts. Control is detrimental when we apply it inappropriately to ourselves and/or a third party.  
 
+处于“控制”中就像与一个虚伪的朋友勾结。尽管在需要我们控制自己和他人的情况下，控制是有用的，比如在紧急情况或危机的情况下，但在这些情境之外，控制是有害的。当我们不适当地将它应用于自己和/或第三方时，控制是有害的。
+
 When we apply unnecessary control to ourselves during our everyday existence,we run the risk of missing those spontaneous responses required to support "out of the blue" opportunities for us to experience something new. These types of opportunities are usually examples of circumstances given to us by our spiritual guide/s and helpers because we either need to change or need a change. This is called "going with the flow,"which cannot happen if we are too self-controlled or always need to be "in control. "In this instance,our being in self-control limits our abilities to access higher frequency information and keeps us in the lower frequencies,which is a function of karma.  
 
+当我们在日常生活中对自己施加不必要的控制时，我们冒着失去那些自发反应的风险，这些自发反应是支持我们体验新事物的“意外”机会所必需的。这些类型的机会通常是我们的精神导师和帮助者给我们的环境的例子，因为我们要么需要改变，要么需要改变。这被称为“随波逐流”，如果我们过于自我控制或总是需要“控制”，这将不会发生。在这种情况下，我们的自我控制限制了我们获取更高频率信息的能力，并使我们处于较低的频率，这是业力的功能。
+
 When we are in control of others (third parties),we are tempted to use those under our control for the benefit of ourselves and not for their benefit. Even though we feel justified or even delighted or joyful being in control,the feeling of justification/joy in this instance is that aspect of control that tells us it is a false friend-for we should not be joyful or able to justify being in control of others. 
+
+当我们控制他人(第三方)时，我们试图利用那些在我们控制之下的人来为自己谋利，而不是为他们谋利。即使我们感到理所当然，甚至高兴或快乐的控制，在这种情况下，理由/快乐的感觉是控制的方面告诉我们，这是一个错误的朋友，因为我们不应该快乐或能够证明控制别人。
 
 ### Comparing and Contrasting 
 
 **比较和对比** 
 
-Contrast is a little known and mostly ignored function of comparison. When we compare and contrast our situations in relation to others'situations,we judge the differences and draw conclusions about the acceptability of these differences. We do this in the light of our newly acquired "standard"of a potentially better situation for us to be in even though it might not be.  
+Contrast is a little known and mostly ignored function of comparison. When we compare and contrast our situations in relation to others'situations,we judge the differences and draw conclusions about the acceptability of these differences. We do this in the light of our newly acquired "standard"of a potentially better situation for us to be in even though it might not be.  ，
+
+对比是比较中一个鲜为人知且常被忽略的功能。当我们比较和对比我们与他人处境的关系时，我们判断这些差异并得出关于这些差异可接受性的结论。我们这样做是基于我们新获得的潜在的更好的处境的“标准”，即使它可能不是。
 
 If,however,we were to use contrast as a means of establishing where we can help others who are less able to provide for themselves,then we could turn this potential opportunity for accruing low frequency karma into an opportunity to gain high frequency karma and the relative evolutionary content. This is specifically pertinent when we are looking to use "contrast"as a means of establishing what we can provide to a group of individuals whose living conditions are poor in contrast to our own.  
 
+然而，如果我们将使用对比作为一种建立我们可以帮助那些无法提供给自己的人的手段，那么我们就可以将这种积累低频业的机会转化为获得高频业和相关进化内容的机会。当我们希望使用“对比”作为一种建立我们可以为一群生活条件与我们自己的相比很差的人提供什么的手段时，这是特别相关的。
+
 In this instance we are activating the evolutionary content aligned with our being of service instead of falling down the slippery frequential slope of dissatisfaction with our current situation in contrast to a higher standard-one which may or may not be appropriate. 
+
+在这种情况下，我们正在激活与我们服务相一致的进化内容，而不是跌落到与更高标准相对的对我们当前处境不满的滑坡上，而这个更高标准可能合适，也可能不合适。
 
 ### Attracting Positive Karma via Joy 
 
@@ -1248,13 +1350,23 @@ In this instance we are activating the evolutionary content aligned with our bei
 
 Experiencing joy in our incarnate life is touching the very nerve of high frequency existence.  
 
+在我们的化身生活中体验快乐触动了高频率存在的神经。
+
 When we "en-joy,"we are "in-joy. "When we are "in-joy,"we are in tune with all things and all things are in tune with us. This feeling is a sign that we are experiencing the high frequencies of spirit whilst incarnate.  
+
+当我们“享受快乐”时，我们是“在快乐中”。当我们“在快乐中”时，我们与万物协调，万物与我们协调。这种感觉是当我们化身时体验到高频率精神的标志。
 
 It is important for us to try to hold onto situations where we are "in-joy,"remember them, and then take them and that feeling with us wherever we go. We build upon them by adding other times and situations where we were "in-joy. "In this way,we create a complete picture of joy and what we enjoy.  
 
+对我们来说，重要的是努力抓住我们“在快乐中”的情形，记住它们，然后把它们和那种感觉带到我们去的任何地方。我们通过添加我们“在快乐中”的其他时间和情形来建立它们。以这种方式，我们创造了快乐和我们喜欢的一幅完整的画面。
+
 When we know and seek that which brings joy and are in a continuous state of joy,we automatically raise our base frequencies. Doing so allows us to experience new joy,ever new joy every time we are in joy.  
 
+当我们知道和寻找什么带来快乐，并处于持续的快乐状态时，我们自动提高我们的基本频率。这样做让我们体验新的快乐，每次我们都体验新的快乐。
+
 As we experience higher and ever higher frequencies,we negate the influence of lower frequencies,no matter how hard they try to bring us down. In this process we ascend from the influence of karma. In this way we become closer to our Creator and experience the ultimate joy of being one with God. 
+
+当我们体验越来越高的频率时，我们否定了低频率的影响，无论它们如何努力地让我们倒下。在这个过程中，我们从业力的影响中提升。以这种方式，我们变得更接近我们的造物主，并体验到与上帝合一的终极快乐。
 
 ### Being Happy 
 
@@ -1262,25 +1374,43 @@ As we experience higher and ever higher frequencies,we negate the influence of l
 
 Happiness is a product of joy and is an visible example of a state of joyful existence,thinking and being.  
 
+幸福是喜悦的产物，是喜悦存在、思考和存在的可见例子。
+
 Personal happiness is the long term effect of being "in joy"and bridges the gaps between joyful experiences. The "joy-happiness-joy-happiness-joy"cycle is a profoundly efficient way of increasing our frequencies,especially when the experience ofjoy and the subsequent production of happiness is the result of spiritual activity.  
+
+个人幸福是处于“喜悦”中的长期效果，并弥补了喜悦体验之间的差距。“喜悦-幸福-喜悦-幸福-喜悦”循环是提高我们频率的深刻有效方式，特别是当喜悦的体验和随后的幸福产生是精神活动的结果时。
 
 In this way we can accelerate our evolutionary content whilst enjoying the process of gaining evolution and being happy with the outcome and lasting effects of such gains.  
 
+这样，我们可以加快我们的进化内容，同时享受获得进化的过程，并对这种收获的结果和持久效果感到快乐。
+
 In essence,when we have the "joy-happiness-joy-happiness-joy"cycle fully established,we are capable of ever new joy and ever new happiness without gaps or loss of associated frequency. As a result,we can and do increase our base frequencies and ascend in the process. 
+
+本质上，当我们完全建立起“喜悦-幸福-喜悦-幸福-喜悦”循环时，我们能够获得新的喜悦和新的幸福，而不会有关联频率的间断或损失。因此，我们可以并确实增加了我们的基本频率，并在过程中提升。
 
 ### Being in True Love 
 
 **怀抱真爱之心** 
 
-Love is the true antidote for all karmic influences. When we are"in love,"we are in peace and harmony with everything and everyone.  
+Love is the true antidote for all karmic influences. When we are"in love,"we are in peace and harmony with everything and everyone. 
 
-This is not love in the human sense but in the spiritual or energetic sense. Human love is based upon physical attraction whereas spiritual/energetic love is based upon an understanding and full appreciation of the interconnectedness of everything that "is. " 
+爱是所有业力影响的真正解药。当我们“坠入爱河”时，我们与一切事物和每个人都处于和平与和谐之中。
+
+This is not love in the human sense but in the spiritual or energetic sense. Human love is based upon physical attraction whereas spiritual/energetic love is based upon an understanding and full appreciation of the interconnectedness of everything that "is." 
+
+这不是人类意义上的爱，而是精神或能量意义上的爱。人类的爱基于身体吸引，而精神/能量的爱则基于对“存在”的一切事物的相互联系的理解和充分欣赏。
 
 When we experience "true love,"we understand the underlying reasons for everything that happens around us. Everything that is done by everything and everyone has a purpose and a meaning. When this is recognized and understood as such,even so-called "wrong doing" is recognized as having a purpose. This purpose is our need to experience,learn from that experience,and subsequently gain evolutionary content.  
 
+当我们体验“真爱”时，我们理解发生在我们周围的一切事情的潜在原因。一切事物和每个人所做的一切都有目的和意义。当这被认识到并被理解为如此时，即使所谓的“错误行为”也被认为是有目的的。这个目的是我们需要经历，从经验中学习，并随后获得进化的内容。
+
 Being in "true love"then allows us to be in complete understanding of the process of incarnate existence. It allows us to see the beauty in everything and everyone,forgive wrong-doings even before they happen,and have no enemies. It is then that we realize all are fellow incarnates who are striving to evolve in the way we are with everything being in divine order.  
 
+处于“真爱”中，我们可以完全理解化身存在的进程。它让我们看到一切事物和每个人身上的美，原谅甚至在发生之前就发生的错误行为，没有敌人。那时我们才意识到，所有的人都是同胞，他们都在努力以我们的方式进化，一切都遵循神圣的秩序。
+
 When we are in "true love,"we bear no ill feelings,do nothing to attract low frequency thoughts,and help everything and everyone in all circumstances. In the process we do not incur karma. 
+
+当我们处于“真爱”中时，我们不怀有恶念，不做任何吸引低频思想的事情，在任何情况下都帮助一切事物和每个人。在这个过程中我们不会招致业力。
 
 ### Committing Suicide 
 
@@ -1288,11 +1418,19 @@ When we are in "true love,"we bear no ill feelings,do nothing to attract low fre
 
 Suicide is a method of gaining massive instant karma. Karma accrued as a result of suicide is gained in two ways: 
 
-Firstly,for terminally defiling the gift of the physical vehicle because these are in short supply in comparison with the huge number of energetic entities requesting incarnate existence;and. . .  
+自杀是一种获得大量即时业力的方法。自杀所累积的业力有两种方式：
+
+Firstly,for terminally defiling the gift of the physical vehicle because these are in short supply in comparison with the huge number of energetic entities requesting incarnate existence;
+
+首先，最终玷污了物质载体的礼物，因为与要求化身存在的大量能量实体相比，物质载体的供应不足；
 
 Secondly,not as a result of the act of suicide but as a result of the association with the lower frequencies that resulted in the desire to commit the act of suicide.  
 
+其次，不是自杀行为的结果，而是与低频率的关联导致了自杀行为的欲望。
+
 In essence the first way of gaining suicide-based karma is a result of the second way. 
+
+本质上，获得自杀业力的第一种方式是第二种方式的结果。
 
 ### Recognizing Instant Karma 
 
@@ -1300,11 +1438,19 @@ In essence the first way of gaining suicide-based karma is a result of the secon
 
 If we create any kind of suffering for another person and then receive back that which we gave that person or if we receive it back from another person,this is an example of "instant karma"or“divine retribution. ”
 
+如果我们为别人制造了任何一种痛苦，然后我们收到了我们给那个人的痛苦，或者我们从另一个人那里收到了痛苦，这就是“即时业力”或“神圣报应”的一个例子。
+
 It can be helpful to receive instant karma for two reasons:(1)we are not tied to the karmic cycle as a result of the delivery of that which incurred the instant karma because we receive an equal action in return;and (2)we are able to learn from the mistake and correct it very quickly if we are observant enough to recognize the situation as a function of instant karma.  
+
+收到即时业是有帮助的，有两个原因：(1)由于我们收到了同样的回报，因此我们不会因产生即时业而被束缚于业轮中；(2)如果我们足够善于观察，能够认识到这种情况是即时业的功能，我们能够从错误中学习，并很快改正它。
 
 Instant karma,also classified as divine retribution,occurs when an additional function is being performed that is invisible to the person who caused someone to suffer (the dealer of the suffering to another),the person who suffered from the incident caused by another (second party "sufferer"),and the third party "dealer"who returns that suffering to the individual who was initially hurt. This function is the underlying ability of the third party to settle up previous and similar karma with the first party,which then clears that particular karmic link.  
 
+即时业力，也被归类为神圣报应，当一个额外的功能正在执行时，就会发生，这个功能对造成别人痛苦的人(给别人带来痛苦的人)、从别人引起的事件中受苦的人(第二方“受苦者”)和将痛苦返回给最初受伤害的人的第三方“经销商”是无形的。这个功能是第三方与第一方结算以前和类似的业的基础能力，然后清除特定的业联系。
+
 As with all that we do when incarnate,this relies on a significant level of logistics being performed behind the spiritual scenes with our guides and helpers working hard to assist us and those with whom we interface so we can experience,learn,evolve,and clear karma along the way. This is,indeed,a divine method of clearing karma. 
+
+当我们投生时所做的一切，这依赖于在灵性场景背后的后勤工作，我们的向导和帮助者努力工作来协助我们和那些我们接触的人，这样我们就可以体验、学习、进化，并沿途清理业力。 这确实是一种神圣的清理业力的方法。
 
 ### Choosing Our Friends 
 
@@ -1312,9 +1458,15 @@ As with all that we do when incarnate,this relies on a significant level of logi
 
 It is important for us to beware of false friends-those that steer us towards low frequency pleasures,such as physical sensations or any form of materialism or gossip,for they are only helping us gain an addiction to low frequency existence.  
 
+对我们来说，重要的是要警惕虚假的朋友-那些引导我们走向低频率快乐的人，比如身体感觉或任何形式的物质主义或八卦，因为他们只是帮助我们获得对低频率存在的沉迷。
+
 A true friend is one that works toward spiritual advancement and avoids anything that does not focus on that goal.  
 
+一个真正的朋友是一个朝着精神进步而努力并避免任何不专注于这个目标的人。
+
 A true friend is one that looks for the very simple pleasures in incarnate existence,those gained through correct living and meditation on the greater reality instead of the instant gratification that physicality offers and demands from others. 
+
+一个真正的朋友是一个在化身的存在中寻找非常简单的快乐的人，那些通过正确的生活和冥想在更大的现实中获得的快乐，而不是身体提供和从他人那里要求的即时满足。
 
 ### Avoiding Attachment 
 
@@ -1322,13 +1474,23 @@ A true friend is one that looks for the very simple pleasures in incarnate exist
 
 Attachment in the human sense-that is,attachment to another person-is also a very effective way to remain in low frequency existence. In this instance,attachment is not love but the "need"to be near or within the "presence of"a certain individual or individual's physicality.  
 
+人类意义上的依恋——即对另一个人的依恋——也是保持低频率存在的非常有效的方式。在这种情况下，依恋不是爱，而是靠近或在某个人或个人的身体“存在”的“需要”。
+
 Attachment is,therefore,a form of materialism,but because it is relative to the need for "personal presence,"it is not easily recognized as such.  
+
+因此，依恋是一种物质主义形式，但因为它与“个人存在”的需求有关，所以不容易被这样认识。
 
 Attachment affects both the "initiator"of the attachment and the "focus"of the attachment as a result of an energetic link between the two. Keeping the "initiator"and "focus"linked to the frequencies associated with their physicality,which is a karmic function,retards the ability of both "initiator"and "focus"to ascend the frequencies,thus,creating a karmic cycle.  
 
+由于两者之间的能量连接，依恋既影响了依恋的“发起者”又影响了依恋的“焦点”。保持“发起者”和“焦点”与与他们的身体相关的频率相连，这是一种业力功能，阻碍了“发起者”和“焦点”提升频率的能力，因此，创造了一个业力循环。
+
 Clearly we create attachments to loved ones during our incarnation,but we should not hold onto them and remain attached when they are in the process of finishing their incarnations, for this holds both the "initiator"and the "focus"in the lower frequencies.  
 
+很明显，我们在化身期间对所爱的人创造了依恋，但当他们在完成化身的过程中，我们不应该抓住他们并保持依恋，因为这将把“发起者”和“焦点”都保持在较低的频率中。
+
 We plan our exit from the physical in the way that maximizes our experiential and subsequent evolutionary opportunity within a known incarnate timeframe. Unfortunately, this may not be to the liking of the one who has initiated or created the attachment. In this instance,we must accept that the exit method is pre-chosen and,therefore,respect and honor it. It is the time to send them true "non-attached"love,cognizant that in not having or actively removing attachment,we are helping them evolve and not holding them back in the lower frequencies of the physical. 
+
+我们计划从物质层退出，以最大化我们的经验和随后在已知的化身时间框架内进化的机会。不幸的是，这可能不符合发起或创造了依附的人的喜好。在这种情况下，我们必须接受退出方法是预先选择的，因此，尊重和尊重它。是时候给他们真正的“无依恋”的爱，认识到在没有或积极地移除依附中，我们正在帮助他们进化，而不是把他们留在物质层的低频率中。
 
 ### Being in Divine Love 
 
@@ -1336,9 +1498,15 @@ We plan our exit from the physical in the way that maximizes our experiential an
 
 Infatuation is a significantly stronger form of attachment. It is to be totally engrossed in the physicality of another to the point of almost perfect distraction. In this situation,we ignore our need to service the activities that we are responsible for,specifically when we are in the physical presence of the focus of our infatuation.  
 
+迷恋是一种明显更强烈的依恋形式。它完全专注于另一个人的身体，几乎完全分心。在这种情况下，我们忽略了我们需要为我们负责的活动服务的需求，特别是当我们身处我们迷恋的焦点的身体存在时。
+
 Infatuation can be and often is disguised by love. When we feel that we are in love and not in infatuation,we are blind to its damaging effects. The only antidote in this instance is to first and foremost be in divine love and not human love;in doing so,we transcend the attraction to the physical condition and remove the opportunity for attracting karma.  
 
+迷恋可以，而且经常被爱伪装。当我们感觉我们在爱中，而不是在迷恋中，我们对它的破坏性影响是盲目的。在这种情况下，唯一的解药是首先在神圣的爱中，而不是在人类的爱中； 这样做，我们超越了对身体条件的吸引，消除了吸引业力的机会。
+
 Neither attachment nor infatuation can be sustained when we are in divine love,for when we are in divine love,we are in tune with all things,and all things are in tune with us. When we are in divine love,we realize the transient state of the physical with all its attractions and addictions and are,therefore,unaffected by such low frequency lures. 
+
+当我们在神圣的爱中时，无论是依恋还是迷恋都不能持续，因为当我们在神圣的爱中时，我们与万物协调，万物与我们协调。当我们在神圣的爱中时，我们意识到身体的短暂状态以及它的所有吸引力和成瘾性，因此，我们不受这些低频诱惑的影响。
 
 ### Achieving Detachment 
 
@@ -1346,9 +1514,15 @@ Neither attachment nor infatuation can be sustained when we are in divine love,f
 
 Detachment can be both a help and a hindrance when it comes to low frequency attraction.  
 
+当涉及到低频吸引时，分离既是一种帮助，也是一种阻碍。
+
 If we detach ourselves from higher frequency existence as a result of some form of distraction that makes us think that the gross physical is "all there is,"then we become entrapped and succumb to the low frequency stimuli offered by the gross physical environment. This unfortunate process results in "reality blindness"as we focus on all forms of materialism.  
 
+如果我们因为某种形式的分心而使我们认为粗糙的物质是“一切”，从而使我们从更高的频率存在中分离出来，那么我们就会陷入陷阱，屈服于粗糙的物质环境提供的低频刺激。当我们专注于各种形式的物质主义时，这一不幸的过程会导致“现实盲视”。
+
 If we detach ourselves from the lower frequency distractions of the gross physical that occur on a regular basis,then we can maintain our high frequency existence whilst incarnate.  We grow as we experience these distractions,recognize them,learn from them,and act correctly. Subsequently,we evolve as a result of their transient effect. Though the effect is transient,it is beneficial in this instance because we recognize what it is,a function of low frequency existence. It is an opportunity for us as incarnate entities to recognize that which affects us. When we "see,feel and know"the reason for its existence and take the correct path,we negate its influence and turn it into positive karma that allows us to ascend in frequency as a result. 
+
+如果我们把自己从常规发生的粗糙物质的低频分心中分离出来，那么我们就可以在化身时保持我们的高频存在。当我们经历这些分心时，我们成长，认识到它们，从中学习，并正确行事。随后，我们由于它们短暂的影响而进化。尽管这种影响是短暂的，但在这种情况下它是有益的，因为我们认识到它是什么，一个低频存在的功能。作为化身的实体，这是一个机会来认识到影响我们的是什么。当我们“看到、感觉到、知道”它存在的理由，并走上正确的道路，我们就否定了它的影响，并把它变成了正面的业力，结果让我们在频率上提升。
 
 ### Feeling Divine Love 
 
@@ -1356,13 +1530,23 @@ If we detach ourselves from the lower frequency distractions of the gross physic
 
 Divine love is all around us. It pervades the multiverse and is,therefore,part of our very being.  
 
+神圣的爱围绕着我们。它遍布于多维宇宙，因此，它是我们存在的一部分。
+
 However,if divine love pervades everything,then why is it not felt by everyone and everything all of the time?  The reason for our not being able to feel divine love is because we get engrossed in the day- to-day function of existence in the gross physical.  
+
+然而，如果神圣的爱遍布一切，那么为什么每个人和每件事物都没有感受到它？ 我们无法感受到神圣的爱的原因是因为我们全神贯注于在粗糙的物质中存在的日常功能。
 
 We are here to experience the minute details of incarnate life,but they are often such major distractions. If we are able to take a regular break from our day to day commitments and give time for meditation and appreciation of all that surrounds us,then we can link into the energies that are the basis of the gross physical universe and,therefore,the multiverse.  
 
+我们在这里体验化身生活的细微细节，但它们往往是如此主要的干扰。如果我们能够从我们的日常承诺中抽出时间，给时间冥想和欣赏我们周围的一切，那么我们就可以连接到作为粗糙的物质宇宙的基础的能量，和多维宇宙。
+
 These energies were used by the Source in the creation of the multiverse by giving up part of Itself. The Source is divine love and loves everyone and everything It created. We are one with the Source,and the Source is one with us. WE ARE THE SOURCE,and we are,therefore, in love,divine love,all of the time.  
 
+这些能量被源头用于创造多维宇宙，通过放弃自己的一部分。源头是神圣的爱，爱它创造的每个人和每件事物。我们与源头是一体的，源头与我们是一体的。我们是源头，因此，我们一直处于爱中，神圣的爱中。
+
 All we have to do is recognize this by opening our hearts during meditation and accepting everything that is. This will allow us to see past the physical,link in with everyone and everything,and recognize that we are all one-all one in divine love. 
+
+我们所要做的就是在冥想中打开我们的心，接受一切。这将允许我们看穿物质，与每个人和每件事物连接，并认识到我们都是一体的——在神圣的爱中都是一体的。
 
 ### Aligning Ourselves with Divine Knowledge 
 
@@ -1370,11 +1554,19 @@ All we have to do is recognize this by opening our hearts during meditation and 
 
 When we align ourselves with divine or cosmic knowledge,we remove ourselves from the inaccuracies presented by the lower frequencies of the physical universe. When we are in alignment with the divine,we see through the facade of the physical,viewing it for what it is:a mode of experience designed to accelerate our evolution through hardships.  
 
+当我们与神圣或宇宙知识保持一致时，我们从物理宇宙低频率所呈现的不准确中移除自己。当我们与神圣保持一致时，我们看穿了物质的表面，看到它是什么：一种经历模式，旨在通过艰辛加速我们的进化。
+
 When we are aligned to divine knowledge,we can work with the challenges that are presented to us in the full awareness of that which we are experiencing and why we are experiencing it at a particular juncture in our incarnate existence. This allows us to make the best of situations and negates our need to experience the same thing through lack of learning the "lesson"the first time around.  
+
+当我们与神圣知识保持一致时，我们可以与呈现给我们的挑战一起工作，我们对我们正在经历的事情以及我们为什么在我们化身存在的特定时刻经历它有充分的认识。这使我们能够充分利用情况，并否定我们需要通过第一次没有学习“课程”来经历同样的事情。
 
 To become aligned with divine knowledge,we must be diligent in setting aside an un- negotiable time to meditate with an open heart and an empty mind. Doing so allows the greater reality of divine knowledge to overcome the transient "little reality"of personal knowledge we create whilst incarnate.  
 
+为了与神圣知识保持一致，我们必须勤奋地留出一个不可谈判的时间来以开放的心和空虚的头脑冥想。这样做可以让神圣知识的更大现实来克服我们化身时创造的短暂的“小现实”。
+
 We can only become aligned to the divine knowledge through dedication to knowing the truth and devotion to the ways necessary to allow us to open the door to the truth. It's a lifetime's work,but it's more than worth it. 
+
+当我们与神圣知识保持一致时，我们看穿了物质的表面，看到它是什么：一种经历模式，旨在通过艰辛加速我们的进化。我们只有通过致力于了解真相，致力于让我们打开通往真相之门的必要方式，才能与神圣知识保持一致。这是一辈子的工作，但它非常值得。
 
 ### Accruing Retrospective Karma 
 
@@ -1382,11 +1574,19 @@ We can only become aligned to the divine knowledge through dedication to knowing
 
 Retrospective karma is based upon our being pulled back into discussions or arguments about that which occurred in the past or previous event spaces(times). When we are drawn into gossip about that which happened in the past,we are not only attracted to those low frequency existences based upon that event space but also those low frequency events that were in action in the previous event spaces leading up to the low frequencies. This results in a"total immersion-based"recollection of that experienced frequentially.  
 
+回顾型业力是基于我们被拉回到过去或以前事件空间(时间)发生的讨论或争论中。当我们被拉进关于过去发生的八卦时，我们不仅被吸引到基于那个事件空间的那些低频存在，而且还被吸引到那些在以前事件空间中导致低频的低频事件。这导致了频繁经历的“完全沉浸式”回忆。
+
 Thus,karma accrues in two ways:(1)that which we accrue currently;and (2)that which we accrue by living in the past-retrospectively.  
+
+因此，业力以两种方式累积：(1)我们当前累积的业力； (2)我们通过回顾生活在过去而累积的业力。
 
 We exist in event space,not time,and as such event space has no boundaries. Event space exists concurrently. As a result,all that is related to what we call time (past,present and future)exists simultaneously in different "spheres"of events in specific areas of space which pervade the multiverse and beyond. Because event space is always with us,it is easy for us to accrue karma retrospectively,and,many incarnates attract karma in this way.  
 
+我们存在于事件空间，而不是时间，因此事件空间没有边界。事件空间同时存在。因此，所有与我们称之为时间(过去、现在和未来)相关的事物同时存在于遍布多维宇宙和超越的特定空间区域的不同“领域”的事件中。由于事件空间总是与我们在一起，我们很容易回顾性地累积业力，许多化身以这种方式吸引业力。
+
 The only antidote is for us to live in the moment and refuse to be drawn into discussions about previous bad events or what bad event could happen in the future,based upon current trends. To do this,we should offer thanks to the antagonists and bid them good day,seeking instead good spiritually aware company. 
+
+对我们来说，唯一的解药就是活在当下，拒绝被卷入过去的坏事或基于当前趋势的未来可能发生的坏事的讨论中。为了做到这一点，我们应该向对手表示感谢，祝他们好运，而不是寻找精神上好的伙伴。
 
 ### Existing in a Two-Year Sphere 
 
@@ -1394,9 +1594,15 @@ The only antidote is for us to live in the moment and refuse to be drawn into di
 
 As incarnate beings,we exist in a two-year sphere where we only relate to that which occurred in event spaces up to the previous twelve months and those event spaces which relate to our plans within the next/upcoming twelve months. When we exist in this way, we are in constant exposure to similar or the same experiences unless we are capable of applying the content from lessons learnt in previous and similar experiences.  
 
+作为转世存有，我们存在于一个两年的领域，我们只与发生在过去十二个月事件空间中的事情相关，以及那些与我们未来十二个月计划相关的事件空间。当我们以这种方式存在时，我们不断地暴露在类似或相同的经历中，除非我们能够应用从以前和类似经历中学习的内容。
+
 It is only when we have an event that causes us to re-focus,such as an accident,health problem or employment issue,that we bring in events from previous "related"event spaces outside the two-year sphere to assist us in resolving the problem or introducing the processes required to re-focus. In these instances we exit the current physical reality and encompass the inclusive "greater reality"which includes past,present and future events.  Future events are only available to those with certain evolutionary content and subsequent base frequential aspects to support clairvoyance,clairaudience,and clairsentience,etc.  
 
+只有当我们有一个事件，使我们重新聚焦，例如事故、健康问题或就业问题，我们才会从两年的领域之外的以前“相关”事件空间中带来事件，以帮助我们解决问题或引入重新聚焦所需的过程。在这些情况下，我们退出当前的物理现实，并包括包容性的“更大的现实”，包括过去、现在和未来的事件。未来的事件只对那些具有某些进化内容和随后的基本频率方面，以支持超视力、超听觉和超感知等的人可用。
+
 Pulling in experiences from event spaces outside the two-year sphere is a clear advantage because then we are able to recognize opportunities for not making mistakes similar to those previously made and thus not incur cyclic karma. Thus the antidote is our ability to exist within the two-year sphere,living in the moment as much as possible while drawing upon experiences from events outside the two-year sphere as much as possible. Learning the lesson once and applying that learning to our current experiences is preferable to experiencing and dealing with that experience as if it was the first time. 
+
+从两年外的空间中吸取经验是一个明显的优势，因为这样我们就能认识到不犯类似于以前所犯错误的机会，从而避免循环业力。因此，解药是我们存在于两年内的能力，尽可能地活在当下，同时尽可能地从两年外的空间中吸取经验。学习一次经验并将所学应用于我们当前的经验，比起像第一次那样去经历和处理经验，是更可取的。
 
 ### Recognizing Previous Actions/Reactions 
 
@@ -1404,7 +1610,11 @@ Pulling in experiences from event spaces outside the two-year sphere is a clear 
 
 Cyclic karma repeats itself in a known cyclic fashion when we have not quite learnt a specific lesson well enough to ensure that our repeated exposure to it will result in our choosing the correct "educated"action. Its function is twofold:(1)to expose us to similar experiences that achieve the same karmic result if the original is not recognized,and (2)to check if we have learned the process that made the karmic link in the first place.  
 
+当我们还没有完全学到一个具体的教训时，循环业力就会以一种已知的循环方式重复它自己，以确保我们重复接触它将导致我们选择正确的“受教育的”行为。它的功能是双重的：(1)如果原始的教训没有被认识到，它会让我们接触到类似的经历，从而达到同样的业力结果，(2)检查我们是否已经学会了最初形成业力联系的过程。
+
 When we recognize the processes that result in same or similar experiences,then we can act to ensure that we make the correct response/s whenever we are exposed to these experiences. In this way,we break the cycle of cyclic karma.  In this instance the antidote is for us to be vigilant,looking out for that which repeats itself and noting how we respond. Our goal is to endeavor not to repeat the responses that resulted in our lesson not being fully learnt and the karmic link being repeated. 
+
+当我们认识到导致相同或类似经历的过程时，我们就可以采取行动，以确保我们在面对这些经历时做出正确的反应。这样，我们就打破了循环业力的循环。在这种情况下，对我们来说，解药是警惕，留意那些重复出现的事情，并注意我们的反应。我们的目标是努力不重复导致我们没有完全学到教训和重复业力联系的反应。
 
 ### Avoiding Cyclic Karma 
 
@@ -1412,7 +1622,11 @@ When we recognize the processes that result in same or similar experiences,then 
 
 Downward spiraling karma is repetitive (cyclic)karma that results in a gradual but ever increasing attraction to lower frequency existence with additionally increasing severity.  In this instance our accrued karma attracts more karma (lower frequencies)the more we ignore repeated learning opportunities and actively choose to avoid the corrective action necessary to arrest their development.  
 
+螺旋式恶业是重复(循环)的业力，导致逐渐但不断增加的低频存在吸引力，并伴随着不断增加的严重性。在这种情况下，我们积累的业力吸引更多的业力(低频)，我们越忽视重复学习的机会，并积极选择避免采取必要的纠正行动来阻止它们的发展。
+
 When we are caught in the clutches of downwardly spiraling karma,it is extremely difficult, if not impossible,for us to reverse the trend on our own-unless,of course,this is part of our life plan. In this instance we need to be in acceptance of the observations and comments of those around us who can see the downward spiral occurring and accept the help they offer us. This takes humility on our part,which is a difficult personal thought process for us to adopt when we are "in the middle"of the spiral. It also needs true "resilient"friends to be our helpers when we are stuck in this type of karma,for they will encounter many episodes of resistance where they are not thanked for their help. 
+
+当我们被捕捉到螺旋式恶业的爪子时，我们很难，如果不是不可能的话，靠我们自己来扭转趋势——当然，除非这是我们生命计划的一部分。在这种情况下，我们需要接受周围那些看到螺旋式恶化发生的人的观察和评论，并接受他们提供的帮助。这需要我们谦卑，当我们处于螺旋的“中间”时，这是一个困难的个人思考过程。当我们陷入这种类型的业力时，还需要真正“有弹性”的朋友来帮助我们，因为他们会遇到许多抗拒的插曲，因为他们的帮助没有得到感谢。
 
 ### Grieving 
 
@@ -1420,11 +1634,19 @@ When we are caught in the clutches of downwardly spiraling karma,it is extremely
 
 Grieving is an essential part of our experiential existence in the physical;however,if it is taken too far,it can become a trap of the physical leading to karma.  
 
+悲伤是我们在物质层体验存在的必要部分； 然而，如果它走得太远，它会成为导致业力的物质陷阱。
+
 Grieving itself focuses on our personal losses which are augmented by the passage of a multitude of shared experiences based upon the physical presence of an individual.  
+
+悲伤本身聚焦于我们个人的损失，这被基于个人物质存在而通过大量共享经验的传递而放大。
 
 Grieving brings us great sorrow,which is not a true reflection of the experiences we've enjoyed;therefore,it distorts and dominates the memories of the joys previously experienced.  
 
+悲伤带给我们巨大的悲痛，这不是我们所享受的体验的真实反映；因此，它扭曲并支配了以前经历的快乐的记忆。
+
 Although it can be difficult,the antidote is to change the focus from the immediate loss and reflect on the years of joy experienced in the presence of the incarnate that has now departed the physical form and ascended back into the natural frequencies of domicile. We must not dwell in the past(previous event spaces),for this is another form of karma. Instead,it is wise to wistfully remember that our incarnate life together was such an adventure and plan the next. 
+
+虽然这可能很难，但解药是改变焦点，从眼前的损失，并反思在现在已经离开物质形态并提升回居住地的自然频率的化身存在下经历的快乐岁月。我们不应停留在过去(以前的事件空间)，因为这是业力的另一种形式。相反，明智的做法是渴望地记住我们一起的化身生活是这样一个冒险，并计划下一个。
 
 ### Living in the Past 
 
@@ -1432,11 +1654,19 @@ Although it can be difficult,the antidote is to change the focus from the immedi
 
 Living in the past is a trap of the physical leading to karma. It leads us to comparison, dissatisfaction,negative reflection and inability to be in the present. The objective of being in the present and not the past is for us to take that which was experienced in the past and use it to affect correct responses to challenges that are presented to us in the"now. " 
 
+活在过去是一个陷阱，会导致业力。它会导致我们比较、不满、消极的反思和无法活在当下。活在当下而不是过去的目标是让我们接受过去的经历，并利用它来正确应对“现在”摆在我们面前的挑战。
+
 Saying that we could have done better when reflecting on actions we made in the past,based upon what we knew at the time or thinking/stating that "things"were better in the past, only creates dissatisfaction with our past performance. This creates a continuous regime of negative reflection.  
+
+当我们回想过去的行为时，基于我们当时所知道的，或者认为/陈述“事情”在过去更好时，我们说我们本可以做得更好，这只会让我们对过去的表现感到不满。这会导致一个持续的消极反思。
 
 We act and react based upon our experience and ability to deal with that presented to us.  How we determine the "quality of an event"is how we deal with that presented to us using the tools of ability and prior experience. Accepting that how we reacted and acted was the best that we could have achieved in those circumstances is called "living in the now. " When we recognize this,it negates our need to constantly refer to the past in comparison to the "near present"or "now. "This then allows us to move forward in our evolutionary growth rather than turning that achieved into a function of karma,based upon physical performance.  
 
+我们基于我们的经验和处理摆在我们面前的事情的能力来行动和反应。我们如何决定“事件的质量”是我们如何使用能力和先前经验的工具来处理摆在我们面前的事情。接受我们如何反应和行动是我们在那些情况下可以达到的最好结果，这被称为“活在当下”。当我们认识到这一点时，它否定了我们不断地与“最近”或“现在”相比，参考过去的需要。这让我们在进化中前进，而不是把它变成业力的功能，基于身体表现。
+
 This does not negate the need to learn from our mistakes,but it does negate the need to chastise ourselves when we spot our "mistakes"retrospectively. 
+
+这并不否定从错误中学习的必要性，但它否定了当我们回顾自己的“错误”时惩罚自己的必要性。
 
 ### Being Grateful 
 
@@ -1444,11 +1674,19 @@ This does not negate the need to learn from our mistakes,but it does negate the 
 
 When we show gratitude for a good deed someone extends to us,it encourages further good deeds. We can extend gratitude when we personally receive a good deed,as well as when someone else receives one. Indeed,our expressing gratitude is a mark of recognition not only for the deed itself and its importance but also for the thoughtfulness of the giver in seeing our needs or those of others.  
 
+当我们对他人为我们做的好事表示感激时，这会鼓励更多的好事发生。当我们自己受到善举时，以及当别人受到善举时，我们都可以表达感激之情。事实上，我们表达感激不仅仅是对善举本身及其重要性的认可，也是对施予者看到我们或他人需求的体贴的认可。
+
 We must not,however,give false gratitude that merely acknowledges the deed for acknowledgement's sake,for this is as negative as giving no gratitude at all.  
+
+然而，我们不应该虚假地表达感激，仅仅为了认可而认可善举，因为这与根本不表示感激一样消极。
 
 Simply appreciating that which has been done for us or others extends gratitude to that which has been done in a passive way. Passive gratitude is "received"energetically by the doer of the good deed,as well as subliminal encouragement.  
 
+简单地欣赏为我们或他人所做的善事，以一种被动的方式向所做的事情表示感激。被动的感激被善举的实施者积极地“接受”，以及潜意识的鼓励。
+
 The promotion of good deeds through gratitude is,therefore,an accelerant. There is a pattern here. The more encouragement we or others receive though truly given or received gratitude,the more we or others will do good deeds,eventually elevating ourselves to the level where good deeds are normal for us,and we will no longer need for recognition for them. At this point in our development,we will be in true service,avoiding karma in the process. 
+
+因此，通过感激来促进善行是一种加速剂。这里有一个模式。我们或他人通过真正给予或接受感激而获得的鼓励越多，我们或他人就会做更多的善事，最终将我们自己提升到善行对我们来说是正常的水平，我们将不再需要为它们而得到认可。在我们发展的这个阶段，我们将会真正地服务，避免在过程中产生业力。
 
 ### Being Mindful 
 
@@ -1456,7 +1694,11 @@ The promotion of good deeds through gratitude is,therefore,an accelerant. There 
 
 Being mindful of how we function whilst incarnate is an excellent tool in our battle against accruing karma. Being mindful means that we give ourselves enough time to think about what our environment is,how we are being affected by it,how we are being affected by who and what is in our environment,and how we can efficiently deal with who and what is affecting us without creating low frequency attachments of any kind:transient,short, medium or long term.  
 
+当我们转世时，留意我们如何运作，是我们对抗累积业力的绝佳工具。留意意味着我们给自己足够的时间去思考我们的环境是什么，我们是如何被它所影响的，我们是如何被我们环境中的人和事物所影响的，以及我们如何能有效地处理谁和什么在影响我们的同时，不创造任何类型的低频依附：短暂的，短期的，中期的或长期的。
+
 In this instance,we as mindful incarnates can see all the possible links to low frequency or karma-generating responses or reactions so we can avoid them with ease and maximize their incarnate evolutionary potential at every opportunity. This is true even in adverse environments or conditions. 
+
+在这种情况下，我们作为有正念的转世存有，可以看见所有可能与低频或产生业力的反应或反应有关的链接，所以我们可以轻松地避免它们，并在每一个机会中最大化他们的转世进化潜力。即使在不利的环境或条件下也是如此。
 
 ### Gaining Mindful Appreciation 
 
@@ -1464,7 +1706,11 @@ In this instance,we as mindful incarnates can see all the possible links to low 
 
 Appreciation through mindfulness is a very powerful way for us to tune into the functionality of the physical universe we exist within.  
 
+通过正念的欣赏是一种非常强大的方式，让我们调谐到我们生存的物质宇宙的功能。
+
 If we are mindful enough to see beyond our initial experience to observe the beauty in the interactive properties of what we are experiencing,then we can accept every experience and whatever it brings with an appreciation of the underlying evolutionary opportunities being presented to us and welcome them with open arms-thus avoiding karmic forces. 
+
+如果我们足够正念，能看到我们最初的经验，观察我们正在经历的互动性质中的美丽，那么我们可以接受每一个经验和它所带来的任何东西，欣赏它呈现给我们的潜在进化机会，并张开双臂欢迎它们——从而避免业力。
 
 ### Observing the Details 
 
@@ -1472,9 +1718,15 @@ If we are mindful enough to see beyond our initial experience to observe the bea
 
 When we show appreciation through mindfulness,it allows us to experience the minute details of physical existence. For example,we may observe the work behind the presentation of the foods we eat.  
 
+当我们通过正念表达感激时，它让我们体验到物质存在的细微细节。例如，我们可以观察我们吃的食物背后的工作。
+
 We can do this from so many perspectives,for example,seeing or thinking about the planting of a seed,the growing and nurturing of the vegetable,harvesting the crop,washing and preparing it for sale,delivering it from the farmer to the shop and then to our larder,and from our larder to the cooker and then noting all the work of the cook or chef to bring it to our plate. We note some or all the work done to get this food to us to taste and experience and the energy we gain,the zest we feel when energized by the food.  
 
+我们可以从许多角度来做，例如，看到或思考种子的种植，蔬菜的生长和培育，收割庄稼，清洗和准备出售，从农民到商店，然后到我们的食品柜，从我们的食品柜到炊具，然后注意厨师或主厨把它放到我们盘子里的所有工作。我们注意到一些或所有做的工作，把食物送到我们面前，让我们品尝和体验，以及我们获得的能量，当食物给我们能量时我们感受到的热情。
+
 When we are appreciative through mindfulness and recognize the work required to deliver what we need in our everyday incarnate existence,we offer no negativity and are grateful for what we receive,irrespective of what it is. We give thanks and encouragement. Our doing so,promotes high frequency responses in the process and avoid the potential low frequency responses relating to karma. 
+
+当我们通过正念表达感激时，并认识到在我们每天的化身存在中，需要提供我们所需要的东西，我们没有提供任何消极，并对我们所收到的东西心存感激，无论它是什么。我们表示感谢和鼓励。我们这样做，促进了高频率的反应，并避免了潜在的与业有关的低频率反应。
 
 ### Balancing Our Experiences 
 
@@ -1482,11 +1734,19 @@ When we are appreciative through mindfulness and recognize the work required to 
 
 Experiences that we classify as bad or "sub-optimal,"such as the loss of a loved one,the loss of a position of power/responsibility,an accident in our motor vehicle,or a paint can spilling on the carpet while decorating our home are all part of our undergoing a balanced set of experiences in the physical.  
 
+我们把经历归类为坏的或“次优的”，例如失去一个爱人，失去一个权力/责任的位置，在我们的机动车上发生事故，或在装修房子时把油漆罐溅到地毯上，这些都是我们在物质世界经历的平衡的一部分。
+
 We expect good things to happen to us all of the time whilst incarnate and,as such,we tend to focus only on those things that we classify as good or "optimal. "We ignore the importance of experiencing the so-called bad or "sub-optimal"situations. However,it is how we respond to these sub-optimal experiences in comparison to the optimal ones that dictates whether or not we are consumed by being "in"the experience.  
+
+我们希望好事总是发生在我们身上，因此，我们往往只关注那些我们归类为好事或“最佳”的事。我们忽略了经历所谓的坏事或“次优”情况的重要性。然而，与最佳体验相比，我们对这些次优体验的反应决定了我们是否被“在”体验中消耗。
 
 When we experience optimal events and pay little or no attention to them,we are "part of them"but "not of them"unless,of course,the ego has a part to play in the optimal experience. When we experience sub-optimal events,we pay a lot of attention to them and become "of them"but not "part of them. "In the latter,we forget the bigger picture that these experiences include,and the result is an unwilling attraction to the lower frequency responses associated with the experience through emotions,such as disappointment.  
 
+当我们经历最佳事件时，我们很少或不注意它们，我们是“它们的一部分”，但“不是它们的一部分”，除非，当然，自我在最佳体验中发挥了作用。当我们经历次优事件时，我们对它们给予很多关注，成为“它们的一部分”，但不是“它们的一部分”。在后者中，我们忘记了这些经历所包含的更大的图景，结果是不情愿地通过情感吸引到与经历相关的低频反应，如失望。
+
 The antidote that is written several times throughout this guide is to stand back and see what the experience offers us as a lesson. We must take time to see what the correct response route is. Have we learned the lesson and gained the evolutionary content attributed to the experience? With this knowledge in mind,we can see the beauty and its timeliness in the experience and then rise above the opportunity for entrapment in the lower frequencies. 
+
+本指南多次提到的解药是退后一步，看看这些经历给我们上了什么课。我们必须花时间看看正确的反应路线是什么。我们是否学到了教训，并获得了归因于经验的进化内容？有了这些知识，我们可以看到经验中的美丽和及时性，然后超越低频陷阱的机会。
 
 ###  Smiling in Adversity 
 
@@ -1494,15 +1754,23 @@ The antidote that is written several times throughout this guide is to stand bac
 
 Smiling in the face of adversity is an excellent way for us to remain in a high frequency existence whilst we are incarnate. Smiling in the face of adversity means that we are not consumed by the lower frequencies of the adverse condition but are "in joy"at the opportunity of dealing with the challenge/s presented to us. 
 
+面对逆境微笑，是让我们在世间保持高频率的一种极好的方式。面对逆境微笑意味着我们不会被低频率的逆境所吞噬，而是“欢喜”地抓住处理眼前挑战的机会。
+
 ### Remembering:the Key to Avoiding Karma 
 
 **忆起我们自己，回避业力的关键**
 
 Remembrance,particularly of who and what we are and why we are here is the ultimate key for us to avoid karma.  
 
+忆起，特别是我们是谁，我们是什么，我们为什么在这里，是我们避免业力的最终关键。
+
 Through diligent daily meditations,we as incarnate individuals can establish communion with the greater reality. Thus,we gain comfort that incarnate existence is but a transient part of our total existence and understand our part within it. This allows us to look deeper into "what is,"which will allow untapped levels of our energetic memories to become accessible and thus in increase our levels of "knowing,"which "is"a function of remembrance.  
 
+通过勤奋的日常冥想，我们作为化身的个体可以建立与更大的现实的沟通。因此，我们获得安慰，化身的存在只是我们全部存在的短暂部分，并理解我们其中的一部分。这使我们能够更深入地看“是什么”，这将使我们未开发的能量记忆水平变得可访问，从而增加我们的“知道”水平，这“是”记忆的功能。
+
 When we are in "remembrance,we know how to react in an optimal way to all experiences in all environments and navigate with ease through the maelstrom of opportunities for low frequency attachment-thus avoiding karma. 
+
+ 当我们在“忆起”中，我们知道如何以最佳的方式对所有环境中的所有经验做出反应，并轻松地通过低频率依恋的机会漩涡导航，从而避免业力。
 
 ### Source Entity's Words of Wisdom to Avoid Karma 
 
@@ -1510,106 +1778,204 @@ When we are in "remembrance,we know how to react in an optimal way to all experi
 
 In this section I have included a number of the Source Entity's "words of wisdom"that I felt should accompany the ways to avoid karma presented in this book. Each one has been specifically chosen because of the way it augments the guidance already given. Indeed,in terms of advice,each is more than capable of "standing on its own two feet,"so to speak, which is why it is included.  
 
+在这部分我已经包括了一些源实体的“智慧之言”，我觉得应该伴随本书中提出的避免业力的方法。每一个都被特别选择，因为它增强了已经给出的指导。事实上，就建议而言，每一个都能够“独立地站立”，这就是为什么它被包括在内。
+
 When the Source uses the word "we,"it is considering Itself as one with all of us-as us. As we experience,It experiences. As we learn,It learns. As we evolve,It evolves.  
+
+当源头使用“我们”这个词时，它认为自己与我们所有人是一体的——就像我们一样。当我们经历时，它也经历。当我们学习时，它也学习。当我们进化时，它也进化。
 
 We must become our own gurus and stop to consider what is being presented to us via experiences and run a number of "what if"scenarios before we decide what to do. Then we choose the optimal response and record the result. If the response chosen was not the optimal response,we look at what made us choose that response in the first place and make a mental note not to repeat it in that scenario again.  
 
+我们必须成为自己的大师，在我们决定做什么之前，停下来考虑通过经验呈现给我们的东西，并运行一些“如果”场景。然后我们选择最佳的反应，并记录结果。如果选择的反应不是最佳的反应，我们看看是什么让我们首先选择那个反应，并在心里记住不要再在那个场景中重复它。
+
 When we learn from choosing certain responses and recording the outcomes mentally,we develop a database of known paths or processes to follow when we are confronted with a similar new experience. Thus we ensure we will have a successful response the next time and thereafter. In essence,when we learn the lessons and robustly apply that learning,we are not only good students but also good teachers,for the student and the teacher are one and the same.  
+
+当我们从选择某些反应和心理上记录结果中学习时，我们开发了一个已知的路径或过程数据库，当我们面临类似的新经验时，我们可以遵循它。因此，我们确保下一次以及以后的每次反应都将是成功的。本质上，当我们吸取教训并积极地运用所学时，我们不仅是好学生，也是好老师，因为学生和老师是一体的。
 
 The light within is the light without. Unless we are able to accept that our light is within,we will not shine without. When we accept the light within,we are in the knowledge that we are a beautiful being,one with our Creator,perfect in every way,and nothing outside us will extinguish this inner light.  
 
+内在的光就是外在的光。除非我们能够接受我们的光在内在，否则我们不会在外面发光。当我们接受内在的光时，我们知道我们是一个美丽的存在，与我们的造物主同在，在各方面都是完美的，我们之外的任何东西都不会熄灭这内在的光。
+
 The light of beauty is not only in the eye of the beholder,it is within our spiritual eye if we can behold it within ourselves.  
+
+美的光不仅仅是在旁观者的眼中，如果我们能从我们自己身上看到它，它就在我们精神之眼里。
 
 The roads to God are many and varied,but whatever road we take,we must make it our own.  We must be persistent and patient and not enticed by the road of another,which may seem faster but actually isn't.  
 
+通往上帝的道路是多种多样的，但无论我们选择哪条路，我们必须让它成为我们自己的。我们必须坚持不懈，耐心，不要被别人的路所诱惑，这可能看起来更快，但实际上不是。
+
 If we are selfish,it is OK,provided we are only selfish in seeking the road towards communion with God.  
+
+如果我们是自私的，这没关系，只要我们只是在寻找通往与上帝交流的道路上的自私。
 
 When we are calm and adapt to change without apportioning blame,we possess the ticket to ascending with the ascension.  
 
+当我们冷静地适应变化，不责备时，我们拥有随着提升而提升的门票。
+
 Ascension is inevitable provided we continue questioning our reason for existence and thus maintain our desire to know why and how our universe was created.  
 
-Meditation is the ability to concentrate 100%on God,and as a result,to become aware of God's presence.  
+提升是不可避免的，只要我们继续质疑我们存在的理由，从而保持我们想知道我们的宇宙为什么和如何被创造的愿望。
+
+Meditation is the ability to concentrate 100% on God,and as a result,to become aware of God's presence.  
+
+冥想是一种100%专注于上帝的能力，因此，我们会意识到上帝的存在。
 
 Fear is the barrier the ego uses to keep us from communion with God,as communion with God results in loss of ego.  
 
+我们必须在我们的内心深处寻找上帝，因为我们知道上帝的存在。恐惧是自我用来阻止我们与神沟通的障碍，因为与神沟通会导致自我的丧失。
+
 Why fear that which we are part of? God loves us because we are part of God. Because we are part of God,we are loved by God and can experience God. However,God can only be experienced by looking inwards and being quiet and still.  
+
+为什么害怕我们自身的一部分？上帝爱我们，因为我们是上帝的一部分。因为我们是上帝的一部分，我们被上帝所爱，并能体验上帝。然而，上帝只能通过向内看，保持安静和宁静来体验。
 
 In the search for oneness with God,we must first open the door of the heart. Only then will God step through the doorway.  
 
+在寻找与上帝合一的过程中，我们必须首先打开心灵之门。只有这样，上帝才会踏入门槛。
+
 Our reason to be is to awaken in God,know God,be one with God,and be God whilst incarnate-a simple task that we make so hard to achieve by succumbing to our physical desires.  
+
+我们存在的理由是在上帝中觉醒，认识上帝，与上帝合一，在化身中成为上帝——一个简单的任务，但由于屈服于我们的身体欲望，我们使之变得如此困难。
 
 Within silence there can be found God;within God there can be found silence-the silence of joy in knowing God.  
 
+在寂静中可以找到上帝；在上帝中可以找到寂静——在认识上帝时喜悦的寂静。
+
 Some choose to awaken comfortably. Some choose to awaken uncomfortably. Acceptance is the recipe for awakening comfortably;resistance creates discomfort.  
+
+有些人选择舒适地觉醒。有些人选择不舒服地觉醒。接受是舒适觉醒的秘诀； 抵触会制造不适。
 
 That which is seen by the physical eye is but a microcosm of a microcosm of a microcosm.  It is not the real reality,for the physical is a creation made by our Source Entity,our God,to allow us to experience the minute details of what has been created,the multiverse we exist within for the purpose of evolution. If we would open our eyes,we would see beyond the facade which separates it from the rest of creativity.  
 
-To open our eyes we must be fastidious in learning to meditate,to seek the truth,to renounce that which appears to be real,to be unwavering in our desire to be part of the greater reality,to avoid getting tied up in the theater of existence in the physical,to forgive and forget,to help without expectation,to exist in love and harmony-to "BE"that which we“ARE”-“ONE”with our“Creator. " 
+用肉眼看到的只是一个微观世界的微观世界的微观世界。它不是真实的现实，因为物质世界是由我们的源头实体，我们的上帝创造的，为了进化的目的，让我们体验被创造的微小细节，我们生存的多元宇宙。如果我们能睁开我们的眼睛，我们就能看到超越了把它与其他创造力分开的外表。
+
+To open our eyes we must be fastidious in learning to meditate,to seek the truth,to renounce that which appears to be real,to be unwavering in our desire to be part of the greater reality,to avoid getting tied up in the theater of existence in the physical,to forgive and forget,to help without expectation,to exist in love and harmony-to "BE"that which we“ARE”-“ONE”with our“Creator." 
+
+为了睁开我们的眼睛，我们必须刻苦学习冥想，去寻找真理，去放弃那些看似真实的东西，去坚定不移地渴望成为更大的现实的一部分，去避免被束缚在物质存在剧场中，去原谅和忘记，去帮助而不期望回报，去生活在爱和和谐中——去“成为”我们“本来”的“自己”——与我们的“造物主”“合一”。
 
 Why should we settle for consciousness in the physical when we can commune with God and gain cosmic consciousness?  
 
+当我们可以与上帝沟通并获得宇宙意识时，为什么我们要满足于物质意识？
+
 There is no separation. We are one with God,and God is one with us. Why seek externally that which is always within?  
 
-Why do we put off contacting God today in lieu of tomorrow when we can do it today and tomorrow and the day after. . . ?  
+没有分离。我们与上帝合一，上帝与我们合一。为什么要从外部寻找一直就在我们内部的东西？
+
+Why do we put off contacting God today in lieu of tomorrow when we can do it today and tomorrow and the day after?
+
+当我们可以今天、明天和后天联系上帝时，为什么我们把它推迟到明天？
 
 God judges us by our actions,not words,so when we say we are going to meditate on God,we must DO IT!And be rewarded by communion with God and not the "thought"of communion with God.  
 
+上帝根据我们的行动来评判我们，而不是言语，所以当我们说我们要冥想上帝时，我们必须去做！并且通过与上帝交流而非与上帝交流的“想法”而得到回报。
+
 Embrace that which is within-God! 
+
+拥抱上帝之内的东西！
 
 Spiritual physics is the understanding of the existence of knowledge that is "beyond" knowledge.  
 
+精神物理学是对知识存在的理解，那是“超越”知识的。
+
 Whilst we are in the physical,reality is,in essence,that which "we think we know"but ultimately "will know"when we translate back into the energetic. 
+
+当我们在物质的，实相，本质上，“我们认为我们知道”，但最终“将知道”当我们转化回能量。
 
 It's wise to question ourselves on what reality is. It is not the mundane need to wake,work, eat,sleep and be better than someone else.  
 
+这是明智的问我们自己什么是现实。它不是世俗的需求醒来，工作，吃饭，睡觉和比别人更好。
+
 Forgiving is the biggest gift God has given us. It should be unconditional and instant.  
+
+宽恕是上帝给我们的最大礼物。它应该是无条件的和即时的。
 
 Negativity should be seen as an opportunity for creating positivity.  
 
+消极应该被视为创造积极的机会。
+
 To move into the multiverse whilst incarnate,we need to recognize the physical universe for what it is,and what it is not.  
+
+转世进入多维宇宙，我们需要认识到物质宇宙是什么，它不是什么。
 
 It "is not" the true reality;"it is"an opportunity for individual evolution.  
 
+它“不是”真正的现实； “它”是一个个人进化的机会。
+
 It "is not" the be-all and end-all or the opportunity to be the dog that ate the dog;"it is"to be the dog that loved the dog and shared its scraps of food in equality.  
+
+它“不是”一切的开始和结束，或机会，成为狗吃狗； “它是”爱狗的狗，平等地分享它的食物残渣。
 
 The physical universe is nothing but a theater,a play we created,an opportunity for us to endeavor to remember our lines and our actions when we are faced with the experiences we have chosen. For this reason everything we do is within the play,a play manifested in the theater called Earth.  
 
-We must be discerning in relation to our work and take onboard only that which resonates with us as truth. There is a lot of spiritual text that is written by the ego or is "band- waggoning"rather than coming from the source of truth. We must take onboard that which resonates with us as being correct. 
+物质宇宙只是一个剧院，一个我们创造的戏剧，一个机会，让我们努力记住我们的台词和我们的行动，当我们面对我们选择的经验时。因此，我们所做的一切都是在戏剧中，一个在地球剧院中显化的戏剧。
+
+We must be discerning in relation to our work and take onboard only that which resonates with us as truth. There is a lot of spiritual text that is written by the ego or is "band-waggoning"rather than coming from the source of truth. We must take onboard that which resonates with us as being correct. 
+
+我们必须对我们的工作有辨别力，只接受与我们共鸣的真理。有很多精神文本是由自我写的，或者是“大摇大摆”，而不是来自真理的源头。我们必须接受与我们共鸣的正确性。
 
 Many teachers today present the same information in different ways. This is necessary because we are all at different levels of evolution and awakening. More importantly,we all learn in different ways of absorbing and experientially knowing. So what may be kindergarten spiritualism to one person may be high spiritualism to another. Ascension is, therefore,for all of us.  
 
+今天许多老师以不同的方式呈现相同的信息。这是必要的，因为我们都在不同的进化和觉醒水平上。更重要的是，我们都以不同的方式学习吸收和体验性地认识。所以，对一个人来说可能是幼儿园灵性主义的东西，对另一个人来说可能是高级灵性主义。因此，提升是为我们所有人的。
+
 Seeking to understand where we are in comparison to another is not good practice,for it introduces jealousy or ego.  
+
+试图理解我们与另一个人相比不是好的做法，因为它引入了嫉妒或自我。
 
 Dates are a great misnomer as we become confused when nothing discernible happens that can be attributed to the date. They can,however,be used as a milestone to indicate that we (collectively)should have reached a certain level of frequency.  
 
+日期是一个伟大的误用，因为当没有什么可辨别的发生可以归因于日期时，我们变得困惑。然而，它们可以被用作一个里程碑，表明我们(集体)应该达到一个特定的频率水平。
+
 We ARE ascending through the frequencies at a sustainable and robust pace,one that will allow us to have minor setbacks without affecting our overall process of ascension.  The knife-edge ascension that most spiritualists desire is not optimal,nor is it sustainable because it is just as easy to descend as it is to ascend the frequencies. With a big jump,the drop can be just as big.  
+
+我们正在以可持续和强健的步伐通过频率提升，这将允许我们有小的挫折而不影响我们的整体提升进程。大多数灵性主义者渴望的刀刃提升不是最佳的，也不是可持续的，因为它就像是上升频率一样容易下降。随着一个大的跳跃，下降可以是同样大的。
 
 If we are all one,how can we be singular? If we are all singular,how can we be all one?  
 
+如果我们都是一体的，我们怎么能是单一的？如果我们都是单一的，我们怎么能成为一体？
+
 The answer is that we are all the collective totality of the entity we call God. 
+
+答案是我们都是我们称之为上帝的实体的整体。
 
 Physicality to Energetic/Super-Conscious Mind Equation 
 
+肉体到能量/超意识心灵等式
+
 Physicality (incarnate self)minus the conscious mind minus the subconscious mind equals the super conscious or energetic mind.  
+
+肉体(化身自我)减去意识心灵减去潜意识心灵等于超意识或能量心灵。
 
 i. e. ,((P-CM)-SM) = SC/EM 
 
-or 
+即，((P-CM)-SM)=SC/EM
+
+or
+
+或者
 
 ((Physicality-Conscious Mind) - Sub Conscious Mind) = Super Conscious/Energetic Mind
+
+**((肉体-意识心)-潜意识)=超意识/能量**
 
 ### About the author 
 
 **关于作者**
 
-Guy Needler MBA,MSc,CEng,MIET,MCMA initially trained as a mechanical engineer and quickly progressed on to be a chartered electrical and electronics engineer. However, throughout this earthly training he was always aware of the greater reality being around him,catching glimpses of the worlds of spirit. This resulted in a period from his teenage to early twenties where he revelled in the spiritual texts of the day and meditated intensively.  Being subsequently told by his guides to focus on his earthly contribution for a period he scaled this back the intensity of spiritual work until his late thirties where he was re- awakened to his spiritual roles. The next six years saw him gaining his Reiki Master and a four year commitment to learn energy and vibrational therapy techniques from Helen Stott, a direct student of the Barbara Brennan School of HealingTM,which also included a personal development undertaking (including psychotherapy)as a course prerequisite using the PathworkTM methodology described by Susan Thesenga with further methodologies by Donovan Thesenga,John and Eva Pierrakos. His training and experience in energy based therapies have resulted in him being a member of the Complementary Medical Association (MCMA).  
+Guy Needler MBA,MSc,CEng,MIET,MCMA initially trained as a mechanical engineer and quickly progressed on to be a chartered electrical and electronics engineer. However, throughout this earthly training he was always aware of the greater reality being around him,catching glimpses of the worlds of spirit. This resulted in a period from his teenage to early twenties where he revelled in the spiritual texts of the day and meditated intensively. Being subsequently told by his guides to focus on his earthly contribution for a period he scaled this back the intensity of spiritual work until his late thirties where he was re-awakened to his spiritual roles. The next six years saw him gaining his Reiki Master and a four year commitment to learn energy and vibrational therapy techniques from Helen Stott, a direct student of the Barbara Brennan School of HealingTM,which also included a personal development undertaking (including psychotherapy)as a course prerequisite using the PathworkTM methodology described by Susan Thesenga with further methodologies by Donovan Thesenga,John and Eva Pierrakos. His training and experience in energy based therapies have resulted in him being a member of the Complementary Medical Association (MCMA).  
 
-Along with his healing abilities his spiritual associations include being able to channel information from spirit including constant contact with other entities within our multiverse and his higher self and guides. It is the channelling that has resulted in The History of God,Beyond the Source and is producing further work.  
+盖伊·尼德勒，工商管理硕士，理学硕士，特许工程师，工程技术学会会员，替代医疗协会会员。早期受训成为机械工程师，随即晋升为特许电力电子工程师。不过，在尘世的培训当中，他一直意识到世上有更高的实相，并得以瞥见灵性的世界。这使他从青少年时期到二十多岁的岁月里，沉浸在灵性书籍且勤奋地投入到静心冥想中。随后，指导灵以一种特殊的方式与他沟通，需将重心暂时放在对尘世的贡献上。于是他减少了灵性上的探索，直到将近四十岁时，他又再度被唤醒，重归灵性角色。接下来的六年里，他获得了灵气疗法的导师资格，并用四年的时间向芭芭拉·布南能（Barbara Brennan）的直系学生海伦·斯托特（Helen Stott）学习能量与频率治疗技术。在校期间，他也学习了个人发展与实践，包括心理疗法这一预修课程。该课程使用的道途法由苏珊·赛森格（Susan Thesenga）提出，并由多诺万·赛森格（Donovan Thesenga），约翰（John）与伊娃·皮拉克斯（Eva Pierrakos）等人进一步发展。之后，能量治疗方面的培训和经验，使他成为了替代医疗协会（MCMA）会员。
+
+Along with his healing abilities his spiritual associations include being able to channel information from spirit including constant contact with other entities within our multiverse and his higher self and guides. It is the channelling that has resulted in The History of God,Beyond the Source and is producing further work. 
+
+除了能量疗愈方面的能力，他的灵性能力还包括能够传递灵界信息，以及持续与我们多维宇宙中各种实体及存有、他的高我及指导灵保持接触。本书《源头简史》正是源于他的深度冥想传导，且他正在带来更多的颠覆传统认知的著作。
 
 As a method of grounding Guy practises and teaches Aikido. He is a 5th Dan National Coach with 30 years experience and is currently working on the use of spiritual energy within the physical side of the art.  
 
+盖伊还练习并传授合气道，作为一种接地的方法。在此领域他拥有三十年经验，是五段国家级教练，目前正将灵性能量融入这门艺术当中。
+
 Guy welcomes questions on the subject of spiritual physics and who and what God is.  
 
-Website: www. guystevenneedler. com 
+盖伊热忱欢迎大家提问有关灵性物理学以及源头是谁、源头是什么的问题。
 
-email: beyondthesource@btinternet. com
+Website: www.guystevenneedler.com 
+
+email: beyondthesource@btinternet.com

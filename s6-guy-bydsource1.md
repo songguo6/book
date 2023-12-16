@@ -1,7 +1,5 @@
 ![](img/s6-008.png)
 
-**基于[DeepL](https://www.deepl.com/)翻译**
-
 ---
 
 **Beyond The Source Book 1: Communications with the Co-Creators**
