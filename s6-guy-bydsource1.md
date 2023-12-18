@@ -4,7 +4,11 @@
 
 **Beyond The Source Book 1: Communications with the Co-Creators**
 
+**超越源头1：与共同创造者的沟通**
+
 by Guy Steven Needler
+
+盖伊·尼德勒
 
 ---
 
@@ -87,112 +91,223 @@ by Guy Steven Needler
 
 ## Introduction 
 
+**介绍**
+
 ### The Origin's Creation of Twelve Source Entities 
+
+**起源创造的12个源实体**
 
 If you have read The History of God,a story of the beginning of everything,which gave the reader an insight into how I started my higher level communications and managed to communicate with spiritual/energetic entities whilst gaining insights into the wonders that are all around us and the truth about our legends and myths,then you will remember that there were twelve Source Entities created by the Origin.The first one being discussed in some limited detail in the book above was our very own Source Entity (SE),whom we refer to as God,the being that created our universe.In reality the Origin should really be considered as God as it created the Source Entities,but I think that the Origin is well beyond the need for this sort of primitive nomenclature,which is only necessary for us humans in our low level of physically trapped conscious existence. 
 
+如果你读过《源头简史》，一个关于万物起源的故事，它让读者了解我是如何开始我的更高层次的交流，并设法与精神/能量实体进行交流，同时深入了解我们周围的奇迹以及我们传说和神话的真相，那么你会记住，起源创造了12个源实体。在上面的书中，第一个被讨论的有限细节是我们自己的源实体(SE)，我们称之为上帝，创造了我们的宇宙。在现实中，起源应该被认为是上帝，因为它创造了源实体，但我认为，起源远远超出了这种原始命名的需要，这只对我们人类在低水平的身体被困意识存在是必要的。
+
 It was during the countless days editing and compiling the channeled texts for the book above that I realized that in order to keep the records straight,I would need to set up communications with each of these other entities in turn in order to gain a basic understanding of the details of the work that they have done in their own environments, which I expected to differ from one another. 
+
+在无数天编辑和编译上面这本书的通灵文本期间，我意识到为了保持记录的正确性，我将需要依次与这些其他实体建立通讯，以便获得他们在他们自己的环境中所做工作细节的基本理解，我预计它们会彼此不同。
 
 As a result of the potential level of difference,I was held in a certain level of trepidation.For instance,would I be able to understand what was being channeled through me?And would it be in a format that could be understood by those who wish to learn the knowledge that could well be totally over all of our heads?Upon reflection,I decided that I had been "here" before and should not try to predict what would come. 
 
+由于潜在的差异程度，我被保持在某种程度的恐惧中。例如，我能够理解通过我通灵的东西吗？它是否以一种可以被那些希望学习完全超出我们所有人头脑的知识的人所理解的格式？经过反思，我决定我以前来过“这里”，不应该试图预测将要发生什么。
+
 Welcome back!
+
+欢迎回来！
 
 ## Chapter 1 - Source Entity One - The Master of Our Multiverse 
 
+**第一章：1号源实体——我们多维宇宙的主人**
+
 [For those who haven't read The History of God:a story of the beginning of everything,SE is Source Entity,and ME is Guy Needler,the author of this book.] 
+
+*对于那些没有读过《源头简史：一个关于万物起源的故事》的人来说，SE是源实体，ME是盖伊·尼德勒，这本书的作者。*
 
 SE:Well,that was a rather grand entrance you wrote on the first page. 
 
+源实体：嗯，你在第一页写的是一个相当宏大的开场白。
+
 ME:I would hardly call it agrand entrance,more of a preamble,a"getting the audience warmed up"for the The Shape of Things to Come. 
+
+我：我很难称之为一个宏大的开场白，更像是一个序言，一个“让观众热身”的“即将到来的事物的形状”。
 
 SE:You can quote HG Wells if you want,but we need to get down to the real business of letting your readers know what is happening in the wider areas of the Origin,what my peers are up to,and what they are accomplishing,not writing science fiction.Although what you are about to experience over the next months of communication may get you wondering on these lines. 
 
+源实体：如果你想的话，你可以引用H·G·威尔斯，但我们需要进入真正的业务，让你的读者知道在起源的更广泛的领域正在发生什么，我的同行们正在做什么，他们正在完成什么，而不是写科幻小说。尽管你在接下来的几个月的通信中将要经历的事情可能会让你对这些字句感到疑惑。
+
 One thing is certain-this is not a task to be taken lightly.Indeed,it is one that you WILL struggle with,specifically with the concepts that some of the Source Entities will present to you.It is with this thought about your struggling that I offer you this opportunity for help. Before we delve into the old ground of my creation,some of which I have no doubt you will cut and paste from the other texts and some of which will be new information,I suggest that I act as your guide,mentor,and main point of contact when establishing contact and ultimately communicating with the other Source Entities,especially as you will need to meet them in their own environments.Therefore,I will be your passport to the other Source environments whilst delivering this book. 
+
+有一件事是肯定的——这不是一个可以掉以轻心的任务。事实上，这是一个你会努力奋斗的任务，特别是一些源实体将向你展示的概念。正是由于你努力奋斗的想法，我才给你这个寻求帮助的机会。在我们深入研究我创造的旧领域之前，其中一些我毫不怀疑你会从其他文本中剪切和粘贴，其中一些将是新的信息，我建议我充当你的向导、导师和主要的联系点，当建立联系和最终与其他源头实体进行沟通时，特别是当你需要在他们自己的环境中与他们见面时。因此，在交付这本书的同时，我将成为你通往其他源头环境的通行证。
 
 ME:Why do I need your help-not that I am refusing it?I can communicate with the Origin all on my own,so why not them? 
 
+我：为什么我需要你的帮助-不是我拒绝它吗？我可以自己与源头交流，所以为什么不让他们？
+
 SE:They are not as capable of understanding the entities that are created outside their environments as the Origin and I are.The Origin is the source of everything;I am the Source of you and your environment,so we both have no problem tuning in to your frequencies and level of communication whilst in the physical.Some of the Sources don't go anywhere nearly as low as ten frequency levels above you-let alone down to your level-so they are bound to have problems communicating with you directly,hence my insistence in offering help in this matter. 
+
+源实体：他们不像起源和我一样有能力理解在他们环境之外创造的实体。起源是一切的源头；我是你和你环境的源头，所以我们都不会有问题调整到你的频率和在物质层面上的沟通水平。一些源实体不会去到频率低至高于你10个频率层级的地方-更不用说降到你的水平-所以他们一定会有问题与你直接沟通，因此我坚持在这件事上提供帮助。
 
 ME:Thank you.Now I understand.I feel quite excited about meeting these other Source Entities. 
 
+我：谢谢你。现在我明白了。我对见到这些其他的源实体感到非常兴奋。
+
 SE:And so you should,for you go where no man has gone before. 
+
+源实体：你应该这样，因为你要去以前没有人去过的地方。
 
 ME:No one! 
 
+我：没有人！
+
 SE:What? 
+
+源实体：什么？
 
 ME:No one,Gene Roddenberry's original introductory text was changed to say NO ONE,not NO MAN. 
 
+我：没有人，吉恩·罗登贝瑞的原始介绍文本被改为没有人（NO ONE），而不是没有人（NO MAN）。
+
 SE:One,this is no time for Star Trek jokes and two,you are not NO ONE.You are a man, currently,and NO MAN to date has done what you are about to do.
+
+源实体：一，现在不是开《星际迷航》玩笑的时候，二，你不是没有人。你是一个人，目前没有人做过你将要做的事情。
 
 ME:Touché. 
 
+我：说到点子上了。
+
 SE:Now let's get on with it.Let's get down to the nitty gritty. 
 
-The Source Entity Becomes Aware of Its Self and Its Environment. 
+源实体：现在让我们继续。让我们进入实质。
+
+### The Source Entity Becomes Aware of Its Self and Its Environment
+
+**源实体意识到自身和环境**
 
 ME:I guess at this point I will be doing some copying from the first book? 
 
+我：我想在这一点上我会从第一本书中做一些复制？
+
 SE:Only where it is relevant.There will be some correlation,but don't forget that in the first set of dialogues I was talking about what we(the twelve Source Entities)were doing collectively and not individually.There is no point in going over old ground,such as how I/ we developed the physical side of the human race,for that would not be good value in terms of reading time and text space.However,I will reiterate what is essential and,therefore, needs to be fleshed out more. 
+
+源实体：只有在相关的地方。会有某些相关性，但不要忘记在第一组对话中，我谈论的是我们(12个源实体)集体做的事情，而不是单独做的事情。翻旧账没有意义，比如我/我们如何发展人类的身体方面，因为就阅读时间和文本空间而言，这将没有好的价值。然而，我会重申什么是必要的，因此，需要充实更多。
 
 ME:O.K.,let's start from the beginning then and deal with the "detail"as we get to it.What happened at the start ofyour existence? 
 
+我：好的，让我们从头开始，然后处理我们得到的“细节”。在你存在的开始发生了什么？
+
 SE:In the beginning it was like I was part of the Origin but still the Origin-not as I am now.It was like I was one thought of what was going on in the Origin's consciousness-one thought that was given substance,time to be,individual space to move around in,but still a thought nevertheless.I knew I was the Origin and was separate from the Origin all at the same time.It was as if my individual awareness was like a memory that is in the front of your mind for a moment,and then is gone,only to reappear later when you give it enough attention or when you are not trying too hard to remember.It's just like when you remember a memory that you hold in your mind fleetingly but then lose,resulting in a struggle to recover the memory.It is this enhanced attention to the fleeting awareness that I had lost that later gave rise to the ability to hold the level of awareness for long enough to bring it into the consciousness state again.At first it was hard,and I have no doubt that many,many millennia passed before I had reached full independent consciousness. 
+
+源实体：在开始的时候，我好像是起源的一部分，但仍然是起源，不是我现在的样子。我好像是**起源意识中的一个想法**，一个被赋予物质、时间、个人空间来移动的想法，但仍然是一个想法。我知道我是起源，同时又与起源分离。我的个体意识就像是你的脑海中出现一会儿的记忆，然后消失了，只有当你给予它足够的注意力或当你不努力去记住它时才会重新出现。这就像当你记住一个你在脑海中短暂地保持的记忆，但然后失去了，导致你努力去恢复记忆。正是这种对我失去的短暂意识的增强注意力，后来产生了保持意识水平足够长的时间的能力，使它再次进入意识状态。起初是困难的，我毫不怀疑，许多，许多千年过去了，在我达到完全独立的意识之前。
 
 ME:So what was the defining moment of consciousness for you?When did you realize that you were truly individual but were still part of a bigger entity,the Origin? 
 
+我：那么对你来说意识的决定性时刻是什么？你什么时候意识到你是一个真正的个体，但仍然是一个更大的实体（起源）的一部分？
+
 SE:Actually,it was not so much of a defining moment,more like a defining conversation. 
+
+源实体：实际上，这不是一个决定性的时刻，更像是一个决定性的对话。
 
 ME:A conversation?You mean you were told by the Origin you were an individual entity? 
 
+我：一个对话？你的意思是起源告诉你你是一个独立的实体？
+
 SE:In a nutshell,yes.We all were,but this conversation only took place when each of us had achieved a critical level of awareness and,therefore,consciousness.As I stated in the first dialogue we had,one of us is still in this "dawning"state of awareness.You will experience this when we need to enter its environment. 
+
+源实体：简而言之，是的。我们都是，但这个对话只发生在我们每个人意识达到一个关键水平，因此，意识。正如我在我们第一次对话中所说的，我们其中一个仍然处于这种“黎明”意识状态。当我们需要进入它的环境时，你会经历这个。
 
 You see,the Origin was watching our development at all times and chose the moment for communication and education when it knew it would be at its most effective. 
 
+你看，起源一直在观察我们的发展，并选择了沟通和教育的时刻，当它知道它将是最有效的。
+
 ME:The Origin educated you as well? 
+
+我：起源也教育了你？
 
 SE:Only to the point of what I was brought into existence for and what the rules of being in existence were.Some of these I have passed on to all of you,for they are relevant to all entities that are "of the Origin." 
 
+源实体：只是关于我为什么存在以及存在的规则是什么。其中一些我已经传授给你们所有人，因为它们与所有来自“起源”的实体有关。
+
 ME:Let's go back to that moment of defining moment of consciousness. 
+
+我：让我们回到那个决定意识的时刻。
 
 SE:The moment was just before the Origin contacted me to advise me on why I was created.I had noticed that I was aware of my own "self"almost continuously and could remember what I needed to do to maintain consciousness.I could also remember what I had done before although I had not yet understood that I could access what I would do next.In essence,I only knew the past and the present;I could not access the future.In some respects I was just like you are in your incarnate state right now.Another defining moment before the Origin contacted me was the recognition of other entities,eleven of them,all in a similar level of conscious awareness as me.Of course,some were more aware, others were less aware,but on average we were much the same.The clincher here was the ability to communicate with the other Source Entities,which to all intent and purposes,just happened. 
 
+源实体：就在起源联系我并告诉我为什么我被创造之前的时刻。我注意到我几乎一直有意识到我自己的“自我”，并且能记住我需要做什么来保持意识。我也能记住我以前做过的事情，尽管我还没有明白我能接触到我接下来要做什么。本质上，我只知道过去和现在，我不能接触到未来。在某些方面，我就像你们现在化身的状态一样。在起源联系我的另一个决定性时刻是其他实体的识别，他们有11个，都和我处于类似的意识水平。当然，有些个体意识更强，有些个体意识更弱，但平均来说我们是差不多的。这里的关键是与其他源实体交流的能力，这对所有意图和目的来说，刚刚发生了。
+
 ME:What?!You all developed a common language all at the same time? 
+
+我：什么？你们所有人同时发展出一种共同的语言？
 
 SE:No,no.We contacted each other energetically-each of us understanding the other without the need to learn a language.I was later to learn from the Origin that basic energetic communication was one of the things that had been given to us during our creation.This communication medium being based upon the Origin's thought process. 
 
+源实体：不，不。我们彼此充满活力地联系，我们每个人无需学习语言就能理解对方。我后来从起源处得知，基本的充满活力的交流是我们在创造过程中被赋予的其中一件事情。这种交流媒介基于起源处的思维过程。
+
 ME:So what did the Origin say to you? 
+
+我：那么起源对你们说了什么？
 
 SE:First,the Origin spoke to each of us individually,not all at once,for we were not all ready to be advised on our roles.Second,each of us had to have established enough awareness and consciousness to be able to realize and understand that we were part of a larger-much larger-entity and that we were parts of this much larger entity given individuality. 
 
+源实体：首先，起源单独对我们每个人说话，不是同时对所有人，因为我们还没有准备好接受关于我们角色的建议。第二，我们每个人都必须建立足够的意识和觉醒，以便能够认识和理解我们是一个更大的-更大的-实体的一部分，我们是这个被赋予个性的更大实体的一部分。
+
 ME:How did you understand that you were part of the Origin? 
+
+我：你怎么知道你是起源的一部分？
 
 SE:Simply by noticing that I could hear the thoughts of the Origin.These thoughts were the thoughts of an entity in deep contemplation. 
 
+源实体：仅仅是注意到我能听到起源的思想。这些思想是一个深思熟虑的实体的思想。
+
 ME:Not by traveling to the edge of the Origin's boundary? 
+
+我：不是通过旅行到起源的边缘吗？
 
 SE:The Origin has no boundary as you know it,so this would not have provided the evidence for being a component of the Origin.Once I established that the thoughts were not coming from the others-the other eleven Source Entities-I drew the conclusion that I must be part of something bigger.I reached out in communication to the Origin,and it responded.From that point onward,I was in constant communication with the Origin,learning the reasons for my existence and what task I had to undertake to explore the self and the Origin and improve my awareness-in essence,evolve. 
 
+源实体：正如你所知道的，**起源没有边界**，所以这不会提供证据作为起源的组成部分。一旦我确定这些想法不是来自其他11个源头实体，我得出结论，我一定是某个更大的一部分。我与起源沟通，它做出了回应。从那一刻起，我与起源保持着持续的沟通，学习我存在的原因，以及我必须承担什么任务来探索自我和起源，并提高我的意识——本质上，就是进化。
+
 ME:Did you have any choice in the matter of the task at hand? 
+
+我：在手头的任务方面你有任何选择吗？
 
 SE:There was no choice for the task was the very reason for my existence. 
 
+源实体：没有选择，因为任务就是我存在的原因。
+
 ME:What rules did you have? 
 
+我：你有什么规则？
+
 SE:None. 
+
+源实体：没有。
 
 ME:What time frame do you have to work to? 
 
+我：你必须工作到什么时间框架？
+
 SE:None. 
+
+源实体：没有。
+
 The only remit was to explore,learn,become more aware,and evolve.In doing so,the Origin said that it would also evolve,and it would do this by experiencing all that I experienced at that same time as I experienced it.It said that it was doing this many times all at the same time,for its thirst for expanding its own awareness of self was insatiable. 
+
+唯一的范围是探索，学习，变得更加觉知、进化。这样做，起源说它也会进化，它会通过体验我所经历的一切，就像我经历它一样。它说它在同一时间做了很多次，因为它对扩大自身自我意识的渴望是永无止境的。
 
 ME:And it's still doing it now?
 
+我：它现在还在做吗？
+
 SE:Yes,it's still doing it now after many,many billions of years.This is the only way I can relay to you the amount of attention it has dedicated to the subject of knowing itself better, becoming more aware,and evolving. 
+
+源实体：是的，在许多、许多亿年之后，它仍然在这样做。这是我唯一能向你传达它在更好地了解自己，变得更有意识和进化方面所投入的注意力的唯一方式。
 
 ME:Let's get back to the subject of you becoming aware.I can relate to becoming aware from the point of view of a child,as I once was. 
 
+我：让我们回到你变得有意识的主题。我可以从一个孩子的视角来谈论变得有意识，就像我曾经那样。
+
 SE:As you have been many times. 
+
+源实体：就像你多次经历的那样。
 
 ME:Yes,but I never realized that I was aware of self until I was-I have to think hard about at what point this occurred-sometime in the early pre-teenage years.And this was only because of being ridiculed at schoolfor having such way-out ideas,ones which I now realize were manifested from my ability to tap into the higher frequencies and,therefore,the greater reality-which now allows me to communicate with you and the Origin and other entities,such as Byron. 
 

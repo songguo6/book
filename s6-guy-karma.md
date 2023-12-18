@@ -1966,7 +1966,7 @@ Guy Needler MBA,MSc,CEng,MIET,MCMA initially trained as a mechanical engineer an
 
 Along with his healing abilities his spiritual associations include being able to channel information from spirit including constant contact with other entities within our multiverse and his higher self and guides. It is the channelling that has resulted in The History of God,Beyond the Source and is producing further work. 
 
-除了能量疗愈方面的能力，他的灵性能力还包括能够传递灵界信息，以及持续与我们多维宇宙中各种实体及存有、他的高我及指导灵保持接触。本书《源头简史》正是源于他的深度冥想传导，且他正在带来更多的颠覆传统认知的著作。
+除了能量疗愈方面的能力，他的灵性能力还包括能够传递灵界信息，以及持续与我们多维宇宙中各种实体及存有、他的高我及指导灵保持接触。《源头简史》正是源于他的深度冥想传导，且他正在带来更多的颠覆传统认知的著作。
 
 As a method of grounding Guy practises and teaches Aikido. He is a 5th Dan National Coach with 30 years experience and is currently working on the use of spiritual energy within the physical side of the art.  
 
