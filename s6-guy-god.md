@@ -6355,35 +6355,63 @@ SE:Good.You see it is not really good enough to just be in contact with yourself
 
 ME:Have there been any really great civilizations on Earth? 
 
-我：地球上有过真正伟大的文明吗？ 有一个，但那个文明现在既不存在于这个维度，也不再完全把地球作为关注对象呢？ 你说的关注对象是什么意思加，那么他们现在在哪里？在一个不同的频率维度，在宇宙中自由的生活，你是他们的一份子，他们被称为啊他们已经超越了存在于地频中的需要。 正为了包括我在内的所有化身的利益，而共同维护这个特定的宇宙，我是他们的一份子。 如果我真的是他们的一份子，为什么我会转世？在这个低频里了，我被开除了吗？ 远非如此，你和其他一些个体选择花费多次转世来帮助那些刚刚开始转世的人，借此加速他们自身的进化，他们都在共同努力，他们都试图把地球成为一个伟大的文明，但这需要时间依我看，需要相当长的时间。 现在的世界是完全混乱和不和谐的。从你的角度来看，是比实际的更糟糕，但不要忘记，我可以看到一切我可以看到一切正在如何发展，包括你们为了帮助目标实现而做的所有贡献。 听起来不错。是的，那么来自地球的那个伟大文明发生了什么呢？ 他们并不是来自地球，他们来自我就跟你们是从我而来的一样。 是的，但他们经历了什么？
+我：地球上有过真正伟大的文明吗？ 
 
 SE:One.But that civilization is neither resident in this dimension nor is it still fully associated with Earth as an object of focus. 
 
+源实体：有一个，但那个文明现在既不存在于这个维度，也不再完全把地球作为关注对象了。
+
 ME:What do you mean by "an object of focus"? 
+
+我：你说的关注对象是什么意思？
 
 SE:Home. 
 
+源实体：家。
+
 ME:So where are they now? 
+
+我：那么他们现在在哪里？
 
 SE:In a different frequency/dimension and living freely within the universe.You are part of them;they are called the Om!They have outgrown the need to be part of the lower frequencies and work together to maintain this specific universe for the good of all the incarnates,including Me. 
 
+源实体：在一个不同的频率/维度，在宇宙中自由地生活，你是他们的一份子，他们被称为OM。他们已经超越了存在于低频中的需要，正为了包括我在内的所有化身的利益而共同维护这个特定的宇宙。
+
 ME:I am part of them!If I am truly part of them,why am I here incarnate in these lower frequencies?Have I been expelled?
+
+我：我是他们的一份子！如果我真的是他们的一份子，为什么我会转世在这个低频里呢？我被开除了吗？
 
 SE:Far from it.You and a number of others chose to spend a number of incarnations to help those entities who have only just started to incarnate as a means of accelerating their own evolution.They are all trying it together.They are all trying to make the human race a great civilization,but it is taking time. 
 
+源实体：远非如此，你和其他一些个体选择花费多次转世来帮助那些刚刚开始转世的人，借此加速他们自身的进化。他们都在共同努力，他们都试图使人类成为一个伟大的文明，但这需要时间。
+
 ME:Quite a lot of time from what I can see.The world is in total disarray and disharmony. 
+
+我：依我看，需要相当长的时间。现在的世界是完全混乱和不和谐的。
 
 SE:It appears to be worse than it is from your perspective,but don't forget that I can see everything.I can see where everything is going,including the contributions that you are all making to help make it happen. 
 
+源实体：从你的角度来看，是比实际的更糟糕。但不要忘记，我可以看到一切。我可以看到一切正在如何发展，包括你们为了帮助目标实现而做的所有贡献。
+
 ME:That sounds nice. 
+
+我：听起来不错。
 
 SE:It is. 
 
+源实体：是的。
+
 ME:So what about the one civilization that is great that came from Earth? 
+
+我：那么来自地球的那个伟大文明发生了什么呢？
 
 SE:They didn't come from Earth.They came from Me just the same as you came from Me. 
 
+源实体：他们并不是来自地球，他们来自我。就跟你们是从我而来的一样。
+
 ME:But what did they do? 
+
+我：但他们经历了什么？
 
 #### A Civilization That Created Heaven on Earth 
 
@@ -6391,9 +6419,11 @@ ME:But what did they do?
 
 SE:They created heaven on Earth.Everyone worked together in harmony without conflict. They saw areas of improvement from a natural point of view and worked together with nature to make those changes.Nature is that part of Me that is assigned to maintaining the physical universe.Everything they did was aimed at improving their collective situation,that situation being one of physicality.They understood that the best evolutionary way forward was to work together with the universal rules on evolution in the physical.We have already spoken about-the rules for not incurring karma or evolutionary loss of frequency that results in one's being stuck in the physical planes.This problem,I have to say,was very rare indeed with this civilization. They were both very aware and lucky enough to have started to incarnate when the frequencies of Earth and the surrounding universe were very high.Nevertheless,the risks were just as high in terms of being caught in the traps of the physical world. 
 
-他们在地球上创造了天堂，人人和睦相处没有冲突。 他们从自然的角度看到了一些可以改进的地方，并与大自然一起合作进行改变。 自然是我用来维持物质世界的一部分，他们所做的一切都是为了改善他们集体的状况及物质上的状况。 他们明白最好的进化方式，是尊重物质界进化的宇宙法则。 我们已经说过了，那种法则不会招致引力或在进化上损失频率，而导致一个人被困在物质层面。 我不得不说这个问题，在这个文明里却是很少出现，他们很清楚，也很幸运。 在地球和周围，宇宙的频率非常高的时候就开始转世。尽管如此，陷入物质世界陷阱的风险同样很高。 你这里讲的不是很清楚，感觉这个文明对于个人起源以及你自己的进化和体验都至关重要。 然而你没有告诉我，他们在科技上达到了什么程度，他们有能力去其他星球吗？ 他们发明了远程传送吗？他们解决了医疗问题吗？他们在那里做了什么？
+源实体：他们在地球上创造了天堂，人人和睦相处，没有冲突。他们从自然的角度看到了一些可以改进的地方，并与大自然一起合作进行改变。自然是我用来维持物质世界的一部分。他们所做的一切都是为了改善他们集体的状况及物质上的状况。他们明白最好的进化方式是尊重物质界进化的宇宙法则。我们已经说过了，那种法则不会招致业力或在进化上损失频率，而导致一个人被困在物质层面。我不得不说，这个问题在这个文明里确实很少出现。他们很清楚也很幸运，在地球和周围宇宙的频率非常高的时候就开始转世。尽管如此，陷入物质世界陷阱的风险同样很高。
 
 ME:You're not being very succinct here.This civilization seems to be of paramount importance to the evolution and experience of the individual and the Origin,as well as Yourself.Yet You are not telling me what they achieved technologically.Did they achieve the ability to move to the stars?Did they invent teleportation?Did they solve medical issues?What where they, what...? 
+
+我：你这里讲的不是很清楚，感觉这个文明对于个人、起源以及你自己的进化和体验都至关重要。然而你没有告诉我，他们在科技上达到了什么程度，他们有能力去其他星球吗？他们发明了远程传送吗？他们解决了医疗问题吗？他们在那里做了什么？
 
 #### Technology as a Red Herring 
 
@@ -6401,15 +6431,23 @@ ME:You're not being very succinct here.This civilization seems to be of paramoun
 
 SE:Stop!You are missing the point.The way to the stars from your perspective is not with machines but with the self.This civilization achieved all that they needed to achieve to move on to the next level of evolution without the need for technology.The need for technology is a red herring,a distraction,a lack of understanding;it is "miss-direction."You see,it is not technology that helps you evolve.It is one's understanding self and the workings of the universe.This is only possible when the individual stops thinking of himself/herself and starts to think of the bigger picture.How can he/she help others?Which opportunities have been presented but not embraced are opportunities missed?These are all things that the enlightened individual is aware of and takes advantage of.This is the trait of the individual incarnates that collectively make up a great civilization. 
 
-你没有抓住重点在你的视角中得到其他新球器的这件事，其实无需凭借机器，而是通过自己这个文明实现了进入下一发展阶段所需的一切，而无需科技对科技的需求，就像鸿飞鱼是分散注意力的东西，是缺乏认知的表现。 这是个歧途，你要知道帮助你进化的不是科技，而是对自我和宇宙运作的理解。 只有当一个人停止思考自己而开始思考更大的图径时，这种理解才会成为可能。 他如何能够帮助别人有哪些呈现出来，但没有把握住而错过的机会。 这些都是觉悟了的人，能够意识到并加以利用的这就是聚合成一个伟大文明的个别化身的特征。 我想提出一个问题，这个对话被称为神的历史。我们现在更多的是在谈论人类的历史，我们谈论这些完全合适。 从你的角度来看，神是创造的始作俑者，这是对的。同样你们也都是你们称之为神或者起源的实体的一部分。 就像我一样，但你们所有人也把我称为神，因为我是你所在宇宙的创造者。 我的历史也包括我在探索自己的过程中所创造的，许多住在各个维度和频率中的种族，我也在和这些种族交流。 就像我正在和你们很多人交谈一样，其中的一些种族能完全认知到有更大的实像。 而另一些种族的认知则与你们类似。在这种情况下，谈论与人类相关的神的历史是比较合适的。 因为这符合你们的理解框架，你们无法从另一个种族的角度理解神的历史。 因为文化上的差异会太大。这个理解的一部分就是要学习被你们遗忘了的你们自己种族的历史，你们与我及种族的互动。 因此试着参考更高的智去去理解。在现在这个特定的进化阶段，人类还不能完全接受自身是更大事物的一部分。 因为人类看不到自己呈现在眼前的事实。这也是我讲这个高阶历史课的演变。 因为他讲述的是与源头的关系，以及他在漫长的经历中的演变。 好的，我想我现在明白了，我们已经谈论过，我们称之为人体的这个载具的发展，以及他现在和以前是如何被用于个体的进化体验的。 我还记得刚才谈到了在地球上出现过的不同文明，其中有些伟大的文明，你能举个例子，具体描述一下吗？ 译者注，红飞鱼，比喻使人分心的事物源自用。红色熏干飞鱼的气味。 训练狗狩猎看猎狗是否能够抵抗飞鱼的味道而找到猎物。
+源实体：停！你没有抓住重点。在你的视角中，到其他星球去这件事，其实无需凭借机器，而是通过自己。这个文明实现了进入下一发展阶段所需的一切，而无需科技。对科技的需求就像红鲱鱼，是分散注意力的东西，是缺乏认知的表现，这是个歧途。你要知道，帮助你进化的不是科技，而是**对自我和宇宙运作的理解**。只有当一个人停止思考自己，而开始思考更大的图景时，这种理解才会成为可能。他如何能够帮助别人，有哪些呈现出来但没有把握住而错过的机会，这些都是觉悟了的人能够意识到并加以利用的。这就是聚合成一个伟大文明的个别化身的特征。
 
 ME:I would like to call a point of order.This dialogue is called the History of God,and we are talking more about the history of humanity at the moment. 
 
+我：我想提出一个问题，这个对话被称为神的历史，我们现在更多的是在谈论人类的历史。
+
 SE:It is entirely appropriate that we do so.From your perspective,God is the perpetrator of creation,which is true.Again you are all part of the entity you call God (the Origin),as am I,but all of you refer to Me as God,as I am the creator of the universe that you are part of.My history also includes the creation of many races that are resident in many of the dimensions and frequencies that I have created as a result of My investigations into Myself.I talk to these races as well,as I am talking to many of you now.Some of these races are all totally aware of the greater reality whereas others are similar to you.In this instance,it is more appropriate to talk about the History of God relevant to the human race since this is your framework of understanding.You would not be able to understand the History of God from another race's point of view because the cultural differences would be far too different.Part of this understanding is learning the forgotten history of your own race,its interaction with Me,and its environment. As a result,try to understand why the human race refers to a higher order that,in general,at this particular point in its evolution,it cannot fully accept that it is part of something bigger because the human race cannot see the facts as they present themselves.This then is the reason for the higher level history lesson since it shows the relationship with the Source and how it has changed over the millennia. 
+
+源实体：我们谈论这些完全合适。从你的角度来看，神是创造的始作俑者，这是对的。同样，你们也都是你们称之为神或者起源的实体的一部分，就像我一样。但你们所有人也把我称为神，因为我是你所在宇宙的创造者。我的历史也包括我在探索自己的过程中所创造的许多住在各个维度和频率中的种族，我也在和这些种族交流，就像我正在和你们很多人交谈一样。其中的一些种族能完全认知到有更大的实相，而另一些种族的认知则与你们类似。在这种情况下，谈论与人类相关的神的历史是比较合适的，因为这符合你们的理解框架。你们无法从另一个种族的角度理解神的历史，因为文化上的差异会太大。这个理解的一部分，就是要学习被你们遗忘了的你们自己种族的历史，你们与我及环境的互动。因此，试着参考更高的秩序去理解。在现在这个特定的进化阶段，人类还不能完全接受自身是更大事物的一部分，因为人类看不到自己呈现在眼前的事实。这也是我讲这个高阶历史课的原因，因为它讲述的是与源头的关系，以及它在漫长的经历中的演变。
 
 ME:O.K.,I think I understand now. 
 
+我：好的，我想我现在明白了。
+
 In the past we have talked about the development of the vehicle we call the human body and how it was and is used for the evolutionary experience of the individual entity.Bearing in mind that we have just been talking about the different civilizations that have troddened Earth and that some are great.Can you describe one of these civilizations? 
+
+我们已经谈论过我们称之为人体的这个载具的发展，以及它现在和以前是如何被用于个体进化体验的。我还记得刚才谈到了在地球上出现过的不同文明，其中有些伟大的文明，你能举个例子具体描述一下吗？
 
 #### Mechanization and Fall of a Great Civilization 
 
@@ -6417,9 +6455,11 @@ In the past we have talked about the development of the vehicle we call the huma
 
 SE:The best example of a civilization that covers all of those criteria is the race that lived in the environment you would classify as Eden.As you are aware from your own legends, the only thing that is known worldwide about this is that there were two people involved,one called Adam and the other called Eve.These were supposed to be the male and female of the human species with the female eating fruit from the forbidden tree,which resulted in the downfall of the Garden of Eden.Prior to this story that has been told in many forms over the millennia,this particular civilization had indeed achieved greatness.
 
-有一个种族是符合那些条件的文明的最好例证。 他们曾生活的环境，类似你们心目中的伊甸园。正如你们的传说所讲的，全世界对伊甸园都了解的一点，就是那里有两个人，一个叫亚当，另一个叫夏娃，他们本是人类种族的男性和女性，女性吃了禁树上的水果，导致了伊甸园的堕落。 在这个几千年来，以多种形式讲述过的故事发生之前，这个文明确实创造了伟大的成就。 伊甸园这个名字并不是这个文明聚集地的正确叫法，但为了保证连贯性，我还是用它吧，因为他更容易理解。 从本质上讲，称这个文明为伟大文明有以下原因。第一，他与地球的自然运作和谐一致。 第二，他们彼此和睦相处。第三，他们理解相互之间在进化角度上的需求，而且每个人都都把他人放在自己之前。 第四，他们与地球及周围的维度和频率上的其他实体保持着联系沟通。 第五，他们能够利用环绕在他们周围的能量，用他为整体利益服务，包括建立住宿和提供食物。 第六，他们能够与当时居住在这个星球上的动物密切交流。 那么他们为什么没能延续下去？他们为什么现在不在这里？他们决定从物质角度对创造力进行试验。 他们发现可以用能量创造出能为他们做事的东西，使自己从埋头于手边事物的状态中解放出来。 他们制造了机器吗？他们发明了一些你们可以称之为科技的东西。 是的，你可以叫他们机器，但他们不是你认知中的那种机器，他们由渗透在维度或频率之间的能量构成，从周围吸取能量，以自动完成自己的使命工作。 第么，他们做了什么？他们提出了的能量，这些能量用于生产，如根类蔬菜和浆果等食物中人类所需的营养元素，他们还进化了与水有关的能量，水是一个在建筑和食物里被大量使用的基本元素。 即使在当时由于火山活动，水也很容易被污染，所以他们需要对水进行定期进化。 而且因为人体主要成分试水，所以他们用纯净水来治疗那些被破坏或磨损的人体部位，他过能量水可以被转变成任何东西。 但所有这些机器带来的一个大问题是那些被机器取代的流程已被人类遗忘。 因为人们自己不需要再做了。这就像你们使用过的对数表，现在计算器就能为你们计算了。 所以现在整整一代的学生都不知道对数表是什么，更不要说使用它了。 这也正是这个文明所经历的，他们创造出越来越多的机器来做越来越多的事，因为来越没有自己去亲力亲为的必要。 因此，他们忘记了操纵和控制能量的基本知识。当机器最终开始出现故障时，最初如何制造他们的知识已经不复存在了，人们自己没有能力操纵能量去做，需要这些机器做的事，那些技能早已没人传授，因为他们不再被重视，因为机器们能够永远工作下去，但是没有机器可以永远工作下去。 即使是基于能量的机器，因为在他们不断使用能量，按照程序制造东西的过程中，他们的功能性也终会衰竭。 那么他们还制造了什么其他的机器吗？首先我需要提醒你，这些机器是基于能量的显化物，而不是你目前使用的物质设备，例如飞机汽车或电脑，他们是由该文明中最优秀的头脑开发出来的，可以使人们从那些不得不集中精力完成那些辅助生存的苦差事力解放出来，像对大多数机器一样，此后不断的有其他熟悉这些机器性能的人对他们进行改进。 不过正如我刚才所说的，一旦机器完善到不再需要任何改进的地步，他们就不再被理会而被遗忘。 一旦机器们被遗忘了，等创造和维护他们的人离开了地球，回到自己的能量状态，创造或维护他们的知识就丢失了。 这也是你们当前这个文明，最近经历到并有机可查的事情，有一些现存的设备完全被误解了。 金字塔就是这样一个例子，散布在世界各地的埃及艳后的针，也就是古埃及方间碑，也是他们仍然在运作着。 但是他们运作的成果并没有被利用起来。说到那些机器做了什么的问题，我可以给你一个他们所执行任务的小清弹。 第一，进化水稻。第二，给使用植物提供能量。第三，纠正能量的调节性是植物最大限度的增长。 第四，显化物质形态，以用作住房交通等。第五，传输能量供个人使用。 第六，为交通建筑的能量通道提供能源。第十，使用能量清洁人体内的能量通道。 第八，利用能量使人体重返青春。第九，给通信线路提供能量。 第十进化大气。第十一指导天气系统更新水源。 第十二，直到地球的能量系统，以清洁其辉光能量层，这些只是制造出来的主要机器，还有很多其他执行次要任务的机器。 第有这一切的结果是这个文明确实有机会过得很轻松。 第现真实的自我，并与高我沟通，他们这样做了相当长的一段时间。 但问题是，他们开始专注于他们所使用的载际的物质层面，包括身体和情感上的刺激，或者说感觉这意味着一段时间以后，他们失去了与自己的高。 我接触的需要。因为他们过于专注自己的物质层面。我们一直在讲使用静国时伊甸园堕落的故事。 这个故事的重点是什么？重点在于这些自动装置使日常生活中与高我的持续沟通，以及对能量的使用变得不再必要造成了人们与高我和宇宙连接的断裂，一以任何形式的机械化自动化都会导致错失。 因此，经过这个故事的寓意并不是果实，或者说机械自动化，科技本身要被禁止，而是如果不能明智的使用，最终将会导致衰败。 等一下，你刚刚给了我一个绝佳的用你的话，说是伟大文明的例证。 但现在你又告诉我，他没能成为伟大文明，并且衰落了。这在用词上是个很大的断裂，一个拥有所有上述特征的伟大文明，怎么会因为使用科技而导致自身的衰落呢？ 抱歉，让你困惑了我给你的这个文明的例子，它不仅是个伟大文明。 同时它也由于原始体错误的集体性思维，而脱离了伟大文明的行列。 我应该讲一讲，我们谈到的第一个种族，那个文明却是伟大，他们取得了巨大成就。 我不得不说，从你们的角度来看，那是一个非常高频的时期。 那个文明地球太阳系信息和宇宙是年轻的纯洁的，没有被某些文明的错误决策和由此导致的频率丢失而玷污。 不幸的是，人类文明成功的创造了最大的频率下降，因此也成功的受到来自周围维度和频率的其他文明的关注足迹。 讽刺的是，过去那个人类文明比今天这个要伟大与伊甸园种族相似，在某些小的方面，人类所做的事，与伊甸园种族完全相同，这些正发生在你们的眼皮底下，每个人都想要科技带来的比便利。 每个人都希望得到物美价廉的东西，这会导致两种代价。 第一，所需设备较低的货币成本，以及第二对地球造成的高昂代价，也就是消耗地球自身监测和清洁其能量系统所需的主要资源。 而这些资源是其他生物的生存所必须的，大部分资源被耗尽的速度之快，令人折舌。 而机械手段来解决所谓世俗事物的需求，导致你们失去了传统的记忆，以及与地球自然的和谐，失去了与地球精灵的沟通，他们和地球一起为了维护地球，而工作也失去了和自我的沟通，那是你的一部分，你其余的部分也是我的一部分，是原始体的一部分，并且最终是起源的一部分。 所以伟大可以导致衰败。是的，可以，但也可以带来更恢宏的伟大。 这就是在过去的几千年中，一些来到你们这个物质层面的实体体，试图向你们所有人解释的。 但不幸的是，这后来被用于自我标榜自我标榜也同样导致了衰落，这些实体都是谁。 你以前与我讨论过的那些穆罕默德耶稣和佛陀在对进化的贡献上，以及对宇宙和你的存在的理解上，你觉得还有哪些其他文明值得想一想
+源实体：有一个种族是符合那些条件的文明的最好例证，他们曾生活的环境类似你们心目中的伊甸园。正如你们的传说所讲的，全世界对伊甸园都了解的一点，就是那里有两个人，一个叫亚当，另一个叫夏娃。他们本是人类种族的男性和女性，女性吃了禁树上的水果，导致了伊甸园的堕落。在这个几千年来以多种形式讲述过的故事发生之前，这个文明确实创造了伟大的成就。
 
 The name Eden is not the correct name for the area that this civilization was concentrated within,but for the sake of continuity I shall use it as it is easier to relate to. In essence,this civilization can be called great for the following reasons: 
+
+伊甸园这个名字并不是这个文明聚集地的正确叫法，但为了保证连贯性，我还是用它吧，因为它更容易理解。从本质上讲，称这个文明为伟大文明有以下原因：
 
 - It was in harmony with the natural workings of Earth; 
 - They were in harmony with each other; 
@@ -6428,23 +6468,48 @@ The name Eden is not the correct name for the area that this civilization was co
 - They were able to tap into the energies that surrounded them and used them for the benefit of the whole, including creating shelter and providing nourishment; 
 - They were able to commune with the animals that resided on the planet at that time. 
 
+- 它与地球的自然运作和谐一致；
+- 人们彼此和睦相处；
+- 他们理解相互之间在进化角度上的需求，而且每个人都都把他人放在自己之前；
+- 他们与地球及周围的维度和频率上的其他实体保持着联系沟通；
+- 他们能够利用环绕在他们周围的能量，用它为整体利益服务，包括建立住所和提供食物；
+- 他们能够与当时居住在这个星球上的动物密切交流。
+
 ME:So why did it not continue?Why are they not here now? 
+
+我：那么他们为什么没能延续下去？他们为什么现在不在这里？
 
 SE:They decided to experiment in creativity from a physical point of view.They saw that they could make creations with energy that would do things for them without having to continually focus on the task at hand themselves. 
 
+源实体：他们决定从物质角度对创造力进行试验。他们发现可以用能量创造出能为他们做事的东西，使自己从埋头于手边事物的状态中解放出来。
+
 ME:They made machines? 
+
+我：他们制造了机器吗？
 
 SE:They invented something that you would call technology.Yes,you would call them machines,but they are not what you would recognize as machinery.They were made of energies that permeated from between the dimensions or frequencies.They drew in energy from the surrounding area to allow them to do the work automatically that they were created for. 
 
+源实体：他们发明了一些你们可以称之为科技的东西。是的，你可以叫它们机器，但它们不是你认知中的那种机器，它们由渗透在维度或频率之间的能量构成，从周围吸取能量，以自动完成自己的使命工作。
+
 ME:So what did they do? 
+
+我：那么他们做了什么？
 
 SE:They refined the energies that were being used for nutrition of the physical aspects of the food that the humans needed,root vegetables and berries,not to mention the purification of the energies associated with water.Water is a base element that was used a lot in the construction of shelters and food.It was easy to pollute the water even then due to volcanic activity,so they needed to purify it on a regular basis.Also, because the human body is mainly derived from water,they used purified water to heal those parts of the body that were damaged or worn out.Water could be turned into anything by the use of energy.The big issue with all machinery is that the processes they replaced are forgotten because people don't need to do it anymore.It is like using your logarithm tables.Calculators do it all for you now,so there is a whole generation of students who no longer know what a logarithm table looks like,let alone able to use one.This is exactly what happened to this civilization.They created more and more "machines"to do more and more,negating the need for them to do it for themselves.Thereby,they forgot the basics of energy manipulation and control. When the machines eventually started to fail,the knowledge of how to make them in the first place was no longer available,nor did they have the abilities to manipulate the energies required to do the same.The skills were no longer taught since they were no longer considered necessary because the machines would "last forever.No machine lasts forever,even energy-based productions,as their functionality eventually gets diluted as a result of dealing with the energies they are using to create what they are programmed for. 
 
+源实体：他们提纯了的能量，这些能量用于生产如根类蔬菜和浆果等食物中人类所需的营养元素，他们还净化了与水有关的能量。水是一个在建筑和食物里被大量使用的基本元素，即使在当时，由于火山活动，水也很容易被污染，所以他们需要对水进行定期净化。而且，因为人体主要成分是水，所以他们用纯净水来治疗那些被破坏或磨损的人体部位，通过能量，水可以被转变成任何东西。但所有这些机器带来的一个大问题是，那些被机器取代的流程已被人类遗忘，因为人们自己不需要再做了。这就像你们使用过的对数表，现在计算器就能为你们计算了，所以现在整整一代的学生都不知道对数表是什么，更不要说使用它了。这也正是这个文明所经历的，他们创造出越来越多的机器来做越来越多的事，越来越没有自己去亲力亲为的必要。因此，他们忘记了操纵和控制能量的基本知识。当机器最终开始出现故障时，最初如何制造它们的知识已经不复存在了。人们自己没有能力操纵能量去做需要这些机器做的事，那些技能早已没人传授，因为它们不再被重视，因为机器们能够永远工作下去。但是，没有机器可以永远工作下去，即使是基于能量的机器，因为在它们不断使用能量按照程序制造东西的过程中，它们的功能性也终会衰竭。
+
 ME:So what other machines did they make? 
+
+我：那么他们还制造了什么其他的机器吗？
 
 SE:First,I need to remind you that these machines were energy-based manifestations and were not the physical devices that you have currently,such as airplanes,motorcars or computers.They were developed by the best minds in the civilization to relieve them from the drudgery of having to concentrate on doing tasks that they needed to do to make their existence on the physical planes easier.As with most machines, they were improved over time by others who also had a good understanding of the functionality of the machines they had created.However,as I just said,once they were perfected to the point where they no longer needed anyone to improve the machines, they were left alone and forgotten about.Once they were forgotten about and the individuals who created and maintained them had left the Earth plane and returned to their energetic state,the knowledge of what to do to create or maintain them was lost.This is something that you recently experienced with this current civilization and have the evidence to prove it insomuch as some of the devices are present now but totally misunderstood.The pyramids are one example of this as are the "Cleopatra's needles"that are dotted all over the world.They still function,but the output of their functionality is not used.
 
+源实体：首先，我需要提醒你，这些机器是基于能量的显化物，而不是你目前使用的物质设备，例如飞机、汽车或电脑。它们是由该文明中最优秀的头脑开发出来的，可以使人们从那些不得不集中精力完成的辅助生存的苦差事里解放出来。像对大多数机器一样，此后不断的有其他熟悉这些机器性能的人对它们进行改进。不过，正如我刚才所说的，一旦机器完善到不再需要任何改进的地步，它们就不再被理会而被遗忘。一旦机器们被遗忘了，等创造和维护它们的人离开了地球回到自己的能量状态，创造或维护它们的知识就丢失了。这也是你们当前这个文明最近经历的并有据可查的事情，有一些现存的设备完全被误解了。金字塔就是这样一个例子，散布在世界各地的“埃及艳后的针”，也就是古埃及方尖碑也是。它们仍然在运作着，但是它们运作的成果并没有被利用起来。
+
 To get on to the question of what the machines did,I will give you a small list of the jobs they performed. 
+
+说到那些机器做了什么的问题，我可以给你一个它们所执行任务的小清单。
 
 - Purified the watercourses. 
 - Energized the plants that were used for physical food. 
@@ -6459,27 +6524,62 @@ To get on to the question of what the machines did,I will give you a small list 
 - Directed weather systems for refreshing water supplies. 
 - Directed Earth's energy systems to cleanse its auric (energy)levels. 
 
+- 净化水道；
+- 给食用植物提供能量；
+- 纠正能量的调谐性，使植物最大限度地增长；
+- 显化物质形态以用作住房、交通等；
+- 传输能量供个人使用；
+- 为交通建筑的能量通道提供能源；
+- 使用能量清洁人体内的能量通道；
+- 利用能量使人体重返青春；
+- 为通信线路提供能量；
+- 净化大气；
+- 指导天气系统，以更新水源；
+- 指导地球的能量系统，以清洁其辉光能量层。
+
 These are only the main machines that were created.There were many others around to do less important functions.The upshot of all this is that the civilization actually had the opportunity to relax and find their real selves and communicate with their higher selves. They did this for quite some time,but the problem was that they started to concentrate on the physical side of the vehicle that they were occupying in terms of the sensations (feelings),both physical and emotional.This meant that over a period of time,they lost the need to be in contact with their higher selves as they concentrated on the physical aspects of themselves. 
+
+这些只是制造出来的主要机器，还有很多其他执行次要任务的机器。所有这一切的结果是，这个文明确实有机会过得很轻松，发现真实的自我，并与高我沟通，他们这样做了相当长的一段时间。但问题是，他们开始专注于他们所使用的载具的物质层面，包括身体和情感上的刺激，或者说感觉。这意味着一段时间以后，他们失去了与自己的高我接触的需要，因为他们过于专注自己的物质层面。
 
 ME:We concentrate on the story of the forbidden fruit bringing down the Garden of Eden.What is the significance of this story? 
 
+我：我们一直在讲食用禁果使伊甸园堕落的故事。这个故事的重点是什么？
+
 SE:The significance is the severance of the link between the higher self and the universe as a result of using automated devices that released the need for constant communication with the higher self and the use of energies in everyday life.Hence,mechanization/ automation (in whatever guise)led to delinquency.The link with the forbidden fruit was,therefore,not that the fruit (mechanism/automation/technology)was forbidden,but that it led to eventual decay if it was not used wisely. 
+
+源实体：重点在于，这些自动装置使日常生活中与高我的持续沟通以及对能量的使用变得不再必要，造成了人们与高我和宇宙连接的断裂。所以任何形式的机械化/自动化都会导致错失。因此，禁果这个故事的寓意并不是果实，或者说机械/自动化/科技本身要被禁止，而是如果不能明智地使用，最终将会导致衰败。
 
 ME:Hold on.You have just given me afantastic example of a civilization that was,in your words great,and now you are telling me that it failed in greatness and became decadent.This is a great contradiction in terms.How can a great civilization that had all the attributes already quoted,cause its own decay through the use of technology? 
 
+我：等一下，你刚刚给了我一个绝佳的用你的话说是伟大文明的例证。但现在你又告诉我，他没能成为伟大文明，并且衰落了。这在用词上是个很大的矛盾，一个拥有所有上述特征的伟大文明，怎么会因为使用科技而导致自身的衰落呢？
+
 SE:Sorry to confuse you,I gave you an example of a civilization that was not only great but that lost its greatness as a result of a misdirected collective thought process.I should have described the first race we talked about.This was truly great and achieved everything that was set out before them.I do have to say though that this was a time of great height in the frequencies from your perspective.The civilization,the Earth/ solar system,the galaxies and universe were young and innocent and untarnished by the mistakes in decision-making and subsequent loss of frequency made by some civilizations.Unfortunately,the human race as a civilization has been successful in making the greatest drop in the frequencies-hence,the attention it is receiving from other civilizations in the surrounding dimensions and frequencies. 
+
+源实体：抱歉让你困惑了，我给你的这个文明的例子，它不仅是个伟大文明，同时它也由于错误的集体性思维而脱离了伟大文明的行列。我应该讲一讲我们谈到的第一个种族，那个文明确实伟大，他们取得了巨大成就。我不得不说，从你们的角度来看，那是一个非常高频的时期。那个文明、地球、太阳系、星系和宇宙是年轻的、纯洁的，没有被某些文明的错误决策和由此导致的频率丢失而玷污。不幸的是，人类文明成功地创造了最大的频率下降，因此也成功地受到来自周围维度和频率的其他文明的关注。
 
 Ironically enough,the human race in its current guise was greater than it is today.In a parallel to the Eden race,in some smaller way,the human race is doing exactly the same thing as the Eden race did-right now under your very noses.Everybody wants the spoils of technology;they each want the best they can get for a pittance price-wise.Two costs are involved here though:(1)the low price being the cost in currency of the device desired; and (2)the high price to the Earth in terms of the use of the essential resources it needs to monitor and cleanse its own energy systems necessary to allow other physical organisms to exist within its energies.Most of these are being used up by man at break neck speed.A result of the need to use mechanical means to do supposedly mundane tasks is that you lose the skills of tradition and harmony with the Earth/nature;the communication with the spirits that work with Earth to maintain it and with the self,that part of you(the rest of you)that is part of Me,the Source Entity,and ultimately the Origin. 
 
+相当讽刺的是，过去那个人类文明比今天这个要伟大。与伊甸园种族相似，在某些小的方面，人类所做的事与伊甸园种族完全相同，这些正发生在你们的眼皮底下。每个人都想要科技带来的便利，每个人都希望得到物美价廉的东西，这会导致两种代价。(1)、所需设备较低的货币成本，(2)、对地球造成的高昂代价。也就是消耗地球自身监测和清洁其能量系统所需的主要资源，而这些资源是其他生物的生存所必须的，大部分资源被耗尽的速度之快令人咋舌。用机械手段来解决所谓世俗事物的需求，导致你们失去了传统的记忆，以及与地球/自然的和谐。失去了与地球精灵的沟通，他们和地球一起为了维护地球而工作。也失去了和自我的沟通，那是你的一部分，你其余的部分，也是我的一部分，是源实体的一部分，并且最终是起源的一部分。
+
 ME:So greatness can lead to decay. 
+
+我：所以伟大可以导致衰败。
 
 SE:Yes,but it can and also does lead to greater greatness.This is what the teachings of the beings that came to this physical plane tried to explain to all of you over the last millennia.But this,unfortunately,has been used lately for self-aggrandisement,and self-aggrandisement also leads to decadence.
 
+源实体：是的，可以，但也可以带来更恢宏的伟大。这就是在过去的几千年中，一些来到你们这个物质层面的实体试图向你们所有人解释的。但不幸的是，这后来被用于自我标榜，自我标榜也同样导致了衰落。
+
 ME:Which beings are these? 
+
+我：这些实体都是谁？
 
 SE:The Beings you have previously discussed with Me:Mohammed,Jesus,and Buddha. 
 
+源实体：你以前与我讨论过的那些：穆罕默德、耶稣和佛陀。
+
 ME:What other civilizations do you think were significant enough to talk about in terms of their contribution to evolution and their understanding of the universe and of your existence? 
+
+我：在对进化的贡献上，以及对宇宙和你的存在的理解上，你觉得还有哪些其他文明值得讲一讲？
 
 #### Atlantis 
 
@@ -6487,33 +6587,59 @@ ME:What other civilizations do you think were significant enough to talk about i
 
 SE:There are many races that were understood to be great but again fell into decay.There are many more of these than there are races that were totally successful.All progressed to higher frequencies together;therefore,I would choose not to dwell on the point that they failed to progress.There is no such thing as failure,don't forget,only experience, but to look at what they achieved whilst they were on the up.I see in your mind that you would like to talk about the race of man that was centered in the city of Atlantis, but many people have written channeled works on this civilization.From the general point of view,you would not be adding anything new,but I will add a little. 
 
-源实体：有很多种族曾被认为是伟大文明，但最后也落入衰败。 这类种族比完全成功的种族要多得多，所有一切都会一起进展到更高的频率。 因此，我不打算过多的谈论，他们未能取得进展的问题，别忘了没有失败。 这回事只有经验要看他们在上升的过程中所取得的成就。 我知道在你头脑里，你想谈谈以亚特兰蒂斯为中心的那族人，但是很多人已通过传导作品记述了这个文明。 总的来说，你已经没什么新的东西可以添加了，但我可以补充一些许多传导作品已经指出，亚特兰蒂斯人也是科技专家，就像另一个受到科技影响而衰退的文明一样。 他们专注于使用晶体来投射和控制能量，以帮助他们制造物质生存所需的东西。 他们在生物工程方面也非常出色，擅长利用水晶能量技术重组人类基因创造出人类和动物的混血生物，其中有些混血生物的故事，今天仍然在神话中流传。 他们甚至将基因从一种动物交换到另一种创造出完全杂交的动物，每一种混血都是为了在文明中执行某些工作或功能而被创造的。 有些是为了战争，有些是为了制造业，而有些是为了性快感，使用人类与动物的混血，甚至是动物生物工程的最糟糕的情况，是，用来显示社会地位创造出最新奇的生物。 曾被这个文明认为是极大彰显了财富和社会地位。一些亚特兰蒂斯人，甚至把自己的大脑重新设计成了喜欢的动物的形式。 因为他们觉得这会使他们在社区高层里有更高的地位。同样几千年来传说中的那些会说话的动物，就是这个曾经伟大的文明在走向腐朽堕落的年代里曾发生的事情的残疾。 那么为什么我们今天在这里看不到这样的混血呢？他们肯定已经对自身进行了繁衍和延续。 对，但这不是一条，我想让人类一直走下去的道路。首先是因为缺乏形体上的稳定性。 其次，因为这会最终导致比你们现在地球上某些地区不同种族之间发生的更为严重的问题，那就是歧视。 此外我也希望清理物质形体的基因库，而且意识到这个文明衰落的时候，正是做这件事的理想时机，这也得到了那些仍在正在或刚刚回到真实存在的能量层面的所有人的赞同。 从本质上讲，亚特兰蒂斯人创造了一个形式多样的马戏团文明，你再也分辨不出原本的血统是什么样了？ 每个人都在某种程度上被改变了。更重要的是，这些混血人的繁殖能力，不如当时真正的人类形态稳定许多，变得不遇再重复一次。 为了让我的来自能量的孩子们能够体验提供给他们的所有频率而载具与灵体之间的比例非常失衡，因此，创造一种能够自我繁殖的载具是非常必要的。 于是我允许这个文明走向了自我毁灭。在最后一个灵体离开地球，回归更高频率后，我进化了地球，你是怎么进化更高地区的？ 我允许地球在这个文明中心的地标形成了一个薄弱处，并以炽热的熔岩覆盖了这个地区，然后我用海水将其冷，却让熔岩里和海洋中的矿物混合起来，通过蒸汽清洗净化了剩余的土地，剩余的土地，你是指亚特兰蒂斯人所在的沉到了海底的那块地区吗？ 他没有沉默，他被水覆盖了当水与熔岩接触时，水变成了气体，于是土地又露出来了，这创造了一个在相当长的时间内，硫磺含量都很高的生态系统。 因为流使任何生物都很难自然生长。所以从事地球健康工作的实体自然精灵们费了很多力气，才将硫从地球上清除剩余的矿物质恰好益于植物生命的存在，所以植物生命迅速的成长，以支持重新引入人类形态。 那么亚特兰蒂斯之后的文明是什么？就是现在的这个将一些在亚特兰蒂斯时代在地球上发展起来的科技传授给刚刚进化并被重新引入的人类，这对他们是有利的。 这些技能被传授给了一些能够自由来去随意回到他们的能量体状态的实体，他们能够记得他们顺利完成物质世界使命所需的一切。 因此他们能够为那些转世实体指引方向。也就是我和那些想要通过地球环境获得最大收益的更有经验的化身者们所希望的的方向。 你的意思是你有一个临界的人类议会或者委员会来监控那些转世的化身的命运。 是的，这就是阿卡西记录的目的。那么这个新引进的拥有科技的种族叫什么名字呢？ 埃及人
+源实体：有很多种族曾被认为是伟大文明，但最后也落入衰败，这类种族比完全成功的种族要多得多。所有一切都会一起进展到更高的频率，因此我不打算过多地谈论他们未能取得进展的问题。别忘了，没有失败这回事，只有经验，要看他们在上升过程中所取得的成就。我知道在你头脑里，你想谈谈以亚特兰蒂斯为中心的那族人，但是很多人已通过传导作品记述了这个文明。总的来说，你已经没什么新的东西可以添加了，但我可以补充一些。
 
-Many channeled works have identified that the Atlanteans were technologists as well,as well as another civilization to be affected by technology-based decay.They concentrated on the use of crystals for projecting and controlling energy to help them manufacture what they needed to survive in the physical.They were also very good with bio- engineering and,using the crystal/energy technology,they were adept at re-designing the human genome to create hybrid human/animal entities.Some of these are the talk of legends even today.They even swapped genes from one animal to another to create fully hybrid animals.Each of these hybrids was created to perform certain jobs or functions within the civilization.Some were for war;others were for manufacturing,whilst some were for sexual pleasure.The worst case for the use of hybrid human animal or even animal/animal bio-engineering was to show social status.Creation of the most diverse creature was a great show of wealth and social standing.Some Atlanteans even had their own brains re-engineered into that of a preferred animal form if they felt that this would give them greater standing within the higher echelons of the community.Again,the stories of talking animals that have been passed down in legends through the millennia are the remnants of what was going on in the decay years that led up to the fall of this once great civilization. 
+Many channeled works have identified that the Atlanteans were technologists as well,as well as another civilization to be affected by technology-based decay.They concentrated on the use of crystals for projecting and controlling energy to help them manufacture what they needed to survive in the physical.They were also very good with bio-engineering and,using the crystal/energy technology,they were adept at re-designing the human genome to create hybrid human/animal entities.Some of these are the talk of legends even today.They even swapped genes from one animal to another to create fully hybrid animals.Each of these hybrids was created to perform certain jobs or functions within the civilization.Some were for war;others were for manufacturing,whilst some were for sexual pleasure.The worst case for the use of hybrid human animal or even animal/animal bio-engineering was to show social status.Creation of the most diverse creature was a great show of wealth and social standing.Some Atlanteans even had their own brains re-engineered into that of a preferred animal form if they felt that this would give them greater standing within the higher echelons of the community.Again,the stories of talking animals that have been passed down in legends through the millennia are the remnants of what was going on in the decay years that led up to the fall of this once great civilization. 
+
+许多传导作品已经指出，亚特兰蒂斯人也是科技专家，就像另一个受到科技影响而衰退的文明一样。他们专注于使用水晶来投射和控制能量，以帮助他们制造物质生存所需的东西。他们在生物工程方面也非常出色，擅长利用水晶/能量技术重组人类基因，创造出人类和动物的混血生物，其中有些混血生物的故事今天仍然在神话中流传。他们甚至将基因从一种动物交换到另一种，创造出完全杂交的动物。每一种混血都是为了在文明中执行某些工作或功能而被创造的，有些是为了战争，有些是为了制造业，而有些是为了性快感。使用人类与动物的混血甚至是动物/生物工程的最糟糕的情况，是用来显示社会地位，创造出最新奇的生物曾被这个文明认为是极大彰显了财富和社会地位。一些亚特兰蒂斯人甚至把自己的大脑重新设计成了喜欢的动物的形式，因为他们觉得这会使他们在社区高层里有更高的地位。同样，几千年来传说中的那些会说话的动物，就是这个曾经伟大的文明在走向腐朽堕落的年代里曾发生的事情的残迹。
 
 ME:So why don't we see such hybrids today,here and now?Surely they must have reproduced and perpetuated themselves. 
 
+我：那么为什么我们今天在这里看不到这样的混血呢？他们肯定已经对自身进行了繁衍和延续。
+
 SE:True.But this was not a route that I wanted the human race to go down ad infinitum. First,because it did not provide continuity of form,and second,because it would eventually create a much higher level of what you have now between the different races that have evolved in certain parts of the Earth:discrimination!I also wanted the physical gene pool to be cleansed and saw that the decay of this civilization was the ideal time to do that.This was agreed by all those who were still or currently in or recently returned to the energetic levels of their real existence.In essence,the Atlanteans created a Circus Civilization of such a diverse form that you could no longer tell who was of Original blood.Everyone had been altered in some way.More importantly,the reproductive capacity of these hybrids was not as robust as the true human form at that time,and many became sterile.Again,the necessity to create a self-reproducing vehicle to allow my children of energy to experience all of the frequencies presented to them needed to be reinforced,as the ratio of vehicles versus entities was very much out of balance.I,therefore,allowed this civilization to burn itself out,and I cleansed Earth upon the departure of the last entity to the higher frequencies. 
+
+源实体：对。但这不是一条我想让人类一直走下去的道路。首先，是因为缺乏形体上的稳定性。其次，因为这会最终导致比你们现在地球上某些地区不同种族之间发生的更为严重的问题，那就是歧视。此外，我也希望清理物质形体的基因库，而且意识到这个文明衰落的时候，正是做这件事的理想时机，这也得到了那些仍在、正在或刚刚回到真实存在的能量层面的所有人的赞同。从本质上讲，亚特兰蒂斯人创造了一个形式多样的马戏团文明，你再也分辨不出原本的血统是什么样了，每个人都在某种程度上被改变了。更重要的是，这些混血人的繁殖能力不如当时真正的人类形态稳定，许多变得不育。再重复一次，为了让我的来自能量的孩子们能够体验提供给他们的所有频率，而载具与灵体之间的比例非常失衡，因此创造一种能够自我繁殖的载具是非常必要的。于是，我允许这个文明走向自我毁灭。在最后一个灵体离开地球回归更高频率后，我净化了地球。
 
 ME:How did you cleanse the area? 
 
+我：你是怎么净化这个地区的？ 
+
 SE:I allowed the Earth to develop a weakness in its surface local to the center of the civilization and covered the area in hot molten lava.This I later cooled with water from the ocean allowing the minerals in the lava and the sea to mix and"steam clean" the remaining land. 
+
+源实体：我允许地球在这个文明中心的地标形成了一个薄弱处，并以炽热的熔岩覆盖了这个地区。然后我用海水将其冷却，让熔岩里和海洋中的矿物混合起来，通过蒸汽清洗净化了剩余的土地。
 
 ME:Remaining land.Do you mean that the area that the Atlanteans were on sank to the sea bed? 
 
+我：剩余的土地。你是指亚特兰蒂斯人所在的沉到了海底的那块地区吗？
+
 SE:It didn't sink.It was covered with water,and the land was uncovered as a result of the water becoming gaseous when in contact with the lava.This created an ecosystem that was high in sulphur for quite some time and meant that the entities that work on the health of the planet (nature spirits)were hard at work clearing the sulphur away from the planet as it was difficult for anything to grow naturally.The remaining minerals were perfect for plant life to exist and so the plant life caught up quickly with the need to support the re-introduction of the human form. 
+
+源实体：它没有沉没。它被水覆盖了，当水与熔岩接触时，水变成了气体，于是土地又露出来了，这创造了一个在相当长的时间内硫磺含量都很高的生态系统。因为硫使任何生物都很难自然生长，所以从事地球健康工作的实体（自然精灵们）费了很多力气才将硫从地球上清除。剩余的矿物质恰好益于植物生命的存在，所以植物生命迅速的成长，以支持重新引入人类形态。
 
 ME:So what was the civilization that followed the Atlanteans? 
 
+我：那么亚特兰蒂斯之后的文明是什么？
+
 SE:The current one.It was seen as advantageous to have some of the technologies that were developed during the period of time that the Atlanteans were on Earth available to the newly cleansed and re-introduced humans.These skills were given to entities that had the ability to come and go,to return to their energetic state at will.They had the ability to remember everything they needed to be successful whilst in the physical. And,hence,they were able to guide those incarnating entities into a direction that was desired both by Me and the group of more experienced incarnates that were looking to get the best out of Earth's environment. 
+
+源实体：就是现在的这个。将一些在亚特兰蒂斯时代在地球上发展起来的科技传授给刚刚进化并被重新引入的人类，这对他们是有利的。这些技能被传授给了一些能够自由来去、随意回到他们的能量体状态的实。他们能够记得他们顺利完成物质世界使命所需的一切，因此他们能够为那些转世实体指引方向，也就是我和那些想要通过地球环境获得最大收益的更有经验的化身者们所希望的的方向。 
 
 ME:You mean you have a committee of humans,in spirit,controlling the destiny of those who are incarnate? 
 
+我：你的意思是你有一个灵界的人类议会或者委员会来监控那些转世的化身的命运？
+
 SE:Yes,and this is what the Akashic are for. 
+
+源实体：是的，这就是阿卡西记录的目的。
 
 ME:So what was the name of this newly introduced race who had technology? 
 
+我：那么这个新引进的拥有科技的种族叫什么名字呢？
+
 SE:Egyptian.
+
+源实体：埃及人。
 
 ### Chapter 15 - The History of Humanity 
 
@@ -6525,27 +6651,47 @@ SE:Egyptian.
 
 ME:So you and the committee changed the way that humans preferred to see themselves back to what it was originally. 
 
-我：所以你和议会把人类从他们想看到的面目，改回了他们本来的样子。 是的，正如我刚才所说，你们称为埃及人的种族是亚特兰蒂斯文化灭亡后，第一个被引入到地球上的文明。 你前面说过，你用制造火山喷发以及随后海水冲洗陆地的方法进化了地球。 这听起来很像诺亚建造方舟来应对的那场大洪水很好的观察力。 然而我的确也强调了，我并没有制造火山喷发。因为大部分亚特兰蒂斯人居住的岛上没有火山，不是在地壳上引发了类似于你们所说的地震的裂沟。 但是这场地震也使熔岩前从整个岛屿周围浮出水面，清除了地表上所有的具有足够活性，足以重新创造人类与动物混血物种的脱氧和糖核酸。 但你设法保留了所有人类和动物的纯种基因库。是的，包括植物生命是了进化目的，而协助启动纯净的人类种族所需要的，一切都被允许。 从进化过程中保留下来。这个过程包括以下内容制定一个地球维护计划，但持当地的生态系统动植物和自然精灵提供对过去事件教训的充分了解，以帮助进步那些幸存下来的人类形体被非常有经验的，没有失去任何正常灵性能力的实体所使用，这使得他们能够从文化科技和进化的角度来快速推动新人类的启动，并且对需要在地球的自然约束下工作有着与生俱来的深入了解。 那么方舟是什么样的呢？地球上的每个个人都以为它是一艘大船。正如我们的传说和圣经旧约中所说的那样，方舟仅仅是个保存基因样本库的安全地点。 在这种情况下，基因库需要完整的样本。因为亚特兰蒂斯人所使用的基因操作的技术和知识会被禁用，以留出位置给其他成长区域。 尽此，方舟的主要任务就是让动物们能够存活足够长的时间，而不发生基因突变，直到他们将要居住的土地准备好，让他们能够自然的生活。 尽管使用了能量的方法来创造这片土地。土地也需要一段时间才能稳定下来。 在物质层面，所有的事物都需要时间来稳定。为了让生物在这个层面上独立存在，有必要辅以时间，让他们以自然的方式以一种与渗透到这个频段的能量相匹配的方式来适应环境，这是生活在最低频率和维度的最重重要的事情，这些尸体需要在环境中与环境一同生活，而不是围绕着环境活动。
+我：所以你和议会把人类从他们想看到的面目改回了他们本来的样子。
 
 SE:Yes.And as I just said,the race of man you called Egyptian was the first civilization to be placed on the Earth plane following the demise of the Atlantean culture. 
 
+源实体：是的。正如我刚才所说，你们称为埃及人的种族，是亚特兰蒂斯文化灭亡后第一个被引入到地球上的文明。 
+
 ME:You said previously that you cleansed Earth by creating a volcanic eruption and then washing the area with sea water!This sounds a bit too close to the great flood that Noah is supposed to have built an ark for. 
+
+我：你前面说过，你用制造火山喷发以及随后海水冲洗陆地的方法净化了地球。这听起来很像诺亚建造方舟来应对的那场大洪水。
 
 SE:Well spotted.I do stress,however,that I didn't create a volcanic eruption as there were no volcanoes on the island that hosted the majority of the Atlanteans.I caused a schism in Earth's crust similar to what you call an earthquake.But this earthquake also allowed molten lava to come to the surface from all over the island,cleansing the surface of all the DNA that was alive enough to allow the re-creation of the human animal hybrids. 
 
+源实体：很好的观察力。然而，我的确也强调了，我并没有制造火山喷发，因为大部分亚特兰蒂斯人居住的岛上没有火山。我是在地壳上引发了类似于你们所说的地震的裂沟。但是，这场地震也使熔岩从整个岛屿周围浮出水面，清除了地表上所有的具有足够活性、足以重新创造人类与动物混血物种的DNA。 
+
 ME:But you managed to keep a gene pool of all the pure races of humanity and animals. 
 
+我：但你设法保留了所有人类和动物的纯种基因库。
+
 SE:Yes,including plant life.Everything that was required to assist in kick-starting a pure race of human beings for evolutionary purposes was allowed to be saved from the cleansing process.This process included the following: 
+
+源实体：是的，包括植物生命。为了进化目的而协助启动纯净的人类种族所需要的一切都被允许从进化过程中保留下来。这个过程包括以下内容：
 
 - Having a maintenance program for Earth; 
 - Maintaining the local eco-system(plants and animals,nature spirits);
 - Providing enough learning of what happened in the past to allow progress. 
 
+- 制定一个地球维护计划；
+- 维持当地的生态系统（动植物和自然精灵）；
+- 提供对过去事件教训的充分了解，以帮助进步。
+
 Those human forms that survived were occupied by entities that were very experienced and had none of their normal energetic abilities removed.This allowed them to boost the start-up of the new race from a cultural,technological,and evolutionary point of view,as well as have an ingrained understanding of the need to work within the natural constraints of the Earth plane. 
+
+那些幸存下来的人类形体被非常有经验的、没有失去任何正常灵性能力的实体所使用，这使得他们能够从文化、科技和进化的角度来快速推动新人类的启动，并且对需要在地球的自然约束下工作有着与生俱来的深入了解。 
 
 ME:So what did the ark look like?Everyone on Earth expects it to be a large boat as illustrated in our legends and in the Old Testament. 
 
+我：那么方舟是什么样的呢？地球上的每个人都以为它是一艘大船，正如我们的传说和圣经旧约中所说的那样。
+
 SE:The ark was merely a place of safety for the gene pool samples to be kept.In this instance, the gene pool required whole specimens,as the technology and know-how for gene manipulation used by the Atlanteans was to be suppressed to allow other areas of growth to take place.The ark's primary job was,therefore,to allow the animals to survive long enough without mutation and for the land they were going to occupy to be prepared for them to live on naturally.Even with the use of energetic methods to create this land,it took time for it to stabilize.Everything needs time to stabilize in the physical plane.In order for the entities to exist on their own in this plane,it was necessary to give them time to work with their environment in a natural way,one that worked with the energies that permeate this level of frequency.This is the single most important thing about living in the lowest frequencies and dimensions;the entities needed to live with it and in it rather than move around it. 
+
+源实体：方舟仅仅是个保存基因样本库的安全地点。在这种情况下，基因库需要完整的样本。因为亚特兰蒂斯人所使用的基因操作的技术和知识会被禁用，以留出位置给其他成长区域。因此，方舟的主要任务就是让动物们能够存活足够长的时间而不发生基因突变，直到他们将要居住的土地准备好让他们能够自然地生活。尽管使用了能量的方法来创造这片土地，土地也需要一段时间才能稳定下来。在物质层面，所有的事物都需要时间来稳定。为了让生物在这个层面上独立存在，有必要辅以时间让他们以自然的方式，以一种与渗透到这个频段的能量相匹配的方式来适应环境，这是生活在最低频率和维度中最重要的事。这些实体需要在环境中与环境一同生活，而不是围绕着环境活动。
 
 #### The Egyptians'Contributions 
 
@@ -6553,108 +6699,209 @@ SE:The ark was merely a place of safety for the gene pool samples to be kept.In 
 
 ME:So what about the Egyptians,what did they contribute? 
 
-我：那么埃及人呢，他们贡献了什么？他们是世界上这个地区人类重新生成的跳板。 等一下，我刚刚得到一个图像，一种感觉，地中海的洪水，就是你曾经用来净化亚特兰蒂斯的大海。 是的，你的直觉很好，现在你知道了洪水的传说是从哪里来的？ 你也大概知道了亚特兰蒂斯人的位置被称为埃及的地区是最好的，仅次于亚特兰蒂斯人的土地特性。 从自然角度来看，这是第一个变得足够纯净而可以使用的地方。 一会和我在很大程度上参与了方舟中存放的生物的引进机遇。 埃及人被教导要遵从地球的能量，顺应让他们能重建人类生活的自然机遇。 在潜意识中，他们认识控制这些能量的实体。于是他们给这些实体起了名字，并根据他们亚特兰蒂斯时代记忆中的种族外形给他们一形体。 于是，重要的实体被赋予了形象，类似于他们记得的亚特兰蒂斯首领为显示自己重要性而制造的形象。 于是在动物头部的人就用来形象的描述这些实体所能控制的能量。 例如那被称为太阳神神这个词的意思是负责任者，其在第六维度层级上照管这个星球的能源，阿努比斯负责自然生物，如植物鱼类和哺乳动物。 他与一群你们称之为自然精灵的助手合作，其中一些也被赋予了他们自己曾经的名字和外形。 关于他们，你还能告诉我些什么，他们居住的土地繁茂又肥沃。 他们在这样的环境中与大自然共存繁荣了几千年，师从携带所有才能转世的实象。 也就是是从那些在地面上扮演过助手角色的进化了的实体，他们学到了许多动物，他与一些涉及到获取和使用亚特兰蒂斯人曾使用过的能量。 为了做到这个，他们被教会如何建造一些装置和设备，能够利用这些能量并存储起来，以供将来使用。 那些没有习惯于在物质层面接触这种能量的人，必须具备纯净的心灵和清澈的思想，才能获得这些技能。 由于需要高度的纯净，只有少数能专注无私奉献的生活境界的人才能得到这种教导。 当那些新人类的教导者离开地球层面，回到能量状态时，他们留下了教师来代替自己，但适合当教师的人数却越来越少。 随着合适人选的减少，向谁传授知识的忧虑就增加了。在这种忧虑和急切需要传授技能的状态下，他们教导了一些不那么纯净的人，这又再次导致了以潜力为基础的文明的发展，并最终带来衰败，足足经历了两万五千多年的时间才才恢复到了目前人类存在状态和进化的程度。 正如你所看到的事情远远不尽如人意，但是你们正在慢慢的改善，我对此倍感鼓舞，再多给我讲讲埃及人吧，特别是金字塔，他们是做什么的，他们到底是如何建造的，我们似乎要涉及的更多的是人类历史而不是神的历史。 是的，我知道，但是我需要知道这些这个讲完后，我们可以回到你的主题。 好的，当他们第一次被引进到他们居住的地方时，他们并没有被称为埃及人。 事实上，他们是在一个启动运行状态中被引入的启动运行状态是什么意思？ 你的意思是，他们突然出现了吗？一个现成的文明前一天他们还不在那里，第二天他们就出现了，包括房子和所有一切差不多是这样。 你要知道我急于让这个进化之轮尽快的再次滚动亚特兰蒂斯人的脱离正正轨，是很多机会都失去了。 所以我渴望尽快重新开始。我进化完这个地区之后，最好的办法就是把地球上最初的亚特兰蒂斯文明的一块插入另一个时间线，但把所有的球形记忆都从这个种族删除了，并给他们几个完全觉知的人来把他们往正确方向上引导球形记忆是什么？ 从线性角度来说，就是一种能通过记得以后会发生的事件，而影响此时此刻的能力。 你们地球上有些人已经开始回忆起如何做到这一点了，他们就是可以预测未来的灵媒。 那么什么是完全觉知呢？甚至刚才谈到的那些有能力回到源头的实体，而且能自己随意回来的人吗？ 那些有能力接触阿卡西记录灵性议会以及他们自己的高傲，能让自我的人是吗？ 正确，你可能觉得这很奇怪，但是经过了四十三次试图在地球层面用物质生物形态的人体获得最佳结果的尝试，我开始变得有点不耐烦，只是不想再从头开始了。 所以我决定以半成品的形式开始一个新的文明。这就解释了一个考古学家们无法解释的现象。 证据显示，埃及人是突然出现的那是因为他们就是那样凭空出现的。 当他们被植入新的环境时，只有几千个壮年个体，但从房屋到商店到农业，到工业都是已经准备好，可以立即运行的那些有完全觉知的指导者被置于首要阶层职位上，以便能够传授知识，给众多新的转世者，教他们如何利用他们周围的自然资源。 当然他们也有一定程度的预编程记忆，可以做一些基本的事情。 而那些表现出纯净心灵潜质的人，这被指导学习如何取得和利用这个层面上环绕着他们四周的能量。 这些觉知者聚集给他他们展示了什么呢？他们被教导如何通过专注冥想来接通周围的能量，用思想之纯粹为负能气，只有少数人能够完成，因为这意味着完全的无私无妄，他们必须显示他们能够驾驭通向纯净的三大属性。 一爱二力量三智慧，这其中的每一个都各有其诱惑力。 一旦掌握，他们可以成为有益于他人的重要工具，能掌握这三者的人是非常罕见的。 只有那些显示了这个能力的人才会被教授操纵能量所需的技能。 他们被展示的第一件事是如何影响一个物体的分子结构，这可以实现两件事。 一他们可以通过重新分布分子来改变物体的形状。二他们可以影响物体的维度稳定性，直至那个物体既不在这个维度，也不在另一个维度，从而使他们可以轻易的操纵或运输那个物体。 接下来他们接受了使用这些技能的培训，创造出能够大规模利用和存储能量的构造，以供个人和集体使用。 你是在说金字塔吗？还有其他，你们没有发现的构造，他们仍然完好无损的。 按照当初设计和建造的目的，在运作收集储存和重新发送能量。 这些构造中的一些在不断的排出多余的能量能量团导致了地球周边的变化。 他们把这些事件称为地震，我想地震是和板块运动有关的吧。 是的，但是什么造成了板块运动呢？这不是地球自己做的，这不符合他自己的利益，这些构造也被用于其他方面，比如能量疗愈重建破损的机体和复制重要的器具。 由于缺乏物质科技和配套工具，这些构具无法靠能量操纵以外的任何其他方式制造，他们也用于联络受过正确训练的人，可以利用这些构造所收集的能量与迁移到宇宙，其他地方的人类种族进行交流，与亚特兰蒂斯人一样，这些人中的一部分，最终改变了他们物质身体的基本外形，但只是为了使肉体更好的适应生存环境，而不是像亚特兰蒂斯人那样出于自我本位的社会的或者性的原因而改变他们的身体。 这些人中的一些人非常善于使用能量，可以用意念来漫游星空。 他们本体中被限制在肉身的那部分被暂时释放在他返回肉体之前，都可以与他们能量体的，其余部分相连接。 所以说金字塔是用来收集能量的，或者是某种占星观测装置。 这两种不同的理论都是有道理的。是的，他们都是对的，但并不像所谓的专家和理论家们所描绘的那样。 你说地球上有过四十三个文明，我们是第四十四个文明的一部分。为什么我们没有看到他们的任何文物，有什么考古学发现可以支持这样的说法吗？ 你们这些现在的人类都是如此的自负，以至于认为自从发明内燃机电器时代以来，你们就是无与伦比的了。 那么让我告诉你吧，人类形态存在的时间，以你们以为的久远的多某些分支已经有十万年以上的历史，接近于从上一个版本到现在这个版本的时间跨度大概有政负一万年的误差。 等一下你之前的话，让我以为在亚特兰蒂斯人和有历史记载的人类之间只有两万五千年的间隔。 是的，是你以为亚特兰蒂斯人与当前的人类版本不是一代的，这是不对的。 你还记得吧，亚特兰蒂斯人处于身体和社会的原因，通过改变基因来改良自身，这并不意味着他们不是现在这代人类文明的一部分。 再者，我已将他们进化来重新开始了。那并不是引入一个新的人类种族，而是这个版本的人类被赋予了第二次机会，一个重新开始的机会，一个朝着在灵性议会，人类化身的灵魂组成的集体委员会，希望人类种族去往的方向上获得成功的机会。 这是否意味着我们应该能看到某种物质证据能证明我们认为的曾经最成功的人类版本曾在地球上出现过，并有足够高的，我们能够识别的科技水平呢？ 你把科技等同于你们现在常见的科技事实并非如此。因为几千年来出现过各种各样的科技，从生物的到电子的到空间动力的到更宏大的再到灵性的这些技术以及技术组合都被使用过，其中最具生产力的是灵性。 不过我对最新版本的人类所做的贡献印象深刻。这主要是因为你们被赋予了完全的自由意志，能够做你想做的事，而不需要征询人类集体的意见。 但这也是一种干扰。你们在寻找的证据是无法以你们所能认知的方式找到的。 因为你们一直在寻找纯粹的物质证据。有些证据要从你们自己的内在去寻找这关乎你们同胞之间的互动，这是真正的遗产，是过去文明的真正证据，可以直接将你们引向源头或和起源。 因为这些证据完全是关乎同伴情谊的，为了整体利益而共同努力。 但是如果你想寻找可以量化的证据，你可以调查两个区域，一是有金字塔的国家附近的沙地里。 二是南极附近的机械力，你的意思是，我们可以在这些地区看到先进文明的真实证据吗？ 对，那么为什么我们不知道这些呢？为什么我们还没有看到这些呢？ 为什么我们还没有把这些公布出来，在电视上播放出来，在高水准刊物上刊登学术论文，因为世界性的发现，生活科技的新思想。 为什么为什么？为什么？为什么？因为你们有很多位高权重的人，靠着现有的理论功成名就考古学家们已经发现了一些这方面的证据。 但是由于一系列原因没有公布第一。因为这会毁掉他们现有的职业。 第二。因为他们一旦不畏艰险的把新证据拿出来，就会受到那些身居高位，靠现有理论城市的人的严厉抨击。 第三，后者中已经有一些人知道这些信息了，有许多宗教信仰中的高位者会为得到这些信息，而不惜杀人灭口，然后再销毁信息，从而维持自己的地位，以及自己所信仰的信仰的地位。 你是在说聚集到这一代人类种族化身的历史。我们当中有些人知道的比我们大家所了解的要多得多。 尽管他们如果把这些信息展示出来，他们的事业就有可能取得更加巨大的成功。 毕竟现在这个文明如此化身，更多的了解自己来自哪里以及生命到底是怎么回事，但是他们却宁愿阻止这些信息，以延续他们的职业。 那些基于旧理论的职业，是的，这就是正在发生的事情。你看那些靠现有理论而掌权的人害怕会失去一切。 他们对人类意识的提升毫无兴趣，哪怕这从根本上会有助于人类获得频率上的提升，并因此而进化的事情。 他们所感兴趣的只是眼前眼前他们拥有些什么？他们眼前拥有的是对他人思想的权利，而这会带给他们更多的权利。 在一个被大多数人认为是唯一的生存环境的地方，他们拥有潜力，于是他们就与这个幻象一起玩下去。 那么谁拥有这个知识呢？谁能够控制已经挖出来的数据，当地的高级官员总的来说，他们明白这些知识的意义。 在某些发现中，那些触手可及的技术远远超出他们的理解。 在另外一些发现中，技术较低级，但仍有重要意义。许多发现能帮助世界上的贫困者富裕起来。 这也是把这些知识隐藏起来的另一个原因，而以一知半解的知识确实是一件危险的事。 在这件事情上，是的，这实际上是因为有限的知识，不仅培养出优越感情节，而且还有高度的恐惧。 对未知基于未知，可能会引发的事情的恐惧。你知道当你对一件完全陌生到想听外来物般的事物有了一点认知，你就会对他的创造者感到害怕。 这意味着那些感到害怕的人，认为别人也会感到害怕，所以他们忌惮引起恐慌，而隐瞒信息。 实际上唯一的恐慌在他们自己的头脑里，那就是对变化的恐惧，
+我：那么埃及人呢，他们贡献了什么？
 
 SE:They were the springboard for the re-generation of the human race in this part of the world. 
 
-ME:Hold on.Ijust got a picture,a feeling that the flooding of the Mediterranean was the sea you used to cleanse the land that was Atlantis. 
+源实体：他们是世界上这个地区人类重新生成的跳板。
+
+ME:Hold on.I just got a picture,a feeling that the flooding of the Mediterranean was the sea you used to cleanse the land that was Atlantis. 
+
+我：等一下。我刚刚得到一个图像，一种感觉，地中海的洪水就是你曾经用来净化亚特兰蒂斯的大海。
 
 SE:Yes,well intuited.Now you know where the legend of the flood came from,and you have an idea of where the Atlanteans were located.The area called Egypt was the next best thing to the properties of the land that the Atlanteans enjoyed,and it was the first to become pure enough to work with from a natural point of view.The committee and I were greatly involved in the introduction of those stored in the ark.The Egyptians were infused with the need to respect the energies of Earth and its naturally occurring opportunities given them to re-build human life.Subliminally,they were aware of the entities that controlled these energies,and as a result,they gave them names and forms-forms that they remembered,racewise,from their Atlantean days.Hence, the important entities were given forms/images that resembled what some of them remembered the leaders of Atlantis took to show their importance.Human bodies with the heads of animals were,therefore,used to describe pictorially which energies these entities controlled. 
 
+源实体：是的，你的直觉很好。现在你知道了洪水的传说是从哪里来的，你也大概知道了亚特兰蒂斯人的位置。被称为埃及的地区是最好的，仅次于亚特兰蒂斯人的土地特性。从自然角度来看，这是第一个变得足够纯净而可以使用的地方。议会和我在很大程度上参与了方舟中存放的生物的引进工程。埃及人被教导要遵从地球的能量，顺应让他们能重建人类生活的自然机遇。在潜意识中，他们认识控制这些能量的实体，于是他们给这些实体起了名字，并根据他们亚特兰蒂斯时代记忆中的种族外形给他们以形体。于是，重要的实体被赋予了形象，类似于他们记得的亚特兰蒂斯首领为显示自己重要性而制造的形象。于是，有动物头部的人就用来形象的描述这些实体所能控制的能量。
+
 For example: 
+
+例如：
 
 Ra was called the Sun God,the word God meaning"responsible one,"who looked after the power source for this planet on six dimensional levels. Anubis was the one responsible for naturally occurring things,such as plants,fish,and mammals,and worked with an army of helpers,what you call nature spirits.Some of these had names and forms of their own given to them. 
 
+RA，被称为太阳神，神这个词的意思是负责任者，其在第六维度层级上照管这个星球的能源。阿努比斯（Anubis）负责自然生物，如植物、鱼类和哺乳动物。他与一群你们称之为自然精灵的助手合作，其中一些也被赋予了他们自己曾经的名字和外形。
+
 ME:What else can you tell me about them? 
+
+我：关于他们，你还能告诉我些什么？
 
 SE:The land they lived in was lush and fertile.They prospered for millennia in this environment,working with nature.They were taught many skills by the entities that incarnated with all their faculties (evolved entities who took on the role of helpers on the ground level).Some of these involved the capture and employment of the energies that the Atlanteans used.To assist in this,they were taught how to build structures and devices that could harness these energies and store them for future use.These "skills"required purity of heart and cleanliness of thought to be accessed by those not normally used to dealing with such energies on the physical levels.As such a high level of purity was required,only a few capable of such devotion to a life of concentrated selflessness to achieve this level were able to be taught.Consequently,as those who taught the new humans left the Earth plane to return to energetic existence,they left teachers in their place,but the number of suitable individuals dwindled.As the number of suitable individuals dwindled,the worry of to whom to transmit their knowledge increased.In this state of worry and feeling a desperate need to impart their skills,they taught those who were not so pure,which resulted in the growth of a power-based civilization again and ultimately its decay.It has taken over 25,000 years to recover to the point you are now in human physical existence and evolution.And things are far from satisfactory,as you can see.But...you are improving slowly.I am enthused by this. 
 
+源实体：他们居住的土地繁茂又肥沃。他们在这样的环境中与大自然共存繁荣了几千年。师从携带所有才能转世的实体，也就是师从那些在地面上扮演过助手角色的进化了的实体，他们学到了许多技能，其中一些涉及到获取和使用亚特兰蒂斯人曾使用过的能量。为了做到这个，他们被教会如何建造一些装置和设备，能够利用这些能量并存储起来以供将来使用。那些没有习惯于在物质层面接触这种能量的人，必须具备纯净的心灵和清澈的思想才能获得这些技能。由于需要高度的纯净，只有少数能专注无私奉献的生活境界的人才能得到这种教导。当那些新人类的教导者离开地球层面回到能量状态时，他们留下了教师来代替自己，但适合当教师的人数却越来越少。随着合适人选的减少，向谁传授知识的忧虑就增加了。在这种忧虑和急切需要传授技能的状态下，他们教导了一些不那么纯净的人，这又再次导致了以权力为基础的文明的发展，并最终带来衰败，足足经历了25000多年的时间，才恢复到了目前人类存在状态和进化的程度。正如你所看到的，事情远远不尽如人意，但是你们正在慢慢地改善，我对此倍感鼓舞。
+
 Me:Tell me more about the Egyptians,especially the pyramids.What did they do,and how were they really built? 
+
+我：再多给我讲讲埃及人吧，特别是金字塔。它们是做什么的，它们到底是如何建造的？
 
 SE:We are getting into more of the history of the human race here rather than the history of God.
 
+源实体：我们似乎要涉及的更多的是人类历史，而不是神的历史。
+
 ME:Yes,I know,but I need to know this.We can go back to you after this dialogue. 
+
+我：是的，我知道，但是我需要知道这些。这个讲完后，我们可以回到你的主题。
 
 SE:Very well.They were not called Egyptians when they were first introduced to the land that they lived.In fact,they were introduced in an"up and running state." 
 
+源实体：好的，当他们第一次被引进到他们居住的地方时，他们并没有被称为埃及人。事实上，他们是在一个“启动运行状态”中被引入的。
+
 ME:What do you mean,"up and running state"?Do you mean that they just suddenly appeared? A readymade civilization?One day they were not there;the next day they were-houses and all! 
+
+我：“启动运行状态”是什么意思？你的意思是他们突然出现了吗？一个现成的文明，前一天他们还不在那里，第二天他们就出现了，包括房子和所有一切？
 
 SE:Pretty much so.You see,I was eager to get the evolutionary ball rolling again as quickly as possible.So many opportunities had been lost as a result of the Atlanteans going off on a tangent that I was keen to start again as fast as possible.After I had cleansed the area,the best way to do this was to take a chunk of the Atlantean civilization from the beginning of their time on the Earth plane and insert it into another time line. I removed all spherical memory from the race and gave them a few individuals that were totally aware to guide them in the right direction. 
 
+源实体：差不多是这样。你要知道，我急于让这个进化之轮尽快再次滚动。亚特兰蒂斯人的脱离正轨使很多机会都失去了，所以我渴望尽快重新开始。我净化完这个地区之后，最好的办法就是把地球上最初的亚特兰蒂斯文明的一块插入另一个时间线，但把所有的球形记忆都从这个种族删除了，并给他们几个完全觉知的人来把他们往正确方向上引导。
+
 ME:Spherical memory? 
+
+我：球形记忆？
 
 SE:The ability to affect the here and now by remembering those events that will happen later,linearly speaking.Some of you on Earth are starting to remember how to do this already.They are mediums who can tell the future.
 
+源实体：从线性角度来说，就是一种能通过记得以后会发生的事件而影响此时此刻的能力。你们地球上有些人已经开始回忆起如何做到这一点了，他们就是可以预测未来的灵媒。 
+
 ME:And what about being totally aware?Are you referring to those whom you talked about earlier,those with the ability to return to the Source (Entity)and back at will?Those that have the ability to have access to the Akashic,the committee,and their own higher/ energetic selves? 
+
+我：那么什么是完全觉知呢？是指刚才谈到的那些有能力回到源头的实体，而且能自己随意回来的人吗？那些有能力接触阿卡西记录、灵性议会，以及他们自己的高我/能量自我的人。是吗？ 
 
 SE:Correct.It may seem strange to you,but after forty-three attempts at getting the best out of the Earth plane with human types of physio-biological forms,I was starting to get a bit impatient and simply did not want to start from scratch again.So I decided to start with an"oven ready"approach to civilization. 
 
+源实体：正确。你可能觉得这很奇怪，但是经过了43次试图在地球层面用物质生物形态的人体获得最佳结果的尝试，我开始变得有点不耐烦，只是不想再从头开始了。所以，我决定以半成品的形式开始一个新的文明。
+
 ME:That would explain something that the archaeologists have not been able to explain:the evidence suggesting that the Egyptians just suddenly appeared on the scene. 
+
+我：这就解释了一个考古学家们无法解释的现象。证据显示，埃及人是突然出现的。
 
 SE:That's because they did just that.They were no more than a few thousand strong when they were implanted into their new environment with everything from houses to shops to agriculture to industry already working and ready to go.The guides,those who were totally aware,were put in prime hierarchical positions so that they could impart knowledge to the many new incarnates and teach them how to use the natural resources that they found around themselves.Of course,they had some level of pre- programmed memory to allow them to do the basics,but those who were showing the promise of being pure of heart were advised about the ways to capture and use the energies that surrounded them in this level. 
 
+源实体：那是因为他们就是那样凭空出现的。当他们被植入新的环境时，只有几千个壮年个体，但从房屋到商店、到农业、到工业都是已经准备好可以立即运行的。那些有完全觉知的指导者被置于首要阶层职位上，以便能够传授知识给众多新的转世者，教他们如何利用他们周围的自然资源。当然，他们也有一定程度的预编程记忆，可以做一些基本的事情。而那些表现出纯净心灵潜质的人，则被指导学习如何取得和利用这个层面上环绕着他们四周的能量。
+
 ME:What specifically were they shown by the aware ones?
 
+我：这些觉知者具体给他们展示了什么呢？
+
 SE:They were taught the way to tap into their surrounding energies by focused meditation, using purity of thought as an enabler.This was only achievable by a few as it meant total selflessness.They had to show that they had control of the three major attributes that lead to purity. 
+
+源实体：他们被教导如何通过专注冥想来接通周围的能量，将思想的纯粹性作为推动力。只有少数人能够完成，因为这意味着完全的无私无我，他们必须显示他们能够驾驭通向纯净的三大属性。
 
 - 1.Love 
 - 2.Power 
 - 3.Wisdom 
 
+- 1.爱
+- 2.力量
+- 3.智慧
+
 Each of these can be seductive in its own right.Once mastered,they can be important tools that can be used for the good of others.Mastery of all three is rare and only the individuals that showed that they were capable of this were taught the skills required to manipulate energy. 
 
+这其中的每一个都各有其诱惑力。一旦掌握，他们可以成为有益于他人的重要工具，能掌握这三者的人是非常罕见的。只有那些显示了这个能力的人才会被教授操纵能量所需的技能。
+
 The first things they were shown was how to affect the molecular structure of an object to the point where two things could be achieved:
+
+他们被展示的第一件事，是如何影响一个物体的分子结构，这可以实现两件事：
 
 - 1.They could change the shape of the object by re-arranging these molecules; 
 - 2.They could affect the dimensional stability of the object to the point where it was neither in one dimension nor another,which would then allow them easy manipulation or transportation of objects.
 
+- 1.他们可以通过重新分布分子来改变物体的形状；
+- 2.他们可以影响物体的维度稳定性，直至那个物体既不在这个维度，也不在另一个维度，从而使他们可以轻易的操纵或运输那个物体。
+
 Next they were trained to use these skills to create structures that would harness energies for their personal and collective use in large quantities and store them. 
+
+接下来，他们接受了使用这些技能的培训，创造出能够大规模利用和存储能量的构造，以供个人和集体使用。
 
 ME:You're talking about the pyramids here? 
 
-SE:And other structures that you have not yet discovered but are,nevertheless,still intact and doing the job for which they were designed and built:to collect,store,and/or re- direct energy.Some of these structures are constantly venting excess energy/energies and,as a result,causing changes to the surrounding Earth.You know these events as earthquakes. 
+我：你是在说金字塔吗？
+
+SE:And other structures that you have not yet discovered but are,nevertheless,still intact and doing the job for which they were designed and built:to collect,store,and/or re-direct energy.Some of these structures are constantly venting excess energy/energies and,as a result,causing changes to the surrounding Earth.You know these events as earthquakes. 
+
+源实体：还有其他你们没有发现的构造，它们仍然完好无损地按照当初设计和建造的目的在运作：收集、储存和重新发送能量。这些构造中的一些在不断的排出多余的能量能量团，导致了地球周边的变化，你们把这些事件称为地震。
 
 ME:I thought that earthquakes are to do with plate tectonics? 
 
+我：我想地震是和板块运动有关的吧？
+
 SE:Yes,but what causes plate tectonics?The Earth doesn't do it on its own;it's not in its own interest. 
+
+源实体：是的，但是什么造成了板块运动呢？这不是地球自己做的，这不符合他自己的利益。
 
 The structures were used for other things as well,such as energy-based therapy (re- building broken bodies)and the duplication of essential wares-wares that could not be manufactured in any other way than by energy manipulation because the physical technologies and supporting tools were not there to manufacture such things.They were also used for communication purposes.Individuals who were trained correctly could use the energies collected by the structures to communicate with others of the human race that were transplanted in other parts of the universe.As with the Atlanteans,some of these eventually changed the base form of their physical bodies but only to affect a better interface with the environment in which they existed and not for the egotistical,social, or sexual reasons that the Atlanteans changed their bodies.Some of these individuals were so good with the energies that they could roam the stars with their minds.That part of their essence that was captive in the physical was liberated momentarily and allowed to connect with the rest of their energetic form,so long as it returned. 
 
+这些构造也被用于其他方面，比如能量疗愈、重建破损的机体、复制重要的器具。由于缺乏物质科技和配套工具，这些器具无法靠能量操纵以外的任何其他方式制造。它们也用于联络受过正确训练的人，可以利用这些构造所收集的能量与迁移到宇宙其他地方的人类种族进行交流。与亚特兰蒂斯人一样，这些人中的一部分最终改变了他们物质身体的基本外形，但只是为了使肉体更好地适应生存环境，而不是像亚特兰蒂斯人那样出于自我本位的、社会的或者性的原因而改变他们的身体。这些人中的一些人非常善于使用能量，可以用意念来漫游星空。他们本体中被限制在肉身的那部分被暂时释放，在他返回肉体之前都可以与他们能量体的其余部分相连接。
+
 ME:So the two separate theories that the pyramids were used for collecting energy or were some sort of astrological observational device are both reasonable. 
+
+我：所以说金字塔是用来收集能量的，或者是某种占星观测装置。这两种不同的理论都是有道理的。
 
 SE:Yes,they are both true,but not in the way portrayed by so-called experts and theorists. 
 
+源实体：是的，他们都是对的，但并不像所谓的专家和理论家们所描绘的那样。
+
 ME:You say there have been forty-three civilizations on the Earth with us being part of the 44th. How come we don't see any of their artifacts?Where is the archaeology to back up such a claim? 
+
+我：你说地球上有过43个文明，我们是第44个文明的一部分。为什么我们没有看到他们的任何文物，有什么考古学发现可以支持这样的说法吗？
 
 SE:You current humans are all so full of yourselves that you think you are the best thing since the combustion engine.Well,let Me tell you this.The human form has been around for much longer than you think with some derivatives having a gap of over 100,000 years,which is pretty close to the length of time of this version since the last, give or take 10,000. 
 
+源实体：你们这些现在的人类都是如此的自负，以至于认为自从发明内燃机电器时代以来，你们就是无与伦比的了。那么让我告诉你吧，人类形态存在的时间比你们以为的久远得多，某些分支已经有10万年以上的历史，接近于从上一个版本到现在这个版本的时间跨度，大概有正负1万年的误差。
+
 ME:Hold on.You gave me the impression that there was only 25,000 years in between the Atlanteans and the race of humans noted in history!
+
+我： 等一下。你之前的话让我以为在亚特兰蒂斯人和有历史记载的人类之间只有25000年的间隔。
 
 SE:This is true,but you are of the opinion that the Atlanteans are not an iteration of the current version of humankind.This is not true.If you remember,the Atlanteans modified themselves genetically to improve themselves both for physical and social reasons.This does not mean that they were not part of the current civilization of man.Remember again that I cleansed them to allow them to start again.This does not mean that it was the introduction of a new race of humankind.It merely means that this version was given a second chance-a chance to start again and be successful in the direction that the collective committee of incarnate human souls wanted the race to go. 
 
+源实体：是的，是你以为亚特兰蒂斯人与当前的人类版本不是一代的，这是不对的。你还记得吧，亚特兰蒂斯人处于身体和社会的原因，通过改变基因来改良自身，这并不意味着他们不是现在这代人类文明的一部分。再者，我已将他们进化来重新开始了。这并不是引入一个新的人类种族，而是这个版本的人类被赋予了第二次机会，一个重新开始的机会，一个朝着在灵性议会人类化身的灵魂组成的集体委员会希望人类种族去往的方向上获得成功的机会。 
+
 ME:Does this mean that we should be seeing some sort of physical evidence?That what we regard as the most successful version of humanity has been present here on Earth and had enough technology of the sort that we would recognize? 
+
+我：这是否意味着我们应该能看到某种物质证据，能证明我们认为的曾经最成功的人类版本曾在地球上出现过，并有足够高的我们能够识别的科技水平呢？
 
 SE:You are equating technology to be similar to what you are used to seeing currently. This is not the case,as there has been technology of all sorts over the millennia, from biological to electronic to spatial/dynamic to palatial to spiritual.Many of these and combinations of them have been used-the most productive being the spiritual. However,I have been impressed by the contribution the most current version of humanity has given.This is primarily because you have all been given total freewill, the ability to do what you want without the need to confer with the collective of humankind,but this is a distraction.The evidence that you are seeking does not exist in the way that you would recognize because you are looking for purely physical evidence.You need to look within yourselves for some of the evidence.It is to do with how you interact with your fellow man.This is the real legacy,the real evidence of previous civilization that leads you directly to the Source,Me,and the Origin.For the evidence is to do with total camaraderie,working together for the good of the whole, but if you are looking for evidence of the sort that is quantifiable,you need to look in two areas:first,in the sand near the countries that locate the pyramids,and second,in the snow near the South Pole. 
 
+源实体：你把科技等同于你们现在常见的科技。事实并非如此，因为几千年来出现过各种各样的科技，从生物的到电子的，到空间动力的，到更宏大的，再到灵性的，这些技术以及技术组合都被使用过，其中最具生产力的是灵性。不过，我对最新版本的人类所做的贡献印象深刻。这主要是因为，你们被赋予了完全的自由意志，能够做你想做的事，而不需要征询人类集体的意见。但这也是一种干扰，你们在寻找的证据是无法以你们所能认知的方式找到的，因为你们一直在寻找纯粹的物质证据。有些证据要从你们自己的内在去寻找，这关乎你们同胞之间的互动，这是真正的遗产，是过去文明的真正证据，可以直接将你们引向源头、我和起源。因为这些证据完全是关乎同伴情谊的，为了整体利益而共同努力。但是如果你想寻找可以量化的证据，你可以调查两个区域：一，是有金字塔的国家附近的沙地里；二，是南极附近的积雪里。
+
 ME:You mean we can see real evidence of civilization of an advanced type in these areas? 
+
+我：你的意思是，我们可以在这些地区看到先进文明的真实证据吗？
 
 SE:Yes. 
 
+源实体：对。
+
 ME:Then why do we not know this?Why have we not yet seen this?Why have we not yet had this published,presented on TV,have academic papers in high ranking journals,world revelations,new thoughts on life/technology?Why,why,why!!? 
+
+我：那么为什么我们不知道这些呢？为什么我们还没有看到这些呢？为什么我们还没有把这些公布出来，在电视上播放出来，在高水准刊物上刊登学术论文，宣布世界性的发现/生活科技的新思想？为什么？为什么？为什么？
 
 SE:Why!Because you have so many people in high places who have made their names on the current understanding.Archaeologists have already unearthed some of this evidence, but they have withheld it for a number of reasons:first,because it would ruin their existing careers;second,because if they took the bull by the horns and presented this new data,they would be rubbished by those in high ranking places who have made their careers on the existing understanding;third,some of these people know this information already.There are many individuals in senior positions in religious faiths that would literally kill to have this information and then withhold it by destroying it, so that they could maintain their position and the position of the faith that they are pushing. 
 
+源实体：为什么！因为你们有很多位高权重的人靠着现有的理论功成名就。考古学家们已经发现了一些这方面的证据，但是由于一系列原因没有公布：第一、因为这会毁掉他们现有的职业；第二，因为他们一旦不畏艰险地把新证据拿出来，就会受到那些身居高位靠现有理论成事的人的严厉抨击；第三，后者中已经有一些人知道这些信息了，有许多宗教信仰中的高位者会为得到这些信息而不惜杀人灭口，然后再销毁信息，从而维持自己的地位，以及自己所宣扬的信仰的地位。 
+
 ME:You are telling me that there are those among us that know a lot more about our history in this specific incarnation of humankind than we collectively know,and they are willing to hold it back to perpetuate their careers-careers that are based upon an old truth,careers that could be overwhelmingly successful if they presented this information to a civilization who was eager to know more about where they came from and what life is all about. 
+
+我：你是在说，具体到这一代人类种族化身的历史，我们当中有些人知道的比我们大家所了解的要多得多。尽管他们如果把这些信息展示出来，他们的事业就有可能取得更加巨大的成功。毕竟现在这个文明如此渴望更多地了解自己来自哪里，以及生命到底是怎么回事。但是他们却宁愿阻止这些信息以延续他们的职业，那些基于旧理论的职业。
 
 SE:Yes.This is what is happening.You see,the people who are in power as a result of current understanding are frightened that they will lose everything.They are not interested in the advancement of the understanding of the human race even though this would ultimately help the human race rise in frequencies and,as a consequence,evolve faster.All they are interested in is the now,what they have now;what they have now is power over the thoughts of others,which gives them more power.They have power in an environment that most people recognize as their only environment,and as such they play along with the facade. 
 
+源实体：是的。这就是正在发生的事情。你看，那些靠现有理论而掌权的人害怕会失去一切，他们对人类意识的提升毫无兴趣，哪怕这从根本上会有助于人类获得频率上的提升，并因此而进化得更快。他们所感兴趣的只是眼前，眼前他们拥有些什么？他们眼前拥有的是对他人思想的权利，而这会带给他们更多的权利。在一个被大多数人认为是唯一的生存环境的地方，他们拥有权力，于是他们就与这个幻象一起玩下去。
+
 ME:So who has this knowledge?Who has been able to take control of the data that has been "dug p"? 
+
+我：那么谁拥有这个知识呢？谁能够控制已经挖出来的数据？
 
 SE:Senior officials within the locale.They have,in general,an understanding of what this knowledge means.In some cases there is technology at their fingertips that is far beyond their understanding.In other cases the technology is low grade but still of significance.In many cases it would help the poor in the world flourish,and this is another reason for keeping this knowledge covert. 
 
+源实体：当地的高级官员。总的来说，他们明白这些知识的意义。在某些发现中，那些触手可及的技术远远超出他们的理解。在另外一些发现中，技术较低级，但仍有重要意义。许多发现能帮助世界上的贫困者富裕起来，这也是把这些知识隐藏起来的另一个原因。
+
 ME:So a little knowledge really is a dangerous thing. 
 
+我：所以一知半解的知识确实是一件危险的事。
+
 SE:In this instance,yes.This is really because limited knowledge not only fosters a superiority complex but a high level of fear,fear of the unknown and what it could do.You see,when you have a little knowledge of something that is utterly unknown to you to the point that you consider it to be alien,you become fearful of the forces that created such knowledge.That means that those that are fearful think that others would also be fearful,and so they withhold the information for fear of causing panic. In actuality,the only panic is in their own minds-the fear of change. 
+
+源实体：在这件事情上，是的。这实际上是因为有限的知识不仅培养出优越感情节，而且还有高度的恐惧，对未知及由未知可能会引发的事情的恐惧。你知道，当你对一件完全陌生到像天外来物般的事物有了一点认知，你就会对他的创造者感到害怕。这意味着那些感到害怕的人认为别人也会感到害怕，所以他们忌惮引起恐慌而隐瞒信息。实际上，唯一的恐慌在他们自己的头脑里，那就是对变化的恐惧。
 
 #### Older Civilizations-Again A Return to Earlier Civilizations - Physical Evidence of Earlier Civilizations 
 
