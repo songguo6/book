@@ -7353,7 +7353,7 @@ SE:What I am saying is that those who use these vehicles for self-aggrandisement
 
 ### Chapter 18 - The Records/Database, Akashic and Others 
 
-**第18章：记录数据库，阿卡西及其它**
+**第18章：记录/数据库，阿卡西及其它**
 
 #### Recorded Physical and Spiritual Experiences of Entities 
 
@@ -7361,19 +7361,31 @@ SE:What I am saying is that those who use these vehicles for self-aggrandisement
 
 ME:In a previous dialogue you mentioned records!Are you talking about the Akashic Records? 
 
-我：在之前的对话中，你提到过记录据说的是阿卡西记录吗？ 那只是他们的一部分功能，不过基本上是的。据说我们人类可以为了我们自己的目的和学习访问这些记录。 据说他们记录了我们所有的生命，我们做过的所有一切以及我们将要做的一切确实如此。 但是访问是受限制的，特别是当你处于物质化身世，因为获得这些知识会阻碍由物质体验所能获得的学习经验，阿卡西记录是这些记录的一部分，只与人类的存在有关，其他记录的则是其他实体的婴儿被冠以别的称呼。 不过他们本质上都是同一个数据库的组成部分。但是这个数据库阿卡西记录也包括起源的集体经验吗？ 是的，但如我刚才所说阿卡西记录的这一部分，只是关于人类的集体经验和个体经验。 当然，这不仅仅是指人类自身物质肉体的体验，还包括你们这种实体在物质和精神领域所积累的全部体验。 你们的每一种体验都记录在起源的这个区域。当我在灵体状态时，我也可以看到起源的体验吗？
+我：在之前的对话中，你提到过记录。你说的是阿卡西记录吗？
 
 SE:This is one part of their function but essentially,yes. 
 
+源实体：那只是它们的一部分功能，不过基本上是的。
+
 ME:It is said that we humans can access these records for our own purposes and for our own learning.They are said to contain the records of all of our lives,all that we have done,and all that we will do. 
+
+我：据说我们人类可以为了我们自己的目的和学习访问这些记录。据说他们记录了我们所有的生命、我们做过的所有一切以及我们将要做的一切。
 
 SE:This is true but access is limited,especially when you are incarnate in the physical since access to this knowledge will inhibit the learning gained by the physical experience. The part of the records that are "Akashic"are relative only to human existence.Other records are maintained for other entities and are called something else,but they are essentially all part of the same database. 
 
+源实体：确实如此。但是访问是受限制的，特别是当你处于物质化身时，因为获得这些知识会阻碍由物质体验所能获得的学习经验。阿卡西记录是这些记录的一部分，只与人类的存在有关。其他记录的则是其他实体的，因而被冠以别的称呼，不过它们本质上都是同一个数据库的组成部分。
+
 ME:But this database,record,Akashic,also includes the collective experiences of the Origin as well? 
+
+我：但是这个数据库，阿卡西记录，也包括起源的集体经验吗？
 
 SE:Yes,but as I just stated,the Akashic part of it is only relative to the collective and individual experiences of humankind.This is,of course,not just relative to the physical experience on its own but also includes all of the experiences that your type of entity has accumulated in both the physical and the spiritual realms.Every one of your experiences is recorded in this area of the Origin. 
 
+源实体：是的，但如我刚才所说，阿卡西记录的这一部分只是关于人类的集体经验和个体经验。当然，这不仅仅是指人类自身物质肉体的体验，还包括你们这种实体在物质和精神领域所积累的全部体验。你们的每一种体验都记录在起源的这个区域。
+
 ME:When I am in spirit,can I look at what the Origin has experienced as well? 
+
+我：当我在灵体状态时，我也可以看到起源的体验吗？
 
 #### Possible Integration of Lives and Experiences of Other Entities Within One's Life 
 
@@ -7381,13 +7393,19 @@ ME:When I am in spirit,can I look at what the Origin has experienced as well?
 
 SE:To a lesser extent,yes,especially if it is considered to be of use to you in your own quest for experience and personal understanding.To this end,it is also possible for you to look into the lives and experiences of other entities and integrate them or part of them into your own area of the Akashic,the one that you carry around with you. 
 
-源实体：在比较小的程度上。是的，特别是，如果他对你寻求自己的体验和个人理解有用的话，为此，你也可以查看其他实体的生活和经历，并将他们或其中的一部分整合进你自己的阿卡西记录区域，也就是你随身携带的那部分记录，我们随身携带的自己的阿卡西记录部分。 你说的是什么意思？你自己的个人记忆，你有回忆不是吗？是呀？
+源实体：在比较小的程度上，是的。特别是如果它对你寻求自己的体验和个人理解有用的话。为此，你也可以查看其他实体的生活和经历，并将他们或其中的一部分整合进你自己的阿卡西记录区域，也就是你随身携带的那部分记录。
 
 ME:What do you mean by our part of the Akashic that we carry around with us? 
 
+我：我们随身携带的自己的阿卡西记录部分？你说的是什么意思？
+
 SE:Your own personal memory.You do have a memory,don't you?! 
 
+源实体：你自己的个人记忆，你有回忆，不是吗？
+
 ME:Yes? 
+
+我：是呀？
 
 #### Three Types of Memories
 
@@ -7395,21 +7413,35 @@ ME:Yes?
 
 SE:I can see that I need to clarify again. 
 
-源实体：看来我又需要澄清了，你有三种记忆。第一来自起源的那一部分记忆。 这种记忆是人类阿卡西记录的一部分起源原实体以及所有与这个宇体这其维度相连的灵性实体都可以访问。 从本质上讲，阿卡西记录服务于与本宇宙物质显化相关的所有灵体。 这些物质显化形式被分别保存。以便一目了然的看到他们的出处还可以比较不同类型实体所获得的不同经验。 所有记录供所有实体访问，所有记忆，都可以在某一个实体处于物质化身世被用作它自己的经验。 第二，作为你能量体的一部分记忆，这种记忆只属于你，它不包括访问第一种记忆的能力，但包含了你整个存在过程所累积的个人体验。 只有当你是完整的，也就是你的任何一部分都不再处于物质化身真的时候，你才能访问这个记忆。 第三，在你转世时，作为你的一部分记忆，从物质角度来看，这实质上是白纸一张，但是包含着一些潜在的记忆，个人的或者输入的。 如果要进行一个需要一点经验上的帮助的特定任务或体验。 那么这些记忆就可以在物质界备使用。
+源实体：看来我又需要澄清了。
 
 You have three memories: 
 
+你有三种记忆：
+
 1.One that is part of the Origin 
+
+1、来自起源的那一部分记忆
 
 This memory is that which is part of the Akashic of humankind and is accessible by the Origin,the Source Entities,and all of the spiritual entities that are associated with this universe and its dimensions.Essentially,the Akashic record is for spiritual entities that are associated with all of the different physical manifestations associated with this universe,are kept in separate sub-sections to make it apparent where they came from and to compare the different experiences achieved by the different types of entities.All records are accessible by all entities.All records can be used as experience by another entity when incarnating into the physical. 
 
+这种记忆是人类阿卡西记录的一部分，起源、源实体以及所有与这个宇宙及其维度相连的灵性实体都可以访问。从本质上讲，阿卡西记录服务于与本宇宙物质显化相关的所有灵体。这些物质显化形式被分别保存，以便一目了然地看到他们的出处，还可以比较不同类型实体所获得的不同经验。所有记录供所有实体访问，所有记忆都可以在某一个实体处于物质化身时被用作它自己的经验。 
+
 2.One that is part of your energetic make-up 
+
+2、作为你能量体的一部分记忆
 
 This memory is yours only.It is not inclusive of the ability to access the first memory but contains the cumulative personal experiences that you have undertaken during your total existence.This is only available to you when you are "whole,"i.e.,when you no longer have part of yourself incarnate in the physical. 
 
+这种记忆只属于你，它不包括访问第一种记忆的能力，但包含了你整个存在过程所累积的个人体验。只有当你是完整的，也就是你的任何一部分都不再处于物质化身时，你才能访问这个记忆。
+
 3.One that is part of you when you incarnate
 
+3、在你转世时作为你的一部分记忆
+
 This is essentially a clean slate from the physical point of view but contains a subliminal number of memories(personal or imported)that are available for use in the physical if a specific task or experience is to be undertaken that requires a little bit of experiential help. 
+
+从物质角度来看，这实质上是白纸一张，但是包含着一些潜在的记忆，个人的或者输入的。如果要进行一个需要一点经验上的帮助的特定任务或体验，这些记忆就可以在物质界被使用。
 
 #### The Uses of Imported Memories 
 
@@ -7417,13 +7449,19 @@ This is essentially a clean slate from the physical point of view but contains a
 
 ME:You just mentioned imported memories.Do you mean that we can use other peoples' memories to help us solve problems?
 
-我：你刚刚提到了输入的记忆，你的意思是说，我们可以使用别人的记忆来帮助我们解决问题吗？ 正如我上面所说的那样，所有记录都可以在某一个实体处在物质化身时被用作他自己的经验。 然而，在特殊情况下，如果被认为对你的下意识有时是这一识有意，并能在计划阶段起到指导作用的话，其中某些记忆会被输入到你自己的记忆中。 在那一次转世中起作用，这也可能包括那些来自于我们认为是外星人的实体的记忆或经历吗？ 是的，尤其是在需要像技术或艺术方面引入某些进展的时候，这种记忆就像不知从哪里冒出来的，激进新颖又奇特，而且令人难以置信。 当他来自一个人时，这个带来崭新变化的人，就会被认为是一个天才。 当他来自一群人时，这是因为对他们中的任何一个人来说，这些知识要交给一个人来完全掌握，实在太多了。 所以他们每个人掌握了这个图景的一部分，每一部分对其他人的成功来说都是至关重要的。 他们就会被认为是一个天才群体。
+我：你刚刚提到了输入的记忆。你的意思是说，我们可以使用别人的记忆来帮助我们解决问题吗？
 
 SE:As I said above,"All records can be used as experience by another entity when incarnating into the physical."However,some of these can,under special circumstances,be imported into your own memory for the duration of an incarnation if it is seen as being beneficial to you in your next incarnation(and sometimes during your current incarnation)and your guides during the planning stage. 
 
+源实体：正如我上面所说的那样，所有记录都可以在某一个实体处在物质化身时被用作他自己的经验。然而在特殊情况下，如果被认为对你的下一世（有时是这一世）有益，并能在计划阶段起到指导作用的话，其中某些记忆会被输入到你自己的记忆中，在那一次转世中起作用。
+
 ME:And this could also include the memories or experience/experiences that come from entities that we would consider to be alien? 
 
+我：这也可能包括那些来自于我们认为是外星人的实体的记忆或经历吗？
+
 SE:Yes.This is used specifically when a certain advancement in technology or art is to be or needs to be introduced.It appears to come from nowhere;it is radical,novel,strange, and unbelievable.When it comes from a single person,the person introducing such novel changes is considered to be a genius.When it comes from a group of people,it is because there is too much knowledge for any one of them to cope with on their own, so each has a part of the picture that is essential to the success of the others.This is a“group”genius. 
+
+源实体：是的。尤其是在需要像技术或艺术方面引入某些进展的时候，这种记忆就像不知从哪里冒出来的，激进、新颖又奇特，而且令人难以置信。当他来自一个人时，这个带来崭新变化的人就会被认为是一个天才。当他来自一群人时，这是因为对他们中的任何一个人来说，这些知识要交给一个人来完全掌握实在太多了，所以他们每个人掌握了这个图景的一部分，每一部分对其他人的成功来说都是至关重要的。他们就会被认为是一个天才群体。
 
 #### Use of the Akashic Records to Learn "What If" 
 
@@ -7431,77 +7469,143 @@ SE:Yes.This is used specifically when a certain advancement in technology or art
 
 ME:O.K.,so as far as I understand,the Akashic records are a recording of all of the entities associated with the physical universe and its dimensions.It is part of the memories of the Origin and the Source Entities,and it is outside "change"that can be initiated by the Origin.This seems straight forward. 
 
-我：好的。据我所知，阿卡西记录是与物质宇宙及其维度有关的。 所有实体的记录，它是起源和原始体的记忆的一部分，它是起源发起的外在变化，这个感觉挺好理解的。 阿卡西记录远不止这些是吗？还有什么呢？它是比一段记忆更为有用的工具，那么它还能用来做什么呢？ 你可以研究事件的相互作用，以及每个事件如何影响个体。过去现在和将来在有限的时间段内，你可以做一些改变来影响这些事件观察，接下来会发生的情况，你可以用它规划使你的转世达到预期最佳状态所需要发生的事件，包括加入安全保障措施，这样它就能负责其他实体做同样事情后造成的一些改变。 所以你是说阿卡西记录也可以用作一个巨大的。如果会怎样的情景模拟器远不止于此。 一个灵体可以在他的肉身记忆中插入其他灵体生活和经验的记忆，看看他们将如何影响他的生命计划。 然后这个灵体可以调整记忆结构，去除某些经验或这些经验的一部分，来规划最佳的生活体验和结果。 当然这只是一个投影，而且只在某个特定的时间点有效，因为转世的灵体一旦进入肉体，就不再具有第二种记忆的优势来帮助自己做决定了，从而可能会对一个决定做出与阿卡西记录所显示的不同的判断。 如此一来，其他化身的互动也会受到影响。而他们对相关决定的回应发生的变化，从会影响其转世计划。 你说过阿卡西记录远远不止于此。是的，他也让你有机会进入其他化身的生活经历。 他们过去现在和未来生活存在的体验都被储存在阿卡西记录里，你可以进进入他们体验，他们仿佛亲身经历一样，甚至体验中的感觉和真实的时间一样长等等。 你刚才说到他们的生活体验都被储存在阿卡西记录里的任何实体，这是暗示有一些实体的生活体验，并不在阿卡西记录里吗？ 的确如此，是有一些不在里念，有一些生命，对于整体经验的总体效果没有影响，或者他们属于那些已经迁移回源头，甚至是起源的高等实体，因而已经不再参与其中了。 对起源来说，他们并没有丢失，什么都不会也永远不会失去。 因为他们被存放在他的整体记忆中了。只不过对于那些只能访问阿卡西记录的实体来说，不能获取这些记忆，别忘了阿卡西记录是与在这个特定宇宙中运作的实体及其维度有关的。 他同我和其他原实体创造的其他宇宙中的实体并不相关，因为他们有自己的体验和成就的独立记录。 这些记录有不同的名字。那么阿卡西记录的名字是阿卡西，这是什么意思呢？ 名字肯定有什么意义吧，因了给事物分门别类的贴上相应标签，本质上名字并不需要有什么特别的意义或功能，那是人类的需要，也是具有类似的群体因化水平的其他实体所特有的需要。 阿卡西的本意是永恒，这是一种永远无止境恒长的状态。 从你们的观点来看，阿卡西记录一直存在，并将永远存在。 因此他们是这个宇宙的永恒记录，跟我多说说阿卡西记录的情景，假设模拟功能吗？ 这不是被个体使用的功能，因为它同时有需要太多灵魂互动，所以不能被个体使用。 为了实现某个集体目标而共识的一大群实体可以使用它，你们也是这些大群组中的一员，名些大群组可以是远来自地球的化身实体无关的。 比如你们群组也可以是来自因进化机缘，而只与地球联系在一起的实体。 这些群组是做什么的，他们帮助文明朝着某一个能提升进化机会的方向发展，这是做好事进化的机会，并不总是意味着一个人必须做你所谓的好事好和坏事，评判人与人行为的具有决定和分离性色彩的语言工具，人们更喜欢使用好这个词，也喜欢被这样形容。 但是这并不意味着好人的进化速度会比坏人快进化是关于体验，以及在呈现给个体的某些体验中认出进化机会。 例如，如果一个实体一直在地球上做好人，他会因为不够真实而遭到当地社群排斥这种体验，本身就有其进化积分，因为被看作是伪善或帮到忙的人，会伴随产生一大堆情绪，同样做坏事，这也可能会有他能够加分的一面。 因为某些情况下做坏事会带来悔恨的情绪，本身就是一种强大的情感和进化体验。 你看为了能够进化，你必须从梯子的最底下一起开始，这意味着你需要经历尽可能多的事情，无论好坏，这样你就可以在某种程度上达到一种平衡的存在视角，并且获得让你和你的同伴在化身中一起进化的必要经验。 一旦完全理解了这一点，你们就可以身处较低频率肉身的同时，在较高频率中开展团队合作。 这意味着你们可以一起改变文明的进程，或改变当地群组的同时，来帮助他们进化，为此寻找最佳路径的最好场所，就是阿卡西记录。 有趣的是，受到正在阿卡西记录中运行的情景，假设模拟影响的实体。 假如他们当时还没有转世，也会意识到他们将会如何受到影影响？ 这通常意味着在阿卡西记录周围会有一群观众，他们主要是出于兴趣，但也会对策略改进提供意见。 这一定意味着有数千甚至数百万的实际会同时参与到正在上演的情景。 假设模拟中是这样的，这就是为什么他并不会经常开演。因为这需要所有这些实体为了情景模拟的成功，在同一时间一起工作情景模拟的结果，还需要得到受影响的实体的同意。 因为这可能会以某种方式影响到他们的进化过程。哇，那么这种情景假设模拟多久会上演一次呢？ 我已经解释过他什么时候发生。但是我猜你想问的是一个情景模拟的上演需要什么条件？ 是的，就是这个你仅仅大致描述了一下，为什么？因为这没有说明何时会发生在需要对文明的发展方向做出重大改变的时候，我们会用阿卡西记录进行这种层次的情景模拟，要么是为了使该文明不至于灭绝，让它灭绝，太浪费了。 尤其是当他在整体框架中还要发挥部分作用时，要么是恰逢帮助这个文明更快进化或者前进到下一个发展阶段的适当时机，我在这里使用文明一词。 因为我说的是正处在物质频率维度中的实体，这些是情景假设模拟的最佳使用场所。 因为转世在这里的实体们不再记得自己的生命蓝图是什么？更不用说他们处于这个层面时所使用的身体在记的计划了。 那么你真正想说的是情景，假设模拟很少被使用，而且只是为了帮助处在较低频率的时期才被使用的总结的不错。 所以这个宇宙中，所有人类和其他实体存在的总和都存储在阿卡西记录中。 所以可以用它来预测所有文明的方向。这个方向可以被那些设计文明走向的灵体部体，改变变阿卡西记录的假设情景模拟功能，可以让他们精细的调整，他们的计划，以获得理想的结果。 正是这样。更重要的是，这正是人类在世界危机时期所做的事情。 你看进化并不是单凭运气，人类和其他化身种族持续处于监平之下，并且不断被修改，以确保加速进化过程增加进化的机会。 你们有没有停下来？想过为什么现在地球上的生活节奏是如此之快？ 为什么这么多的发明会开花结果？是的，我们似乎总在东奔西跑，以至于没有时间留给自己去做冥想和高哦，甚至是和你连接。 是的，但这个奔波背后的真正原因是什么？
+我：好的。据我所知，阿卡西记录是与物质宇宙及其维度有关的所有实体的记录，它是起源和源实体的记忆的一部分，它是起源发起的外在变化，这个感觉挺好理解的。 
 
 SE:There is more to the Akashic than that. 
 
+源实体：阿卡西记录远不止这些。
+
 ME:Why?What else can there be? 
+
+我：是吗？还有什么呢？
 
 SE:It is a much more useful tool than a piece of memory. 
 
+源实体：它是比一段记忆更为有用的工具。
+
 ME:So what else does it do then? 
+
+我：那么它还能用来做什么呢？
 
 SE:You can study the interactions of events and how each event affects the individual,past, present,and future.For a limited period of time,you can make changes that affect these events to see what happens next.You can use it to plan the events that need to take place to make your incarnate life work out to the best of its expectation,including putting fail-safes in,so that it accounts for a certain amount of change made by other entities doing the same thing. 
 
+源实体：你可以研究事件的相互作用，以及每个事件如何影响个体、过去、现在和将来。在有限的时间段内，你可以做一些改变来影响这些事件，观察接下来会发生的情况。你可以用它规划使你的转世达到预期最佳状态所需要发生的事件，包括加入安全保障措施，这样它就能负责其他实体做同样事情后造成的一些改变。
+
 ME:So what you are saying is that the Akashic records can also be used as a giant "what if" scenario. 
+
+我：所以你是说阿卡西记录也可以用作一个巨大的“如果会怎样”的情景模拟器。
 
 SE:It is much more than that.An individual spirit can insert into its incarnating memory the memory/memories of other spirits'lives and experiences to see how they would affect its life plan.The spirit may then make adjustments to the memory structures,removing certain experiences or parts of experiences to plan the optimal life experience and outcome.This,of course,is only a projection and is only "current" at a specific point in time,as the incarnating spirit may make a different judgment on a decision than that shown in the Akashic once it is in the physical where it doesn't have the advantage of its second memory to help it make decisions. 
 
+源实体：远不止于此。一个灵体可以在他的肉身记忆中插入其他灵体生活和经验的记忆，看看他们将如何影响他的生命计划。然后这个灵体可以调整记忆结构，去除某些经验或这些经验的一部分，来规划最佳的生活体验和结果。当然，这只是一个投影，而且只在某个特定的时间点有效。因为转世的灵体一旦进入肉体，就不再具有第二种记忆的优势来帮助自己做决定了，从而可能会对一个决定做出与阿卡西记录所显示的不同的判断。
+
 The interactions of other incarnates are also affected,and how they respond to the changes in the decision profile will make a difference to their incarnation plans. 
+
+如此一来，其他化身的互动也会受到影响，而他们对相关决定的回应发生的变化将会影响其转世计划。
 
 ME:You said that the Akashic is much more. 
 
+我：你说过阿卡西记录远远不止于此。
+
 SE:Yes,it is.It also gives you the opportunity to dip into the life experiences of other incarnates,past,present,and future whose lives/existence experiences are stored in the Akashic.You can go into these and experience them as if they were your own,even taking what seems to be the same length of"real time"during the experience.
+
+源实体：是的。它也让你有机会进入其他化身的生活经历，他们过去、现在和未来生活存在的体验都被储存在阿卡西记录里。你可以进入他们，体验他们，仿佛亲身经历一样，甚至体验中的感觉和真实的时间一样长。
 
 ME:Hold on.You just said any entities "whose lives/existence experiences are stored in the Akashic."This intimates that there are some life experiences that are not in the Akashic? 
 
+我：等等。你刚才说到他们的生活体验都被储存在阿卡西记录里的任何实体，这是暗示有一些实体的生活体验并不在阿卡西记录里吗？
+
 SE:This is true.There are some that are not.These are lives that are of no consequence to the overall effectiveness of total experience,or they are the lives of higher entities that have migrated back to the Source or even the Origin and are,therefore,out of play. They are not lost to the Origin;nothing is lost,ever,as they are placed into Its overall memory. It is just that they are no longer available to those entities who can only access the Akashic memory. 
+
+源实体：的确如此。是有一些不在里面，有一些生命对于整体经验的总体效果没有影响，或者他们属于那些已经迁移回源头，甚至是起源的高等实体，因而已经不再参与其中了。对起源来说，他们并没有丢失，什么都不会也永远不会失去，因为他们被存放在他的整体记忆中了。只不过对于那些只能访问阿卡西记录的实体来说，不能获取这些记忆。
 
 Don't forget that the Akashic is relative to entities that are operating in this particular universe and its dimensions.It is not relative to entities that are operating in the other universes that I and the other Source Entities have created,as they have their own records of what they have experienced/achieved.These have a different name. 
 
+别忘了，阿卡西记录是与在这个特定宇宙中运作的实体及其维度有关的。它同我和其他源实体创造的其他宇宙中的实体并不相关，因为他们有自己的体验和成就的独立记录，这些记录有不同的名字。
+
 ME:So the Akashic records have a name,"Akashic."What does this mean?Names must have a meaning. 
+
+我：那么阿卡西记录的名字是“阿卡西（Akashic）”，这是什么意思呢？名字肯定有什么意义吧。
 
 SE:A name does not need to have a meaning or a function other than a method of putting a tag on something.This is a human requirement and is also specific to other entities that are of a similar level of group evolution.Akashic purely means "Eternal,"which is a way of saying forever,never ending,always.The Akashic have always been in existence from your point of view and will always be in existence.As a result,they are the "eternal records"of this universe.
 
+源实体：除了给事物分门别类地贴上相应标签，本质上名字并不需要有什么特别的意义或功能。那是人类的需要，也是具有类似的群体进化水平的其他实体所特有的需要。阿卡西的本意是“永恒”，这是一种永远无止境、恒长的状态。从你们的观点来看，阿卡西记录一直存在，并将永远存在。因此，它们是这个宇宙的永恒记录。
+
 ME:Tell me more about the "what if scenario"function of the Akashic. 
+
+我：跟我多说说阿卡西记录的“情景假设模拟”功能吧。
 
 SE:This is not used by the individual entity.It cannot be as it relies on the interaction of too many souls at the same time.It can be used by large groups of entities who are working together to achieve a collective purpose.You are part of one of these large groups.The group can be external to the Earth-based incarnating entities,such as yours,or they can be from entities that are wholly tied to the Earth for its evolutionary opportunities. 
 
+源实体：这不是被个体使用的功能，因为它同时需要太多灵魂互动，所以不能被个体使用。为了实现某个集体目标而共事的一大群实体可以使用它，你们也是这些大群组中的一员。这些大群组可以是与来自地球的化身实体无关的，比如你们群组；也可以是来自因进化机缘，而只与地球联系在一起的实体。
+
 ME:What do these groups do? 
+
+我：这些群组是做什么的？
 
 SE:They help to turn a civilization in a certain direction,that direction being one that will enhance the evolutionary opportunities. 
 
+源实体：他们帮助文明朝着某一个能提升进化机会的方向发展。
+
 ME:To do good! 
+
+我：这是做好事！
 
 SE:Evolutionary opportunities do not always mean that an individual has to do what you call "good."Good and bad are a decisive and divisive verbal tools to discriminate between the actions of one individual or another.Good is the word that people prefer to use and prefer to be described as,but this does not mean that a good person will evolve faster than a bad person.Evolution is about experience and the recognition of the evolutionary opportunities that are presented to the individual by certain experiences.For instance,if an entity was continually good in the Earth dimension,he/she would be outcast from his/her local community as being unreal. This experience in itself has its own evolutionary points as there are a whole host of emotions that go with being seen as a goody-goody or a do-gooder.Similarly,doing bad may also have its plus points because at some point doing bad things brings forth the emotions of remorse,which in itself is a powerful emotional and evolutional experience. 
 
+源实体：进化的机会并不总是意味着一个人必须做你所谓的好事。好和坏是评判人与人行为的具有决定和分离性色彩的语言工具，人们更喜欢使用“好”这个词，也喜欢被这样形容，但是这并不意味着好人的进化速度会比坏人快。进化是关于体验，以及在呈现给个体的某些体验中认出进化机会。例如，如果一个实体一直在地球上做好人，他会因为不够真实而遭到当地社群排斥，这种体验本身就有其进化积分，因为被看作是伪善或帮倒忙的人会伴随产生一大堆情绪。同样，做坏事也可能会有他能够加分的一面，因为某些情况下做坏事会带来悔恨的情绪，本身就是一种强大的情感和进化体验。 
+
 You see,to be able to evolve,you have to start at the bottom of the ladder,and this means that you must experience as many things as you can,good and bad.This is so that you can get a balanced view on existence at certain levels and gain experience on what is necessary to allow yourselves and your fellow incarnates to evolve all together.Once you fully understand this,you can then start to work together as a team in both the higher frequencies and the lower incarnate frequencies.This means that you can work together to change the course of civilizations or local groups to help them evolve,and the best place to find the optimal route for this is via the Akashic.The interesting thing is that the entities being influenced by this "what if scenario"whilst being conducted in the Akashic are,if they are currently not incarnate,aware of how they will be affected.This usually means that an audience starts to appear around the Akashic,mainly out of interest but also to offer comment on strategic improvements. 
+
+你看，为了能够进化，你必须从梯子最底部的一级开始。这意味着你需要经历尽可能多的事情，无论好坏。这样你就可以在某种程度上达到一种平衡的存在视角，并且获得让你和你的同伴在化身中一起进化的必要经验。一旦完全理解了这一点，你们就可以身处较低频率肉身的同时，在较高频率中开展团队合作。这意味着你们可以一起改变文明的进程，或改变当地群组的进程来帮助他们进化。为此，寻找最佳路径的最好场所就是阿卡西记录。有趣的是，受到正在阿卡西记录中运行的“情景假设模拟”影响的实体，假如他们当时还没有转世，也会意识到他们将会如何受到影响。这通常意味着在阿卡西记录周围会有一群观众，他们主要是出于兴趣，但也会对策略改进提供意见。
 
 ME:This must mean that thousands,if not millions,of entities are involved at the same time if a "what if scenario"is being performed. 
 
+我：这一定意味着有数千甚至数百万实体会同时参与到正在上演的“情景假设模拟”中。
+
 SE:It does,and that is why it is not performed very often,as it relies on all of these entities working together at the same time for the good of the scenario.The outcome of the scenario also needs to be approved by the entities affected because it may affect their evolutional progress in some way. 
 
-#### The Criteria for Using the Akashic Records for a"What If"Scenario 
+源实体：是这样的，这就是为什么它并不会经常开演。因为这需要所有这些实体为了情景模拟的成功，在同一时间一起工作。情景模拟的结果还需要得到受影响的实体的同意，因为这可能会以某种方式影响到他们的进化过程。
 
 ME:Wow!How often is a "What If Scenario"performed? 
 
+我：哇，那么这种情景假设模拟多久会上演一次呢？
+
 SE:I explained when it happens,but I guess that you are asking what the criteria are for a scenario to be performed? 
+
+源实体：我已经解释过它什么时候发生。但是我猜你想问的是一个情景模拟的上演需要什么条件？
 
 ME:Yes,that's it.You've only described a loose outline of why,but you haven't described an outline of when. 
 
+我：是的，就是这个。你仅仅大致描述了一下为什么，但是你没有说明何时会发生。
+
 SE:We do this level of scenario with the Akashic when we need to make drastic changes to the direction of a civilization in order to either save it from extinction-this is always a waste,especially when it has a part to play in the overall scheme of things-or it is the right time to help the civilization evolve faster or move on to the next level of evolution.I use the word "civilization"here because I am talking about entities that exist in the physical frequencies/dimensions.These are the areas where the scenario is best used,as the incarnates themselves cannot remember what their life plan is,let alone what the plan for the physical vessels they occupy is whilst they are at this level of existence.
+
+源实体：在需要对文明的发展方向做出重大改变的时候，我们会用阿卡西记录进行这种层次的情景模拟。要么是为了使该文明不至于灭绝，让它灭绝太浪费了，尤其是当它在整体框架中还要发挥部分作用时；要么是恰逢帮助这个文明更快进化，或者前进到下一个发展阶段的适当时机。我在这里使用“文明”一词，因为我说的是正处在物质频率/维度中的实体，这些是情景假设模拟的最佳使用场所，因为转世在这里的实体们不再记得自己的生命蓝图是什么，更不用说他们处于这个层面时所使用的身体载具的计划了。
 
 ME:So what you are really saying is that the "what if scenario"is used sparingly and only with a view to helping entities using the lower frequencies. 
 
+我：那么你真正想说的是，“情景假设模拟”很少被使用，而且只是为了帮助处在较低频率的实体才被使用的。
+
 SE:That about sums it up. 
+
+源实体：总结得不错。
 
 ME:So the sum total of all human and other entity existence in this universe is stored in the Akashic,and this can be used to predict the direction of whole civilizations.That direction can be altered by groups of spirits who have designs on where that civilization should be going.The Akashic "what if"scenario function allows them to fine tune what they need to do to gain the desired outcome. 
 
+我：所以这个宇宙中所有人类和其他实体存在的总和都存储在阿卡西记录中，所以可以用它来预测所有文明的方向。这个方向可以被那些设计文明走向的灵体团体改变。阿卡西记录的“情景假设模拟”功能可以让他们精细地调整他们的计划，以获得理想的结果。
+
 SE:That is exactly what happens.More importantly,that is what humanity does in times of world crisis.You see,evolution is not left to chance.The human and other incarnate races are continually being monitored and modified to ensure that the evolution process is accelerated,and the opportunities for evolution are increased.Have you ever stopped to wonder why life is so fast on Earth at the moment and why so many inventions are coming into fruition? 
+
+源实体：正是这样。更重要的是，这正是人类在世界危机时期所做的事情。你看，进化并不是单凭运气，人类和其他化身种族持续处于监控之下，并且不断被修改，以确保加速进化过程，增加进化的机会。你们有没有停下来想过，为什么现在地球上的生活节奏是如此之快？为什么这么多的发明会开花结果？
 
 ME:Yes,it seems that we are rushing around so much that we are not able to give ourselves the time to meditate and be in contact with our higher selves or even you. 
 
+我：是的，我们似乎总在东奔西跑，以至于没有时间留给自己去做冥想，和高我甚至是和你连接。
+
 SE:Yes,but what's the real reason behind this rushing around? 
+
+源实体：是的，但这个奔波背后的真正原因是什么？
 
 #### Current Experiments on Earth
 
@@ -7509,23 +7613,39 @@ SE:Yes,but what's the real reason behind this rushing around?
 
 ME:I have no idea.Is it part of an experiment? 
 
-我：我不知道它是某个实验的一部分吗？这个宇宙和它的所有维度都是一个实验。 但是目前的确有一两个小实验正在进行。第一个是看谁能够与他的高额连接上，从而能在令人分心的新鲜刺激的信息轰炸中进入真正的实像，并且帮助他们去教导别人做到同样的事。 第二个是把体验的基础水平提高一到两个等级，直到你们可以和其他化身一起合作，并因此增加整个化身物种的进化机会。 此外，提高一两个等级也会提升你们自己的基准频率水平，使你们所有人都再次对更大时相变得更加敏感，从而使你们回到在你们存在的此刻，本应处于的位置。 目前你们体验的所有技术都不错，但是他们掩盖了你们真正的潜能。 因为通过引入人造手段来解决那些由于人类没有处在本应处于的频率而产生的问题。 凭借你们的真实能力，你们其实不需要周围这些人造的设备或机器，这就是你们作为一个种族所需要克服和理解的东西。 实际上这确实也是一个速度竞赛。从这个词的本意来说，人类正在急速回归源头回归起源。 为什么是一个种族？我以为一个实体的进化是个人的事，最重要的是体验不同的事情，让你作为一个实体得到成长，而回归源头只是个人的选择，回归源头的确是个人的选择。 如果你觉得合适，你也可以自由的选择。不这样做，这是一场比赛，只是因为大多数实体真的希望回到源头来享受和抑与完整的感觉。 这是分享他们对起源的贡献，对自身和所处环境的认知与体验。 这是他们存在的终极理由，即帮助起源更好更快的了解自身。 更重要的是以一种他自己原本意想不到的方式，是我以为起源能够想到一切，并且体验一切。 当然可以，但是这样做的好处是作为较小的实体，你可以以一种更加个性化的方式来体验事物，甚至超过起源。 只因为你没有被更大的事物分析。其实你可以深入了解那些从起源的角度看来，不感兴趣的世节要做到这一点，你需要变成更小的实体。 这就是为什么起源创造了我。而我接下来创造了你们所有的个体，去了解细节，并尽快带着这些信息回归起源，阿卡西记录只是人类经历过可能经历或想要经历的全部综合体验的存储库，这些都是在受限环境中基于自由意志的选择很好，但你只提到了人类。 你之前强调过所有化身生命的过去，现在和未来的生活信息也都存储在阿卡西记录中，你现在有点较真了。 当然我说过物物质宇宙及其维度和频率中的所有实体化身的所有生命体验都存储在阿卡西记录中，我只讲了人类纯粹，是因为那是与我沟通的这部分。 你目前之所在。如果我把你的其余分身所在之处也包括进来，你只会感到困惑。
+我：我不知道。它是某个实验的一部分吗？
 
 SE:The whole of this universe and its dimensions is an experiment,but yes,there is a small experiment or two going on at the moment.The first one is to see who is able to make contact with their higher selves and,therefore,break into the real reality whilst being bombarded by all these new distractions and to help them to teach others how to do the same.The second is to bring the base level of experience up a notch or two,up to the point where you can work together with other incarnate entities and,therefore,increase the evolutionary opportunities for incarnate-kind in total. Additionally,raising yourself a notch or two will increase your base line frequency levels to one where all of you will become more sensitive to the greater reality again, thereby,putting you back to where you should be at this point in your existence. 
 
+源实体：这个宇宙和它的所有维度都是一个实验，但是目前的确有一两个小实验正在进行。第一个，是**看谁能够与他的高我连接上，从而能在令人分心的新鲜刺激的信息轰炸中进入真正的实相，并且帮助去教导别人做到同样的事**。第二个，是**把体验的基础水平提高一到两个等级，直到你们可以和其他化身一起合作，并因此增加整个化身物种的进化机会**。此外，提高一两个等级也会提升你们自己的基准频率水平，使你们所有人都再次对更大实相变得更加敏感，从而使你们回到在你们存在的此刻本应处于的位置。
+
 All this technology is fine,but it masks your real potential by introducing artificial means to solving problems that are created by not being at the frequency humankind should be. With your true abilities,you would not need all these artificial mechanisms around you, and this is something you need to get over and understand as a race.Indeed,it is a race that you are in.In the very real sense of the word,humanity's racing back to the Source, to the Origin. 
+
+目前你们体验的所有技术都不错，但是他们掩盖了你们真正的潜能，因为通过引入人造手段来解决那些由于人类没有处在本应处于的频率而产生的问题。凭借你们的真实能力，你们其实不需要周围这些人造的设备或机器，这就是你们作为一个种族所需要克服和理解的东西。实际上这确实也是一个速度竞赛，从这个词的本意来说，人类正在急速回归源头，回归起源。
 
 ME:Why would it be a race?I thought that an entity's evolution was personal.That the most important thing was experiencing different things that make you grow as an entity and that going back to the Source was a personal choice.
 
+我：为什么是一个种族？我以为一个实体的进化是个人的事，最重要的是体验不同的事情，让你作为一个实体得到成长，而回归源头只是个人的选择。
+
 SE:Going back to the Source is a personal choice.It is one that you are free to choose not to take as well if you see fit.It's only a race because most entities actually want to return to the Source to share the feeling of oneness and totality,as well as share their contribution to the Origin-their contribution being what they have learned and experienced about themselves and their environment.This is the ultimate reason for their existence;it helps the Origin know Itself better and faster,and more importantly in a way that It wouldn't have thought of Itself. 
+
+源实体：回归源头的确是个人的选择。如果你觉得合适，你也可以自由地选择不这样做。这是一场比赛，只是因为大多数实体真的希望**回到源头来享受合一与完整的感觉，以及分享他们对起源的贡献，对自身和所处环境的认知与体验**。这是他们存在的终极理由，即**帮助起源更好更快地了解自身**，更重要的是以一种他自己原本意想不到的方式。
 
 ME:I thought that the Origin would be able to think of everything and experience everything. 
 
+我：我以为起源能够想到一切，并且体验一切。
+
 SE:Of course it can,but the benefit here is that you,as smaller entities,are able to experience things in a much more personalized way,even more so than the Origin itself,purely because you are not distracted by bigger things.In essence,you are able to get into details that the Origin would not find interesting from Its perspective.To do this,you need smaller beings.That's why the Origin created Me and I,in turn,created all of you -to get to the details and,to come back with these details as soon as possible.The Akashic is simply a depository of all the combined experiences that humankind has experienced,could experience,or wants to experience,and these choices are based upon free will in a limiting environment. 
+
+源实体：当然可以，但是这样做的好处是，作为较小的实体，你可以以一种更加个性化的方式来体验事物，甚至超过起源，只因为你没有被更大的事物分心。其实，你可以深入了解那些从起源的角度看来不感兴趣的细节。要做到这一点，你需要变成更小的实体。这就是为什么起源创造了我，而我接下来创造了你们所有的个体去了解细节，并尽快带着这些信息回归起源。阿卡西记录只是人类经历过、可能经历或想要经历的全部综合体验的存储库，这些都是在受限环境中基于自由意志的选择。
 
 ME:OooKaay,but you only mentioned the human race.You previously noted that all incarnate life had past,present and future life information stored in the Akashic. 
 
+我：很好，但你只提到了人类。你之前强调过，所有化身生命的过去、现在和未来的生活信息也都存储在阿卡西记录中。
+
 SE:You're being pedantic now.Of course,I mean all the life experience of all incarnate entities contained in the physical universe and its dimensions and frequencies are stored in the Akashic.I am focusing on the human race purely because that is where the part of you that is communicating with Me is currently residing.If I were to include where the rest of your incarnate quotient is,you would only get confused.
+
+源实体：你现在有点较真了。当然，我说过物质宇宙及其维度和频率中的所有实体化身的所有生命体验都存储在阿卡西记录中。我只讲了人类，纯粹是因为那是与我沟通的这部分你目前之所在。如果我把你的其余化身所在之处也包括进来，你只会感到困惑。
 
 ### Chapter 19 - Living Many Incarnations Simultaneously
 
@@ -7533,33 +7653,59 @@ SE:You're being pedantic now.Of course,I mean all the life experience of all inc
 
 ME:Whoa!That was a big jump!One minute we are talking about humankind and the Akashic records,the next you drop in the insinuation that we are living more than one life at once. 
 
-我：哇，这是个很大的跳跃。 前一秒我们还在谈论人类和阿卡西记录下一秒，你就暗示我们同时过着不止一个人生，现在是时候把它放进谈话里了。 我之所以这样做，是因为首先我们开始在阿卡西记录这个话题上都签字了。 然后现在是引入多个人生并存话题的恰当时机，为什么一个实体想要同时拥有不止一个化身人生呢？ 前一个人生好像就已经占据了我所有的时间，同时经历多个化身的做法是绝大多数灵魂的常规和普遍策略，目的是加速进化潜能。 为什么我们会认为自己只过着一个人生呢？因为你们有限的意识觉知你的意识特特别专注于你所转世的本宇宙和这个维度的这个肉身假使你在你并没有觉知到你拥有能进入你处于化身状态或处于能量状态的其他自我部分，就像大多数人一样，在这样的能力的情况下，进入了自己的其他部分的。 此时此刻的体验当然并没有时间这回事，这会让你发疯的。 事实上，现在就有一些在地球转世的人能时常进入到他们同时刻其他部分的体验。 这些人在哪里？他们为什么不用高音喇叭，把他们的精力昭告天下告诉其他人真相远比我们的无感所接受到的要多得多。 因为他们都在精神病院里，他们不能妥善应对他们所经历的事情。 因为他们不知道他们到底在经历什么，更糟糕的是，他们周围或亲近的人也不明，所以而且不理解他们更为糟糕的是，他们想不出办法来解决他们面临的问题题。 因为这超出了他们的理解范围，这个问题，被精神病院的医护人员搞得更加复杂了。 因为他们只会根据医学院所学到的知识去处理精神问题，精神病院里的所有病人都是在同时经历着许多人生吗？ 当然不是了，许多人并没有经历自我其他部分的体验，而只是能够进入与地球相关的其他维度的更大实效。 所以他们能看到其他事迹地球上的其他问题。这些我们大多数人看不到或者感受不到的东西。 正确好了，我们跑题了，同时存在众多化身的话题，值得重点讨论。 正如我之前所说的那样，这是一种普遍的做法，几乎从人类发展伊始，就一直被采用。 如果你还记得在这个对话的早些时项，我们讨论了人类能量体研制物质身体的问题，以及在尝试转世初期的共享身体有关的一些问题。 由于人类形态的物质和能量设计不完善所导致的身体和能量失调的共享扩散情况，物质身体的共享会造成能量功能失调情况的蔓延。 从某种意义上说，这是让人们开始多个平行人生的最初诱因，将自我分裂为更小碎块的做法，直接来源于模仿起源和其他原始体的类似做法。 因为起源和原始体发现这样的方式会使进化更有效。那么我们的不同化身都被限制在地球层面了吗？
+我：哇，这是个很大的跳跃。前一秒我们还在谈论人类和阿卡西记录，下一秒你就暗示我们同时过着不止一个人生。
 
 SE:It was the right time to drop it into the conversation.I did so for the following reasons: first,we were starting to go around in circles about the subject of the Akashic.Second, it is the right time to introduce the subject of living many lives concurrently. 
 
+源实体：现在是时候把它放进谈话里了。我之所以这样做是因为：首先，我们开始在阿卡西记录这个话题上兜圈子了。然后，现在是引入多个人生并存话题的恰当时机。
+
 ME:Why would an entity want to live more than one incarnate life at a time?Living one seems to take up all of my time. 
+
+我：为什么一个实体想要同时拥有不止一个化身人生呢？过一个人生好像就已经占据了我所有的时间。
 
 SE:The practice of living multiple lives simultaneously is a regular and common strategy of the vast majority of souls in order to accelerate their evolutionary potential. 
 
+源实体：同时经历多个化身的做法是绝大多数灵魂的常规和普遍策略，目的是**加速进化**潜能。
+
 ME:Why do we only think that we are living one life? 
+
+我：为什么我们会认为自己只过着一个人生呢？
 
 SE:Because of your limited awareness.Your awareness is specific to that part of you that is projected into this universe and this dimension.If you were able to tap into the experiences that other parts of yourself are having at this moment in time(there is no such thing as time,of course)and were unaware that you could tap into other parts of you that are either incarnate or energetic(as most people are),you would go mad.In fact,there are people incarnate in the Earth plane who are constantly tapping into the experiences that other parts of themselves are having at the same time right now. 
 
+源实体：因为你们有限的意识觉知。你的意识特别专注于你所转世的本宇宙和这个维度的这个肉身。假使你在你并没有觉知到，你拥有能进入你处于化身状态或处于能量状态的其他自我部分。就像大多数人一样，在这样的能力的情况下，进入了自己的其他部分的此时此刻的体验（当然并没有时间这回事），这会让你发疯的。事实上，现在就有一些在地球转世的人能时常进入到他们同时刻其他部分的体验。 
+
 ME:Where are these people?Why are they not shouting from the highest treetop about their experiences,telling the rest of humanity that the truth is much more than we perceive with our five senses!? 
+
+我：这些人在哪里？他们为什么不用高音喇叭把他们的经历昭告天下，告诉其他人真相远比我们的五感所接受到的要多得多。
 
 SE:Because they are all in mental institutions.They can't cope with what they are experiencing because they don't know what they are experiencing.Worse still,those around or close to them don't know or understand either.Even worse,they are not able to think of a solution to the problem that they are witnessing because it is outside of their framework of understanding.This is compounded by institutional staff who are only trained to deal with psychological issues that are based upon what they have been taught at university or college. 
 
+源实体：因为他们都在精神病院里。他们不能妥善应对他们所经历的事情，因为他们不知道他们到底在经历什么。更糟糕的是，他们周围或亲近的人也不明所以，而且不理解他们。更为糟糕的是，他们想不出办法来解决他们面临的问题，因为这超出了他们的理解范围。这个问题被精神病院的医护人员搞得更加复杂了，因为他们只会根据医学院所学到的知识去处理精神问题。
+
 ME:So are all these people in mental institutions experiencing many lives at the same time? 
+
+我：精神病院里的所有病人都是在同时经历着许多人生吗？
 
 SE:No,of course not.Many are not experiencing other lives that other parts of themselves are experiencing but are simply able to tap into the greater reality of other dimensions associated with the Earth plane.
 
+源实体：当然不是了。许多人并没有经历自我其他部分的体验，而只是能够进入与地球相关的其他维度的更大实相。
+
 ME:So they are seeing other entities,other inhabitants of Earth,that most of us can't see or perceive. 
+
+我：所以他们能看到其他实体，地球上的其他居民，这些我们大多数人看不到或者感受不到的东西。
 
 SE:Correct.O.K.,we are digressing.The subject of living many incarnations at the same time is an important one to discuss.As I previously stated,it is a common practice and one that has been in constant use almost since the start of human development. 
 
+源实体：正确。好了，我们跑题了。同时存在众多化身的话题，值得重点讨论。正如我之前所说的那样，这是一种普遍的做法，几乎从人类发展伊始就一直被采用。
+
 If you remember,earlier in this dialogue we discussed the development of the physical body by energetic humanity and some of the issues surrounding sharing bodies in the early days of the practice of incarnation-that is,the sharing of irregularities of physical and energetic function brought about by incomplete design of the physical/energetic human form.The sharing of physical form caused the spread of energetic dysfunction. This,in a sense,was the precursor to living many lives in parallel.The practice of splitting selves into smaller chunks is a direct correlation with what the Origin and the other Source Entities have found necessary to affect efficient evolutionary progress. 
 
+如果你还记得在这个对话的早些时侯，我们讨论了人类能量体研制物质身体的问题，以及在尝试转世初期的共享身体有关的一些问题，即由于人类形态的物质和能量设计不完善所导致的身体和能量失调的共享扩散情况，物质身体的共享会造成能量功能失调情况的蔓延。从某种意义上说，这是让人们开始**多个平行人生**的最初诱因。将自我分裂为更小碎块的做法，直接来源于模仿起源和其他源实体的类似做法，因为起源和源实体发现这样的方式会使进化更有效。
+
 ME:So are we limited to the Earth plane? 
+
+我：那么我们的不同化身都被限制在地球层面了吗？
 
 #### In Earth's Universe:in Any Dimension,on Any Planet,in Any Galaxy,at Any Time 
 
@@ -7567,23 +7713,39 @@ ME:So are we limited to the Earth plane?
 
 SE:No,this is the whole point.You are able to and do have several parts of yourselves incarnate all at once in as many physical or dimensional locations as you deem necessary.This can be in any dimension on any planet in any galaxy at any point in time (event)of this universe.In essence,one part of you can be with Me now having this dialogue,being just on the border of awareness,whilst another part of you can be in another dimension as part of another race,either incarnate or disincarnate with full knowledge of who,what,and where the other sum parts of yourself are.And you are able to communicate with them and to relish in the experiences they are having and being fully able to make use of them as evolutionary opportunities in the environment that that part of you is currently experiencing. 
 
-源实体：不而且这才是一切的重点。 你可以，而且确实有好几个部分。同时化身于你认为必要的多个物质或维度空间中，可以是这个宇宙任何时间点的事件中，任何星系的任何星球的任何维度上。 实际上你的一部分可在现在你正处在觉知边缘的状态与我进行对话，而你的另一部分可以在另一个维度，作为另一个种族的一员，不管是转世肉身还是脱离肉身，都完全知晓你的其他所有部分是谁在哪里做什么，你可以和他们交流，并且品味他们所拥有的体验，从而能够充分利用他们作为这部分的你在当前正经历的这个环境中的进化机会。 所以作为一个多化身的时期，我也很可能在这个宇宙的某一个世界上是个穴居人，而同时在另一个地方，你是一一个跨维度的操纵者，在你原本的能量环境里监控着一切。 没错，你看这是你在最短时间内体验你想体验的一切的最好方式。 那么如果我的某些部分能够接入并体验到我的其他部分在这个宇宙的其他地方的体验，为什么还有另一些部分的？ 我比如现在正在予以沟通的这个部分，我不能接入呢，那是你个人选择的问题。 而且你也要权衡拥有这样的能力和知识，给处在那个环境的那部分的，你带来的好处。 最重要的是，这种知识会影响你试图在化身中进化成就的可信度。 因为为了让这个化身发挥最佳表现，需要与更大时相相分离，在没有预知能力的情况下，让决策的体验最大化，并让渴望体验个体化的灵魂，完全沉浸在分离个体中体验的效果最大化。 第一个重要的因素是在所有层面体验生命的潜在可能。因此，能同时以个人身份在特定事件或时代，从所有角度及从各种丰盛影响力和贡献程度来理解一个文明，从而最大限度的增加化身到物质层面所带来的进化机会。 我热切的希望能帮其他有机会阅对本文的人清楚了解，这对于他们个人来说意味着什么，这对他们有什么影响，他们应该担忧吗？ 他们应该害怕吗？他们应该兴奋吗？我觉得愿意对更大识相的可能性。 敞开胸怀的人，只会因这种知向而受到启发，那些会害怕或担忧的人，可没有准备好阅读这些文字，一开始也不会购买一本讲述这些细节的书了。 不过我们也没有必要进入更深一步的细节了，因为太复杂，只会把人搞糊涂。
+源实体：不，而且这才是一切的重点。你可以，而且确实有好几个部分同时化身于你认为必要的多个物质或维度空间中，可以是这个宇宙任何时间点的事件中，任何星系的任何星球的任何维度上。实际上，你的一部分可在现在你正处在觉知边缘的状态与我进行对话，而你的另一部分可以在另一个维度，作为另一个种族的一员，不管是转世肉身还是脱离肉身，都完全知晓你的其他所有部分是谁，在哪里，做什么。你可以和他们交流，并且品味他们所拥有的体验，从而能够充分利用他们作为这部分的你在当前正经历的这个环境中的进化机会。 
 
 ME:So it is quite possible for me as an entity to be a cave man on one world in this universe... 
 
+我：所以作为一个多化身的实体，我也很可能在这个宇宙的某一个世界上是个穴居人...
+
 SE:...and a trans-dimensional manipulator on another whilst overseeing all of it from your normal energetic environment.Of course! 
+
+源实体：...而同时在另一个地方，你是一个跨维度的操纵者，在你原本的能量环境里监控着一切。没错！
 
 You see,this was the best way possible for you to experience everything that you wanted to experience in the shortest possible time. 
 
+你看，这是你在最短时间内体验你想体验的一切的最好方式。
+
 ME:So if some parts of me are able to tap into and experience what other parts of me are experiencing in other parts of this universe,why are there other parts of me,like this part communicating with you now,which cannot? 
+
+我：那么如果我的某些部分能够接入并体验到我的其他部分在这个宇宙的其他地方的体验，为什么还有另一些部分的我，比如现在正在与你沟通的这个部分我，不能接入呢？
 
 SE:That was a matter of your personal choice.Also,you have to take into account the benefit of having such ability and knowledge would give you in the environment that that part of you is projected into.On top of this is the effect such knowledge would have on the credibility of what you are trying to achieve evolutionary-wise in an incarnation that is designed to give its best performance whilst in isolation from the greater reality,maximizing the experience of decision without precognition and the effect that it has on a soul totally immersed in separate oneness borne from the desire to experience singularity. 
 
+源实体：那是你个人选择的问题。而且你也要权衡拥有这样的能力和知识给处在那个环境的那部分的你带来的好处。最重要的是，这种知识会影响你试图在化身中进化成就的可信度。因为为了让这个化身发挥最佳表现，需要与更大实相相分离，在没有预知能力的情况下，让决策的体验最大化，并让渴望体验个体化的灵魂完全沉浸在分离个体中体验的效果最大化。
+
 Another important factor here is the potential to experience life at all levels,and, therefore,understand a civilization on an individual basis from all points of view (i.e., from all levels of affluence,influence,and contribution)within a specific event or era concurrently,thereby maximizing the opportunity to evolve given by incarnation into the physical plane. 
+
+另一个重要的因素，是在所有层面体验生命的潜在可能。因此，能同时以个人身份在特定事件或时代，从所有角度及从各种丰盛、影响力和贡献程度来理解一个文明，从而最大限度地增加化身到物质层面所带来的进化机会。
 
 ME:I am keen to give others who have the opportunity to read this text a clear picture of what this means to them personally.How does this affect them?Should they be concerned?Should they be afraid?Should they be excited? 
 
+我：我热切地希望能帮其他有机会阅对本文的人清楚了解，这对于他们个人来说意味着什么，这对他们有什么影响，他们应该担忧吗？他们应该害怕吗？他们应该兴奋吗？
+
 SE:I would not expect anyone who is open to the possibility of greater realities to be anything other than inspired by this knowledge.Those who would be afraid or concerned would not be ready to read such texts and would not be compelled to buy a book containing such details in the first place.However,there is nothing to be gained by going into further detail than we have,as the intricacies will just confuse. 
+
+源实体：我觉得愿意对更大实相的可能性敞开胸怀的人，只会因这种知晓而受到启发。那些会害怕或担忧的人，可没有准备好阅读这些文字，一开始也不会购买一本讲述这些细节的书了。不过，我们也没有必要进入更深一步的细节了，因为太复杂，只会把人搞糊涂。
 
 #### The Downside of Communicating with Other Parts of Self
 
@@ -7591,17 +7753,27 @@ SE:I would not expect anyone who is open to the possibility of greater realities
 
 ME:I just think that it would be interesting for others and myself to understand a little bit more about what it is like to be one of those beings that are both aware of the fact that other parts of their higher selves are living other lives,having other experiences and are able to tap into them to use those experiences for potential use in the environment in which they are incarnate. 
 
-我：只是觉得对其他人和我自己来说多了解一点这样一种实体的体验。 他们记明了自己高，我的其他部分在过着其他生活有着其他体验这个事实，又能在需要时直接在自己当前的化身环境中，与这些其他生活链接一定会是一件很有趣的事。 对于很多实体来说，知道这是更大实相的一部分就够了。他们不渴望或不需要与自己的其他部分保持持续的接触或沟通。 他们意识得到，但决定把精力聚焦于当前维度中的事情上。 他们知道探究他们正在经历的其他生活会分散注意力，对他们目前的化身没有太大帮助，想想你自己的状况能进入你的另一部分。 正在经历的，比如中世纪的生活，对你现在的化身有用吗？ 大概没用有这种接入你的另一部分，所经历的生活的能力，比如进入一个能够遨游时空。 而且从你们的角度来看，是没有肉体化身的文明中，能帮助你理解你自己的体验和进化，进而理解这些事，如何跟你的整个进化进程相契合吗？ 我会觉得相当有趣，但是很难。是的，你会觉得很有趣，但这会非常分心，而且可能会对你此时此刻所学的东西起相反的作用。 正因为如此，知道这个概念就行了，不用过多，了解细节，否则会对这个本不该太让人沉湎的话题琢磨过多，而不是让人有机会扩展他关于何为真实现实，或者说实相的思考。
+我：我只是觉得，对其他人和我自己来说多了解一点这样一种实体的体验，他们既明了自己高我的其他部分在过着其他生活有着其他体验这个事实，又能在需要时直接在自己当前的化身环境中与这些其他生活连接，一定会是一件很有趣的事。
 
 SE:To many entities,knowing that this is part of the greater reality is enough.They do not desire or need to be in constant contact or communication with the other parts of themselves.They are aware but decide to focus their energies on doing the jobs at hand in the dimension they are projected into.They know that delving into the other lives they are living would be a distraction and would not help them too much in their current incarnation.Consider your own situation.Would being able to tap into a life that another part of you is having,say,in the Middle Ages,be useful to you in your current incarnation? 
 
+源实体：对于很多实体来说，知道这是更大实相的一部分就够了。他们不渴望或不需要与自己的其他部分保持持续的接触或沟通。他们意识得到，但决定把精力聚焦于当前维度中的事情上。他们知道，探究他们正在经历的其他生活会分散注意力，对他们目前的化身没有太大帮助。想想你自己的状况，能进入你的另一部分正在经历的，比如中世纪的生活，对你现在的化身有用吗？ 
+
 ME:Probably not. 
+
+我：大概没用。
 
 SE:Would being able to tap into a life that another part of you is having,say,in a civilization that is not only space and time faring but disincarnate from your perspective,be able to help you in understanding your own experiences and evolution,and how it fits into the whole evolution of the whole being that is you? 
 
+源实体：有这种接入你的另一部分所经历的生活的能力，比如进入一个能够遨游时空而且从你们的角度来看没有肉体化身的文明中，能帮助你理解你自己的体验和进化，进而理解这些是如何跟你的整个进化进程相契合吗？ 
+
 ME:I would find it interesting but difficult.
 
+我：我会觉得相当有趣，但是很难。
+
 SE:Yes,you would find it interesting,but it would be a major distraction and one that could negate your learning in the here and now.It is for this reason that it is best to be aware of the concept but not of the details as this sensationalizes the parts of this dialogue that should not be dwelled on too long,other than to present the individual with the opportunity to expand his/her thought processes on what reality is.
+
+源实体：是的，你会觉得很有趣，但这会非常分心，而且可能会对你此时此刻所学的东西起相反的作用。正因为如此，知道这个概念就行了，不用过多了解细节，否则会对这个本不该太让人沉湎的话题着墨过多，而不是让人有机会扩展他关于何为真实现实/实相的思考。
 
 ### Chapter 20 - Illness 
 
@@ -7609,19 +7781,31 @@ SE:Yes,you would find it interesting,but it would be a major distraction and one
 
 Being trained in a couple of healing techniques,such as Reiki and energy-based healing (Brennan Healing Science)from one of Dr.Barbara Brennan's direct students,who also provided a significant amount of content of the course based upon the work of John and Eva Periakos,I was aware of how dysfunctional thoughts can cause energy-based dysfunction which affects the human body physically.I had also seen how other more open-minded physicians were recognizing and advocating the knowledge that some physical ailments are manifested from energetic or psychologically induced conditions. 
 
-我曾接受过大量的疗愈技术的训练，比如灵气以及一种从芭芭拉布兰能的一个直系学生那里学到的能量疗法，或者说布兰能疗法，他还提供了大量基于约翰和伊瓦皮拉克斯的课程内容。 因此，我明白扭曲的思想如何能造成能量层面的功能障碍，从而影响人的物质身体从也见过其他一些更加开明的医生或可并宣传这方面的医识，也就是某些身体病痛的显现，其实是由于能量或心理状况所导致的。 我之所以会想起这件事，是因为我最近受到背痛的折磨，都两个月了还没好，我得承认。 虽然作为一个好动的人，我并没有完全给他自我疗愈的机会。但是尽管如此，我却不能把这疼痛归咎于我做的锻炼，正好有人给了我一本约翰萨诺医生的书和一张光盘，他的书里专门讲到背痛，实际上是我们孩童时期的心理状况造成的，而且那个小孩仍然存在于我们的无意识之中。 我开始来了兴趣，我看了那张光盘和书里的相关章节，果然我的背痛在一个周内就消失了。 此外，有一次在我去上班前在做晨间冥想时，我接收到一条信息，就是要为这本书写一个关于疾病的简短章节，经过几天的思考，我照常把这个主题交给原实体进行讨论。 哦，我不得不说，我有点诧异，我们竟然还没有讨论过。这个。其实我们提到过一点点，我们谈到过不同的实体，为了体验而占据同一个肉身，他们之间的互动会导致出现身体问题。 我们确实谈过，只是如此重要的一个问题。我很惊讶，他竟然成了被留到这本书，最后才谈论的话题之一。 我猜这是因为很多情，其他人已经就这个问题出过书了。
+我曾接受过大量的疗愈技术的训练，比如灵气（Reiki）以及一种从芭芭拉·布兰能（Barbara Brennan）的一个直系学生那里学到的能量疗法，或者说布兰能疗法。他还提供了大量基于约翰（John）和伊瓦·皮拉克斯（Eva Periakos）的课程内容。因此，我明白扭曲的思想如何能造成能量层面的功能障碍，从而影响人的物质身体。我也见过其他一些更加开明的医生认可并宣传这方面的知识，也就是某些身体病痛的显现其实是由于能量或心理状况所导致的。
 
 I was pondering upon this as I had recently been experiencing a bad back,which was not getting better even after two months!I have to admit though that,as an active person,I was not totally giving it the chance to heal itself,but,nevertheless,I could not attribute the exercise I was doing to the pain I was feeling.Hence,when I was given a book and a DVD by a John E.Sarno,MD who had specifically written about how backache was essentially born from psychological conditions that we have carried with us as a child,and that "child was still with us in our unconscious,"I started to take interest.I watched the DVD and read the relevant parts of the book and bingo,my back problem disappeared within a week.
 
+我之所以会想起这件事，是因为我最近受到背痛的折磨，都两个月了还没好。我得承认，虽然作为一个好动的人，我并没有完全给它自我疗愈的机会。但是，尽管如此，我却不能把这疼痛归咎于我做的锻炼。正好，有人给了我一本约翰·萨诺（John E.Sarno）医生的书和一张光盘，他的书里专门讲到背痛实际上是我们孩童时期的心理状况造成的，而且那个小孩仍然存在于我们的无意识之中。我开始来了兴趣，我看了那张光盘和书里的相关章节，果然我的背痛在一周内就消失了。
+
 Additionally,I was doing one of my morning meditations before I went to work when I got the message to write a short chapter for this book,one on illness.After a couple of days thinking about it,I did the usual and offered the subject up to the Source Entity for discussion. 
+
+此外，有一次在我去上班前在做晨间冥想时，我接收到一条信息，就是要为这本书写一个关于疾病的简短章节。经过几天的思考，我照常把这个主题交给源实体进行讨论。
 
 SE:Well,I have to say that I am a little bit aghast that we have not already discussed this. 
 
+源实体：哦，不得不说，我有点诧异，我们竟然还没有讨论过这个。
+
 ME:Well,we have-to a smaller degree.We have talked about physical issues,resulting from the interaction of different entities occupying the same physical body for experiential purposes. 
+
+我：其实我们提到过一点点，我们谈到过不同的实体为了体验而占据同一个肉身，他们之间的互动会导致出现身体问题。
 
 SE:Indeed we have,but this is such a fundamental issue that I am surprised it is one of the last subjects to be discussed in this book. 
 
+源实体：我们确实谈过，只是如此重要的一个问题，我很惊讶它竟然成了被留到这本书最后才谈论的话题之一。
+
 ME:I suppose it is because many other people have already published on the subject. 
+
+我：我猜这是因为很多其他人已经就这个问题出过书了。
 
 #### The Role of Pain in Getting Us Back on Track 
 
@@ -7629,17 +7813,27 @@ ME:I suppose it is because many other people have already published on the subje
 
 SE:Mmm,not convinced.O.K.,let's look at this from a different angle. 
 
-源实体：不太有说服力。好吧，我们从另一个角度看看这个问题吧，作为一个能量体，你能自由自在的做，你想做的事，没有人会干涉你。 但是作为一个转世，在物质身体中的能量体，你会被其他人的低频思想产生的很多较低的频率所影响，结果就是你会受到情绪矛盾的影响。 这些矛盾极为微妙，你的潜意识几乎无法觉察到潜意识和无意识心智识。 基于第二和第三层能量，灰光场的理性思维无法被潜意识。 立马察觉到这两个层级的认知作用都与身体和潜意识相连。 由于他们存在于不同的能量层，所以不能被潜意识。你作为能量实体的最低认知功能所识别或了解。 因此，当你经历某事时，潜意识会记录下对所经历活动的逻辑反应，而无意识和潜意识会把交流情感共情等更高功能上的情感体验记录下来。 潜意识把体验合理化为令人向往的享受的和有教育意义的世俗的，然而却始终是进化过程的一部分。 注意它无所谓好坏，它只是经验性的，而无意识与潜意识则在必要性与和异性的更加精微的维度上，将这种体验合理化，正是这两者对人类身体有着最大的影响。 因为他们携带着在完整能量自我与较小化身自我之间交流的更大机会。 这些层级的交流涉及身体而非心智功能。因此，在正确的时间采取正确的行动时，已产生感觉良好的因素，也就是不去逆流而行。 因此，他们可以被归类为当行动方向与计划相符或不相符时，物质身体所发生的一种非理智或非逻辑的自动反应。 这个计划是指在转世前选择的进化机会，以以及经历这些机会的最佳时刻，沿着正确的道路做正确的事会带来从肉体的角度看来，一种无法描述的完满的感觉，而沿着错误的或非最佳道路行进的后果。 这会带来身体上的疲惫和迟缓的感觉。这还会造成情绪上的问题，比如恐惧，他是没有按照事先规划好的道路走的直接产悟。 这通常显现为身体上的不适，这是最佳的描述方式。因为这是能量自我，让化身自我知晓所传递信息的最有效的方法，告诉他，有些事情偏离了计划，转世机会没有得到最大选择。 这一般是直接指向某些方面的行为和相关选择，这是化身实体与能量部分保持联系的那部分会尽最大努力警告潜意识去解决手头上的问题。 这时与这个体验相关的感觉或情绪就会被释放出来，而造成痛苦。 尤其于是，当情绪积存太久时，以促使潜意识注意到手头上的问题，这些痛苦的感觉往往过于巨大，以至于有些化身难以承受。 于是就会以能量的形式被肉体所吸收，被吸收后就会产生能量的不和谐，这会影响到身体器官的正常功能，以及称为灰光场或者说气场的更高能量界面相关的潜在能量流和能量互动能量紊乱，会导致物质身体的功能紊乱以及疾病疼痛。 这是因为物质身体的功能正在与紊乱的能量相抗衡，可以把它想象成试图接收，注重能量，却被应塞给了一个立方体的能量。
+源实体：不太有说服力。好吧，我们从另一个角度看看这个问题吧。
 
 As an energetic entity,you are free to do what you will with no one else interfering with your work.However,as an energetic entity incarnate in a physical body,you are influenced by many lower frequencies that are created by the lower thoughts of others. As a result,you are subject to emotional contradictions,which are so subtle that they are barely detectable with the conscious mind.The sub-conscious and the un-conscious mind is rational thought that is based upon the second and third energy/auric levels and is,therefore,not immediately accessible by the conscious.These two levels of cognitive application are both tied in with the physical body and the conscious mind.Due to their existence on a different energetic level,they are not recognized or accessed by the conscious mind,the lowest cognitive application of you as an energetic entity. 
 
+作为一个能量体，你能自由自在地做你想做的事，没有人会干涉你。但是作为一个转世在物质身体中的能量体，你会被其他人的低频思想产生的很多较低的频率所影响。结果就是你会受到情绪矛盾的影响，这些矛盾极为微妙，你的潜意识几乎无法觉察到。潜意识和无意识心智是基于第二和第三层能量/辉光场的理性思维，无法被显意识立马察觉到。这两个层级的认知作用都与身体和显意识相连，由于它们存在于不同的能量层，所以不能被显意识，你作为能量实体的最低认知功能所识别或了解。
+
 As a result when you experience something,the conscious mind logs the logical response to the activity experienced;the un-conscious and sub-conscious log the emotional aspects of the experience on the higher functions of communication,emotion,and empathy.The conscious mind rationalizes the experiences as desirable (enjoyed)and educational(mundane but,nevertheless,part of the evolutionary process).Notice it's not good or bad;it's merely experiential whist the unconscious and subconscious rationalizes the experience in the more subtle dimensions of necessity and desirability. 
+
+因此，当你经历某事时，显意识会记录下对所经历活动的逻辑反应，而无意识和潜意识会把交流、情感、共情等更高功能上的情感体验记录下来。显意识把体验合理化为令人向往的、享受的、有教育意义的、世俗的，然而却始终是进化过程的一部分。注意它无所谓好坏，它只是经验性的。而无意识与潜意识则在必要性与合意性的更加精微的维度上将这种体验合理化。
 
 It is these two that have the biggest influence on the human body as they carry the greater opportunity for communication between the fully energetic self and the smaller incarnate self.These levels of communication involve functions of the body other than mind,and,as a result,create the feel good factor associated with going down the right course of actions at the right time,i.e.,not going against the grain or flow.As a result they can be classified as an irrational or illogical autonomic response made by the physical body when a course of action is correct to the plan or NOT correct to the plan-the plan being the evolutionary opportunities and the optimal time for experiencing these opportunities as chosen before the incarnation. 
 
+正是这两者对人类身体有着最大的影响，因为它们携带着在完整能量自我与较小化身自我之间交流的更大机会。这些层级的交流涉及身体而非心智功能。因此，在正确的时间采取正确的行动时，以产生感觉良好的因素，也就是不去逆流而行。因此，他们可以被归类为当行动方向与计划相符或不相符时，物质身体所发生的一种非理智或非逻辑的自动反应。这个计划是指在转世前选择的进化机会以及经历这些机会的最佳时刻。
+
 The result of following the correct path with the correct actions is an indescribable(from an incarnate perspective)feeling of well-being.The result of following the wrong path or one that is seen as not optimal will result in the body feeling sluggish and laggard.It will also create emotional conditions,such as fear,which is a direct product of not following the correct path previously drawn up.This is usually manifested as physical discomfort (this is the best way to describe this as it is a most useful way for the energetic self to get the message home to the incarnate self that something is not going according to plan and that the incarnate opportunity is not going to be maximized).This is usually very directly aimed at certain areas of activity and the choices associated with them. 
 
-The result is that the part of the incarnate entity that is in contact with the energetic part tries its best to alert the conscious mind to address the job at hand.When the job at hand is recognized,the feelings,the emotional content that is associated with the experience, are released causing distress,especially if they are left to store for too long.These distressing feelings are usually too much to experience in the limited incarnate state so they are absorbed energetically by the physical body.As a result of being absorbed, they introduce energetic disharmonies,which affect the underlying energy flow and interaction of the energies associated with the normal function of the organs of the body and the higher energetic interfaces that you call auric levels.This energetic dysfunction causes physical dysfunction and disease/pain as the function of the physical body is fighting against the dysfunctional energies.Try to think of it as trying to receive energy in the shape of a cylinder when it is being forcibly presented to you in the shape of a cube. 
+沿着正确的道路做正确的事会带来从肉体的角度看来一种无法描述的完满的感觉；而沿着错误的或非最佳道路行进的后果，会带来身体上的疲惫和迟缓的感觉。这还会造成情绪上的问题，比如恐惧，它是没有按照事先规划好的道路走的直接产物， 这通常显现为身体上的不适。这是最佳的描述方式，因为这是能量自我让化身自我知晓所传递信息的最有效的方法，告诉它有些事情偏离了计划，转世机会没有得到最大利用。这一般是直接指向某些方面的行为和相关选择。
+
+The result is that the part of the incarnate entity that is in contact with the energetic part tries its best to alert the conscious mind to address the job at hand.When the job at hand is recognized,the feelings,the emotional content that is associated with the experience, are released causing distress,especially if they are left to store for too long.These distressing feelings are usually too much to experience in the limited incarnate state so they are absorbed energetically by the physical body.As a result of being absorbed, they introduce energetic disharmonies,which affect the underlying energy flow and interaction of the energies associated with the normal function of the organs of the body and the higher energetic interfaces that you call auric levels.This energetic dysfunction causes physical dysfunction and disease/pain as the function of the physical body is fighting against the dysfunctional energies.Try to think of it as trying to receive energy in the shape of a cylinder when it is being forcibly presented to you in the shape of a cube.
+
+于是化身实体与能量部分保持联系的那部分会尽最大努力警告潜意识去解决手头上的问题，这时与这个体验相关的感觉或情绪就会被释放出来而造成痛苦。尤其是当情绪积存太久时，以促使潜意识注意到手头上的问题。这些痛苦的感觉往往过于巨大，以至于有些化身难以承受，于是就会以能量的形式被肉体所吸收，被吸收后就会产生能量的不和谐，这会影响到身体器官的正常功能，以及称为辉光场/气场的更高能量界面相关的潜在能量流和能量互动。能量紊乱会导致物质身体的功能紊乱以及疾病、疼痛。这是因为物质身体的功能正在与紊乱的能量相抗衡，可以把它想象成试图接收柱状能量，却被硬塞给了一个立方体的能量。
 
 #### Correcting/Removing Pain 
 
@@ -7647,21 +7841,35 @@ The result is that the part of the incarnate entity that is in contact with the 
 
 Me:So this is what pain is and how we get it. 
 
-我：所以这就是疼痛是什么？以及它是怎么来的？简单来说是的，那么我们该如何修正它呢？ 通过调频到这个疼痛，尝试去了解为什么会有这个疼痛，要想这么做，你就不能忽略任何显现给你的图像。 因为那个功能失调可能延续了从几分钟至几十年，甚至是几辈子之久。 一旦被认知到能量流就被修正了，也就不再被物质身体所吸收，也就不再需要通过扰乱身体来警告潜意识有失常情况，这样就可以恢复正常了，你就可以无病无痛的在物质世界继续顺流前行了，这个管用吧，管用相当管用。 那么一般的疾病呢，一般疾病怎么了？那面讲的对，它也适用。
+我：所以这就是疼痛是什么？以及它是怎么来的？
 
 SE:That's it in a nut shell. 
 
+源实体：简单来说，是的。
+
 ME:So how do we correct it? 
+
+我：那么我们该如何修正它呢？
 
 SE:By tuning into the pain and trying to understand why it is there.To do this,you must not dismiss any images that come to you,for the dysfunction may be a couple of minutes old to decades or lifetimes old.Once recognized,the flow of energy is corrected,and it is no longer absorbed by the physical body,thereby relieving the need to alert the conscious mind of the abnormality via physical disturbance.Normality is,therefore, resumed,and you go with the flow again moving forward in the physical world without physical pain. 
 
+源实体：通过调频到这个疼痛，尝试去了解为什么会有这个疼痛。要想这么做，你就不能忽略任何显现给你的图像。因为那个功能失调可能延续了从几分钟至几十年，甚至是几辈子之久。一旦被认知到，能量流就被修正了，也就不再被物质身体所吸收，也就不再需要通过扰乱身体来警告显意识有失常情况。这样就可以恢复正常了，你又可以无病无痛地在物质世界继续顺流前行了。
+
 ME:And this works. 
+
+我：这个管用吧。
 
 SE:This works!Very well! 
 
+源实体：管用，相当管用。
+
 ME:So what about disease in general?
 
+我：那么一般的疾病呢？
+
 SE:What about it?It applies to the comments above. 
+
+源实体：一般疾病怎么了？上面讲的对它也适用。
 
 #### Challenges of Higher Energetic Frequency Individuals in Low Energetic Frequency Environments 
 
@@ -7669,9 +7877,11 @@ SE:What about it?It applies to the comments above.
 
 ME:But there must be other reasons why we get ill other than those created by energetic disharmony. 
 
-我：但是除了能量失调之外，肯定还有别的使我们生病的原因没有了，所有的疾病都来源于能量上的协调问题。 听我说，我想我明白你要说什么疾病，永远都是能量失调的产物。 然而，它也可能是由于处在与你不相协调的能量层级里引起的。 举个例子，如果你所在的人类载具的能量系统本来是为了生活在较高能量频率而设计的。 而你所处的周围环境的频率就比理想状态要低。那么你的能量身体和物质身体之间就不协调了，物质身体能够在一定程度上应对这种不和谐，而且仍然表现出功能正常。 也就是说，身体的脉轮和器官有一个可以正常工作的容许的这种功能正常的表象可以持续若干年，有时会是几十年，但最终这种不和调会开始让你付出代价。 身体中最不能应对能量，处于容许度极限的那个器官将会开始失常，可以把这个看作是一个电动机被不断的无规律的开关开关，反电动式的破坏，导致电机功能退化，最终产生故障。 如果某些器官衰竭就会造成人体死亡。
+我：但是除了能量失调之外，肯定还有别的使我们生病的原因。
 
 SE:No,it all comes from energy-based harmony issues.Listen,I think I understand what you are getting at now.Illness is always a product of energy dysfunction.However,it is also a product of being in an energy level to which you are not attuned.For instance, if you are in a human vehicle whose energy system is designed to exist in a higher energetic frequency and the ambient frequency that you find yourself in is lower than the desired frequency,then the harmonics between the energetic and physical bodies will be incorrect.The physical body can cope to a certain level with this level of disharmony and will appear to function as normal,i.e.,the body's chakras and organs have a tolerance within which they can work.This appearance of correct functionality can exist for years,sometimes tens of years,but eventually the disharmonies will start to take their toll.The organs of the body that are least able to cope with the energies that are at the lower end of the tolerance will start to fail.Consider it like an electric motor being switched on,off,on,off constantly but irregularly.The back EMF (electromotive force)causes damage resulting in degradation of the motor's functionality,which eventually leads to failure.With some organs in the physical human body,this failure can result in its demise. 
+
+源实体：没有了，所有的疾病都来源于能量上的协调问题。听我说，我想我明白你要说什么。**疾病永远都是能量失调的产物**。然而，它也可能是由于处在与你不相协调的能量层级里引起的。举个例子，如果你所在的人类载具的能量系统本来是为了生活在较高能量频率而设计的，而你所处的周围环境的频率就比理想状态要低，那么你的能量身体和物质身体之间就不协调了。物质身体能够在一定程度上应对这种不和谐，而且仍然表现出功能正常。也就是说，身体的脉轮和器官有一个可以正常工作的容许度。这种功能正常的表象可以持续若干年，有时会是几十年，但最终这种不协调会开始让你付出代价，身体中最不能应对能量处于容许度极限的那个器官将会开始失常。可以把这个看作是一个电动机被不断的无规律的开、关、开、关，反电动式的破坏导致电机功能退化，最终产生故障。如果某些器官衰竭就会造成人体死亡。
 
 #### Chakra and Organ Transplants 
 
@@ -7679,7 +7889,7 @@ SE:No,it all comes from energy-based harmony issues.Listen,I think I understand 
 
 Organ failure can also be attributed to chakra failure when the chakra affecting the energy regulation of the physical organ associated with it no longer performs its function.The physical organ also ceases to perform its function,again resulting in the demise of the physical body.The only way out of this is the transplanting of a new chakra and quite possibly a physical organ at the same time although if caught in time the chakra transplant can reverse the energetic damage of the physical organ.Interestingly enough,the rejection issues your doctors have encountered with some of the more major organs are related to the further energetic disharmonies created by the replacement of a physical organ without the associated original chakra also being transplanted.If this were known by your doctors,they would see the need to work side by side with energy healers who could perform transplants of the correct chakra associated with the donor organ.An added bonus is that they would no longer need to have immuno-suppressant drugs administered to the patients post organ transplant because the organs would not be rejected by the body's energy system,for all would be in harmony. 
 
-器官衰竭，也可能是由于脉轮失效，也就是影响某物质肉体器官能量调整的脉轮不再工作了。 于是物质器官也就停止了工作，导致物质身体的死亡。唯一的补救措施是移植一个新的脉轮，同时也很可能需要一个新的肉体器官。 不过如果治疗及时移植的脉轮，可以修复物质器官的能量损坏。 有趣的是你们的医生所遇到的某些主要器官的排异反应，同时是指移植了物质器官，而没有移植相应脉轮，所以造成了进一步的能量失调。 如果你们的医生能够认识到这一点，就会明白需要与能量疗愈师合作，后者可以移植跟捐献器官相匹配的脉轮，这样做的附加好处是他们不再需要让器官移植术后的病人吃抑制免疫力的药了。 因为一切都是和谐的身体的能量，系统不会排斥新的器官了。
+器官衰竭也可能是由于脉轮失效，也就是影响某物质肉体器官能量调整的脉轮不再工作了。于是，物质器官也就停止了工作，导致物质身体的死亡。唯一的补救措施是移植一个新的脉轮，同时也很可能需要一个新的肉体器官。不过如果治疗及时，移植的脉轮可以修复物质器官的能量损坏。有趣的是，你们的医生所遇到的某些主要器官的排异反应，其实是移植了物质器官而没有移植相应脉轮，所以造成了进一步的能量失调。如果你们的医生能够认识到这一点，就会明白需要与能量疗愈师合作，后者可以移植跟捐献器官相匹配的脉轮。这样做的附加好处是，他们不再需要让器官移植术后的病人吃抑制免疫力的药了。因为一切都是和谐的，身体的能量系统不会排斥新的器官了。
 
 #### The Rule of Longevity 
 
@@ -7687,7 +7897,7 @@ Organ failure can also be attributed to chakra failure when the chakra affecting
 
 In essence,physical illness and demise is the result of the gradual damage caused by lower frequencies in your environment.The rule of longevity is that the lower the ambient frequency,the shorter the lifespan of the human vehicle.In its current state of creation,the human vehicle is not designed to be used in the lower frequencies that the Earth is currently experiencing.The human body was designed to work within energies of a much higher level,which allowed it to exist for the thousands of years it was originally designed for.The proof of this is in front of your face.Just look for the cities around the world where people are low of spirit,and you will see people of low life spans. Where people exist in areas where they are high in spirit,they live much longer.Raising the frequency of the Earth is the only solution to removing disease,dysfunction,and early demise of the physical form. 
 
-从本质上说，物质身体的疾病和死亡，是由于你们环境的低频率所造成的渐渐是损坏。 寿命的规律是周围频率越低，人体寿命越短。在创造的当前阶段，人体不是为地球现在所处的低频率而设计的人体本来是为了在高很多的能量层级而设计的。 在那个能量层级下，人体按照原先的设计可以存活几千年。 这个证据就在你们眼前看看世界上那些人们精神堕落的城市，你就会发现那里的人短寿。 而在人们精神高尚的地区，他们的寿命就会长很多，提高地球频率，是消除疾病功能障碍和肉体早逝的唯一解决办法。
+从本质上说，物质身体的疾病和死亡是由于你们环境的低频率所造成的渐进式损坏。寿命的规律是**周围频率越低，人体寿命越短**。在创造的当前阶段，人体不是为地球现在所处的低频率而设计的，人体本来是为了在高很多的能量层级而设计的。在那个能量层级下，人体按照原先的设计可以存活几千年。这个证据就在你们眼前，看看世界上那些人们精神堕落的城市，你就会发现那里的人短寿。而在人们精神高尚的地区，他们的寿命就会长很多。提高地球频率是消除疾病、功能障碍和肉体早逝的唯一解决办法。
 
 #### I Am Part of God 
 
@@ -7695,13 +7905,19 @@ In essence,physical illness and demise is the result of the gradual damage cause
 
 ME:So how do I know that I am part of God/the Source/the Origin?I have no one telling me that I am part of God. 
 
-我：那么我怎么才能知道我是神源头起源的一部分呢？ 没有人告诉过我，我是神的一部分，你由我来告诉你，可是我怎么知道你是真实的。 如果你是真的肯定，所有人都会熟知你这完全取决于进化和截知程度，只有那些足够进化的人，才能认识到更大的实像。 他们知道我他们是存在于一起的。
+我：那么我怎么才能知道我是神/源头/起源的一部分呢？没有人告诉过我我是神的一部分。
 
 SE:You have Me telling you. 
 
+源实体：由我来告诉你。
+
 ME:But how do I know You are real?Surely if You were real,everyone would know You intimately. 
 
+我：可是我怎么知道你是真实的？如果你是真的，肯定所有人都会熟知你。
+
 SE:It is all about evolution and awareness.Only those who are evolved enough are aware of the greater reality.They know I/they exist together.
+
+源实体：这完全取决于进化和觉知程度。只有那些足够进化的人才能认识到更大的实相。他们知道我/他们是存在于一起的。
 
 #### Communicating with the Cells in Our Bodies 
 
@@ -7709,13 +7925,19 @@ SE:It is all about evolution and awareness.Only those who are evolved enough are
 
 ME:But surely a God that is so big would not be able to communicate with Its lower parts. For instance,I cannot talk to the two cells in my liver that are exchanging oxygen and nutrition with the rest of my body.I simply don't know how to do so.I doubt if these two cells know that I exist as their "God." 
 
-我：但是如此宏大的神肯定没办法和较低级的部分交流。 比如我无法跟我肝脏里正与其他身体部分交换氧气和氧分的两个细胞交谈，我完全不知道该如何与他们交谈？ 我怀疑那两个细胞是否知道我作为他们的神的存在。第一，如果你真的想你就可以跟他们交谈。 因此他们知道你的存在，因为他们是专门为你物质身体的利益而工作的细胞可比，你想象的更智能。 还记得吧？他们是由RNA传给DNA的指令，直接创造的RNA跟你的灵体有着不间断的联系细胞。 通过RNA，从灵体接收下一步该做什么的指令任务完成后，再把信息传回灵体。 因此他们与灵体有持续的接触，而你的理智却没有。因为你总被你周围发生的事情分析。 所以你跟自我我交流的能力被削弱，甚至被忽略了。你这话不是认真的吧，我怎么能跟我的身体在细胞的层次进行交流。 如果不用显微镜的话，我的肉眼都看不到细胞。
+我：但是，如此宏大的神肯定没办法和较低级的部分交流。比如，我无法跟我肝脏里正与其他身体部分交换氧气和氧分的两个细胞交谈，我完全不知道该如何与他们交谈？我怀疑那两个细胞是否知道我作为他们的神的存在。
 
 SE:One,you could talk to them if you really wanted,and two,they know you exist because they work specifically for the benefit of your physical body. 
 
+源实体：第一，如果你真的想，你就可以跟他们交谈。第二，他们知道你的存在，因为他们是专门为你物质身体的利益而工作的。
+
 Cells are more intelligent than you think.Remember,they are created directly from the commands given to the DNA from the RNA,which is in continuous contact with your spiritual energy bodies.They use the RNA to receive commands from Spirit on what to do next and communicate back to Spirit when they have finished their task.As a result of this,they are in contact with Spirit on a continuous basis,which your intellect is not because you are distracted by the other things that go on around you.Hence,your ability to talk to your self is diminished or even ignored. 
 
+细胞可比你想象的更智能。还记得吧？他们是由RNA传给DNA的指令直接创造的。RNA跟你的灵体有着不间断的联系，细胞通过RNA从灵体接收下一步该做什么的指令，任务完成后再把信息传回灵体。因此，他们与灵体有持续的接触，而你的理智却没有，因为你总被你周围发生的事情分心。所以你跟自我交流的能力被削弱，甚至被忽略了。
+
 ME:You can't be serious about this!How can I communicate with my body at a cellular level?I can't even see cells with my bare eyes without the use of a microscope. 
+
+我：你这话不是认真的吧，我怎么能跟我的身体在细胞的层次进行交流？如果不用显微镜的话，我的肉眼都看不到细胞。
 
 #### Seeing the Cells in Our Bodies
 
@@ -7723,19 +7945,31 @@ ME:You can't be serious about this!How can I communicate with my body at a cellu
 
 SE:I am deadly serious.All you need to do is focus on an area of your body with your mind's eye and zoom into that area.Most of the time your communication will be the same as we are doing here,communicating by talking in your mind.But when you get better at concentrating and shutting out the distractions of the physical world,you will even be able to see these cells and appreciate the surface of them to the point where you can see the communication interactions of the cells and the RNA and how the cell changes its shape,how the color of its outer surface changes,and how it grows/ creates different types of tendrils that have different shapes and,therefore,different specialties.You will see these tendrils come and go from the surface of the cell as they are reabsorbed back into the body of the cell when they have finished the job they were doing.You will marvel in the beauty of the work they do and the efficiency in which they perform their work. 
 
-源实体：我是非常认真的，你只需要用你一实验聚焦在身体的一个部分，并放大那个部分。 多数时候你的交流就像我们现在做的一样，通过你的意念交流。 而当你能更集中精力屏蔽掉物质世界里分馨的事情，你甚至可以看到这些细胞并欣赏他们的样子，直至看到细胞与RNA之间的交流互动，看到他们如何变形，如何变换表面的颜色，如何生长，创造出各种不同形状不同特性的卷息，你会看到这些卷息在细胞表面忽隐忽现。 因为当他们完成了任务后，就会被细胞体收回。你会惊叹于他们所做工作的美丽与效率。 我刚刚看到了，你描述的景象太奇妙了。当科学家们用电子显微镜或高精度光学显微镜研究细胞时，他们能看到我刚看到的你所描述的这些吗？ 有时候能他他们倾向于看到他们想看到的这会把他们局限在时间中的一点。 这意味着他们只看到了这些细胞，变成了做某事所需要的交流。媒介时的样子，他们没有停留足够长的时间，看不到通信卷息发生变化，他们只看到了细胞的认知卷息。 我觉得他们能看到，因为他们有时会用胶片拍摄细胞的分裂或突变。 是的，他们是拍了，但是我说的卷息式亚原子级别的用电子显微镜很难看到，除非他们知道他们在看什么。 另外他们用电子显微镜观察到的运动或变化的记录方式并不完善。 我觉得这些还是不够有说服力可能吧，但这是真的要知道，如果放在四百年前，那些使用比空气重的机器飞行的人会被称为巫师会议教徒。 但是今天这件事已经被大家习以为常了。
+源实体：我是非常认真的，你只需要用你的意识眼聚焦在身体的一个部分，并放大那个部分。多数时候你的交流就像我们现在做的一样，通过你的意念交流。而当你能更集中精力屏蔽掉物质世界里分心的事情，你甚至可以看到这些细胞，并欣赏他们的样子，直至看到细胞与RNA之间的交流互动，看到他们如何变形，如何变换表面的颜色，如何生长，创造出各种不同形状、不同特性的卷须。你会看到这些卷须在细胞表面忽隐忽现，因为当它们完成了任务后就会被细胞体收回。你会惊叹于它们所做工作的美丽与效率。
 
 ME:I just got an image of what you were just describing.It's fantastic.When scientists are studying cells with electron microscopes and other high powered optics,do they see what I just saw and what you were describing? 
 
+我：我刚刚看到了你描述的景象，太奇妙了。当科学家们用电子显微镜或高精度光学显微镜研究细胞时，他们能看到我刚看到的你所描述的这些吗？
+
 SE:Sometimes.They tend to see what they want to see and that tends to hold them at a point in time.This means that they only see the cells when they have changed into the communication medium required to perform a job.They don't stay long enough at the level required to see the changes happen with the COMMUNICATION tendrils.They only see the cell RECOGNITION tendrils.
+
+源实体：有时候能。他们倾向于看到他们想看到的，这会把他们局限在时间中的一点。这意味着他们只看到了这些细胞变成了做某事所需要的交流媒介时的样子，他们没有停留足够长的时间，看不到通信卷须发生变化，他们只看到了细胞的认知卷须。 
 
 ME:I thought that they would since they sometimes use film to record cells dividing or mutating. 
 
+我：我觉得他们能看到，因为他们有时会用胶片拍摄细胞的分裂或突变。
+
 SE:Yes,they do,but the tendrils I am talking about are on the sub-atomic levels.This is difficult to see with electron microscopes unless they know what they are looking at, and they have not yet perfected recording what they are seeing moving or changing through an electron microscope. 
+
+源实体：是的，他们是拍了，但是我说的卷须是亚原子级别的，用电子显微镜很难看到，除非他们知道他们在看什么。另外，他们用电子显微镜观察到的运动或变化的记录方式并不完善。
 
 ME:This all sounds a bit marginal to me. 
 
+我：我觉得这些还是不够有说服力。
+
 SE:Maybe,but it's true.Remember people who fly in heavier than air machines would have been called witches or heretics 400 years ago,but today it is accepted as an everyday occurrence. 
+
+源实体：可能吧，但这是真的。要知道，如果放在四百年前，那些使用比空气重的机器飞行的人会被称为巫师或异教徒。但是今天这件事已经被大家习以为常了。
 
 #### Cancer Cells 
 
@@ -7743,21 +7977,35 @@ SE:Maybe,but it's true.Remember people who fly in heavier than air machines woul
 
 ME:O.K.,O.K.I have a question on cancer cells. 
 
-我：好吧好吧，我有个关于癌细胞的问题。好的，问吧，如果细胞随时都在通过RNA与灵体接触，那么癌细胞是如何形成甚至存在的呢？ 即使是癌细胞，也与你的灵性能量有联系。他们跟所谓的好细胞一样，也是按照知识行动，但不同之处是他们是听从灵体，只是去做错事的细胞。 实质上，你在物质层面的互动影响着高层级灵性能量的频率不调整，这导致发往那些细胞的指令的转移混乱，使他们行为异常。 在这种情况下，可能是细胞在该分解的时候不分解或者未做某件工作，制造出多于所需的细胞，甚至是攻击已知的好细胞。 这就有点像你开着车直接去撞墙。你在正常情况下可不会这么做的对吧？ 那么灵体怎么会只是细胞去做措施呢？我以为灵体是纯洁的，因为和物质身体的互动，破坏了能量的和谐流动，改变了它的含义或目的。 这是由于转世到人体的那部分，你对你遭遇的情况产生不良反应的结果。 你的不良反应是因为你位于灵体调整，于是也就看不到导致一切发生的过程中的美。 也就是说，你不会接受并从中学习，相反你拒绝并觉的受够了。 如果能把这情形当做一个学习机会来接受会产生顺畅的能量流，但现在能量流被中断了，于是产生了稠密的能量，阻碍了流动，甚至改变了能量特性，也就改变了传递过来的信息。 所以你是说我创造了我自己的癌症。是的，但如果你与宇宙灵体，我相和谐，你就不会创造出它了。 
+我：好吧，好吧，我有个关于癌细胞的问题。
 
 SE:Go ahead;ask away. 
 
+源实体：好的，问吧。
+
 ME:If cells are constantly in contact with Spirit via the RNA,how do cancer cells form or even exist? 
+
+我：如果细胞随时都在通过RNA与灵体接触，那么癌细胞是如何形成甚至存在的呢？
 
 SE:Even cancer cells are in contact with your spiritual energies,and they do as they are told,the same as so-called "good"cells.However,the difference here is that they are cells that have been told to do the wrong things by Spirit.In essence,the interactions you have within the physical levels affect the frequencies and modulation of spiritual energies in the higher levels.This causes confusion in translation of the commands sent to the cells in question and makes them do things that they wouldn't normally do.In this instance,it could be not disintegrating when it is supposed to or creating more of itself than is required to do a particular job or even attacking known good cells.It's a bit like you getting into your car and driving it straight into a wall.You wouldn't normally do that,would you? 
 
+源实体：即使是癌细胞，也与你的灵性能量有联系。它们跟所谓的好细胞一样，也是按照指示行动。但不同之处是，它们是听从灵体指示去做错事的细胞。实质上，你在物质层面的互动影响着高层级灵性能量的频率和调整，这导致发往那些细胞的指令的转移混乱使它们行为异常。在这种情况下，可能使细胞在该分解的时候不分解，或者未做某件工作，制造出多于所需的细胞，甚至是攻击已知的好细胞。这就有点像你开着车直接去撞墙，你在正常情况下可不会这么做的。对吧？
+
 ME:How could Spirit tell a cell to do the wrong things then?I thought that Spirit was pure! 
 
-SE:The interactions with the physical disrupt the harmonious flow of energies,changing its meaning or intention.This is caused by the part of you that is projected into the human body reacting badly to situations that occur to you.You react badly because you are not in tune with Spirit and cannot,therefore,see the beauty in the process that led up to what has happened,i.e.,you don't accept and learn.Instead,you reject and get fed up.This creates disruption in the energy flow if this situation is accepted as a learning opportunity.It then creates dense energy,which blocks the flow or even changes the energy characteristics and,hence,the messages being sent. 
+我：那么灵体怎么会指示细胞去做错事呢？我以为灵体是纯洁的！
+
+SE:The interactions with the physical disrupt the harmonious flow of energies,changing its meaning or intention.This is caused by the part of you that is projected into the human body reacting badly to situations that occur to you.You react badly because you are not in tune with Spirit and cannot,therefore,see the beauty in the process that led up to what has happened,i.e.,you don't accept and learn.Instead,you reject and get fed up.This creates disruption in the energy flow if this situation is accepted as a learning opportunity.It then creates dense energy,which blocks the flow or even changes the energy characteristics and,hence,the messages being sent.
+
+源实体：因为和物质身体的互动破坏了能量的和谐流动，改变了它的含义或目的。这是由于转世到人体的那部分你，对你遭遇的情况产生不良反应的结果。你的不良反应是因为你未与灵体调准，于是也就看不到导致一切发生的过程中的美。也就是说，你不会接受并从中学习，相反，你拒绝并觉得受够了。如果能把这情形当做一个学习机会来接受，会产生顺畅的能量流。但现在能量流被中断了，于是产生了稠密的能量，阻碍了流动，甚至改变了能量特性，也就改变了传递过来的信息。
 
 ME:So what you are saying is that I create my own cancer. 
 
+我：所以你是说我创造了我自己的癌症。
+
 SE:Yes,but you wouldn't create it if you were in tune with universe/Spirit/Me.
+
+源实体：是的，但如果你与宇宙/灵体/我相和谐，你就不会创造出它了。 
 
 #### Byron on Another Approach to Self-Healing 
 
@@ -7765,47 +8013,79 @@ SE:Yes,but you wouldn't create it if you were in tune with universe/Spirit/Me.
 
 Being in tune with universe/Spirit/Origin/Source is all part of our maintaining a state of wholeness and wellness.This leads me to the subject of healing self when that balance has been interrupted. 
 
-与宇宙灵气，起源源头保持协调，就能保持我们完整与健康。 这把我引到了平衡，被破坏后的自我疗愈话题。一个星期二的早晨，我照常以连接地球能量哈拉以及打开迈伦，开始我的冥想，然后我直接去到第二十七层去见拜伦。 与此同时，我的思维转到了自我疗愈的想法。拜伦把胳膊搭在我肩上，我们一同走出了黑暗，那是我对二十七层的感知来到一个靠近海边的每一地方，有着连绵起伏的山丘和一小片树丛。 这是我特地为你建造的一个心理空间。因为你喜欢地球层面上的这类东西，所以我把他们放到一块好，让你高兴。
+与宇宙/灵体/起源/源头保持协调，就能保持我们完整与健康。这把我引到了平衡被破坏后的自我疗愈话题。
 
 One Tuesday morning I started my meditation with my usual linking with the Earth energies (Hara)and opened up my chakras.I then zipped up the 27th level to see Byron.As I was doing this,my mind wandered to the thought of self-healing.He put his arm over my shoulder,and we walked out of the dark that was my perception of the 27th level into a beautiful field with rolling hills and a small wood next to the sea. 
 
+一个星期二的早晨，我照常以连接地球能量（哈拉）以及打开脉轮，开始我的冥想，然后我直接去到第27层去见拜伦。与此同时，我的思维转到了自我疗愈的想法。拜伦把胳膊搭在我肩上，我们一同走出了黑暗，那是我对27层的感知。来到一个靠近海边的美丽地方，有着连绵起伏的山丘和一小片树丛。
+
 B:This is a mental construct I have made especially for you.Since you like all of these things on the Earth plane,I have put them all together for your pleasure. 
+
+拜伦：这是我特地为你建造的一个心理空间。因为你喜欢地球层面上的这类东西，所以我把他们放到一块儿好让你高兴。
 
 #### Healing at the Etheric Body and Ketheric Template Levels 
 
 **以太体和因果模板层的疗愈**
 
-ME:Thank you.I have a question.I know that physical dysfunction is a result of a distorted perception starting at the ketheric template level [See the Glossary and Appendix for further information on the ketheric template.],but I have had this thought that self- healing can also be from the physical plane up. 
+ME:Thank you.I have a question.I know that physical dysfunction is a result of a distorted perception starting at the ketheric template level, but I have had this thought that self- healing can also be from the physical plane up. 
 
-我：谢谢你，我有个问题，我知道物质身体的功能障碍是由于从因果模板开始的观念扭曲所造成的。 但是我有个想法，就是自我疗愈，也可以从物质层面自下而上进行关于灵性模板的进一步信息参见附录。 没错，是可以的，要做到这点个体需要调频到以太体或蓝色矩阵，从那一点开始启动修复。 关于以太体的信息，请参见附录，那该怎么治愈自己的疾病呢？比如哮喘，你通过修复以太体有功能障碍疾病或损伤的部位方式是想象以太体那个部位的能量，网格被重建或加固。 接下来想象那个被影响的部位被玫瑰光所包围，造成身体影响的扭曲观念，可以通过做个人的功克来消除决定于这种疾病相关的错误或感知幻觉和假设是什么，然后改变心态，怎么能做做到呢？ 用你的例子，如果你到了一个城市后有哮喘的问题，你可能会发现你的扭曲的看法是住在城里，对你不好。 这个曲解可能来自于你小时候父母的某一个评论，这个关于城市空气被污染了的评论可能会被编程进你的潜意识，让潜意识认为所有城市都充满了灰尘和污染的空气。 于是当你到达一个城市时，就会哮喘发作。如果你住在一个城市，你就会一直哮喘，直到这个心态，通过个人功克而改变，并且肺部以胎体得到再生于以要从以太极和更高的层级来治愈自己。 是的，你需要从因果层开始，因为它是与化身物质肉体有关的，较高层级中的第一层，在第八层以下，一共有十个频率层级与人体有关。 参见附乳，那么改变扭曲的观念本身能治愈你吗？只有当他还没有表现为肉体疾病的时候，如果有肉体疾病，你还需要治愈受到影响的那部分。 以态体拜伦在讲这个的时候，我的感知聚焦到了我自己的以态体里。 我看到我体内和体表所有的三维蓝色能量线就是这样，你还会发现每个不同的器官以及其他身体部位的能量都有着很细微的差别。 我能看到不同的器官或身体部位有着不同的颜色和深浅，对不同的颜色对应于不同的频率组成每个器官或身体部位的细胞的DNA对这种能量进行反应，从而使细胞在它所处频率下，根据需要而变化。 你是说并不是DNA决定一个细胞的功能是什么？而是对应那个器官的，以态体的频率决定的。
+我：谢谢你，我有个问题。我知道物质身体的功能障碍是由于从因果模板开始的观念扭曲所造成的。但是我有个想法，就是自我疗愈也可以从物质层面自下而上进行。
 
-B:That's right.It can be.To achieve this,the individual needs to tune into the etheric body(the blue matrix)[See the Glossary and Appendix for further information on the etheric body.]and effect repairs from that point. 
+B:That's right.It can be.To achieve this,the individual needs to tune into the etheric body(the blue matrix) and effect repairs from that point. 
+
+拜伦：没错，是可以的。要做到这点，个体需要调频到以太体（蓝色矩阵），从那一点开始启动修复。 
 
 ME:So how do you heal yourself from a disease,say asthma? 
 
+我：那该怎么治愈自己的疾病呢？比如哮喘。
+
 B:You heal yourself by repairing the etheric body for the part of the body that is dysfunctional,diseased,or damaged by imagining the energy grid lines of the etheric body for that area being rebuilt or strengthened.Then you follow up by surrounding the area affected in rose-colored light.The distorted perception that created the physical effect can be removed through personal processing by establishing what faults or perceptions/illusions and assumptions are attached to this illness and changing the mindset. 
+
+拜伦：你通过修复以太体有功能障碍、疾病或损伤的部位，方式是想象以太体那个部位的能量网格被重建或加固。接下来，想象那个被影响的部位被玫瑰光所包围。造成身体影响的扭曲观念，可以通过做个人的功课来消除。确定与这种疾病相关的错误，或感知幻觉/假设是什么，然后改变心态。
 
 ME:How do you do that? 
 
+我：怎么能做到呢？ 
+
 B:Using your example,if you have a problem with asthma when you travel into a city,you may find that the distorted perception is that "living in the city is bad for you."The distortion may have come from a comment that one of your parents may have made when you were a child.This comment about the air being polluted in the city would have programmed your subconscious into thinking that all cities are full of dirt and polluted air-hence,the onset of asthma when you visit a city.If you live in a city, you will always suffer from asthma until this mindset is changed through personal processing and regeneration of the etheric body for the lungs.
+
+拜伦：用你的例子，如果你到了一个城市后有哮喘的问题，你可能会发现你的扭曲的看法是住在城里对你不好。这个曲解可能来自于你小时候父母的某一个评论，这个关于城市空气被污染了的评论可能会被编程进你的潜意识，让潜意识认为所有城市都充满了灰尘和污染的空气。于是当你到达一个城市时，就会哮喘发作。如果你住在一个城市，你就会一直哮喘，直到这个心态通过个人功课而改变，并且肺部以太体得到再生。
 
 ME:So you need to heal yourself on the etheric body level and the higher levels. 
 
-B:Yes,you need to start at the ketheric level,as this is the first of the higher levels(below the 8th.There are 10 levels associated with the human body.See Appendix)to be associated with the incarnated physical body. 
+我：所以要从以太体和更高的层级来治愈自己。
+
+B:Yes,you need to start at the ketheric level,as this is the first of the higher levels to be associated with the incarnated physical body. 
+
+拜伦：是的，你需要从因果层开始，因为它是与化身物质肉体有关的较高层级中的第一层。
 
 ME:So will changing the distorted perception heal you on its own? 
 
+我：那么改变扭曲的观念本身能治愈你吗？
+
 B:Only if it hasn't manifested into physical disease.If there is physical disease,you will need to heal that part of the etheric body that is affected as well. 
+
+拜伦：只有当他还没有表现为肉体疾病的时候。如果有肉体疾病，你还需要治愈受到影响的那部分以太体。
 
 As Byron talked about this,my perception zoomed into my own etheric body and saw all the blue energy lines in 3-D going inside my body,as well as on the surface. 
 
+拜伦在讲这个的时候，我的感知聚焦到了我自己的以太体里，我看到我体内和体表所有的三维蓝色能量线。
+
 B:That's right;you will also find that the energies are subtly different for each of the different organs and other parts of the body. 
+
+拜伦：就是这样，你还会发现每个不同的器官以及其他身体部位的能量都有着很细微的差别。
 
 ME:I can see them as different colors and different shades of colors,depending on the organ or body component I am looking at. 
 
+我：我能看到不同的器官或身体部位有着不同的颜色和深浅。
+
 B:Yes,the different colors are relative to the different frequencies.The DNA of the cells that make up each organ or body part responds to this energy and makes the cell change to that required of it in the frequency it finds itself. 
 
+拜伦：对，不同的颜色对应于不同的频率。组成每个器官或身体部位的细胞的DNA对这种能量进行反应，从而使细胞在它所处频率下根据需要而变化。 
+
 ME:You mean the DNA doesn't dictate what a cell's function is?It's the frequency of the etheric body relative to that organ? 
+
+我：你是说并不是DNA决定一个细胞的功能是什么？而是对应那个器官的以太体的频率决定的？
 
 #### RNA-Etheric Body Frequency-DNA 
 
@@ -7813,7 +8093,7 @@ ME:You mean the DNA doesn't dictate what a cell's function is?It's the frequency
 
 B:That's right;the DNA of the cell waits to be told what it is supposed to do.It waits to receive its programming.It gets this from the frequency of the etheric body it receives via RNA.When it receives this frequency,it switches itself to the correct code for that frequency and makes the cell perform the role required of that organ and the frequency of that organ on the etheric body level. 
 
-拜伦：是的细胞的DNA等着被告知他该做什么，他等待接收它的编程。 RNA传递来自以太体的频率。当DNA接收到这个频率，就把自己转换到与钠个频率相对应的编码，而使细胞扮演某个器官及此以太体层面中，该器官所处频率所要的角色。
+拜伦：是的，细胞的DNA等着被告知它该做什么，他等待接收它的编程。RNA传递来自以太体的频率，当DNA接收到这个频率，就把自己转换到与那个频率相对应的编码，而使细胞扮演某个器官，及此以太体层面中该器官所处频率所要的角色。
 
 #### Stem Cells 
 
@@ -7821,21 +8101,35 @@ B:That's right;the DNA of the cell waits to be told what it is supposed to do.It
 
 ME:Wow!So what would happen if I put a liver cell in the frequency of the heart? 
 
-我：哇，那么如果我把一个肝脏细胞放在心脏的频率里会怎么样呢？ 他会过早的死掉，因为他已经收到过作为肝脏细胞的编程，DNA就像一个一次性编程的微型处理器芯片，这是人体的一个安全措施。 一旦细胞受到它的编程，它的整个寿命都限定在那个模式里，细胞寿命也取决于它需要做的功作。 有些细胞可以被编程并被植入任何一个器官或身体部位的以态体频率来帮助修复，你们称他们为干细胞。 如前所述，当这种细胞接收到一个频率，DNA会把那个细胞的功能按照所接受的频率和与器官所需频率对应的细胞类型进行转换。 然而这也不是完全必须的。如果一个人可以调频到被损坏部位的以太母板频率在那里重建，以太模板发起正确的医院，即克服，由因果层以及自大往下一直到物质层的其他层的扭曲观念所造成的疾病，并通过理解这个观念上的扭曲是什么和为什么会产生来纠正他那么肉体的功能障碍就能被治愈。 我以为DNA是建造生命的基石。没错，不过是以太体通过RNA告诉DNA对于所居住房子来说，DNA是什么类型的专实决定权，掌握在以太体的能量频率上。 第二天在和我妻子讨论之后，他当时做的工作是通过改变基因来治疗卵巢癌，我继续与拜伦对话。 我妻子告诉我，他的一些同事在用替换某些细胞DNA的办法来进行DNA治疗。 他说他们认为这样就可以不需要肝细胞来做治疗了。这个办法是有可能的，但得到新的DNA的细胞运作，不会像肝细胞那么有效，但肝细胞还没有被身体的某个特定部位，比如心脏相关的，以太体的能量频率所编程，为什么会这样？ 他好像认为这个是可行的。
+我：哇，那么如果我把一个肝脏细胞放在心脏的频率里会怎么样呢？ 
 
 B:It would die before its time because it has already received its programming as a liver cell.The DNA is like a onetime programmable (OTP)microprocessor chip,and this is a safety feature of the human body.Once a cell has received its programming,it is stuck in that mode for its life span (which is also determined by the job it has to do).There are cells that are ready to be programmed and that can be inserted into the etheric body frequency of any organ or body part to effect repairs.You call these stem cells.Again,once they have logged into a frequency,the DNA switches the functionality of the cell to that required of the frequency received and required of that cell type for the frequency relating to that organ's functional requirements.However, this is not totally necessary.If an individual can tune into the template frequency of the damaged area,rebuild the etheric template in that area,and initiate the right intentions of overcoming the dis-ease created by the distorted perceptions created at the ketheric level(and its subsequent cascade down the other levels to the physical level)and correct the distortion in perception by understanding what it is and why it arose,the physical dysfunction can be healed. 
 
+拜伦：它会过早的死掉，因为它已经收到过作为肝脏细胞的编程。DNA就像一个一次性编程的微型处理器芯片，这是人体的一个安全措施。一旦细胞受到它的编程，它的整个寿命都限定在那个模式里，细胞寿命也取决于它需要做的工作。有些细胞可以被编程并被植入任何一个器官或身体部位的以太体频率来帮助修复，你们称他们为干细胞。如前所述，当这种细胞接收到一个频率，DNA会把那个细胞的功能按照所接受的频率和与器官所需频率对应的细胞类型进行转换。然而，这也不是完全必须的。如果一个人可以调频到被损坏部位的以太模板频率，在那里重建以太模板，发起正确的意愿，即克服由因果层以及自它往下一直到物质层的其他层的扭曲观念所造成的疾病，并通过理解这个观念上的扭曲是什么和为什么会产生来纠正它，那么肉体的功能障碍就能被治愈。 
+
 ME:I thought that the DNA was the building bricks of life. 
+
+我：我以为DNA是建造生命的基石。
 
 B:True,but the etheric body tells the DNA via the RNA what type of brick it is for the house it is in.It is the energy frequency of the etheric body that calls the shots. 
 
+拜伦：没错，不过是以太体通过RNA告诉DNA。对于所居住房子来说，DNA是什么类型的砖块，决定权掌握在以太体的能量频率上。 
+
 The next day I continued the dialogue after I had discussed it with my wife (who worked at that time with genetic manipulation for treating ovarian cancer). 
+
+第二天在和我妻子讨论之后（她当时做的工作是通过改变基因来治疗卵巢癌），我继续与拜伦对话。
 
 ME:My wife told me that some of her colleagues are replacing the DNA in some cells for DNA therapy.She said they think that will do away with the need for stem cells. 
 
+我：我妻子告诉我，他的一些同事在用替换某些细胞DNA的办法来进行DNA治疗。她说他们认为这样就可以不需要肝细胞来做治疗了。
+
 B:It is possible to do this,but the cell receiving the new DNA would not function as efficiently as a stem cell that has not yet been programmed by the energy frequency of the etheric body relative to a specific part of the body,say the heart. 
 
+拜伦：这个办法是有可能的，但得到新的DNA的细胞运作不会像肝细胞那么有效，肝细胞还没有被身体的某个特定部位，比如心脏相关的以太体的能量频率所编程。
+
 ME:Why is this?She seems to think it will work.
+
+我：为什么会这样？她好像认为这个是可行的。
 
 #### Mismatch Issues of DNA Replacement in Cells 
 
@@ -7843,15 +8137,23 @@ ME:Why is this?She seems to think it will work.
 
 B:As I said,it will but not as well as the newly programmed stem cells.This is because a cell whose DNA has previously been programmed has adapted itself to the job required of that part of the body. 
 
-拜伦：正如我说的这是可以的，只不过不会像新编程的干细胞那么好，这是因为一个DNA，曾被编程的细胞已经适应了那个身体的特定部位，需要它做的工作，你的意思是它无法变成别的种类，不能他们工作是因为它拥有某些工具，比如化学指令接收器感受器传送器，再加上其他一些功能和所有细胞一样。 然而举例来说，如果一个细胞以前是一个肝脏细胞，它就不会在心脏细胞专用工具，细胞会在它的DNA被施加，以肝脏的以态体频率时，把那些特定工具或功能抛弃掉。 然而它会被编程为存活特定的时长，细胞已经有一定程度的衰老了，这还会导致另外一个不匹配的问题。 那为什么干细胞就更好呢？因为他们拥有行驶人体任何功能可能会用到的所有工具就等待着以太体能量给DNA编程，告诉他们将会是什么细胞。 另外他们在这个状态是很笨重的。因此，当他们按照编程的要求进行变换时，他们会丢掉原先作为万能细胞时的所有多余的包袱，以便有效的作为某种特定细胞而运作，比如作为肝脏细胞而非心脏细胞。 另外，像前面提到的一个被编程的细胞的寿命也已经被设置好了。 尽管如果需要的话，细胞可以长生不死。但是一旦他们被告知他们的功能，他们的寿命就会为了适应更新陈旧组织的需求而随之改变。 所以比如一个肝脏细胞的正常寿命，比心脏细胞的短。那么他实际上在心脏的环境里，也只能存活到肝脏细胞的寿命，这就造成了兼容的问题。 因为心脏细胞本应活的更长。
+拜伦：正如我说的，这是可以的，只不过不会像新编程的干细胞那么好。这是因为一个DNA曾被编程的细胞已经适应了那个身体的特定部位需要它做的工作。
 
 ME:Do you mean it can't change to something else? 
 
+我：你的意思是它无法变成别的种类？
+
 B:No.It will function because some of the tools it has,such as receptors,sensors, and transmitters for the chemical commands,together with other functionality,are similar to all cells.However,the tools that are specific to the cell functioning as a heart cell if,for instance,it was previously a liver cell,won't be there.The cell will have discarded these tools or functions when its DNA was exposed to the energy frequency of the liver's etheric body.Also,it will have been programmed to live for a certain length of time.A certain amount of degradation will already have taken place which will cause another mismatch issue. 
+
+拜伦：不能。它能工作是因为它拥有某些工具，比如化学指令接收器、感受器、传送器，再加上其他一些功能，和所有细胞一样。然而，举例来说，如果一个细胞以前是一个肝脏细胞，它就不会在心脏细胞专用工具，细胞会在它的DNA被施加以肝脏的以太体频率时，把那些特定工具或功能抛弃掉。还有，它会被编程为存活特定的时长。细胞已经有一定程度的衰老了，这还会导致另外一个不匹配的问题。
 
 ME:So why are stem cells better? 
 
+我：那为什么干细胞就更好呢？
+
 B:Because they have all the tools they will ever need to perform any function in the body ready and waiting for the time that they are told by the etheric energy programming of the DNA what they are going to be.Also,they are considered cumbersome in this state,so when they change to the requirements of their programming,they get rid of all the excess baggage of a universally useful cell to allow them to be efficient as,for instance,liver cells,not heart cells.Additionally and as mentioned above,a programmed cell's life span has already been programmed in.And although cells can live forever,if required,once they have been told their function,their life span is changed to suit the need to renew old tissue.So a liver cell that normally lives a shorter life span than say a heart cell would,in fact,live only as long as a liver cell in a heart environment,which would cause compatibility issues,as the heart cells may be expected to live longer. 
+
+拜伦：因为它们拥有行使人体任何功能可能会用到的所有工具，就等待着以太体能量给DNA编程，告诉它们将会是什么细胞。另外，它们在这个状态是很笨重的，因此当它们按照编程的要求进行变换时，它们会丢掉原先作为万能细胞时所有多余的包袱，以便有效地作为某种特定细胞而运作，比如作为肝脏细胞而非心脏细胞。另外，像前面提到的，一个被编程的细胞的寿命也已经被设置好了。尽管如果需要的话，细胞可以长生不死，但是一旦它们被告知它们的功能，它们的寿命就会为了适应更新陈旧组织的需求而随之改变。所以，比如一个肝脏细胞的正常寿命比心脏细胞的短，那么它实际上在心脏的环境里也只能存活到肝脏细胞的寿命，这就造成了兼容的问题，因为心脏细胞本应活得更长。
 
 #### The Effect of Transplanting a Liver Cell into the Diseased Section of a Heart 
 
@@ -7859,25 +8161,35 @@ B:Because they have all the tools they will ever need to perform any function in
 
 To summarize,a liver cell can have its DNA changed to that of a heart cell,and it can be transplanted into a diseased area of a heart,but it will not function as well as a stem cell that is introduced into the energetic frequencies of the etheric body of a heart.Although it will survive,it does not contain the tool kit of a heart cell.It contains the tool kit of a liver cell and will try to use these "liver tools"to work in a heart environment,which it can't do effectively,but it will,nevertheless,try to do but poorly.This level of poor efficiency will be noticed by the heart's defense system because some of its tools will not be compatible,and the cell will eventually be removed/forced to die.How fast this happens is determined by how fast the heart's defense system picks up the anomaly.So it will do some good,but it will be limited. 
 
-总结一下，可以把肝脏细胞的脱氧核糖核酸，变成心脏细胞的脱氧核糖核酸也可以移植到心脏病灶部位。 但是他不会像被导入心脏，以太极能量频率的干细胞那样运作的那么好，虽然它也能存活，但但没有心脏细胞的工具箱，它有的是肝脏细胞的工具，到于是这会尽量使用这些肝脏工具在心脏环境里工作，这当然是没什么效率可言的，但呢仍会尽力工作，只是做不好。 因为他的一些工具不匹配而造成的这种低效率，会被心脏的防御系统注意到于是这个细胞最终会被清除强制死亡这件事有多快发生，取决于心脏的防御系统，多久能发现这个异常，所以这么做会有些用，但却十分有限。 是以这种基因操作是徒劳的。是的，但正如你们所说的救命道操，有些人会认为运转不畅的心脏，也总比没有心脏强。 一个半吊子的心脏比没有心脏好，这种治疗会有它的用处，但这只是暂时的治疗，直到这些规则被更好的理解。
+总结一下，可以把肝脏细胞的DNA变成心脏细胞的DNA，也可以移植到心脏病灶部位。但是它不会像被导入心脏以太体能量频率的干细胞那样运作地那么好，虽然它也能存活，但它没有心脏细胞的工具箱，它有的是肝脏细胞的工具箱。而且也会尽量使用这些肝脏工具在心脏环境里工作，这当然是没什么效率可言的，但它仍会尽力工作，只是做不好。因为它的一些工具不匹配而造成的这种低效率，会被心脏的防御系统注意到，于是这个细胞最终会被清除/强制死亡。这件事有多快发生，取决于心脏的防御系统多久能发现这个异常。所以这么做会有些用，但却十分有限。 
 
 ME:So this type of genetic manipulation is fruitless. 
 
+我：是以这种基因操作是徒劳的。
+
 B:Yes,but as you say,"Any port in a storm."Some people will think that a poorly operating heart is better than no heart.A partially functional heart is a better port than a port that doesn't have a functioning heart.This type of therapy will have its place but only as a transient therapy until these rules are better understood.
+
+拜伦：是的，但正如你们所说的“救命稻草”。有些人会认为运转不畅的心脏也总比没有心脏强，一个半吊子的心脏比没有心脏好。这种治疗会有它的用处，但这只是暂时的治疗，直到这些规则被更好地理解。
 
 ### Chapter 21 - Relaxation,Meditation,and the Core Star 
 
-**放松、冥想和星核**
+**第21章：放松、冥想和星核**
 
 Another morning meditation saw a very short communication with the Source Entity on the subject of relaxation. 
 
-在另一个晨间冥想中，我与原始体就放松这一话题进行了一个非常简短的对话，放松可以促进在创造。 为什么呢？因为当你放松时，会拥有接入灵体的能力，而这只有在你不需要日理万机的时候，才有可能发生。
+在另一个晨间冥想中，我与源实体就放松这一话题进行了一个非常简短的对话。
 
 SE:Relaxation promotes recreation. 
 
+源实体：放松可以促进再创造。
+
 ME:Why is this? 
 
+我：为什么呢？
+
 SE:Because you have the ability to tap into Spirit when you are relaxed.This is only possible when you don't have a million and one things to do. 
+
+源实体：因为当你放松时，会拥有接入灵体的能力。而这只有在你不需要日理万机的时候，才有可能发生。
 
 #### Core Star Meditation 
 
@@ -7885,15 +8197,23 @@ SE:Because you have the ability to tap into Spirit when you are relaxed.This is 
 
 ME:How good is core star meditation?[See the Appendix for instructions on how to do a core star meditation.] Does it allow one to contact Spirit any better than normal meditation? 
 
-我：星河冥想有多大作用？它能否比一般冥想更能使人连接到灵体。 关于星河冥想的指导，请参见附录。星河冥想是接触你的自我和灵体的最佳方式。 为什么是这两个？因为你就是灵体。星河是你的灵体与物质相连接的那个部分。 所以如果你专注在你星河的时间足够长，你就必然会连接到你的真我。 因为星河就是你，你将开始打破物质世界的障碍。当你这么做时，你将必然将物质身体的频率提高到接近于星光体。 这将允许你看到你周围存在于这个领域的其他实体，或者利用它来进行跨维度旅行，你必须明白，所有的冥想都是好的。 因是对于达到特定的目的来说，某些冥想效果更好。比如超级冥想，对于练习星光体旅行很有用。 其他的冥想技术，比如瑜伽大师们做的那些对结果缓物质身体的衰老很有用，还有一些则有利于培养和磨练。 你对自己意愿的专注力，这样可以用能量增强你的创造力。
+我：星核冥想有多大作用？它能否比一般冥想更能使人连接到灵体？
 
 SE:Core star meditation is the best way of contacting your "self"and Spirit.
 
+源实体：星核冥想是接触你的自我和灵体的最佳方式。
+
 ME:Why the two? 
+
+我：为什么是这两个？
 
 SE:Because you are Spirit.The core star is the part of your Spirit that is linked to the physical. If you,therefore,focus on your core star long enough,you will inevitably get into contact with the real you.Because the core star is you,you will start to break down the barriers of the physical world.When you do this,you will inevitably raise the frequency of your physical body to those close to the astral,which will allow you to see the other entities around you who exist in this realm or use it for trans-dimensional travel purposes. 
 
+源实体：因为你就是灵体。星核是你的灵体与物质相连接的那个部分，所以如果你专注在你星核的时间足够长，你就必然会连接到你的真我。因为星核就是你，你将开始打破物质世界的障碍。当你这么做时，你将必然将物质身体的频率提高到接近于星光体，这将允许你看到你周围存在于这个领域的其他实体，或者利用它来进行跨维度旅行。
+
 You have to understand that all meditation is good,but some is better than others to achieve certain goals.For instance,transcendental meditation is good for practicing astral travel.Other meditation techniques,such as those practiced by Yogi Masters are good for slowing the degradation process of the physical body.Others are good for developing and honing your attention to your intention,which enhances your creativity with energy. 
+
+你必须明白，所有的冥想都是好的，但是对于达到特定的目的来说，某些冥想效果更好。比如，超觉冥想对于练习星光体旅行很有用。其他的冥想技术，比如瑜伽大师们做的那些，对减缓物质身体的衰老很有用。还有一些则有利于培养和磨练你对自己意愿的专注力，这样可以用能量增强你的创造力。
 
 #### The Link Between Astral Travel and the Core Star 
 
@@ -7901,13 +8221,15 @@ You have to understand that all meditation is good,but some is better than other
 
 ME:How is astral travel linked to the core star? 
 
-我：星体与形是怎么与星河联系起来的呢？ 正是与星河的联系，才让你可以连接并探访中间界域。这个界域既非灵界已非物质界，星河就是你你就是星河，但是要明白在好的文献资料中，你可能会看到星光体与肉体相分离，但仍通过一条灵带与肉体相连的图示。 这条灵带将人体灰光场的第四层，也就是星光体与其他层的灵体相连，这是通过星河，也就是你的真我来实现的。 当星河真的离开身体时，身体就死了。因此你只能通过一个层级离开肉体及第四层或星光层。 这是个位于两个世界中间的层级
+我：星光体旅行是怎么与星核联系起来的呢？
 
 SE:It is the link with the core star that allows you to be connected and to visit the middle realms,the realms that are neither spirit nor physical.The core star is you,and you are the core star but understand that in all good texts you will see the illustrations of the astral body separating from the physical and still remaining attached to the physical via a silver cord. This silver cord attaches the 4th level of the human aura,the astral body,to the other bodies. This is achieved through the core star,or the real you.When the core star truly leaves the physical body,it dies.Thus you are only allowed to leave your body through one level,the fourth or astral,the one that sits in the middle of both worlds.
 
+源实体：正是与星核的联系，才让你可以连接并探访中间界域，这个界域既非灵界也非物质界。星核就是你，你就是星核。但是要明白，在好多文献资料中你可能会看到星光体与肉体相分离，但仍通过一条灵带与肉体相连的图示。这条灵带将人体辉光场的第四层（星光体）与其他层的灵体相连。这是通过星核，也就是你的真我来实现的。当星核真的离开身体时，身体就死了。因此，你只能通过一个层级离开肉体，即第四层（星光层），这是个位于两个世界中间的层级。
+
 ### Chapter 22 - Souls Returning to the Source Entity 
 
-**第22章：回归原始体的灵魂**
+**第22章：回归源实体的灵魂**
 
 #### At Home with God on the 100th Level 
 
@@ -7915,15 +8237,23 @@ SE:It is the link with the core star that allows you to be connected and to visi
 
 During a meditation I had the impression that I should go to the 100th level and to the Source Entity.When I arrived,I saw in my mind's eye the now familiar galaxy-like image of the entity that was the Source of all of us,the One that many texts refer to as God.As I approached the Source Entity,I saw lots of stars that were so close to each other,they looked like the Source Entity Itself. 
 
-在一次冥想中，我有个感觉，我应该去第一百层的原始体那里。 当我到那里时，我的意识眼看到了一幅，目前对我来说已经熟悉了的星系般的实体图景。 那个实体是我们所有人的源头，就是被很多梳理成为神的。那个。当我接近原始体时，我看见许多彼此靠的很近的星星，他们看起来就像原始体本身，他些都是回到神的灵魂。 我以为他们会融合到你里面，他们已经融合了，但是保持着自己的一部分，他们是个体，同时也是整体的一部分。 他们并不仅仅是我的一部分，他们还给整体带来了不同的进化体验。 如果有意愿，他们中的一些会再度开始一次漫长的循环，而另一些则不会。 然后我看到一个干瘪的老人，站在我身边留着长长的白胡子，他身上的一切都是同一个颜色白色。
+在一次冥想中，我有个感觉，我应该去第100层的源实体那里。当我到那里时，我的意识眼看到了一幅目前对我来说已经熟悉了的星系般的实体图景。那个实体是我们所有人的源头，就是被很多书里称为神的那个。当我接近源实体时，我看见许多彼此靠的很近的星星，他们看起来就像源实体本身。
 
 SE:These are all the souls that have returned to God. 
 
+源实体：这些都是回到神的灵魂。
+
 ME:I thought they would just blend into You. 
+
+我：我以为他们会融合到你里面。
 
 SE:They have,but they have retained their individuality.They are individual and part of the whole at the same time.They are more than just a piece of Me;they bring to the Whole different evolutionary experiences.Some of them will start the long cycle again if they want;others will not.
 
+源实体：他们已经融合了，但是保持着自己的一部分。他们是个体，同时也是整体的一部分。他们并不仅仅是我的一部分，他们还给整体带来了不同的进化体验。如果有意愿，他们中的一些会再度开始一次漫长的循环，而另一些则不会。
+
 I then had the image of a wizened old man with a long white beard standing by me. Everything about him was the same color:white. 
+
+然后我看到一个干瘪的老人站在我身边，留着长长的白胡子。他身上的一切都是同一个颜色：白色。
 
 #### The True State of Earth's Source Entity 
 
@@ -7931,23 +8261,39 @@ I then had the image of a wizened old man with a long white beard standing by me
 
 ME:I thought you would show me your true state. 
 
-我：我以为你会向我展现你的真实状态。如果这是你想要的，我可以给你看，说完原始体不见了，但我仍能跟之交谈。 我看不到你了，你确实想看我到底是什么样子的话，这就是了。 我觉得还是让那个老者形象回来吧，可以给我一个专注点。如你所愿，于是他又重新显现为那个老者，这是我好像看到在源头的广阔空间里有网格线，我看到你也有结构。
+我：我以为你会向我展现你的真实状态。
 
 SE:I will show you this if that's what you want. 
 
+源实体：如果这是你想要的，我可以给你看。
+
 With this the Source Entity then disappeared although I could still communicate with it. 
+
+说完，源实体不见了，但我仍能跟之交谈。 
 
 ME:I can't see you. 
 
+我：我看不到你了。
+
 SE:You did want to see what I was really like;this is it. 
+
+源实体：你确实想看我到底是什么样子的话，这就是了。 
 
 ME:I think it would be good to have the image of the old man back as it gives me a focal point. 
 
+我：我觉得还是让那个老者形象回来吧，可以给我一个专注点。
+
 SE:As you wish. 
+
+源实体：如你所愿。
 
 He then re-appeared as the old man.I then had the impression that grid lines were present in the vast expanse that was the Source. 
 
+于是他又重新显现为那个老者，这时我好像看到在源头的广阔空间里有网格线。
+
 ME:I see that you have structure,too. 
+
+我：我看到你也有结构。
 
 #### Retaining Individuality
 
@@ -7955,11 +8301,15 @@ ME:I see that you have structure,too.
 
 SE:Yes,there is an order to everything,and that is what you have seen.Everything is in its place and has a place with Me.Remember,returning to the Source is not loss of individuality;it is coadunation,being one with the whole whilst being individual. Returning souls/spirits/entities need not fear loss of individuality,for there is no loss. 
 
-源实体：是的，一切都有秩序。这就是你所看到的一切都在自己的位置上，也都有和我一起的位置。 记住，回归源头不会丢失个体性，而是融合与整体合一的同时，仍然是个体回归的灵魂灵体实体不必害怕失去个体性。 因为什么也不会失去，我会确保要把这个放在我的某一本书的内容里，请务必做到，这是一个需要传达的重要概念。
+源实体：是的，一切都有秩序，这就是你所看到的。一切都在自己的位置上，也都有和我一起的位置。记住，回归源头不会丢失个体性，而是融合与整体合一的同时，仍然是个体。回归的灵魂/灵体/实体不必害怕失去个体性，因为什么也不会失去。
 
 ME:I will ensure this is in the text of one of my books. 
 
+我：我会确保要把这个放在我的某一本书的内容里。
+
 SE:Please do.It's an important concept to convey. 
+
+源实体：请务必做到，这是一个需要传达的重要概念。
 
 #### The Collective Mind 
 
@@ -7967,105 +8317,187 @@ SE:Please do.It's an important concept to convey.
 
 This was a morning meditation with a "curved ball"surprise from the Origin,one that caught me off guard since I was wondering whether or not I would be able to do any meditation that morning-no matter how short. 
 
-在这个晨间冥想中起源给了我一个猝不及防的意料之外的惊喜。 因为那天早晨我还在犹豫是否能做任何冥想，不管那冥想有多短，你要知道集体性质没什么可怕的。 我知道我曾害怕失去心智的独立性，在一定程度上，我发现这件事情可怕又奇妙。 你知道我很担心失去我的个体性。这并不奇怪，因为你们地球上的所有人都独一无二，拥有自己的意愿。 焦点，拥有完整的独特性，通常是不会被赋予这种状态的。 完整的是什么意思？就是说你们就是众神，因为没有更好的词能表达了，你们都是迷你的，我你们都有能力做同样多的事。 但这只有当你们冥想回到源头，并且忽略分心知识的这一时刻才能做到。 我想到了我喜欢做的事，骑车潜水等。是的，这些都是让人分心的事情。 冥想成为整体的一部分，不要害怕。即使是在集体性质中，我身上个体性的部分仍会保持个体性，只不过是一个更大的大的多的多的个体性。
+在这个晨间冥想中，起源给了我一个猝不及防的意料之外的惊喜。因为那天早晨我还在犹豫是否能做任何冥想，不管那冥想有多短。
 
 O:The collective mind is nothing to be feared,you know. 
 
+起源：你要知道集体心智没什么可怕的。
+
 I knew that I feared the loss of singularity of mind and,to some extent,I found it both scary and intriguing. 
+
+我知道我曾害怕失去心智的独立性，在一定程度上，我发现这件事情可怕又奇妙。
 
 ME:You knew that I was worried about losing my singularity 
 
+我：你知道，我很担心失去我的个体性。
+
 O:That's not surprising as all of you on Earth are in the unique position of having your own focus on intent,your own singularity in total.This is not given in general.
+
+起源：这并不奇怪，因为你们地球上的所有人都独一无二，拥有自己的意愿焦点，拥有完整的独特性，通常是不会被赋予这种状态的。
 
 ME:What do you mean "in total"? 
 
+我：“完整的”是什么意思？
+
 O:By this,I mean that you are all "Gods,for the want of a better word.You are all mini-Mes. You are all capable of doing so much,but this is only achievable at this moment in time if you will meditate on getting back to Source and ignore the distractions. 
+
+起源：就是说，你们就是众神，因为没有更好的词能表达了。你们都是迷你的我，你们都有能力做同样多的事。但这只有当你们冥想回到源头，并且忽略分心之事的这一时刻才能做到。
 
 I thought about the things I like:cycling,diving,etc. 
 
+我想到了我喜欢做的事：骑车，潜水等。
+
 O:Yes,these are the sort of distractions.Meditate upon being part of the whole and don't be afraid.Even in a collective mind,those parts of Me that have been singular retain singularity;it's just a larger,much larger singularity. 
+
+起源：是的，这些都是让人分心的事。冥想成为整的一部分，不要害怕。即使是在集体心智中，我身上个体性的部分仍会保持个体性，只不过是一个更大的，大的多得多的个体性。
 
 #### Coadunation and Expansiveness 
 
 **融合与广阔性**
 
-One meditation saw me talking to the Source about nothing in general when He slipped in the word“coadunation”again.
+One meditation saw me talking to the Source about nothing in general when He slipped in the word “coadunation” again.
 
-一次冥想中，我在与原石期就一些广泛的话题在进行交谈。 他再一次提到融合这个词，为什么我们又谈到融合？你还记得我描述过回归源头与之融合且不丢失个体性吗？ 我说过，这是与整体合一同时保留个体性。我还说过，回归的灵魂灵体实体不需要害怕失去个体性，因为什么也不会失去其实融合这个词也可以恰当描述当人类中连接灵体及自我的人数达到临界值时，将会发生的是，这是身在肉体时回归源头的一种方式。 这是什么意思？能够通过星河连接他们的真实自我和灵体的人，也可以连接到宇宙中的一体的人，这意味着他们能够连接到我们其他化身非化身的存有所有维度和频率层的行星灵恒星灵以及行星上的动植物灵。 所以这是共通的一意思吗？融合其实是一个更好的描述，它还包含了整个截知宇宙的其余部分在整体中再次结合。 我还有一个不同的问题，你的浮云到底有多广阔，非常广阔。 我们广阔到在你目前的条件下，所无法理解的程度。不会吧，我想试试很好想象你在任何维度任何时间任何方向上所能去到的最远的地方，我仍然会在那里，我这样做了。 而且发现当我把自己投射到某个特定方向时，环绕着我的区域仍然浸透在明亮的白光里。 我试着用清晰的意图让自己能走多远，走多远，但不管我走多远，原始体的光辉依然会在那里。 现在你明白了，在你当前的化身状态下，你无法理解我，我们到底有多广阔了吧。 我想是的，你能帮我稍微更好的理解你的广阔吗？可以，既然你真的是无所不在，你是怎么知道任何一个时间空间维度发生了什么呢？ 想象你现在的身体，比如如果你的腿觉得痒，你会立即转移注意力到痒的部位挠一挠。 如果你受了伤也是一样，你会立即将注意力转移到疼痛的部位，是我会的。 所有这些都是在你的注意力，主要集中在大脑的时候完成的。 我试了一下，立刻惊讶的发现。当我掐自己的时候，我的注意力从头脑或其他我正在做的是转移到了痒或不舒服的部位。 是的，我明白了。那么想象一下，我能同时做无数次这样的事，这使我能够与你和其他像你一样的人同时交谈，即使你们可能在不同的空间维度或时间结构中，这以你就是这样延伸你的广阔性。 这使我通过在所有维度的所有分子里放至通信传感器来做到这一点。 这使我能够发觉到痒，并于你们当中在任何地方的任何一个毫无颜值的进行交谈。 原来你真的很广阔。是的，这很有趣，我感觉你的广阔性也会有一个镜头，你很敏锐。 当然有一个镜头，但是你内心深处本来就知道。
+一次冥想中，我在与源实体就一些广泛的话题在进行交谈，他再一次提到“融合”这个词。
 
 ME:Why are we speaking about coadunation again? 
 
+我：为什么我们又谈到融合？
+
 SE:Do you remember that I described returning to the Source as coadunation and not loss of individuality?I said that it is being one with the whole whilst remaining individual. I added that "returning souls/spirits/entities need not fear loss of individuality,for there is no loss.Well,the word coadunation is also a good word for describing what will happen when humankind gains a critical mass of people who are in contact with Spirit and themselves.This is a way of returning to Source while in the physical. 
+
+源实体：你还记得我描述过，回归源头与之融合且不丢失个体性吗？我说过，这是与整体合一同时保留个体性。我还说过，回归的灵魂/灵体/实体不需要害怕失去个体性，因为什么也不会失去。其实，融合这个词也可以恰当描述当人类中连接灵体及自我的人数达到临界值时将会发生的事，这是身在肉体时回归源头的一种方式。
 
 ME:What do you mean?
 
+我：这是什么意思？
+
 SE:People who are capable of being in touch with their real selves and Spirit through their core star will be able to contact all that there is in the universe.This means that they will be able to contact Me/us/,other incarnate/disincarnate beings,the spirits of the planets,the stars,the animals,and plant life of the planets at all dimensional and frequency levels. 
+
+源实体：能够通过星核连接他们的真实自我和灵体的人，也可以连接到宇宙中的一切存在。这意味着他们能够连接到我们/其他化身/非化身的存有，所有维度和频率层的行星灵、恒星灵，以及行星上的动植物灵。 
 
 ME:So it means communion? 
 
+我：所以这是共通的意思吗？
+
 SE:It is actually much better a descriptor than that;it also involves the rest of the "aware" universe in its entirety,a joining together in wholeness again. 
+
+源实体：融合其实是一个更好的描述，它还包含了整个“觉知”宇宙的其余部分在整体中再次结合。
 
 ME:I have a different question.Just how expansive are you? 
 
+我：我还有一个不同的问题。你的幅员到底有多广阔？
+
 SE:Very.I am/We are so expansive that you can't possibility understand it in your current condition. 
+
+源实体：非常广阔。我们广阔到在你目前的条件下所无法理解的程度。
 
 ME:O.K.,try me. 
 
+我：不会吧，我想试试。
+
 SE:Very well.Imagine you are able to travel as far as you can in any direction in any time in any dimension;I will still be there.
+
+源实体：很好。想象你在任何维度、任何时间、任何方向上所能去到的最远的地方，我仍然会在那里。
 
 I did this and found that when I projected myself in a specific direction the area around me remained bathed in a bright white light.I tried to go as far as I can by making my intention very well known.No matter how far I went,the brilliance of the Source Entity was there. 
 
+我这样做了，而且发现当我把自己投射到某个特定方向时，环绕着我的区域仍然浸透在明亮的白光里。我试着用清晰的意图让自己能走多远就走多远，但不管我走多远，源实体的光辉依然会在那里。
+
 SE:Now do you understand that you cannot perceive just how expansive I/We are in your current incarnate condition? 
+
+源实体：现在你明白了，在你当前的化身状态下，你无法理解我/我们到底有多广阔了吧？
 
 ME:Yes,I think so.Can you help me understand a bit more about your expansiveness? 
 
+我：我想是的。你能帮我稍微更好地理解你的广阔吗？
+
 SE:Yes. 
+
+源实体：可以。
 
 ME:How can you possibly know what is going on at any one point in time,space,and dimension when you are literally all over the place. 
 
+我：既然你真的是无所不在，你是怎么知道任何一个时间、空间、维度发生了什么呢？
+
 SE:Imagine your current body.If you get an itch on your leg,for instance,you instantly re-focus your attention to the area of the itch and give it a scratch.The same is true if you hurt yourself;you instantly re-focus your attention to the area of pain. 
+
+源实体：想象你现在的身体。如果你的腿觉得痒，你会立即转移注意力到痒的部位挠一挠。如果你受了伤也是一样，你会立即将注意力转移到疼痛的部位。
 
 ME:Yes,I do. 
 
+我：是，我会的。
+
 SE:All this is done even though your attention is mostly in your head. 
+
+源实体：所有这些都是在你的注意力主要集中在大脑的时候完成的。
 
 I tried this and was suddenly surprised that my attention changed from my head or other things that I was doing to the point of the itch or discomfort when I pinched myself.
 
+我试了一下，立刻惊讶的发现当我掐自己的时候，我的注意力从头脑或其他我正在做的事转移到了痒或不舒服的部位。
+
 ME:Yes,I see. 
+
+我：是的，我明白了。
 
 SE:Well,imagine that I can do this an immeasurable number of times all at the same time. This allows Me to talk to you and others like all of you at the same time,even though you might be in different spaces,dimensions,or time frames. 
 
+源实体：那么想象一下，我能同时做无数次这样的事，这使我能够与你和其他像你一样的人同时交谈，即使你们可能在不同的空间、维度或时间结构中。
+
 ME:So that is how you extend your expansiveness. 
+
+我：所以你就是这样延伸你的广阔性。
 
 SE:Yes,I do this by having communication sensors in every molecule in every dimension. This allows Me to pick up on the "itch"and talk to one of you from anywhere without a delay. 
 
+源实体：是的，我通过在所有维度的所有分子里放置通信传感器来做到这一点。这使我能够发觉到痒，并与你们当中在任何地方的任何一个毫无延迟地进行交谈。
+
 ME:So you really are expansive. 
+
+我：原来你真的很广阔。
 
 SE:Yes. 
 
+源实体：是的。
+
 ME:That's funny.I feel that there is an end to your expansiveness. 
+
+我：这很有趣。我感觉你的广阔性也会有一个尽头。
 
 SE:Very perceptive.There is,of course,an end but you knew this,deep down. 
 
+源实体：你很敏锐。当然有一个尽头，但是你内心深处本来就知道。
+
 #### Beyond the Expansiveness of the Source 
 
-**在源头广阔性之外**
+**在源头的广阔性之外**
 
 I changed my mental focus to extend myself beyond the expansiveness of the Source.I saw that the Source was,in fact,very expansive,but what I saw surprised me.The area around me was in negative format with the Source below me displayed like a bubble with all the universes and dimensions and galaxies contained within the bubble.As I looked around myself,I saw that there were others like the Source,all with similar looking bubbles.I returned to my conversation with Source. 
 
-我改变了意念的焦点，使我扩展到源头之外，我看到源头确实非常广阔。 但是我看到的让我吃了一惊，环绕在我周围的区域是以副片的样式呈现源头。 在我下面看上去像一个气泡气泡里，包含了所有的宇宙维度和星系。 当我环顾我的四周，我看到了其他像原始体的东西都有类似的气泡。 我又回到与原始体的对话，有更多的你呀是的，我们都是更大事物的一部分。 我们都在用不同的方式体验。我们自己我的方式是把自己分成两半制造出很多跟你一样的不朽的灵魂。 然后交给你们任务，让你们去宇宙中经历尽可能多的不同的事情是他像我这样的存在，要么以不同的方式也在做这件事，要么根本不做你创造的所有宇宙，看起来都像是一个脏白球里的黑球，而且他们之间还有空隙。 是的，没错，为什么会有空隙？为了让我的助手们能够在宇宙之间穿行，而不必与宇宙互动，可以把他们当做我的后门。
+我改变了意念的焦点，使我扩展到源头之外，我看到源头确实非常广阔。 但是我看到的让我吃了一惊，环绕在我周围的区域是以副片的样式呈现源头。 在我下面看上去像一个气泡气泡里，包含了所有的宇宙维度和星系。 当我环顾我的四周，我看到了其他像源实体的东西都有类似的气泡。 我又回到与源实体的对话，有更多的你呀是的，我们都是更大事物的一部分。 我们都在用不同的方式体验。我们自己我的方式是把自己分成两半制造出很多跟你一样的不朽的灵魂。 然后交给你们任务，让你们去宇宙中经历尽可能多的不同的事情是他像我这样的存在，要么以不同的方式也在做这件事，要么根本不做你创造的所有宇宙，看起来都像是一个脏白球里的黑球，而且他们之间还有空隙。 是的，没错，为什么会有空隙？为了让我的助手们能够在宇宙之间穿行，而不必与宇宙互动，可以把他们当做我的后门。
 
 ME:There are more of You. 
 
+我：
+
 SE:Yes.We are all part of something bigger,and We are all experiencing Ourselves in different ways.My way was to split Myself in half and make the many immortal souls that you are and task you with going out into the universe to experience as many different things as you could.Others like Me have done this in different ways or not at all. 
+
+源实体：
 
 ME:All the universes you created look like black spheres inside a dirty white sphere,and they all have gaps in between them. 
 
+我：
+
 SE:Yes,that's correct. 
+
+源实体：
 
 ME:Why are they here? 
 
+我：
+
 SE:To allow My helpers to move between the universes without interaction with them. Consider them My back door. 
+
+源实体：
 
 #### Active Engagement in the Evolutionary Process
 
@@ -8077,9 +8509,15 @@ I looked at the other spheres that looked like our Source Entity or God.
 
 SE:They/We are all part of a bigger entity,the Origin.What I have divided Myself into,all you smaller souls,is similar to what the Origin has done to create Us,discounting the smaller souls,of course.Everything is disseminated;everything is actively engaged in the evolutionary process of understanding self by experiencing new things in different environments in order to feed this back to the Whole to make the Whole (the Origin)appreciate what It is. 
 
+源实体：
+
 ME:So I am privileged to see this. 
 
+我：
+
 SE:You are only seeing a very small part of it in your very limited physical incarnation,but yes,there are not many people that have seen this,let alone made some sort of sense of it in their current state.
+
+源实体：
 
 ### Chapter 23 - The Source Entity's Observations of Souls on Earth
 
@@ -8091,21 +8529,33 @@ SE:You are only seeing a very small part of it in your very limited physical inc
 
 One morning saw me doing my usual morning meditation and hara line work.I had the intention of going into my mind to talk with aliens but was surprised to find myself in the presence of the Source Entity again.This I didn't expect although I knew I was in His presence as I saw Him/It from a very great distance as a nebula of white clouds in space. 
 
-一天早晨我照常做冥想和哈拉线的练习，我有意进到我的头脑中与外星人交谈，但惊奇的发现我又出现在原始体面前，这是我没有料到的。 尽管我知道我在他的面前，因为我远远看到他他在空中呈现为一团白色的星云。 你正在见证的是伟大的分化时刻，我在把我自己分化成我和我的很多更小的部分，我能看到一团光聚合成很多更小的光点，我知道那就是新的灵魂。 正在诞生每个更小部分的我都会有其独立性，并遵循自己的决策过程。 为什么你要像这样把自己分成许多小块呢？为了看清是什什么与很多不同形式的可能是什么之间有什么差别，你是什么意思？ 我能够理解我曾经是什么，但是我觉得我需要体验，我可能是什么？ 如果我只是一分为二，这会需要很长时间。所以我决定把我的一半变成亿万个灵魂，让每一份灵体同时经历不同的事。 这在他们经历之后，把体验过程中的信息反馈给我，目的是通过把我自己同时放在我所能想到的尽可能多的不同环境情形位置时间文化维度等等等等，来体验所有我可能经历到的。 于是我自己成长地球是一个非常有意思的地方，它提供了大量的进化素材。
+一天早晨我照常做冥想和哈拉线的练习，我有意进到我的头脑中与外星人交谈，但惊奇的发现我又出现在源实体面前，这是我没有料到的。 尽管我知道我在他的面前，因为我远远看到他他在空中呈现为一团白色的星云。 你正在见证的是伟大的分化时刻，我在把我自己分化成我和我的很多更小的部分，我能看到一团光聚合成很多更小的光点，我知道那就是新的灵魂。 正在诞生每个更小部分的我都会有其独立性，并遵循自己的决策过程。 为什么你要像这样把自己分成许多小块呢？为了看清是什什么与很多不同形式的可能是什么之间有什么差别，你是什么意思？ 我能够理解我曾经是什么，但是我觉得我需要体验，我可能是什么？ 如果我只是一分为二，这会需要很长时间。所以我决定把我的一半变成亿万个灵魂，让每一份灵体同时经历不同的事。 这在他们经历之后，把体验过程中的信息反馈给我，目的是通过把我自己同时放在我所能想到的尽可能多的不同环境情形位置时间文化维度等等等等，来体验所有我可能经历到的。 于是我自己成长地球是一个非常有意思的地方，它提供了大量的进化素材。
 
 SE:You are witnessing the great division when I divided Myself into Me and the smaller parts of Me. 
+
+源实体：
 
 I could see the cloud of light coalesce into smaller points of light that I knew were the new souls being born. 
 
 SE:Each smaller part of Me will have Its own independence and decision process to follow.
 
+源实体：
+
 ME:Why did You split Yourself into many pieces like this? 
+
+我：
 
 SE:To see the difference/s between "what is"compared with the many different forms of“what could be." 
 
+源实体：
+
 ME:What do you mean? 
 
+我：
+
 SE:What I was I could understand,but I felt the need to experience what could be.If I had just divided into two,this would have taken a long time,so I decided to make half of Myself into many billions of souls.Each would experience different things at the same time and feed the information that they are experiencing to Me as they experienced it.The objective was to experience everything that I could by putting Myself in as many different environments,situations,positions,times,civilizations,dimensions,etc.,etc.,as I could think of,all at the same time to make Myself grow through experience.The Earth is a very interesting case and is providing a lot of evolutionary material. 
+
+源实体：
 
 #### The Incarnate Soul's Lack of Contact with Source 
 
@@ -8116,6 +8566,8 @@ ME:What makes Earth interesting?
 我：是什么？让地球这么有趣。地球有趣是因为我没有想到地球和转世于此的灵魂发生了这样的频率下跌，以觉得这个最有意思是因为在所有其他星球上的那么多，不同类型的化身生命都以某种方式形状或形式与我保持着联系。 而当灵魂在地球当前的这个频率投胎地球层及时灵魂在化身中的那部分，竟然完全不知道我的存在，以至于需要有一个灵魂团队在化身期间来帮助他，灵魂确实是全靠自己了。 而且在不知道一个决定是好是坏的情况下，要自主做出决定。 事实上你无所谓好的或坏的决定只是不同的选择。所以我们确实是聋子哑巴和瞎子。
 
 SE:The Earth is interesting because I didn't envisage Earth and its incarnate souls falling down the frequencies as occurred.This I found most interesting because on all other planets with all the different types of incarnate beings,the beings are all still in contact with Me in some way,shape,or form.When a soul incarnates at the Earth level at its current frequency,the part of the soul that incarnates is totally unaware of My presence-so much so that it needs to have a team of souls helping it during the incarnation process.A soul is truly on its own and is free to make its own decisions without knowing whether it will be a good or bad decision when,in fact,there is no good or bad decision,only choices. 
+
+源实体：
 
 ME:So we truly are deaf,dumb,and blind. 
 
@@ -8129,21 +8581,37 @@ SE:Yes.What is even more interesting is that although over the millennia,you hav
 
 ME:How can this be unexpected for the One Who is all seeing? 
 
+我：
+
 SE:Of course,I expected it,but expectation and experience is a different kettle of fish,which is the whole reason for My dividing Myself in the first place. 
+
+源实体：
 
 ME:I see. 
 
+我：
+
 SE:Yes,I think you do.IF this works out with Earth,I will allow this process with other planets and civilizations that are less in control of their own future from an individual entity's point of view. 
+
+源实体：
 
 ME:So Earth is an experiment. 
 
+我：
+
 SE:Yes,but everything is an experiment;everything is an experiential experiment. Experience is everything.Without experience you only have theory. 
 
+源实体：
+
 ME:Why is that? 
+
+我：
 
 I knew the answer to this question before the Source even answered,or did I? 
 
 SE:Because in the first instance,it involves the interaction of the individual without the prior knowledge of what to do,so he/she has to make decisions based upon his/her circumstances and react accordingly.If he/she gets it right,he/she learns;if he/she gets it wrong,he/she also learns.It's a win-win situation,filled with opportunities to learn or experience something. 
+
+源实体：
 
 When the individual has more knowledge or experience of an issue or problem,it makes finding the solution to the problem more efficient. 
 
@@ -8157,7 +8625,11 @@ Experiencing things by having put yourself in a situation where you have to work
 
 ME:I don't think that is so because you may go down the wrong path in your solution because you have based your assumptions on data from a different situation. 
 
+我：
+
 SE:Good,you are thinking but accept the fact that the understanding/recognition of going down the wrong route is faster than it would have been without prior knowledge.It's true.Consider the lab rat in a maze.Once he has sorted out the way to the center and back again in one maze,the time it takes him to solve the puzzle when he is put into a different maze,is faster than it was in the first maze.The third time will be even faster. 
+
+源实体：
 
 #### Author Questions Speech as a Form of Communication 
 
@@ -8169,19 +8641,35 @@ The next day saw me once again zooming into the mass of light that was the Sourc
 
 ME:Why do we speak or appear to speak to each other?Why not use another method of communication?Like images? 
 
+我：
+
 SE:Because this is what your focus is on.You communicate better this way whilst you are an incarnate being.
+
+源实体：
 
 ME:Could we not communicate in the way that we do when we are disincarnate? 
 
+我：
+
 SE:We can't do that because your focus is currently on this method of communication.If we used the other seventeen senses that you have when we communicate properly,your conscious self would not be able to cope with the massive and sudden influx of new data.You would just pass out. 
+
+源实体：
 
 ME:What are these other senses? 
 
+我：
+
 SE:Some of them are too difficult for you to understand at the moment but suffice it to say that when we communicate properly,you receive not only the spoken word (which is really very limiting,sort of like trying to type with one finger!)but also you receive twenty-two channels of input,including images,feelings,emotions,smells, perceptions,tactile impressions,and other senses that you wouldn't even know you had or could use. 
+
+源实体：
 
 ME:Wow!So for the moment the spoken word really is the best way. 
 
+我：
+
 SE:Yes,at the moment. 
+
+源实体：
 
 #### Animals in the Ionosphere 
 
@@ -8193,11 +8681,19 @@ As I then started my core star meditation,my attention focused on the Earth,the 
 
 ME:I suddenly got the impression that there are animals in the ionosphere as well! 
 
+我：
+
 SE:Yes,there are;they are gas animals.You haven't detected them yet because you don't have the equipment to do so.There are many,many animals that live on or around the Earth that you don't know about. 
+
+源实体：
 
 ME:Can I ask about their purpose on Earth later? 
 
+我：
+
 SE:Please do.
+
+源实体：
 
 ### Chapter 24 - A Bit about the Author's Past Lives 
 
@@ -8205,25 +8701,43 @@ SE:Please do.
 
 A follow-up meditation days later saw me contacting the Source rather quickly.I was starting to just"go there"rather than needing to go through a series of steps.When I arrived, I wanted to talk to Source about the other lives I had on Earth. 
 
-在几天后接下来的冥想中，我很快跟原始体联系上了，我现在可以一下子就到那里。 这不用经过一系列的步骤。当我到达时，我想跟源头谈谈，我在地球的前世，我在地球的前世都是做什么的。 许多事你做过国王民主平民和普通人，但是在你所有的轮回化身中，你一直是做你自己，这是什么意思？ 我一直是我自己，我是说你一直是完整的，你自己，这是说你没有试图成为你所不是的。 而且你也与你全部的自我保持着联系，这其中就包括你们所谓的高，我我还做过什么？ 你在很多事都帮助过人们一起，或不要忘记宇宙的石像，以及他们是谁，这包括使用和感知能量，你教导他们如何感觉能量。 然后如何看到能量，我为什么做这个为了协助将要发生的伟大的一期。 这里曾经需要也仍然需要临近数量的记得足够多的转世着，以便让这知识能够在物质世界中代代相传，而不是永远被遗忘。 这就是你在这个世界所要做的，但是需要用到你以后才会获得的知识。 你会知道具体的时刻就快到了，我该如何获得这个知识呢？
+在几天后接下来的冥想中，我很快跟源实体联系上了，我现在可以一下子就到那里。 这不用经过一系列的步骤。当我到达时，我想跟源头谈谈，我在地球的前世，我在地球的前世都是做什么的。 许多事你做过国王民主平民和普通人，但是在你所有的轮回化身中，你一直是做你自己，这是什么意思？ 我一直是我自己，我是说你一直是完整的，你自己，这是说你没有试图成为你所不是的。 而且你也与你全部的自我保持着联系，这其中就包括你们所谓的高，我我还做过什么？ 你在很多事都帮助过人们一起，或不要忘记宇宙的石像，以及他们是谁，这包括使用和感知能量，你教导他们如何感觉能量。 然后如何看到能量，我为什么做这个为了协助将要发生的伟大的一期。 这里曾经需要也仍然需要临近数量的记得足够多的转世着，以便让这知识能够在物质世界中代代相传，而不是永远被遗忘。 这就是你在这个世界所要做的，但是需要用到你以后才会获得的知识。 你会知道具体的时刻就快到了，我该如何获得这个知识呢？
 
 ME:What have I been in my other lives on Earth? 
 
+我：
+
 SE:Many things.You have been kings,lords,paupers,and common folk,but in all of your incarnations,you have been yourself. 
+
+源实体：
 
 ME:What do you mean?I have been myself? 
 
+我：
+
 SE:By this,I mean that you have been YOURSELF in its entirety.This means that you were not trying to be something that you were not,and you were also in contact with all of your "self,"which would include what you call your higher self. 
+
+源实体：
 
 ME:What else have I been? 
 
+我：
+
 SE:Many of your lives have been assisting people to remember or not forget the reality of the universe and who they are.This included the use of and sensing of energies.You did this by teaching them how to feel the energies and then how to see them. 
+
+源实体：
 
 ME:Why did I do this? 
 
+我：
+
 SE:To assist in the great remembering that is going to happen.There needed to be and still needs be a critical mass of incarnate beings that have remembered enough to allow the knowledge to be passed on through the centuries and not forgotten forever in the physical world.It is this that you will be doing in this world but with the knowledge that you will gain later.You will know that the remembering is to be soon. 
 
+源实体：
+
 ME:How will I get this knowledge? 
+
+我：
 
 #### How to Have Consistent Contact with Spirit 
 
@@ -8235,7 +8749,11 @@ SE:By making your contact with Spirit/Me consistent.
 
 ME:How will I know when I have gotten there? 
 
+我：
+
 SE:You will know.For instance,when you can meditate without any stray thoughts for ten minutes,you will be in a position to make the link because you will be able to do it for longer,much longer.When you can live your life to the point where you are not worried about what other people think of what you say or do,you will understand this to be the human condition,and you will not live in fear.At this point when these two things are present,you will be in contact with Spirit on a permanent basis.You will be at one with yourself and the universe/Me and be able to exist in peace.You will then have the peace of someone who understands the truth and does not need to prove anything to anyone nor himself.You can,therefore,assist Spirit to the best of your ability.Without ego,you will be able to handle the power of energy without corruption.You will be able to do anything;you will be able to perform miracles. 
+
+源实体：
 
 #### Significance of Sun and Moon Energies 
 
@@ -8247,27 +8765,51 @@ We had discussed a lot about the sun and moon energies in my healing courses,so 
 
 ME:What is the significance of sun and moon energy? 
 
+我：
+
 O:This is relative to the level of work the individual is doing.In the past this was relative to what work the individual was doing for the general population. 
+
+起源：
 
 ME:Such as? 
 
+我：
+
 O:Sun energy is power energy and sun energy priests (experts)used the power generated by the sun to manipulate large objects,trans-mutate objects,or merely as a power source for things,such as lights or flying machines.It was really the "working"energy by which everything was powered.There were,of course,different levels of power that were relative to different types of tasks/work,and different individuals would specialize in these levels.Some priests,however,could use all the powers and levels that were available and so were highly revered. 
+
+起源：
 
 ME:So what were the moon energies for? 
 
+我：
+
 O:These are basically healing or repairing energies.These sorts of energies are only really manifested in the physical realms.They are used to repair the physical vehicle if the task of the soul is not yet complete and that vehicle is still required to complete that task. 
+
+起源：
 
 ME:So what is the difference between healing and repairing energies? 
 
+我：
+
 O:You know the basic answer to this,as it is self-explanatory.Repairing is the healing of inanimate or soulless objects or entities that are manifested in the physical realm, whereas healing is repairing of animate and inanimate objects that possess a soul or group soul. 
+
+起源：
 
 ME:Inanimate objects have a soul? 
 
+我：
+
 O:Yes,all minerals are inanimate but have a soul.Animate objects are higher level objects that are used for the evolution of higher souls/entities and,therefore,need to be more independent than those bodies offered by vehicles,such as planets,etc. 
+
+起源：
 
 ME:And the moon priests were experts in healing them?
 
+我：
+
 O:Yes.They knew all the energies of this type that were available and what healing they could be used on.As with the power priests,they also had people who were experts in some methods and others or "high"priests that were capable of all levels of healing. 
+
+起源：
 
 #### Lives in Egypt and Atlantis Changing the Atomic Composition of Materials 
 
@@ -8279,17 +8821,31 @@ I then got a flash of one of my past lives.I had the impression that I was well 
 
 O:In those days you were able to change the very atomic composition of any material. 
 
+起源：
+
 ME:How did I do this? 
+
+我：
 
 O:You were able to look into the material at the atomic level and add or remove protons, neutrons,and electrons to change the base material you had into anything you wanted it to be.You could make materials very light in this way by moving the atoms you needed to remove to change the composition of the material into another frequency whilst you moved the base mass of the material to another location.Once the new location was established,you returned the missing electrons/atoms to the material,and it regained its original form,structure,and density. 
 
+起源：
+
 ME:That sounds very complicated. 
+
+我：
 
 O:Yes,but you also had other ways of doing this.You also placed all but every 3rd or 4th molecule into the nearest dimension or frequency,leaving behind in this dimension the bare skeleton of the object and its material so that it could literally be man- handled into place by a small number of people or,in some cases,only one person- one that could perform low grade telekinesis,provided that the mass of the object was not too great. 
 
+起源：
+
 ME:I can't believe that I could do this. 
 
+我：
+
 O:Any entity that is not in this plane of existence can perform these tasks,as every entity is part of Me and has the ability to do anything it desires.
+
+起源：
 
 ### Chapter 25 - Stars,Incarnating Souls,and Root Races 
 
@@ -8305,13 +8861,23 @@ On another meditation I was pondering over the work of the stars.The Origin offe
 
 O:The stars were made by the Source Entity. 
 
+起源：
+
 ME:How did It do that? 
+
+我：
 
 O:By commanding the workers of the galaxies to gather together and coalesce the denser matter that was manifested in the physical level of the universes. 
 
+起源：
+
 ME:When did Source Entity do that?At the start of the evolution program? 
 
+我：
+
 O:Yes,the objective was to provide an energy source close to each area where a collection of beings were going to stay to work through their evolution/learning plans.The stars provide energy for all the entities and the masses(planets)that they gather around on all dimensions and all frequencies.
+
+起源：
 
 #### The Necessity of Working with the Nature Spirits on Earth 
 
@@ -8322,6 +8888,8 @@ ME:So how do we affect the energy that the Earth takes from the sun?
 我：那么我们如何影响地球，从太阳接受到的能量呢？ 你们当中有节肢的人可以作为能量通道，为地球提供一种超强的获取能量的方法，使地球和你们自己提升频率，这就是为什么与地球及其自然精灵守护者合作非常之重要。 即此，你们都会在能量上受益提升频率，找回更多的记忆成就更多，并且更多的与你们真正的高。 我连接你们也确实离着第一次转变，非常接近了近到甚至连那些负面的和愤怒的人都无法影响这个变化了，这是个极好的消息，使人类实验的一个巨大的进步。 当我完成早晨的哈拉线冥想后，我正打算做一个只是存在的冥想时，我在意识眼中瞥见有成千上万颗星星，仅仅靠在一起，因为不是很清楚，我就问原实体他们是什么？
 
 O:Those of you who are aware can act as a conduit for the energy and give the Earth a sort of supercharged method of gaining energy that allows it (and yourselves)to move up the frequencies.This is why it is essential that you work with the Earth and its nature spirits(caretakers).Then all of you will benefit energetically which will allow you to move up the frequencies,gain more of your memory back,achieve more,and be more in contact with your true higher selves. 
+
+起源：
 
 It's also true that you are so close to making this first transition-so close that even those who are negative and angry are not able to affect the change.This is wonderful news and such a forward step for the human experiment! 
 
@@ -8337,9 +8905,15 @@ ME:What are these stars?They look like a close-up of a nebula?
 
 SE:They are the souls that are waiting to incarnate on Earth.They can't wait to incarnate and surround the Earth in anticipation. 
 
+源实体：
+
 ME:I also get the impression that there are other souls there as well. 
 
+我：
+
 SE:Yes,there are.These are the souls of people who are more earth bound.They have become addicted to incarnate life and,therefore,can't break away from the Earth plane properly.They wait for the opportunity to sneak into the body of a person who is very drunk,as the aura is forced open by the high alcohol intake and allows another soul to invade it and,therefore,experience incarnate life again,albeit for a short moment. 
+
+源实体：
 
 When I told my wife about this,she immediately said that there were also the root six and seven souls who were waiting to incarnate and continue the next stage of human evolution. These souls,when incarnate,will retain all memory of who and what they are and will help in the environmental events that will happen as a result of the raising of the Earth's frequencies. 
 
@@ -8355,13 +8929,21 @@ ME:So what is the difference in the root 5,6 7 races?
 
 SE:The root 5 race has to go through a lengthy process to get into a position where its members are in contact with their higher selves and start to access their true abilities. This is quite difficult to do and requires the individual to re-learn how to access these abilities from the physical plane.The individual also needs to cleanse himself/herself and remove all the blockages accrued over lifetimes to date. 
 
+源实体：
+
 ME:So what about the 6th root race? 
 
+我：
+
 SE:It is their job to pave the way for the root 7 race.They will be more aware of their abilities and spiritual issues from birth and will take on the task of preparing the rest of the human race for the progression up the frequencies.They will make them more aware of spiritual matters so that they can start to realize that there really is more to life than just considering their one shot here on Earth.This will start to make them think from a spiritual perspective on a longer term. 
+
+源实体：
 
 ME:So what will the 7th root race be? 
 
 SE:They are those masters who wish to re-incarnate.They will be fully aware of their true selves and their abilities from birth and will actively and openly teach and affect the changes necessary to raise the frequencies of the Earth and its inhabitants to the levels required to project it up to the next level,so that it may continue its rise up the frequencies back to where it belongs.At this point heaven on Earth will be a reality.
+
+源实体：
 
 ### Chapter 26 - No Such Thing as Psychic Powers 
 
@@ -8373,11 +8955,19 @@ ME:I want to know about our psychic powers.Do we have any,what they are,and if w
 
 SE:This is quite a low level question for you. 
 
+源实体：
+
 ME:Thanks,but it is something that I guess many people would like to know the answer to. 
+
+我：
 
 SE:O.K.First,there are no such things as psychic powers.There just are the faculties that you are able to use whilst in this current projection into the physical.These may or may not include some of your normal functions when in the energetic state. 
 
+源实体：
+
 ME:What may these be? 
+
+我：
 
 #### The Alienation and Limitations of Special Powers 
 
@@ -8391,9 +8981,15 @@ To answer your question about what your psychic powers are,I will answer it with
 
 ME:I would expect them to be everything that I can think of. 
 
+我：
+
 SE:Good answer.In fact when you are fully back in the energetic state,your abilities are only limited by your ability to think of them.In reality,your abilities are limitless,hence, why they don't come with you into the physical.If you brought them all with you and used them in the physical environment,you would not only be classified as a god but could wreak some real damage. 
 
+源实体：
+
 ME:Has humankind ever had some of his abilities available to him in the past? 
+
+我：
 
 #### First Experiments of Energetic Man Having a Fully Retained Memory of Abilities 
 
@@ -8413,7 +9009,11 @@ The main requirement of the ability to use some of the normal everyday energetic
 
 ME:You mentioned three faculties of telepathy,telekinesis,and healing.What would the others be? 
 
+我：
+
 SE:As you said yourself just a few minutes ago,you can do anything you want in the energetic state;all you have to do is do it-teleportation,time travel,dimension travel, creation,anything!All you have to do is want to do it,and it is done.The most important faculty that all humans still have though is the one that is most ignored -the ability to tune into reality and communicate with themselves,Me,and the universe around them.This is the way to enlightenment and is part of the reason why all of you incarnate into the physical human form:to experience,evolve,and return to Source,Me. 
+
+源实体：
 
 #### The Physics of Telekinesis 
 
@@ -8425,13 +9025,23 @@ ME:I have a question on the physics of telekinesis.I thought that this worked by
 
 O:Close,but the real way is to make the area around the object denser than the object itself, therefore,allowing the object to float rather like a ball floating to the surface of water. You then make it move by making the local level of density less dense,literally making it "fall"in a certain direction. 
 
+起源：
+
 ME:So how do you do that without creating a physical object,such as ice? 
+
+我：
 
 O:By changing the energy field characteristics of the surrounding material.That's how magnetism works. 
 
+起源：
+
 ME:But magnetism relies on two objects being magnetic in some way.
 
+我：
+
 O:Of course,the reference to magnetism was just a reference to help you understand. The energy field surrounding an object can be made more dense by simply making it stronger and allowing it to push less strong fields out of the way.If the field is underneath the object,it is lifted;if it is weakened,the object falls back to Earth.This can be done in a cradle effect so that lateral movement can also be achieved. 
+
+起源：
 
 #### The Great Illusion 
 
@@ -8443,7 +9053,11 @@ In another meditation the Origin showed a brief description of life on Earth as 
 
 O:An illusion is at its best when it is able to distract the observer to the point where he/she is totally convinced that what he/she is experiencing with his/her limited ability/senses is reality. 
 
+起源：
+
 ME:So we are living in a particularly convincing illusion. 
+
+我：
 
 #### Trusting One's Intuition 
 
@@ -8455,9 +9069,15 @@ O:No,you are not,but you are all easily convinced that physical life is all ther
 
 ME:So the more I trust my intuition,the more I will use my higher senses,and the more I will see that this life is mere illusion,one for the benefit of my evolution. 
 
+我：
+
 O:Yes,now you are getting it.This is fun. 
 
+起源：
+
 ME:Why? 
+
+我：
 
 #### Evolution's Fast Track
 
@@ -8481,11 +9101,17 @@ I considered what Byron had said earlier about communicating with aliens and dec
 
 ME:Hello,Hum.Can you help me a bit on the subject of aliens.I have received a smattering of information on this subject during one of my meditations and now would like to commit some time for dialogue on the subject. 
 
+我：
+
 HUM:First,there is no such thing as aliens.That is just a description that people on Earth use to describe people or beings that don't come from Earth.Based upon this,there are only other entities,not aliens that live on planets in this and other galaxies,universes, dimensions or frequency levels.They are really our brothers and sisters as we are all from the same Source energy and are all working to expand our evolution and progress towards being re-united with the Source Entity again. 
+
+HUM：
 
 Life in other universes and dimensions is as diverse as the number of insects and mammal life here on Earth.There are beings of pure energy,which our souls/spirits are really,and beings that are based upon physical components.Some of the body types are close to the sizes and shapes of human bodies,whereas others may appear to look like squids or birds or lizards or fish,some even being a mixture of two or three mediums. Some beings are able to change the shape and size of their physical appearance at will,as they have control of their higher mental and spiritual capabilities.Beings that exist in the higher frequencies have physical components that are as solid to them as your bodies are to you.If you could perceive them and touch them,it would be like trying to touch the wind or a very rare gas. 
 
 ME:Do aliens visit Earth? 
+
+我：
 
 #### The Consistent Presence of Visiting Entities 
 
@@ -8507,13 +9133,19 @@ The subject of traveling vast distances in an efficient manner has always been a
 
 HUM:What you call "alien space craft"travel the vast distances between the stars by translating themselves into a higher frequency or dimension.Within this dimension the beings on-board can literally use mental power to project themselves to another star system or planet.This is achievable because the different frequencies or dimensions of all the universes are literally overlaid on each other.Since they exist at the same time,the physics of higher frequencies results in the molecules for a lower frequency individual to travel in a higher frequency realm even though they are essentially further apart. 
 
+HUM：
+
 There is an infinitesimal reduction in resistance that allows traveling from star to star to happen much faster,in fact at the speed of thought.This is so fast that to the observer in the lower frequency,traveling from A to B appears to be at the blink of the eye,like teleportation. 
 
 There are also a different set of physical rules with higher frequencies that allow the individual to have access to information and mental abilities/powers in higher frequencies that they would not normally have in their own home frequency.Hence, they have the ability to mentally project themselves as they suddenly remember how to do this.Once the space ship reaches its destination in the higher frequency,it is then converted back into its original frequency and appears at the point of destination.The down side of this is the rapid forgetting of mental ability as the craft and its inhabitants convert to the lower frequencies.This is not the only way to travel great distances though. 
 
 ME:It isn't?What are the other ways then? 
 
+我：
+
 HUM:There are many ways to perform interstellar travel,both easy and hard.In general though,four main methods are used.The first is to use conventional travel as you know and understand it,which,of course,takes too long and would require a space ark even at 90%light speeds.The second uses inter-dimensional jumps to cross the bridge between two points in space.The third uses pure thought to drive a space ship or mental construction to protect the entities from the decrease in frequency that results in dropping into lower frequencies.The fourth requires travel in the higher dimensions only and is done purely on a mental basis and requires no protective mental constructs whatsoever.The entities who perform this sort of travel don't generally venture this far down the frequency ladder and find these lower frequencies very uncomfortable,just as you do when you have some of your senses and abilities reduced when scuba diving.They merely think or focus on a galactic,planetary,or system location,and they are there.Again this is possible because an entity is really in all places at the same time and is able to focus its attention to one particular special or temporal point at will and coalesce there. 
+
+HUM：
 
 #### A Most Interesting Method of Transportation 
 
@@ -8533,19 +9165,31 @@ As a result 12th level frequency entities can travel in the 3rd dimension within
 
 On a particular short meditation I found myself logging into Hum,who furnished me with a very short explanation of what the Om are and how they interact with Earth. 
 
-在一次特别短暂的冥想中，我发现自己简接到了m对于在什么以及他们如何何地球球互动，他给了我一个常简短短的解释。 你好，m很高兴今早与你对话，我也很高兴和你说话，因为你很快就不再笑我了。 这是为什么？只要你愿意，你将能够与任何存友实体沟通，不需要指导或后援了。 哦，好吧，我有一个问题想问你on是怎么回事？他们在地球上是如何显化的？ 这个回答答很简短，因为他已渗透透在你们的民间故事和传说中了on是一个古老的种族，只能被描述为是生活在天堂层级，非常接近原始体的光之存友，有许多昂存有转世于亚特兰蒂斯时代。 这也是为什么今天地球上有这么多曾经的亚特兰蒂斯人来帮助地球从频率层级为负九的位置恢复过来。 因为地球已经从他最初所在的地方降低了九个频率层级on本，不需要在地球层面转世。 但是他们认为有必要帮助这个星球，因为他们知道对所有生物的进化而言，地球对宇宙所能产生的影响。 因然我们曾转世于亚特兰蒂斯时代，但任何帮助都是有限。 因为亚特兰蒂斯是相对孤立的海岛文明而帮助需要更加的全球化。
+在一次特别短暂的冥想中，我发现自己简接到了m对于在什么以及他们如何何地球球互动，他给了我一个常简短短的解释。 你好，m很高兴今早与你对话，我也很高兴和你说话，因为你很快就不再笑我了。 这是为什么？只要你愿意，你将能够与任何存友实体沟通，不需要指导或后援了。 哦，好吧，我有一个问题想问你on是怎么回事？他们在地球上是如何显化的？ 这个回答答很简短，因为他已渗透透在你们的民间故事和传说中了on是一个古老的种族，只能被描述为是生活在天堂层级，非常接近源实体的光之存友，有许多昂存有转世于亚特兰蒂斯时代。 这也是为什么今天地球上有这么多曾经的亚特兰蒂斯人来帮助地球从频率层级为负九的位置恢复过来。 因为地球已经从他最初所在的地方降低了九个频率层级on本，不需要在地球层面转世。 但是他们认为有必要帮助这个星球，因为他们知道对所有生物的进化而言，地球对宇宙所能产生的影响。 因然我们曾转世于亚特兰蒂斯时代，但任何帮助都是有限。 因为亚特兰蒂斯是相对孤立的海岛文明而帮助需要更加的全球化。
 
 ME:Hello,Hum.It is good to speak to you this morning. 
 
+我：
+
 HUM:It is good to speak to you as well,for you will no longer need Me soon. 
+
+HUM：
 
 ME:Why is this? 
 
+我：
+
 HUM:You will be able to communicate with any being/entity you wish without guidance or backup. 
+
+HUM：
 
 ME:Oh.O.K.I have a question for you.What are the Om and how have they manifested on the Earth? 
 
+我：
+
 HUM:This will be a very short answer for it is steeped in your folklore and legend. 
+
+HUM：
 
 The Om are an old race that can only be described as light beings that live in the heaven levels(very close to the Source Entity).There were many Om beings incarnating in the Atlantis days,and this is why there are many old Atlanteans here on Earth today to help the Earth recover from her position of-9 on the frequency levels since Earth has fallen nine frequency levels from where she originated.The Om did not need to incarnate on the Earth plane,but they felt the need to help the planet as they understood the impact that the Earth could have on the universe,in terms of evolution for all beings.Although we incarnated in the Atlantean days,any help would have been limited as the Atlanteans were quite an insular civilization whereas the help needed to be more global. 
 
@@ -8577,33 +9221,63 @@ ME:How did you know that I was coming over here to see you?
 
 A:We/I received your intention to be here and so had time to prepare. 
 
+外星人：
+
 ME:How can that be?I just had the impression that I have been three times around the galaxy.I was as far away from the Earth as I could be. 
+
+我：
 
 A:Yes,but we received your intention to be here.
 
+外星人：
+
 ME:How do you mean you received my intention?How do you receive my intention? 
+
+我：
 
 A:Your intention to be here arrives before you do.The intention travels toward us and causes a ripple.It is these ripples that we pick-up/receive and act upon. 
 
+外星人：
+
 ME:How did you know it was me? 
+
+我：
 
 A:By the signature of the ripple we felt it coming in,and when we established whose signature it was,we prepared ourselves to receive you. 
 
+外星人：
+
 ME:Can you please explain?I would have thought that if my intention caused a ripple,then it would be much slower that my actually traveling here.I was traveling fast enough to go three times around the galaxy before I got here. 
+
+我：
 
 A:Yes,but the intention that is transmitted is in on a different dimensional plane.This plane is specific to communication and intended actions/thoughts and,hence,is not interfered by nor interferes with the dimensional plane or frequencies of the individual entity. 
 
+外星人：
+
 ME:O.K.,but a ripple indicates some sort of resistance or other and,therefore,suggests that it is slowed down in some way. 
+
+我：
 
 A:This is not so in the dimension that your intention operates within.The best way to describe it is as a bow wave.When a ship is on the water,the bow wave goes before the boat because the boat is pushing/displacing the water out of the way to make way for the hull of the boat.This can be picked up at various stationary points in front of the boat and measured;based upon this information,the size and tonnage of the boat can be extrapolated.This is its signature.Your intention is similar but in a different dimension.The distance in relative terms between the bow wave of the intention to travel to a point in the universe or dimension and the action of the individual entity that follows can be infinite,but it is nevertheless discernable by the receiving entity and measurable by ascertaining the amplitude of the intended action,therefore, allowing time to prepare for such a visit. 
 
+外星人：
+
 ME:So this is how you are always ready for me. 
+
+我：
 
 A:Correct. 
 
+外星人：
+
 HUM:This is exactly how we perceive your intention to communicate with us as well. 
 
+HUM：
+
 ME:What happens if two sets of intention collide with each other? 
+
+我：
 
 #### The Impossibility of Two Sets of Intention Colliding 
 
@@ -8611,25 +9285,43 @@ ME:What happens if two sets of intention collide with each other?
 
 A:They don't. 
 
-我：不会发生这种情况，为什么不会这肯定就像两艘船的首播，互相干扰。 那样他们会拉低彼此的速度，互相干扰，并扭曲彼此的信号。不不会这样，为什么？ 因为如前所述，每个实体都有自己的签名，就像电台频率的签名，一个签名可以是无线电信号相位中的一秒，甚至可以是疫秒的很小一部分。 这个无线电信号在振幅频率维度和密度上有着无数种可能。 所以两个实体具有相同，签名的几率很小喽，没错，那是不可能的。 因为还应考虑意愿的方向和目的地，这些也增加了意愿签名，以及由此产生的首波的独特性。 所以两个首播永远也不会干扰彼此。是的，永远不会，谢谢。 现在清楚了
+外星人：不会发生这种情况，为什么不会这肯定就像两艘船的首播，互相干扰。 那样他们会拉低彼此的速度，互相干扰，并扭曲彼此的信号。不不会这样，为什么？ 因为如前所述，每个实体都有自己的签名，就像电台频率的签名，一个签名可以是无线电信号相位中的一秒，甚至可以是疫秒的很小一部分。 这个无线电信号在振幅频率维度和密度上有着无数种可能。 所以两个实体具有相同，签名的几率很小喽，没错，那是不可能的。 因为还应考虑意愿的方向和目的地，这些也增加了意愿签名，以及由此产生的首波的独特性。 所以两个首播永远也不会干扰彼此。是的，永远不会，谢谢。 现在清楚了
 
 ME:Why not?Surely it would be like the bow wave of two boats interfering with each other.They would slow each other down and interfere and distort each other's signals. 
 
+我：
+
 A:No,they don't. 
+
+外星人：
 
 ME:Why? 
 
+我：
+
 A:Because each entity has its own signature,as previously stated.Liken the signature to the frequency of a radio station.Each signature can be one second(and this can be minute fractions of a second)of phase on a radio signal that has infinitely variable amplitude, frequency,dimensional basis,and density. 
+
+外星人：
 
 ME:So the chances of two entities having the same signature are small? 
 
+我：
+
 A:No.They are not possible because you also have to take account of the direction and end destination of the intent which also adds to the uniqueness of the intent signature and the resultant "bow wave." 
+
+外星人：
 
 ME:So two bow waves would never interfere with each other. 
 
+我：
+
 A:No.Never. 
 
+外星人：
+
 ME:Thank you.That explains it.
+
+我：
 
 ### Chapter 30 - Aliens/Other Entities on Universes,Null Space, Hyperspace,Collective Beings,and Hillside Space Bases 
 
@@ -8641,7 +9333,11 @@ I continued the conversation the next day.This time I was on my own.I felt that 
 
 ME:It's good to be here again and to log into you. 
 
+我：
+
 A:Yes,it is also an honor for us to talk to you.To be able to extend some of our knowledge to your race is a great opportunity for both of us. 
+
+外星人：
 
 #### The Multifaceted Universes 
 
@@ -8653,11 +9349,19 @@ ME:Thank you.I have been picking up strands of things about the universe for the
 
 A:Yes,we have been sending you images to grab your attention.The universes are truly multifaceted.They overlap many times in many places,all at the same time.The space is not relative to the human convention of space or time,for it can be frequency or dimensionally based.The image we sent you showed the universes are a series of spheres all interlaced upon each other with the spatial position varying slightly or greatly one from the other. 
 
+外星人：
+
 ME:That's right.That's exactly how I saw it. 
+
+我：
 
 A:That's exactly how it is.We use/exploit the closeness of the different universal spheres to translate ourselves between them.We can use this opportunity to move great spatial distances by moving along the adjoining spherical edge,the area closest to the two spheres,but not actually entering either of the two universal environments.This area is or can be classified as a null area. 
 
+外星人：
+
 ME:Hyperspace? 
+
+我：
 
 #### A Description of Null Space 
 
@@ -8669,11 +9373,19 @@ A:No,not quite.Hyperspace,as you call it,is still space,space that is constraine
 
 ME:I just got this picture of an energy that keeps the universes apart and learned that this is an environment that supports energetic life in itself.It sort of repulses the universes away from each other while it nullifies their natural attractivity to each other.It's just like an aura. 
 
+我：
+
 A:Well done.This is exactly what it is and as you quite rightly observed,it is a force that acts as a repulsive agent between any of the universes in question.This area is,if you like,the back corridor that allows those entities who work for the maintenance of the greater universal environment safe and fast passage between the areas,universes,and worlds they are responsible for. 
+
+外星人：
 
 ME:Why safe?Do you mean they can get attacked or something? 
 
+我：
+
 A:No,but they can get waylaid by other entities in the universes they work with who ask them for help,which delays them from getting on with the work they had planned to do.Traveling in null space allows them to move from location to location in peace,for these others do not know they are there or are not allowed by local law to translate to null space. 
+
+外星人：
 
 #### Here Right Under Your Nose 
 
@@ -8684,6 +9396,8 @@ Just to give you an example,you cannot see the base,the environment we have crea
 给你举个例子，你看不到我们的基地，就是你现在正在其中的我们在这里建造的环境。 但是你知道我们在那里，因为你与更广大的环境调频一致。对你而言，我们无论如何是看不见的，我们似乎是不存在的。 然而我们确实存在，而且我们就在这里，就在你的鼻子底下。不过我们不得不说，我们并不在零领域里，仅仅是在比你们高几个频率的地方，这让我们足以维持自己的形态，又能低到足以和你沟通。 那你们怎样把自己转换到零领域呢？
 
 ME:So how do you translate yourselves into null space? 
+
+我：
 
 #### Translating Themselves into Null Space 
 
@@ -8703,11 +9417,19 @@ ME:So if null space is in between universes and is not relative to a particular 
 
 A:As we previously stated,hyperspace is relative to a particular universe.If there are twenty universes,there will be twenty versions of hyperspace:one for each universe and each bound by the attractiveness and laws of the universe with which it is associated.The laws are of functionality,for each universe has its own role to play and,therefore,its own operating regime.What you call hyperspace is simply a moment of frequential and dimensional phase that is different to the normal graduations of phase.It does not allow faster than light travel,for this is a physical metric that is related to speed in the physical,nor does it allow instantaneous travel from one position in physicality to another.It is not a physical short cut,as it does not warp physical space or time.What it does is allow movement between dimensional and frequential environments,for its phase is not static. 
 
+外星人：
+
 ME:So it is the local universal equivalent of null space. 
+
+我：
 
 A:If you wish to consider it as such,then that is up to you,but it is clearly not the same. 
 
+外星人：
+
 ME:So is it usefulfor traveling great physical distances? Does it have any advantage in this area? 
+
+我：
 
 #### Moving to a Different Locale Using One's Will 
 
@@ -8719,7 +9441,11 @@ A:No,only as a medium for travel between frequential and dimensional environment
 
 ME:While we were on a tour in our car,I had the image of a large space ship located up in the mountains,not landed,but hovering. 
 
+我：
+
 A:This was not a space ship as you were expecting but a construct to allow us to work in your frequency.What you were seeing in your mind's eye was your mind's representation of what you perceived.It overlaid what it had seen with something it knows you would be both familiar with and comfortable with.The shape of the construct is nothing you would recognize nor relate to,as it is energy not physicality. Although everything physical is energy,not everything energetic is or needs to be physical,and physicality is not specifically or normally as dense as your physicality. The construct we use is merely an interface between the environments we both exist within,which allows us to move around and experience what you are experiencing from an evolutionary point of view and see how you are applying what you have learned for the benefit of all.
+
+外星人：
 
 #### Humanity Working Individually Rather Than Collectively 
 
@@ -8727,17 +9453,25 @@ A:This was not a space ship as you were expecting but a construct to allow us to
 
 We are most interested in the differing of opinions you have individually on this,as this is something alien to us and is a result of your gifts of individual choice.This is a very rare level of functionality,for most physical beings operate in a collective basis.In this mode of operation what one does,one does for the benefit of the whole and on behalf of the whole,not for the benefit of the self or on behalf of the self.Being of service to the whole is the way of the universe as a whole,including all the dimensional and frequential states and universes that are part of the Source Entity.It is by way of individuality that the individual entity eventually realizes this,for selfishness is counterproductive to the evolution of the collective and the individual. 
 
-我们最感兴趣的是，你们在一个问题上的不同意见，因为这对我们来说是陌生的这是由于你们具有独立选择的天赋，这是一种非常罕见的功能，因为大多数物质存有都是集体运作的。 在这种运作模式下，个体形式是为了整体利益，并且代表着整体利益，而不是为了个人利益或者代表个人利益，为整体服务才是宇宙作为整体的运作方式。 这个整体包含了原始体内的所有维度和频率状态和宇宙。这是通过个体化才是单个实体，最终意识到这点，即自私自利，对集体和个体的进化都是适得其反的，很像是蚂蚁或其他昆虫。 从个体为集体工作的角度来说，是的，有相似之处，但也不一样。 因为从蚂蚁的例子来看，他所做的是不经过思考或不需要理由的。 他只不过是集体心智的一只手躲避或一个功能。更贴切的描述，其实是大脑中的一个细胞。 这只蚂蚁所做的一切都是对整体的集体要求做出的反应，并非在知道为整体利益的情况下做出的服务集体的单独行为。 在我们的例子中，我们对自己的行为和思想，对我们共同体中，其他人的影响是有意识的。 不论这些人是独自还是聚集在宇宙的什么地方，这就是为什么我们会以这种方式一起合作，我们知道如何推进我们种族的进化。 因为我们可以看到集体努力的成果。就这样我们独立的为整体利益贡献力量，并以此实现服务整体的普遍愿望，这是任何实体所能从事工作的最高形式。 我们的生存规则与人类规则的主要差别在于你们就完全的自由意志去做出任何行为而不在意，这会如何影响到整体。 最有趣的是，在于你们所有人都有能力知道自己对整体有何影响。 但你们选择不使用这项能力，这是对自我最有趣的否定。因为在对自我的否定中，你也否定了整体，这又反过来否定了自我通过帮助整体包向完美的进化机会，个体仅仅为了帮助个体而做的努力是白费的。 因为其益处是有限的，大多数情况下是剥夺了周围的人的权利，而不是帮助他们我们所做的每一件事都是为了整体的利益。 正如反过以无私的方式是整体受益一样，我们也是以无私的方式在这样做，我们也意识到，通过观察和帮助你们种族，我们也为其他有物质身体的种族，包括我们自己打开了，在相互依存中达成个性化的大门。 当独立和个体化选择所导致的权利私用，以及进一步造成的频率，螺旋式下跌趋势被打破个且自我得以实现的话，那么无论是对个体还是整体来说，我们获得真正成长的机会，也只只有在下面的情形下，才有这种可能性。 当个体知道某一行为的受益者只有自己。那么如果有其他选择，他就会自愿的去选择另一种行为去帮助同类，请原谅我这样说，但你听上去就像袁世旭，这对你应该不是什么意外。 因此我们都是源头的一部分，事实是你自己就与源头交融。很荣幸，你认为我们以同样的方式与你交谈。 因为我们也在努力争取尽早与源头合一。我们与你的这种对话方式是为了让你能够理解并轻松传达而无需进一步解释，那样会丢失信息，否则这可能会描绘出错误的景象，并引起原本会受益于我们谈话的一些人的排斥。 因此我们感谢你能认可我们和我们的话，我们现在告辞，下次再见。
+我们最感兴趣的是，你们在一个问题上的不同意见，因为这对我们来说是陌生的这是由于你们具有独立选择的天赋，这是一种非常罕见的功能，因为大多数物质存有都是集体运作的。 在这种运作模式下，个体形式是为了整体利益，并且代表着整体利益，而不是为了个人利益或者代表个人利益，为整体服务才是宇宙作为整体的运作方式。 这个整体包含了源实体内的所有维度和频率状态和宇宙。这是通过个体化才是单个实体，最终意识到这点，即自私自利，对集体和个体的进化都是适得其反的，很像是蚂蚁或其他昆虫。 从个体为集体工作的角度来说，是的，有相似之处，但也不一样。 因为从蚂蚁的例子来看，他所做的是不经过思考或不需要理由的。 他只不过是集体心智的一只手躲避或一个功能。更贴切的描述，其实是大脑中的一个细胞。 这只蚂蚁所做的一切都是对整体的集体要求做出的反应，并非在知道为整体利益的情况下做出的服务集体的单独行为。 在我们的例子中，我们对自己的行为和思想，对我们共同体中，其他人的影响是有意识的。 不论这些人是独自还是聚集在宇宙的什么地方，这就是为什么我们会以这种方式一起合作，我们知道如何推进我们种族的进化。 因为我们可以看到集体努力的成果。就这样我们独立的为整体利益贡献力量，并以此实现服务整体的普遍愿望，这是任何实体所能从事工作的最高形式。 我们的生存规则与人类规则的主要差别在于你们就完全的自由意志去做出任何行为而不在意，这会如何影响到整体。 最有趣的是，在于你们所有人都有能力知道自己对整体有何影响。 但你们选择不使用这项能力，这是对自我最有趣的否定。因为在对自我的否定中，你也否定了整体，这又反过来否定了自我通过帮助整体包向完美的进化机会，个体仅仅为了帮助个体而做的努力是白费的。 因为其益处是有限的，大多数情况下是剥夺了周围的人的权利，而不是帮助他们我们所做的每一件事都是为了整体的利益。 正如反过以无私的方式是整体受益一样，我们也是以无私的方式在这样做，我们也意识到，通过观察和帮助你们种族，我们也为其他有物质身体的种族，包括我们自己打开了，在相互依存中达成个性化的大门。 当独立和个体化选择所导致的权利私用，以及进一步造成的频率，螺旋式下跌趋势被打破个且自我得以实现的话，那么无论是对个体还是整体来说，我们获得真正成长的机会，也只只有在下面的情形下，才有这种可能性。 当个体知道某一行为的受益者只有自己。那么如果有其他选择，他就会自愿的去选择另一种行为去帮助同类，请原谅我这样说，但你听上去就像袁世旭，这对你应该不是什么意外。 因此我们都是源头的一部分，事实是你自己就与源头交融。很荣幸，你认为我们以同样的方式与你交谈。 因为我们也在努力争取尽早与源头合一。我们与你的这种对话方式是为了让你能够理解并轻松传达而无需进一步解释，那样会丢失信息，否则这可能会描绘出错误的景象，并引起原本会受益于我们谈话的一些人的排斥。 因此我们感谢你能认可我们和我们的话，我们现在告辞，下次再见。
 
 ME:Rather like ants or other insects. 
 
+我：
+
 A:In terms of the individual working for the collective,yes,it is similar but dissimilar since in the case of the ant,it does what it does without thought or reason.It is merely an arm or a function,(a better description would be a cell in a brain)of what is a collective mind.Everything the ant does is responsive to the requirements of the whole as a whole,not a singular action made in the knowledge that it will benefit the whole "for the benefit of the whole,"In our instance we are conscious of the effect that our actions and thoughts have on the rest of our community,no matter where they are individually or in collections in the universe.This is why we work together the way we do.We know how to progress the evolution of the race because we can see the fruits of our efforts in a collective way.In this way we strive individually to benefit the whole, and in doing so we fulfil the universal desire to be of service.This is the highest form of work any entity can undertake.The main difference between our rules of existence and those of the human race is that you have total free will to do any action,no matter how it affects the whole.The most interesting thing is that all of you have the ability to know how you affect the whole,but you choose not to use this facility.This is a most interesting denial of self,for in denying the self,you deny the whole,which in turn denies the self of its opportunity for evolution through the actions available to help the whole progress towards perfection.The efforts spent by the individual to help only the individual are wasted,for they are a finite benefit,which in most cases disenfranchises those closest to the individual,rather than helping them. 
+
+外星人：
 
 Everything we do is for the benefit of the whole.Just as the ant works to benefit the whole in its selfless fashion,so do we in a selfless fashion.We also realize that in observing your race and helping your race,we are opening the door for other physical races,including our own,to achieve individuality within co-dependence.Once the downward spiral resulting from independent and individual choice resulting in the selfish application of power is broken and self-realization is achieved,the opportunity for real growth is available,both on an individual and on a holistic basis.This is only possible because the individual,knowing that one particular action will benefit itself,will willingly choose another action to help others of its own kind if the opportunity is available. 
 
 ME:Forgive me for saying this,but you sound just like the Source Entity
 
+我：
+
 A:This should not to be a surprise to you as we are all part of the Source.The fact that you are in communion with the Source yourself and that you think we talk to you in the same way is an honor,for we strive to be one with the Source at the earliest opportunity. Our dialogue with you is designed to be in a method you will understand and be able to convey easily without the need for interpretation and subsequent loss of correct information.This would portray the wrong image and cause rejection amongst those who would benefit from our communications.For this we thank you for recognizing us and our word.We leave you now until the next time. 
+
+外星人：
 
 #### The Bases Perched on Hillsides in Crete 
 
@@ -8745,15 +9479,21 @@ A:This should not to be a surprise to you as we are all part of the Source.The f
 
 During a core star meditation on the roof of our cottage in Crete,I concentrated on the hill at the back of our garden because my wife had previously stated that she had felt a lot of energy there.During the meditation I received the impression that there was an alien base perched on the hillside with a craft also perched on a landing pad.I then sensed Hum's presence and with him keeping a fatherly eye on me,I extended my consciousness up towards the hillside until I perceived a thin metal fence and was instantly greeted by an entity. 
 
-当我在我们的克里特岛小屋的屋顶进行星河冥想时，我把注意力集中在了我们花园后面的小山上。 因为我妻子之前曾经说她感到那里有很多能量在冥想中，我得到了一个画地，山坡上坐落着一个外星人基地降落，场上还停放着一艘飞船。 我感觉他们在我身边，在他慈父般目光流注视下我的意识，向山坡上延伸，直到看到一个稀疏的金属栅栏，并马上受到了一个实体的迎接。 你们为什么会在这里有个基地？我们在这里有个基地，是因为这里的能量纯净，而且当地居民还没把能量流破坏掉。 我的思想回到了之前的一艘冥响。那次我在脑海里看到了能量之河，绕着这个地区的山丘和山脉流淌，他们至少是老一辈人，仍然尊重土地与自然精灵合作，利用土地。 虽然他们并没有完全意识到这一点。
+当我在我们的克里特岛小屋的屋顶进行星核冥想时，我把注意力集中在了我们花园后面的小山上。 因为我妻子之前曾经说她感到那里有很多能量在冥想中，我得到了一个画地，山坡上坐落着一个外星人基地降落，场上还停放着一艘飞船。 我感觉他们在我身边，在他慈父般目光流注视下我的意识，向山坡上延伸，直到看到一个稀疏的金属栅栏，并马上受到了一个实体的迎接。 你们为什么会在这里有个基地？我们在这里有个基地，是因为这里的能量纯净，而且当地居民还没把能量流破坏掉。 我的思想回到了之前的一艘冥响。那次我在脑海里看到了能量之河，绕着这个地区的山丘和山脉流淌，他们至少是老一辈人，仍然尊重土地与自然精灵合作，利用土地。 虽然他们并没有完全意识到这一点。
 
 ME:Why do you have a base here? 
 
+我：
+
 A:We have a base here because the energies are pure,and the local inhabitants have not yet ruined the energy flow.
+
+外星人：
 
 My mind went back to a previous meditation where I mentally saw rivers of energy flowing around the hills and mountains in the area. 
 
 A:They,the old ones at least,still respect and use the land working together with the nature spirits although they aren't fully aware of it. 
+
+外星人：
 
 #### The Shape of the Spaceship 
 
@@ -8765,9 +9505,15 @@ I asked the being about the shape of the ship.
 
 A:Our ships are always the shape that offers the least resistance when traveling inter-dimensionally,which is spherical. 
 
+外星人：
+
 ME:So why do Iget the impression that the craft I perceived is aflat shape like the shapes reported in UFO sightings. 
 
+我：
+
 A:That is because our craft join together to make a sphere with each craft a larger or smaller slice of the sphere. 
+
+外星人：
 
 #### The Temple of Zeus 
 
@@ -8779,23 +9525,41 @@ ME:O.K.,thanks.Some spiritualists believe that there is a structure called The T
 
 A:Yes,it was and still is.The structure was called a temple because of the limited ability of the humans at that time to understand what it was.It is,in fact,a very large craft that can be classed as a floating city in today's terms.The local inhabitants that could be trusted were translated into the dimension that the craft was in and were flown up to it by telekinesis.The effect of levitating them to the craft in this dimension and the fact that they were "there"but couldn't be"seen"made the locals think that the craft's inhabitants were gods.The craft was so big to them(as big as a floating city which also had balconies)that they thought the craft was a temple.Zeus was the name of one of the aliens at that time,and this stuck in their minds. 
 
+外星人：
+
 ME:Is the craft still here? 
+
+我：
 
 A:Yes,and you just managed to perceive its existence when you were at the village you stay in.You sensed it rather than saw it. 
 
+外星人：
+
 ME:Are there many bases here in Crete? 
 
+我：
+
 A:Yes,they are all over the hills;we are using them to monitor all of you.The energy here is pure so we stay here rather than anywhere else.The locals are in tune with the energy of nature here.
+
+外星人：
 
 I shifted my attention in my mind's eye to the surrounding hill sides and saw lots of platforms dotting the country side. 
 
 ME:Why can't we see you? 
 
+我：
+
 A:Because we are in a different frequency or dimension than you.YOU can't see the higher frequencies but a person in a higher frequency can see things in a lower frequency.For example,you can see this effect when you look at the different frequencies and states (or vibration levels of molecules)that water adopts at different temperatures.You can just perceive a gas when it is at the slightly lower vibration of steam but any higher, and it goes out of your visual range literally into another dimension(frequency).Of course,you see it when it is lowered even further down the frequencies and becomes ice. 
+
+外星人：
 
 ME:So it is better to be in a higher dimension or frequency. 
 
+我：
+
 A:Yes,you can see and do more.It is better being a gas being as you can perceive everything on the gas vibration level and on the lower frequencies of the physical as well.
+
+外星人：
 
 ### Chapter 31 - Extended Dialogues with the Aliens/Other Entities 
 
@@ -8811,15 +9575,27 @@ One wet weekend morning I was meditating on the back porch of our house with the
 
 ME:I am surprised to be here. 
 
+我：
+
 A:Don't be.This is where you wanted to come. 
+
+外星人：
 
 ME:I want to ask some questions. 
 
+我：
+
 A:Go ahead. 
+
+外星人：
 
 ME:Are you the Om? 
 
+我：
+
 A:No,but we do work with the Om.
+
+外星人：
 
 #### From Beyond the Pleiades and Orion's Belt 
 
@@ -8833,19 +9609,31 @@ The words Pleiades and Orion's belt came into my mind momentarily.I asked if thi
 
 A:No,it's in that direction,but your conscious mind inserted a name you know (Pleiades and Orion's belt)as you wouldn't know the name of our origin. 
 
+外星人：
+
 ME:It seems that with all these bases here,it is a bit of a prison camp. 
 
+我：
+
 A:It is not intended to give that impression.Our bases and the ship are positioned in this area because of the unique energy properties that are in this locale.The energies are such that it makes translation from our dimension to yours easier than normal. 
+
+外星人：
 
 There are many others also positioned in similar areas. 
 
 ME:How much power is required to keep this huge ship? 
 
+我：
+
 A:Not much,it's... 
+
+外星人：
 
 The dialogue dropped suddenly,and I got the image in my head of a car engine and the units "kilowatts,"so I had the impression that the power a car engine produces is what is necessary.
 
 ME:This is not a lot. 
+
+我：
 
 #### Movement by Affecting the Quantum Level of the Material 
 
@@ -8859,9 +9647,15 @@ I then received the image in my mind of a bed of ball bearings (which represente
 
 ME:Isn't this the same as magnetic repulsion? 
 
+我：
+
 A:No,magnetic repulsion is created by aligning the molecules in a metal in one direction by using electricity flowing in a known direction,so that the attraction of the molecules is all one way.A push or pull force is experienced at what you call the poles of the magnet and is relative to the direction that the molecules are orientated.Simply put,materials with the molecules arranged in the same direction but positioned opposing each other create opposition.This is only true for metals or materials where the molecules can be organized by exposing them to a circular electric current.The quantum changes necessary to effect antigravity are applicable to ALL materials,as it affects them at the smallest level rather than just affecting the electrons and protons that make up the material,and are,therefore,at a higher quantum level.Consider the difference being in manipulating the molecules in the grains of sand that make up a house brick in comparison to manipulating the building that is made of the bricks. There is a key to doing this level of manipulation;atomic fusion is a step in the right direction to finding this key. 
 
+外星人：
+
 ME:O.K.,thanks for this,I have to go now. 
+
+我：
 
 As I type this up,it starts to make my head hurt as I try to get to grips with it.But the information received did seem reasonable. 
 
@@ -8875,19 +9669,35 @@ The next day saw me back at the alien base and talking to the alien again.
 
 ME:What level are you from? 
 
+我：
+
 A:The 50th. 
+
+外星人：
 
 ME:Wow,that's high. 
 
+我：
+
 A:We don't see it that way. 
+
+外星人：
 
 ME:What are you doing here on Earth?
 
+我：
+
 A:We are here to help the evolution of the Earth and its inhabitants.You are part of this task, that's why you were attuned in Sweden.It is this attunement that has enabled you to increase your awareness to the level you have in this short time.It is also the reason you have been able to contact and perceive us so easily. 
+
+外星人：
 
 ME:What do I need to do to evolve? 
 
+我：
+
 A:You need to concentrate on removing the chatter from your mind so that you can hear the real you.To do this,you need to slow down and become more linear in the jobs that you are doing,doing only one thing at a time and thinking of only one thing at a time.This is only one way of creating focus.You are used to working on many things in many dimensions all at the same time.Your subconscious remembers this,and,as a result,you try to do the same thing on the physical plane.This is difficult and you are doing it well,but it doesn't allow you to focus on expanding your awareness to your higher and real self. 
+
+外星人：
 
 #### On a Spaceship in the Dimension Above Earth
 
@@ -8899,19 +9709,35 @@ The next morning I was in a hurry and didn't expect too much from the short medi
 
 ME:Wow,this is incredibility beautiful. 
 
+我：
+
 A:Yes,the universe is beautiful and so are we,as we are also part of the universe. 
+
+外星人：
 
 ME:What are all these planets and nebulae doing here?I thought that the solar system was spread apart with just a few planets(nine,eight if you discount Pluto),just as we are told by our astronomers. 
 
+我：
+
 A:Yes,it is,but we are in the next dimension up from the Earth plane,so you can see that there are many other planets that exist in the vicinity of the Earth that are not visible or detectable from your dimension but are nevertheless there.You are truly limited by your physical perceptions. 
+
+外星人：
 
 ME:What are all these space ships and stations doing here? 
 
+我：
+
 A:These are the orbital bases and transportation for all the races that are helping to raise the evolution of humankind to a level where the frequency of the Earth is back where it should be.When this happens,we will make ourselves known to humankind as you will be able to accept the differences in us by then. 
+
+外星人：
 
 ME:Why are you in this dimension?
 
+我：
+
 A:Because it's the closest we can get to the Earth plane without being detected.It also makes translation to and from your frequency easier. 
+
+外星人：
 
 #### Natural Portals 
 
@@ -8923,17 +9749,31 @@ ME:I thought that you used certain portals for this.
 
 A:Yes,that is true.It is even easier to translate in the vicinity of these natural portals because they are areas of instability. 
 
+外星人：
+
 ME:Hang on!I thought they were pure in energy,and that is why you used them. I was getting confused here as my mind received about three answers at the same time. 
+
+我：
 
 A:That is right.These natural portals are unstable in the physical sense because they are so pure in energy.They have not yet been contaminated by man,and he has not yet brought the frequency of the area down. 
 
+外星人：
+
 ME:Can you explain further? 
+
+我：
 
 A:The frequency properties of the materials that make up the mountains and the trees in the area are at a higher frequency than other areas in the world,so by definition, they are closer to the frequency levels that we operate in.They,therefore,become a portal between dimensions,a crack in the door,so to speak.To explain further,as the frequency of an object is increased,the closer it gets to translating into the next (higher)dimensional level;thus,from the point of view of the physical dimension,it becomes unstable physically as it loses its density. 
 
+外星人：
+
 ME:Now I understand.Thank you.I am in communication with another being (Byron).I was told that you translate to a higher dimension to help travel long distances faster. 
 
+我：
+
 A:Yes,this is correct.Because of the frequency of the higher dimension,the resistance is reduced and allows less friction when we travel-hence,the ability to travel faster in the higher dimension.The reduction in travel time is very significant. 
+
+外星人：
 
 #### Translating to a Higher Dimension 
 
@@ -8945,37 +9785,71 @@ ME:So how do you translate to the higher dimension?I would have thought that if 
 
 A:Yes,it's an interesting conundrum.However,the molecules of the object are raised to the next dimensional level by raising their frequency through a process of acceleration whilst maintaining positional integrity.It is a difficult concept for you to understand, but it is possible to make an object move without it actually moving.In actual fact, the acceleration is a back and forth or rotational movement.There is some positional movement,but this is measured at a quantum level and is therefore insignificant in terms of maintaining the form that the molecules make up.The form or shape, functionality,and physical properties of the object are,therefore,not compromised and are,therefore,not affected in any way.It remains to all intents and purposes unaffected with the exception that it is now in another dimension. 
 
+外星人：
+
 ME:So how do you translate an object or person into the higher dimensions? 
+
+我：
 
 A:As I said,we accelerate the object at the quantum level. 
 
+外星人：
+
 ME:Yes,but how do you do it? Do you use magnets or what? 
+
+我：
 
 A:It's not as simple as that.What we do is affect every molecule in the object with a field of energy which affects the quantum level of the object being translated.The field is then manipulated so that the level of acceleration and direction of acceleration affects the object's molecules at the quantum level.The level and direction is known and controlled so that we know where in the dimensional state the object is.The whole object and field,including the field generating hardware,are also translated. 
 
+外星人：
+
 ME:If you are working at the quantum level,you must need a massive amount of computer power to map the molecules and quanta of the object and note the position of each quanta at any one point in the acceleration throughout the translation process so that the object doesn't fall apart. 
+
+我：
 
 A:Yes,you would need a massive amount of computational power to achieve this,but in actual affect,you don't need to do this.This was our initial thought when we first experimented with translating to the next higher dimension for space travel. 
 
+外星人：
+
 ME:So how do you do it then? 
+
+我：
 
 A:We just accelerate everything within the field applying the acceleration level and direction equally throughout the field.Because the acceleration is equal throughout the field the position of the molecules of the object are not compromised and therefore the object maintains its shape and function.This makes it much easier and requires significantly less computational power. 
 
+外星人：
+
 ME:So how do you handle translating more than one object at the same time? 
+
+我：
 
 A:Multiple objects are not affected collectively but separately and,therefore,do not affect each other when more than one object is to be translated at the same time. 
 
+外星人：
+
 ME:So objects do not merge together? 
+
+我：
 
 A:No.This can only happen if you try to do this outside of an acceleration field. 
 
+外星人：
+
 ME:So how do you translate a space craft? 
+
+我：
 
 A:The craft has the field generating hardware positioned around the periphery of the craft; everything inside the field is then accelerated up to the next dimension.
 
+外星人：
+
 ME:So once you have translated,don't you tend to leave the acceleration field generating hardware behind in the lower dimension? 
 
+我：
+
 A:No,because the field leaks beyond the generating hardware.This has the effect of allowing the hardware to be translated at the same time without being left behind in the lower dimensional frequency.Sometimes it is better to be imperfect! 
+
+外星人：
 
 #### Moving from Point A to Point B via a Shunt 
 
@@ -8987,21 +9861,39 @@ ME:O.K.,so once you have gotten to this next level,how do you move from point A 
 
 A:We use the same method to create a shunt. 
 
+外星人：
+
 ME:A what? 
+
+我：
 
 A:A shunt.We use the field to shunt the molecules of the ship and its occupants in a known direction;the action is rather like a solenoid.Once the ship is moving,the shunt is used more and more,faster and faster,resulting in the ship being pushed up to a higher velocity each time the shunt is activated.The process continues until the ship is traveling at the desired velocity.The 0 to 60 speed is quite phenomenal. 
 
+外星人：
+
 ME:Is there not a limit to the speed that can be achieved with this shunt? 
+
+我：
 
 A:Yes,but at the moment the limit is too high for us to worry about it.The limit of the shunt is increased each time you go up to the next dimension so you are always increasing the potential max speed of the ship.The potential max speed is never actually achieved,as the limit necessary to affect translation is lower than the max,therefore, eliminating the max as a virtual ceiling. 
 
+外星人：
+
 ME:So how do you slow down? 
+
+我：
 
 A:Deceleration is the reverse of acceleration in so much as the same process is used but in the diametrically opposite direction. 
 
+外星人：
+
 ME:This sounds all too hard to control and monitor. 
 
+我：
+
 A:It is,with your current understanding,but don't forget that the computer controlling this is many millions of times more powerful than yours.And it is able to sense and take account of the changes necessary to allow the process to be controlled to a fashion where it is useful. 
+
+外星人：
 
 #### Continued Dialogue on Multiple Topics  - Morality Issues Within Alien Worlds 
 
@@ -9013,7 +9905,11 @@ I continued this dialogue in another meditation and started the discussion by as
 
 ME:Do you have any issues with morality within your race? 
 
+我：
+
 A:No,we all work together for the good of the whole race.There are races that don't take this opinion,and humans are one of these.Most don't even need to take the moral high ground because they don't put themselves or find themselves in situations which compromise them in relation to the good of the whole.The mental and physical health of the whole is the responsibility of the whole,and the individuals that make up the whole.It benefits us all,so we don't upset the balance. 
+
+外星人：
 
 #### Maintaining Health 
 
@@ -9025,13 +9921,23 @@ ME:You talked about physical health as well.How do you keep your selves healthy?
 
 A:Our bodies need to live for a long time,so we don't consume any substance that compromises the health or frequency levels that the body needs to achieve to do its job of work.For instance,we wouldn't dream of contaminating our bodies with alcohol, tea,coffee,or cigarettes. 
 
+外星人：
+
 ME:You know of cigarettes? 
+
+我：
 
 A:I took it from your mind,but our race knows of this problem you have. 
 
+外星人：
+
 ME:So do you eat?
 
+我：
+
 A:Some races need to take energy from the produce of plants and animals,but they prefer plants as the vibrations in animal products are low and can reduce vibratory levels. Most others,ourselves included,take energy from the universal energy directly.We are able to metabolize it by using specialized organs within our bodies,the receptors of which are integrated into what you would call the pores of our skin.Others take energy from the gases that make up the atmosphere of their home planet and use a lung like system of filters to extract the energy from the gases.Others use organs in their skin to do the same thing. 
+
+外星人：
 
 #### Metabolizing Pure Energy 
 
@@ -9043,9 +9949,15 @@ ME:So how do the aliens that metabolize pure energy metabolize it?
 
 A:It is done at a quantum level.The energy centers or chakras,as you call them,take in energy at different frequencies.This energy is then distributed via the energy meridians(call them energy veins),which are positioned throughout the body.At the quantum level the cells pick up the energy and become energized and,therefore,go about their daily jobs as your cells do in your body.This is rather like the inductive charging of a battery.The body is simpler as it does not have to create energy from physical matter.It is also longer lasting for the same reason and is significantly more resistant to disease since it is not introduced to foreign matter on a continuous basis.
 
+外星人：
+
 ME:So the main difference with us is that our bodies have to breakdown physical matter into energy whereas the energy metabolizing aliens doesn't need to. 
 
+我：
+
 A:Yes,however,the aliens that metabolize energy from the atmospheres of their home planets do a simpler version of what your human bodies do,and are,therefore,also more robust. 
+
+外星人：
 
 #### Aliens/Other Entities on Emotions 
 
@@ -9057,19 +9969,35 @@ The next day we touched the subject of emotions.
 
 ME:Are you happy with the job you do? 
 
+我：
+
 A:I cannot say that I am happy because we do not have the same range of emotions that you have.All I can say is that I am satisfied with my performance,and my supervisors are satisfied.The work that I do is adequate to the work load and the output expected of me. 
+
+外星人：
 
 ME:So you do not feel depression or elation or sadness or joy. 
 
+我：
+
 A:Not in the sense that you do.We feel content with the level of our performance.We do not feel elation if we make a big discovery.We merely feel content at the fact that the work we have done has borne the fruit it was intended to.
+
+外星人：
 
 ME:Do you feeljealous that you do not feel these emotions? 
 
+我：
+
 A:No.But we do find it interesting,and that is one of the reasons we are here.The Latin- based countries are very good at expressing their emotions.They are not inhibited by what people around them will think when they display the full range of emotions,and so we find the interplay of personal emotions vs.response of the people around them interesting.We don't get the same spectrum of responses from the English or German people,so we are not so interested in them.However,you are also interesting because you suppress your emotions.We have a lot of work to do on this subject here on Earth. 
+
+外星人：
 
 ME:So it seems. 
 
+我：
+
 A:Yes,it is also linked in with the free will experiment and is bearing interesting results as the emotional content affects the ability to make rational decisions and can result in incorrect decisions based upon emotional content rather than the logical content. 
+
+外星人：
 
 #### Life Spans,Stress,Professions,and Genetic Modification 
 
@@ -9081,35 +10009,67 @@ The next day I talked to the alien about age.
 
 ME:How old do you live to be? 
 
+我：
+
 A:The physical part of us lives from 2,000 to 3,000 of your years.
+
+外星人：
 
 ME:That's a long time to live;you must get bored. 
 
+我：
+
 A:No we don't.Don't forget that in the great scheme of things,the life span of a physical human is pitifully small and gives you absolutely no time to accomplish anything. The fact that you accomplish so much is a credit to you. 
+
+外星人：
 
 ME:You think our lives are very short then? 
 
+我：
+
 A:Yes,but you pack a lot in.Your lives are very stressful as a result.We don't get bored because our contribution to our society is based upon a longer term vision.We have jobs or projects that have a longer time scale within which to work and get our results. 
+
+外星人：
 
 ME:How do you mean? 
 
+我：
+
 A:We are working on a planetary and evolutionary level so things take longer to give results. In this respect we can do many things at the same time and plan them so that we get the results back in a staggered fashion that keeps us interested. 
+
+外星人：
 
 ME:So how would you describe your lives in terms of length of life? 
 
+我：
+
 A:We would also describe them as being short as they are packed with things to do. 
+
+外星人：
 
 ME:What do you do for jobs?What are your responsibilities?
 
+我：
+
 A:We have many professions,just like you.We have doctors,engineers,artists,analysts,computer programmers,energy specialists,psychologists,etc. 
+
+外星人：
 
 ME:What do you do with your time here? 
 
+我：
+
 A:We assist with and observe your evolution. 
+
+外星人：
 
 ME:How do you assist? 
 
+我：
+
 A:We assist by giving health care to those key people who are destined to help the Earth and its inhabitants evolve in some way.We make telepathic suggestions to people to help them with their decision process so that they experience the right things so they evolve faster.We also make other suggestions to help with the progress of technology. 
+
+外星人：
 
 #### Genetic Modifications and "On the Rebound"Incarnations 
 
@@ -9121,9 +10081,15 @@ ME:Do you do anything else?
 
 A:Yes,we also still make some genetic modifications to make your physical vehicle live longer so that your ability to experience more things is enhanced,therefore,assisting in your ability to evolve faster.Your lives here are so short that there is a backlog of souls waiting to incarnate.It is quickly becoming the case that only those souls who are going to make a difference to the evolution of humankind will be allowed to make rapid“on-the rebound”incarnations.
 
+外星人：
+
 ME:What does "on the rebound"mean? 
 
+我：
+
 A:It means those souls who need to incarnate straight away so that they can continue with their work.Extending the life span of your race will allow a soul to live two or three life spans in one body. 
+
+外星人：
 
 #### Observing and Recording Energy Changes on,in,and Around Earth 
 
@@ -9135,17 +10101,31 @@ ME:What else do you do?
 
 A:We also observe and record the changes in the energies on,in,and around the Earth. 
 
+外星人：
+
 ME:Why do you do that? 
+
+我：
 
 A:Because both humans and Earth are special.They have energy bodies and physical bodies that both operate and depend on each other.This is rare,as most other beings and planets are either physical or energetic,not a mixture of both. 
 
+外星人：
+
 ME:So why the interest? 
+
+我：
 
 A:With the Earth there are areas where the two bodies join.At that juncture point there is a movement of energies between the physical and energy worlds,a vortex.This causes a gateway between the worlds which we take advantage of,but the interchange in the energies is very interesting to observe and experiment with.You have limitless energy available from this interplay between the two bodies;all you have to do is tap into it with your minds or even a special machine.If you had this,you wouldn't need to use coal or nuclear power to generate electricity. 
 
+外星人：
+
 ME:So we could have limitless free energy. 
 
+我：
+
 A:Yes,and this is one of the things(the machines to tap into this energy)we are helping you to develop. 
+
+外星人：
 
 #### Life on an Alien's Planet 
 
@@ -9157,11 +10137,19 @@ In January 2004,(my first day back to work after a long Christmas break)I starte
 
 A:Pretty much as it is on Earth. 
 
+外星人：
+
 ME:How do you mean? 
+
+我：
 
 A:We also have animals that are indigenous to the planet the same as you do. 
 
+外星人：
+
 ME:What do they look like? 
+
+我：
 
 #### Indigenous Animals,Fish,Insects
 
@@ -9173,33 +10161,63 @@ A:They come in many shapes and sizes.Where do I start?
 
 ME:Just try with a general outline,such as the number of legs,whether they fly or swim. 
 
+我：
+
 A:Some come with two legs the same as you and me.They even look humanoid but they aren't whilst others have up to twelve legs and are the size of one of your cows.Most of them eat vegetation,but there is the odd one or two that hunt or even assimilate the energy in the atmosphere. 
+
+外星人：
 
 ME:What are those like? 
 
+我：
+
 A:They are those that fly in the stratosphere of our planet and have,therefore,evolved to live off the more universal energies. 
+
+外星人：
 
 ME:What do they look like? 
 
+我：
+
 A:They are a bit like the cuttlefish you have on Earth,only they have a gaseous internal structure that allows them to rise and fall in the atmosphere by mixing gases internally.They do this by sucking in the atmosphere and separating out the component gases.Some gases they exist on whilst others are discarded.The rest are stored separately in different internal chambers and mixed together when a different gas is required. 
+
+外星人：
 
 ME:What about fish?Do you also have them on your planet?
 
+我：
+
 A:Yes,we do have fish and other sea dwelling creatures.They are also as different in their size and shape as your creatures. 
+
+外星人：
 
 ME:Do you hunt or kill your animals for food? 
 
+我：
+
 A:No,because we don't need to eat solid food.We primarily evolved to eat vegetation and later evolved to use the universal energies. 
+
+外星人：
 
 ME:Do you also have insects like on Earth? 
 
+我：
+
 A:Yes,but only one or two species.In general,we don't have the same level of diversification of species,planet-wide,as you do. 
+
+外星人：
 
 ME:But you do have gaseous animals? 
 
+我：
+
 A:Yes,but you also have animals that are on different energy or dimensional levels on the Earth as well. 
 
+外星人：
+
 ME:We do? 
+
+我：
 
 #### Earth Entities in the Space Between Dimensions 
 
@@ -9211,15 +10229,27 @@ A:Yes.The Earth really is a special place.It has a much greater level of diversi
 
 ME:The space between dimensions? 
 
+我：
+
 A:Yes,they occupy the space between this dimension and the next one up. 
+
+外星人：
 
 ME:Will we ever see these animals? 
 
+我：
+
 A:Yes,some of you already have.They have been seen by those people who take drugs and are,therefore,able to see this space with their spiritual eyes forced open. 
+
+外星人：
 
 ME:I see.Are they similar to those on Earth? 
 
+我：
+
 A:No,they are different and cause people to panic as they do not expect to see such wonderful creatures. 
+
+外星人：
 
 #### Star Burst Energy 
 
@@ -9231,23 +10261,43 @@ My next encounter of any significance with the aliens was not until September 20
 
 ME:So what is the lesson for today?
 
+我：
+
 A:First of all,let us say that we are so pleased that you are here with us.We enjoy your interaction.Star Burst energy is the lesson for today. 
+
+外星人：
 
 ME:What is Star Burst energy? 
 
+我：
+
 A:It is the energy that comes from the coalescence of matter in its physical form and its ability to be used by an entity to create. 
+
+外星人：
 
 ME:You mean it can be used. 
 
+我：
+
 A:Yes,that is the main reason for a star's presence in the physical universe-to provide energy for use in creation.This energy is used by all sorts of entities for all sorts of things from creating new planets for corporeal life to exist upon to creating works of art by using the energy to create gas clouds of differing shapes,sizes,and colors,including how they appear in the other dimensions. 
+
+外星人：
 
 ME:Can I use this? 
 
+我：
+
 A:Of course,and you do on a regular basis.We are here to teach you to do it again and enhance your abilities.This will be done whilst you are in meditation. 
+
+外星人：
 
 ME:Will I remember how to do this stuff then? 
 
+我：
+
 A:Not yet,as it will need to be absorbed by you first,and then you have to get yourself into the mental frame of mind to be able to wield such power in a safe and sensible way.This means that you will have to be able to forgive people for anything that they do,or you will be frying them on the spot. 
+
+外星人：
 
 #### How Aliens Generate Energy 
 
@@ -9259,13 +10309,21 @@ I then asked the Alien how aliens generated their own energy.
 
 A:We use the energy generated by the friction created between the dimensions. 
 
+外星人：
+
 ME:The dimensions have friction between them? 
 
+我：
+
 A:Yes,but not the sort of friction that you know that is created by two surfaces being placed together and then moved on opposing planes creating heat.It is more like the energy generated by attracting forces being close enough to affect each other but not close enough to interfere with each other's operation. 
+
+外星人：
 
 I then saw a picture of the distortion in vision one sees when heat is rising. 
 
 A:That's right.That is a good rendition of what it "looks like."We harvest this energy,or we just simply tap into it.It's free and easy to acquire provided you have the right level of technology and/or energetic abilities. 
+
+外星人：
 
 #### Going with the Flow
 
@@ -9277,9 +10335,15 @@ ME:What about going with the flow?
 
 A:Ah yes.This is a very important and misunderstood concept.You understand that everything that has happened,that will happen,and that is happening is occurring simultaneously? 
 
+外星人：
+
 ME:Yes. 
 
+我：
+
 A:Then trying to change this is futile and only causes resistance and unrest.Once you acknowledge this on the most fundamental level and truly feel it,then you will know that things happen for a reason.That reason is that this is how it is supposed to be,and anything else is going against the inevitable.Acceptance that what will be,will be and trusting in the universe is a truly profound realization that will relieve the burden of stress. 
+
+外星人：
 
 I had experienced this in a couple of ways at work and decided that it makes life so much easier and simpler.It did feel like a huge burden was lifted off me.By the time I had reached my last day on the vacation,I actually felt at one with the universe and that what will be,will be. 
 
@@ -9293,27 +10357,49 @@ A meditation early 2004 enthralled me.I was seeing lots of different colored fir
 
 SE:The universe is a many colored wondrous thing. 
 
+源实体：
+
 My mind went to the aliens.I then found myself asking about their independence. 
 
 ME:Do they have free will the same as us? 
 
+我：
+
 SE:No,they don't.You are unique in so much as you are cut off from your higher self and Me, so you are totally alone and able to make your own decisions and judgements in life. 
+
+源实体：
 
 ME:How does the alien mind work then? 
 
+我：
+
 SE:They are constantly linked into each other.Every one of them knows (if they want to) what the other is thinking or is capable of. 
+
+源实体：
 
 ME:So what would happen if one of them wanted to,or was about to,do something bad?
 
+我：
+
 SE:They wouldn't be able to because the whole alien mind,that is every one of them,would sense it and would be able to collect together and stop the act from happening.This is a form of self-policing and leads to the individual only doing what is right for the whole and,therefore,right. 
+
+源实体：
 
 ME:So what is right for them? 
 
+我：
+
 SE:Anything that accelerates the evolution race. 
+
+源实体：
 
 ME:Evolution is a race? 
 
+我：
+
 SE:No,but only in so much as the individual's purpose is to get to a level of evolution that allows them to return to Me.
+
+源实体：
 
 ### Chapter 32 - The Source Entity and the Council of Twelve 
 
@@ -9325,17 +10411,27 @@ SE:No,but only in so much as the individual's purpose is to get to a level of ev
 
 I then thought about the question that a Bulgarian friend had asked me about the word Zion and asked Earth's Source Entity for an answer on this matter. 
 
-我又想起曾有个保加利亚朋友问到我关于西安这个名词，我向地球的原始体询问，请他解答这个问题。 西安是绕索普顿星球旋转的一颗卫星，我也是这么想的。但回头看看我的笔记发现，索普顿星球是没有卫星的世界。 的确如此，西安实际上是一颗小行星，但你可以称它为卫星，因为它太小了。 西安和索普顿互相环绕转动。哇，一对互相绕转的行星绕着一对互相绕转的恒星旋转。 哇，一定很罕见得自我以前关于索普顿的冥想记录，没有你，所以为的那么罕见。
+我又想起曾有个保加利亚朋友问到我关于西安这个名词，我向地球的源实体询问，请他解答这个问题。 西安是绕索普顿星球旋转的一颗卫星，我也是这么想的。但回头看看我的笔记发现，索普顿星球是没有卫星的世界。 的确如此，西安实际上是一颗小行星，但你可以称它为卫星，因为它太小了。 西安和索普顿互相环绕转动。哇，一对互相绕转的行星绕着一对互相绕转的恒星旋转。 哇，一定很罕见得自我以前关于索普顿的冥想记录，没有你，所以为的那么罕见。
 
 SE:Zion is a moon that rotates around the planet Zorpeton. 
 
+源实体：
+
 ME:I thought this,too,but looking back at my notes,I found that Zorpeton is a moonless world. 
+
+我：
 
 SE:It is.Zion is really a small planet,but you might call it a moon as it is so small.Zion and Zorpeton rotate around each other. 
 
+源实体：
+
 ME:Wow,a pair of planets that rotate around each other and rotate around a pair of suns that also rotate around each other [taken from my notes on a previous meditation on Zorpeton].That must be rare. 
 
+我：
+
 SE:Not as rare as you might think.
+
+源实体：
 
 #### Zion,the Residence of the Council of Twelve 
 
@@ -9347,9 +10443,15 @@ ME:So what is the significance of it?
 
 SE:It is where the council of twelve reside.Zion really is a beautiful planet.It is a garden planet and it is a real pleasure to be there. 
 
+源实体：
+
 ME:Are the Council physical beings? 
 
+我：
+
 SE:No,of course not,but they can manifest themselves physically to take advantage of and enjoy what Zion has to offer them. 
+
+源实体：
 
 #### Roles of the Council of Twelve 
 
@@ -9361,13 +10463,23 @@ ME:Why are there twelve on the Council?
 
 SE:There are twelve because each member represents one of the twelve dimensional levels. They are the guardians or overseers of the level that they represent. 
 
+源实体：
+
 ME:So who do they work for? 
+
+我：
 
 SE:Me.They ensure that everything is running smoothly,and every opportunity for evolution is taken and not missed.They have been on Earth,too,but only in their energetic state.
 
+源实体：
+
 ME:What did the council of twelve do on Earth? 
 
+我：
+
 SE:They were involved with the first civilization. 
+
+源实体：
 
 #### The Council's Blunder with Atlantis 
 
@@ -9379,9 +10491,15 @@ ME:Which was the first civilization?
 
 SE:Atlantis,of course.The representatives of the twelve,including some of the twelve themselves,visited Earth on a regular basis to establish a civilization based upon the integration of the physical and the spiritual,a fusion of mind,body,and soul. 
 
+源实体：
+
 ME:So what happened? 
 
+我：
+
 SE:The twelve made a mistake.They thought that the spirits who incarnated as the Atlanteans could be left to their own devices,but this was not the case.They became too engrossed in the physical experience and lost the connection with their higher selves and with Me. 
+
+源实体：
 
 #### The Greek,Roman,and Egyptian Connections with Atlantis 
 
@@ -9393,13 +10511,23 @@ ME:So what is the connection with the Greeks(Minoans)and the Egyptians and the R
 
 SE:The Greeks and the Minoans are one and the same,but their isolation from each other made their history different.Essentially they are the isolated remnants of the Atlantean civilization,but this is well-documented in esoteric and channeled texts. 
 
+源实体：
+
 ME:What about the Egyptians? 
+
+我：
 
 SE:They come under the same heading as the Greeks and Minoans.Their civilization is based upon the surviving remnants of the Atlantean civilization,complete with its astrological content. 
 
+源实体：
+
 ME:O.K.,so how do the Romans figure in this equation? 
 
+我：
+
 SE:They were jealous of the perceived intelligence and intellect of the Greeks,so copied their architecture with the hope that other countries would hold them in high esteem through intellectual association of the architecture.They believed that the architecture of their buildings and temples spelled out to the other nations of their time that they were able to think above the level of their competitor nations,and that this provided them some sort of protection from invasion-i.e.,our buildings are divine and the gifts of the gods,so you had better not attack us as we are in favor and are,therefore,invincible. 
+
+源实体：
 
 #### Greek and Roman Gods as Remembrances,Not Legends
 
@@ -9411,9 +10539,15 @@ ME:We have heard a lot of legends of the gods,especially the Greek and Roman god
 
 SE:These are not legends but actual remembrances.They are the racial memories of the people of Earth at that time of the visitations of the members of the council of twelve and of their representative's appearances and communications with the people of Atlantis and Greek/Roman trusted representatives.Essentially they could not perceive them in other ways because they were too engrossed in the physical by then and had forgotten who they really where,part of Me. 
 
+源实体：
+
 ME:So they perceived them as gods because of what they could achieve with their knowledge. 
 
+我：
+
 SE:Yes. 
+
+源实体：
 
 #### More About the Work of the Council of Twelve 
 
@@ -9425,25 +10559,47 @@ ME:I would like to speak a bit more about the council of twelve and their work f
 
 SE:Their job is to help the other spirits and physically incarnating entities to work together and to attain awareness.With increased awareness,all of our(My/your/our)collective experiences increase. 
 
+源实体：
+
 ME:How can that be?I thought the idea was that we experience more by being alone and not having access to our higher selves since awareness would give us more of an advantage due to having insight of the bigger reality. 
+
+我：
 
 SE:This is correct,but the objective of the twelve is to achieve coadunation with Me when incarnate. 
 
+源实体：
+
 ME:I don't understand.I thought that the objective of our incarnating with the forgetting was that we were allowed total freewill without prior knowledge of what could happen.Surely having awareness spoils this. 
+
+我：
 
 SE:No,not necessarily,as you yourself know you can have freewill that is within certain parameters. 
 
+源实体：
+
 ME:What do you mean? 
+
+我：
 
 SE:You have freewill to make decisions,but you have a compulsion to do a certain thing in life.You have freewill within certain limits as long as you achieve your end goal.Most of the time this happens and would,in effect,be no different to having awareness of the real reality.You have total freewill,which is rare,and so with this comes even bigger responsibility for yourself and your actions.You have to find your way home without sign posts or GPS navigation,so to speak. 
 
+源实体：
+
 ME:So how will the twelve help me?
+
+我：
 
 SE:By making your successful choices apparent to you after you have made them.By helping you to realize that they were the correct decisions.This help will not be apparent but will feel right when you look back upon what you have done and the roads you have taken.You are on such a road now,a junction;both sides of the road are enticing,but one will be the best one to take. 
 
+源实体：
+
 ME:Will I know when I have taken the correct road? 
 
+我：
+
 SE:No,but as a word of advice,you know in your heart of hearts what to do to be ultimately successful.Go now and know what you must do.
+
+源实体：
 
 ## Part 4 - The Less Than Mechanical Side
 
@@ -9467,21 +10623,35 @@ During a morning's meditation before I went to work,I decided to link into the n
 
 ME:How come I see you as smaller versions of human beings? 
 
+我：
+
 Nature Spirits together (NS):We take the form of humans for two reasons.The first reason is that we appear in a way that is expected ofus.That means that humans expect nature spirits to be smaller versions of humans with butterfly wings,so that is what we look like to those who see us.Second,we like the appearance that you give us. 
 
 ME:So what do you really look like?
 
+我：
+
 NS:We will show you. 
+
+自然精灵：
 
 At this point I got the image of a ball of light slowly moving through the garden.Each time the ball of light was called to do some maintenance with a tree or a bush,an energy tendril grew from the ball and linked into the aura and energy system of the plant being maintained.This could happen to two or three plants at the same time.It was wonderful to see the fluid movement of this ball just slowly moving through the garden reaching out and touching plants as necessary. 
 
 ME:So why don't you appear to people who see you as you really are? 
 
+我：
+
 NS:Because they would not understand what they see as being nature spirits.To them we are fairies(small human-like spirits,the little people,and leprechauns).They are not yet ready to see the real world of spirit/energy beings.When they do inadvertently tune into our world/dimension,they use the image that they can cope with,the one of fairy tales. 
+
+自然精灵：
 
 ME:I prefer to see you as you are,energy beings. 
 
+我：
+
 NS:That is good.We like working with you. 
+
+自然精灵：
 
 #### Nature Spirits and the Energy Vortices 
 
@@ -9495,11 +10665,19 @@ I had noticed that there were energy lines,small ley lines,in our garden and tha
 
 NS:All of the time but they are best used by humans who can tap into the Earth energies. Those people can really do some good work with the Earth and raise the Earth's vibrations. 
 
+自然精灵：
+
 ME:How do they do that? 
+
+我：
 
 NS:By being antennas for the universal energies and directing them to the Earth for use by the Earth and the other entities that work with the Earth. 
 
+自然精灵：
+
 ME:So there are other entities that work with the Earth other than nature spirits? NS:Yes,and we will show you who they are when you next log into us. 
+
+我：
 
 #### The Origin on the Purpose of Animals on Earth 
 
@@ -9511,17 +10689,31 @@ ME:What purpose do the animals on the Earth play?
 
 O:They are there to keep you company and bring you joy. 
 
+起源：
+
 ME:Bring us joy? 
+
+我：
 
 O:Yes,do they not?
 
+起源：
+
 ME:Yes,I enjoy listening to the birds,and I enjoy the fact that my cats love me without reservation and are always pleased to see me when I come home. 
+
+我：
 
 O:Then they are doing their job.It would be a lonely place on the Earth without the animals. They also do Me a service as well. 
 
+起源：
+
 ME:What is that? 
 
+我：
+
 O:They experience life without complication,without striving,without greed,without needing anything other than to be what they are.They have no fear of death and disease and,therefore,accomplish quite a lot by experiencing things in a most un- filtered way.They are,therefore,a useful datum line for Me to have when comparing the evolutionary experiences that you have in human form,where you have all the freewill you want,to those who clearly do not have any free will. 
+
+起源：
 
 #### The Source Entity on the Purpose of Animals on Earth 
 
@@ -9533,19 +10725,35 @@ SE:Animals are an integral part of the spiritual biosphere of the Earth.They for
 
 ME:But they appear just as animals to us and don't appear to do anything special.
 
+我：
+
 SE:That is because you cannot see beneath the level that you are experiencing.Without the animals doing their work for the Earth,the spiritual biosphere would be even more stagnant than it is now.They clean up and re-align the energies that are at the very bottom of the frequencies,making up for the lack of care that humanity is currently taking of the Earth. 
+
+源实体：
 
 ME:So animals are essentially lightworkers? 
 
+我：
+
 SE:Yes,they are,and humanity incarnate does not even recognize this.Everything that the animal kingdom does is for the benefit of the Earth and its senior inhabitants, humankind;you just don't recognize it.Consider the insect kingdom,for example. You recognize the work that they do on the small level that they have to work within, but you totally miss the work that the bigger animals do because they are so close to you in size and shape and makeup.What's more,the animals are also spirits in their own right. 
+
+源实体：
 
 ME:You mean that they are like human spirits? 
 
+我：
+
 SE:No,they are not at the same level.Remember in a dialogue we had right at the start of this relationship where I mentioned that when I separated Myself out to form all of you,I also created entities that were not quite the same.This was because the amount of energy was not consistently distributed when I created all of you.These are also sentient beings,but the sentience is of a different level.They can,of course, move up to the same level as you if they work with humanity over a period of time. Not many do this,but there are enough that are either on the cusp of moving up to the same level as the human energy level or are capable of doing so,purely as a result of their continued interaction with loved humans,or humans that love them and ask them to incarnate with them.Again on a different level,the plant and mineral spirits are also capable of moving up the frequencies to the next level,but that is a much bigger job for them to do,taking many,many millennia to achieve purely due to the level of interaction that they have with entities that are higher than themselves and the number of opportunities to be exposed to the environments that give them the contact with entities of higher frequencies.It is the regular or even constant interaction with entities of a higher frequency that helps them move onwards and upwards. 
+
+源实体：
 
 ME:So working with this is the Earth,an entity in its own right. 
 
+我：
+
 SE:Yes,of course. 
+
+源实体：
 
 The planets have other roles to play within the universe as well,for they exist in an environment that needs a lot of,shall we say,housekeeping,to keep it in good running order.They are good at mopping up all of the stray energy that has no clear association that exists in both physical and spiritual form and provides a location/association for it,giving it a direction,a purpose.All energy should have a purpose and what better way than to be part of a planet,a large entity that has a purpose,the maintenance of the equilibrium of the universe from a multi-dimensional point of view.The great opportunity you have is for humanity to work together with the animals,the plants,and the minerals to support the requirements of the planet that attracted you,for all entities are attracted to those with whom they feel they can work best to help them evolve. 
 
@@ -9557,9 +10765,11 @@ Even though the animals are a simpler entity than the human entity they are in s
 
 ME:I was pondering on what a wonderful life the old Greeks must have had working on the land and being in tune with the seasons that nature has given us. 
 
-我：我在讲古希腊人在大地上劳作顺应大自然赐予我们的四季。 这种生活是多么的美好。请记住这是一个很重要的思考方式。 比如，在当今时代，被认真看待的事情，能否维系世界的平衡，取决于人类是否与大自然配合。 比如当你们以可持续的方式，所否利用世林的时候，如果人类能够视他为一种良好的工作模式，所有工业带来的损害都将消除。 还有一种可选的现代做法，可以实现这个目的，即人类远离世界，或是到地底下生活这么做，可让地球表面回到自然状态。 如果人类能够以无污染的农业方式照料，地球也会让地球维持平衡，人类与大自然密不可分。 人类所做的每件事对大自然都会有影响。而自然界所发生的一切，也对人类有影响。 如木动物物海洋岩石大气以及磁场地球灰光场都对人类有影响，也都受到人类的影响。 自然精灵与树木和森林对人类破坏了大部分的森林，人遍漠视大自然的情形感到很失望。 如果人类能够遵从自然法，则生活通过发明与大自然互补的科技。 比如利用风海洋或太阳能等可持续发展的能源，而不是通过斗争和污染的方式，人类将会进化的快。 很多科技的目的是帮助你们进步，减轻你们的日常工作负担，但不要让它引领你们走向自我毁灭。 如果使用得到科技，会使你们更能在自然法则下工作得到灵性的成长。 人类不仅和地球的大自然链接，也和宇宙层级里的大自然链接。 事实上，自然是原始体，也就是我或神的一部分，因此自然存在于任何时间。 一切宇宙星系中的所有地方。因此，我们在地球所做的事，对整个宇宙处处都有影响，不难想象会有其他存友。 对于你们在地球上的行为感到忧虑，你们与各星球太阳系迎合及各宇宙中各个自然界连习你们的每个部分都和其他地方相互依赖，彼此影响，因此与大自然连接，可以让你们和宇宙链接，并与神或者说起源，真正的我们交流这个时代，我们最好相谁学习，他们可以跟巫师和女巫们学习，他们仍然存在，只是不再带尖尖的巫师帽或其扫帚，他们是懂得如何运用大自然的人类，他们知道一切能治疗疾病和辅助冥想的药草和植物。 他们也知道如何看到能量使用能量进行疗愈操纵物质和使用炼金术，包括其他更高的功能。 他们也能看到自然精灵与之交谈，在自然中与去合作。 基本上他们是自己环境的主人，因为他们完全了解宇宙及其运作模式。 所谓现代人类可以向他们学到很多东西。
+我：我在讲古希腊人在大地上劳作顺应大自然赐予我们的四季。 这种生活是多么的美好。请记住这是一个很重要的思考方式。 比如，在当今时代，被认真看待的事情，能否维系世界的平衡，取决于人类是否与大自然配合。 比如当你们以可持续的方式，所否利用世林的时候，如果人类能够视他为一种良好的工作模式，所有工业带来的损害都将消除。 还有一种可选的现代做法，可以实现这个目的，即人类远离世界，或是到地底下生活这么做，可让地球表面回到自然状态。 如果人类能够以无污染的农业方式照料，地球也会让地球维持平衡，人类与大自然密不可分。 人类所做的每件事对大自然都会有影响。而自然界所发生的一切，也对人类有影响。 如木动物物海洋岩石大气以及磁场地球灰光场都对人类有影响，也都受到人类的影响。 自然精灵与树木和森林对人类破坏了大部分的森林，人遍漠视大自然的情形感到很失望。 如果人类能够遵从自然法，则生活通过发明与大自然互补的科技。 比如利用风海洋或太阳能等可持续发展的能源，而不是通过斗争和污染的方式，人类将会进化的快。 很多科技的目的是帮助你们进步，减轻你们的日常工作负担，但不要让它引领你们走向自我毁灭。 如果使用得到科技，会使你们更能在自然法则下工作得到灵性的成长。 人类不仅和地球的大自然链接，也和宇宙层级里的大自然链接。 事实上，自然是源实体，也就是我或神的一部分，因此自然存在于任何时间。 一切宇宙星系中的所有地方。因此，我们在地球所做的事，对整个宇宙处处都有影响，不难想象会有其他存友。 对于你们在地球上的行为感到忧虑，你们与各星球太阳系迎合及各宇宙中各个自然界连习你们的每个部分都和其他地方相互依赖，彼此影响，因此与大自然连接，可以让你们和宇宙链接，并与神或者说起源，真正的我们交流这个时代，我们最好相谁学习，他们可以跟巫师和女巫们学习，他们仍然存在，只是不再带尖尖的巫师帽或其扫帚，他们是懂得如何运用大自然的人类，他们知道一切能治疗疾病和辅助冥想的药草和植物。 他们也知道如何看到能量使用能量进行疗愈操纵物质和使用炼金术，包括其他更高的功能。 他们也能看到自然精灵与之交谈，在自然中与去合作。 基本上他们是自己环境的主人，因为他们完全了解宇宙及其运作模式。 所谓现代人类可以向他们学到很多东西。
 
 SE:Listen,this is an important thought process and one that needs serious consideration in this day and age.The world balance would be maintained if man worked together with nature,such as when you worked in harmony with the forests in a sustainable way.If man could see this as a good way of working,then all of the damage caused by industry could be undone.A modern way of doing this would be for man to live either off world or underground.This would leave the Earth to return to its natural ways on the surface.If man could even tend the earth in the agricultural ways without using pollutants,it would maintain the balance. 
+
+源实体：
 
 Man is inseparably linked to nature.Everything he does has an effect on nature,and everything that happens in nature has an effect on man.The trees,the animals,the seas, the rock,the atmosphere,and the magnetic field/Earth's aura all have an effect on and are affected by man.Nature spirits aligned with trees and forests are disappointed with the human race for destroying most of the forests and their disregard for nature in general. If man could learn to live within the laws of nature by producing technologies that are complementary to nature,like sustainable energies,such as wind,sea,or solar energy, rather than fighting or polluting,humankind would evolve a lot faster.Technology is there to help you progress and find ways to relieve you of your daily burdens,but you need to ensure that it is not your undoing.It will,if used properly,allow you to work more within the rules of nature and progress spiritually. 
 
@@ -9567,7 +10777,11 @@ Man is not only linked with nature here on Earth but also linked to nature on th
 
 ME:Who would be the best to learn from in this day and age? 
 
+我：
+
 SE:Learn from the wizened ones(wizards)and witches.They are still around;they just don't wear pointed hats or ride on broomsticks.They are people who are knowledgeable in the use of nature.They know all of the herbs and plants that can be used for healing and to aid meditations.They also know how to see and use energy for healing,manipulation of matter and alchemy,including other higher functions.They can see and talk to the nature spirits and work together with them within nature's framework.Essentially they are masters of their environment as they have a total understanding of the universe and its workings.So-called "modern"humankind could learn a lot from them. 
+
+源实体：
 
 #### The Essence of Trees
 
@@ -9575,19 +10789,31 @@ SE:Learn from the wizened ones(wizards)and witches.They are still around;they ju
 
 In this dialogue I communicate with the Source Entity on the subject of trees.I personally like trees and feel that they have a special association with us.Once I had focused my attention on the Source Entity,communication was instantaneous. 
 
-在这段对话里，我与原始体谈到有关树的话题，我个人很喜欢树木，而且觉得他们与我们有一种特殊的连接。 当我把精神集中在原始体上时，一瞬间便开始了我们的交谈。有关树木，我想问一个问题问吧，你可否告诉我树的重要性？ 还有为何新时代的人们如此敬仰它？你知道树木是能量的源泉，而且顺着地脉生长哦，我没有从这些角度看待过他他们是这样的。 那么让我解释给你听德鲁伊教师们在一棵燃烧的树木四周舞蹈或祈祷的图片，只是艺术家们的一种想象。 因为他们听说一个敏感者能看到能量从树中流出，特别是当这棵树是在能量出口或分流处。 此外，作为低能量的生命，同类型的树木是同一种树木格式塔性质的一部分，比如榆树属于同一个榆木性质，享树同树项目心智。 关于树木有一件事很有意思，那就是如果一座森林里的某个树种只剩一棵，而它的一些种子被种下种子，长大后，那棵树的心智便会跟着扩张，单独一棵树，并非各有其单独的灵体，它们是一个集体灵体的部分。 所以树林中一棵单独的树仍然与地球上其他同类树种保持连接，但在其他树苗长大前，它就像一个孤独的哨兵，人类这个物种则有所不同。 当它们繁殖时，它们繁殖出独立思考的生命体。由于树木覆盖了整个星球，古代巫师们曾经一度使用它们来与其他巫师沟通。 为了做到这点，他们与树林连接，比如一棵山毛举，然后向树林送出信息，在另一方的智者可接入同一树林，比如一棵山毛举来取得信息信息，可用这种方式在任何距离间传递。 当然在别的星球上也有树木。虽然有些树与地球上的树有很大的不同，但有些还是类似的。 所以一些不同星球上的树林便可彼此沟通。类似的树木较容易沟通，因为它们的林相互连接，这意味着当一个人与一种树林连接时，可以从另一些星球上的同样或类似树木那里接收到影像自信，这画面真美。 没错，让我举另一个例子，说明人类如何忽视树木影响能量的工作的。 现在是二零零三年三月世界上的这个部分，目前还处于沉睡的状态，过木和植物才刚开始从漫长冬眠状态中醒过来，在你身后的苹果树上有一根枯枝，需要修剪树木，并不介意这种修剪，因为这可以保持它们处于良好状态。 过去，当人类与大自然及自然精灵配合工作时，树木已经习惯了给人类照亮。 现在人类在能量方面极大的抛弃了他们，他们的状态已大不如前，能量流也不再有效率，比如流入枯枝的能量是一种浪费，而且这会在他们的能量流中形成蜗牛和涟漪译者。 注新时代幼稚宝瓶时代。西方神秘学认为，新世纪之初是一个转型期，正准备进入宝瓶座时代。 宝瓶座象征人道主义人类由追求社会的物质的科技层面的进步，将演进到注重心灵精神层面的探索，找到超越人种肤色民族国际以及宗教派别的人类心灵的共同点，认知人类的同源性和平等性，从而达成四海一家与和平的远景。
+在这段对话里，我与源实体谈到有关树的话题，我个人很喜欢树木，而且觉得他们与我们有一种特殊的连接。 当我把精神集中在源实体上时，一瞬间便开始了我们的交谈。有关树木，我想问一个问题问吧，你可否告诉我树的重要性？ 还有为何新时代的人们如此敬仰它？你知道树木是能量的源泉，而且顺着地脉生长哦，我没有从这些角度看待过他他们是这样的。 那么让我解释给你听德鲁伊教师们在一棵燃烧的树木四周舞蹈或祈祷的图片，只是艺术家们的一种想象。 因为他们听说一个敏感者能看到能量从树中流出，特别是当这棵树是在能量出口或分流处。 此外，作为低能量的生命，同类型的树木是同一种树木格式塔性质的一部分，比如榆树属于同一个榆木性质，享树同树项目心智。 关于树木有一件事很有意思，那就是如果一座森林里的某个树种只剩一棵，而它的一些种子被种下种子，长大后，那棵树的心智便会跟着扩张，单独一棵树，并非各有其单独的灵体，它们是一个集体灵体的部分。 所以树林中一棵单独的树仍然与地球上其他同类树种保持连接，但在其他树苗长大前，它就像一个孤独的哨兵，人类这个物种则有所不同。 当它们繁殖时，它们繁殖出独立思考的生命体。由于树木覆盖了整个星球，古代巫师们曾经一度使用它们来与其他巫师沟通。 为了做到这点，他们与树林连接，比如一棵山毛举，然后向树林送出信息，在另一方的智者可接入同一树林，比如一棵山毛举来取得信息信息，可用这种方式在任何距离间传递。 当然在别的星球上也有树木。虽然有些树与地球上的树有很大的不同，但有些还是类似的。 所以一些不同星球上的树林便可彼此沟通。类似的树木较容易沟通，因为它们的林相互连接，这意味着当一个人与一种树林连接时，可以从另一些星球上的同样或类似树木那里接收到影像自信，这画面真美。 没错，让我举另一个例子，说明人类如何忽视树木影响能量的工作的。 现在是二零零三年三月世界上的这个部分，目前还处于沉睡的状态，过木和植物才刚开始从漫长冬眠状态中醒过来，在你身后的苹果树上有一根枯枝，需要修剪树木，并不介意这种修剪，因为这可以保持它们处于良好状态。 过去，当人类与大自然及自然精灵配合工作时，树木已经习惯了给人类照亮。 现在人类在能量方面极大的抛弃了他们，他们的状态已大不如前，能量流也不再有效率，比如流入枯枝的能量是一种浪费，而且这会在他们的能量流中形成蜗牛和涟漪译者。 注新时代幼稚宝瓶时代。西方神秘学认为，新世纪之初是一个转型期，正准备进入宝瓶座时代。 宝瓶座象征人道主义人类由追求社会的物质的科技层面的进步，将演进到注重心灵精神层面的探索，找到超越人种肤色民族国际以及宗教派别的人类心灵的共同点，认知人类的同源性和平等性，从而达成四海一家与和平的远景。
 
 ME:I have a question on trees. 
 
+我：
+
 SE:Fire away. 
+
+源实体：
 
 ME:Can you please tell me the importance of trees and why New Age people revere them? 
 
+我：
+
 SE:You know that trees are energy fonts and that they grow on/follow the position of the ley lines. 
+
+源实体：
 
 ME:No.I didn't think of them in those terms. 
 
+我：
+
 SE:Well,they are.Let Me explain.Pictures of druids dancing or at prayer around a burning tree is generally an artist's impression of what the artist was told that a "sensitive" could see in terms of the energy flowing from a great tree,especially if the tree was at the end of an energy tap or divert.Also,as lower energetic beings,trees of the same type are all part of a dendro(tree)gestalt mind. For instance,elms are all of the same elm mind,and oaks are all the same oak mind. 
+
+源实体：
 
 One of the interesting things about trees is that if there is only one tree of its species left in a forest and some of its seeds are planted,then as they grow,the tree's mind expands. The individual trees are not individual trees with individual spirits.They are all part of one group spirit.So a lone tree species in a wood is still in contact with the other trees of the same species on the Earth,but it is an outpost until saplings grow.This is unlike the human race which as they reproduce,they reproduce individual thinking beings. 
 
@@ -9595,7 +10821,11 @@ As trees covered the entire planet,at one point the wizened ancients used them t
 
 ME:That's beautiful. 
 
+我：
+
 SE:Isn't it?Let Me give you another example of how humanities disregard for trees affects energy.This part of the world is asleep(March 2003);the trees and plants are just starting to wake up from a long winter's slumber.The apple tree behind you needs to have a dead branch cut off.The trees don't mind this type of surgery as it keeps them in good condition.They used to be looked after by humans in the past when humans were working together with the energy of nature and the nature spirits.Now human beings have largely abandoned them energetically.They go out of condition,and their energy flow is no longer efficient.The energy going to the dead branch,for example,is wasted and causes eddies and ripples in their energy flow. 
+
+源实体：
 
 #### Ley Lines,Standing Stones,and Earth Energies - The Partnership of Ley Lines and Trees 
 
@@ -9603,15 +10833,23 @@ SE:Isn't it?Let Me give you another example of how humanities disregard for tree
 
 For two years running during our New Year's Eve and New Year's Day sabbatical from civilization,my wife and I visited areas where ley lines and great standing stones were positioned.In doing so,we both felt lots of energy in and around the areas.Intrigued and thirsty for more knowledge,I decided to contact the Source Entity on this subject to gain a better understanding of their role on the Earth. 
 
-连续两年在除夕与新年休假期间，我和妻子远离现代文明，去参观了有地脉和巨石阵的一些区域，我们都感到这些区域的内部和四周有巨大的能量。 在好奇和求知若渴之心的驱动下，我决定联系原始体讨论这个话题，以便更深入了解他们在地球上所扮演的角色，有关地球上的地脉和巨石阵，你可以多说一些吗？ 地脉和巨石镇是地球的能量脉络以及重要的能量连接点一个鲜为人知的事实是，地脉通常以一棵大树作为标志，例如一棵橡树或榆树，因为它们与能量配合的很好，也因此很容易辨认。 如今地脉状况不佳，由于他们未完全发挥功能或年久失修，因为人类不再维护地脉网格，那么我们该如何去修复地脉？ 如果没有巨石要修复一条地脉或它的连接点。一个个人或一群人，可以将能量注入或引入大地，并种植一棵大树的树苗作为记号地脉，之所以年久失修，大部分是因为人类砍伐森林，而树木是地脉能量环路的一部分。 因此标示一个新的能量连接点就需要种植一棵大树。如果你的肉眼能看到地脉能量，它们看起来会像是一个足球表面上的缝合线，在地面上下进进出出。
+连续两年在除夕与新年休假期间，我和妻子远离现代文明，去参观了有地脉和巨石阵的一些区域，我们都感到这些区域的内部和四周有巨大的能量。 在好奇和求知若渴之心的驱动下，我决定联系源实体讨论这个话题，以便更深入了解他们在地球上所扮演的角色，有关地球上的地脉和巨石阵，你可以多说一些吗？ 地脉和巨石镇是地球的能量脉络以及重要的能量连接点一个鲜为人知的事实是，地脉通常以一棵大树作为标志，例如一棵橡树或榆树，因为它们与能量配合的很好，也因此很容易辨认。 如今地脉状况不佳，由于他们未完全发挥功能或年久失修，因为人类不再维护地脉网格，那么我们该如何去修复地脉？ 如果没有巨石要修复一条地脉或它的连接点。一个个人或一群人，可以将能量注入或引入大地，并种植一棵大树的树苗作为记号地脉，之所以年久失修，大部分是因为人类砍伐森林，而树木是地脉能量环路的一部分。 因此标示一个新的能量连接点就需要种植一棵大树。如果你的肉眼能看到地脉能量，它们看起来会像是一个足球表面上的缝合线，在地面上下进进出出。
 
 ME:What can you tell me about the ley lines and standing stones that we have on the Earth?
 
+我：
+
 SE:Ley lines and standing stones are the planet's energy veins and major energy junctions.A little known fact is that ley lines are usually marked by the presence of a "great"tree, such as an oak or an elm because they work well with the energies.They can be easily located as a result.Today ley lines are in poor condition as they are either not fully functioning or in disrepair as humanity no longer services the ley line grid. 
+
+源实体：
 
 ME:So how would we repair a ley line? 
 
+我：
+
 SE:To repair a ley line or a ley line junction(without a standing stone),a person or group of people can inject or channel energy into the earth and mark it by planting a great tree sapling.Ley lines have fallen into disrepair mostly because of man de-foresting the world,as the trees are part of the ley line energy circuit;therefore,this is the need to mark a new energy juncture by planting a great tree. 
+
+源实体：
 
 If you could see the energy of the ley lines with your naked eye,they would look a bit like stitches holding the segments of a leather case football together as they dip in and out of the ground. 
 
@@ -9625,11 +10863,17 @@ ME:So how would we use the energy or separate it for use?
 
 SE:The ley line energy could be separated from the main stream by placing a stone in the way of the energy flow.This changes the direction of the energy by splitting it into two.Subsequent stones can be used to put the flow back on its original course,and the "hived off"energy can be redirected with more stones to an energy collection point. This is usually signified by a ring of stones or stone circle where individuals who can manipulate energy could use it or "charge"items that run on Earth energy,for instance,lamps or healing stones. 
 
+源实体：
+
 Of some interest to navigators may be the knowledge that the lines of longitude and latitude correspond with ley lines and their junctions.A being can,therefore,use them to navigate,as they are magnetic.There is no coincidence that the ley lines and longitude and latitude are in the same position.How do you think pigeons navigate? 
 
 ME:So who used this energy? 
 
+我：
+
 SE:The wizened ones,wizards.A wizard's staff was used to channel and focus energy.It was made of wood (elm),a precious metal,and a crystal.Each material is used to tighten the focus and,therefore,intensify the energy channeled.Some wizards were able to tap into the ley line or Earth energies by tapping their staffs on the ground three times where a ley line was found.This is still used,although greatly misunderstood,by magicians when they do their illusions today. 
+
+源实体：
 
 #### The Functions of Stones 
 
@@ -9641,7 +10885,11 @@ ME:So tell me more about the stones and their function.
 
 SE:Stone circles were used to trap and focus ley line or Earth energies.They have magnetic qualities and direct energies rather like the large electromagnets in the CERN particle accelerator.For instance,the stones you visited at Kilmartin (Argyle)were used to focus energy;they were also the point of a major ley line junction.The two lines would mix in a big ball of energy and send energy in directions at 90 degrees from their origin,forming a crossroads.A good example of a large ley line focal point is the stones at Avebury which are a channel and compressor of energy. 
 
+源实体：
+
 ME:So what else do stone circles do? 
+
+我：
 
 #### The Uses of Stone Circles 
 
@@ -9653,7 +10901,11 @@ SE:A stone circle had two uses.First,the wizened ones could lie on a table in th
 
 ME:I have seen many stones in pairs,some with one fallen. 
 
+我：
+
 SE:Stones that are no longer maintained are those that have fallen.Those that are in pairs —— you see many stones together with one standing and one fallen —— are used to guide and compress the energy.This lack of maintenance has resulted in the energy being diverted for use but not re-directed back to the original energy stream because the re- directing stone has fallen or been vandalized and is not doing its job.This is the major cause of dysfunction in the Earth's energy grid (etheric layer)or ley line system and is one of the reasons(along with deforestation)the Earth and its inhabitants fell down the frequencies.This reason for the Earth falling down the frequencies is,in fact,a result of humans using the Earth's energies for their own use and not maintaining the old "machinery"of energy-diverting stones. 
+
+源实体：
 
 #### Earth Energies - Injecting Energy Back into Earth 
 
@@ -9664,6 +10916,8 @@ ME:Tell me more about the Earth energies.
 我：请告诉我更多地球能量的事。首先再说一点，如何将能量注入回地球的问题。 因为这是人类能为地球所做的一件重要的事，可补偿人类将地球频率拉低的行为，让我们从传递能量的姿势开始讲起，毕竟这会影响到传递的效率。 传递能量的一个很好的姿势是基督十字，它良好展示了如何能接收传导地球能量。 尽管结构最好包括XY和c三个平面。地球有七层辉光层地脉所在的位置，相当于人类辉光场中的以态层和能量层人类身体的以态层的网格线。 比方说那些连接主要和次要脉能之处，也即二十一条气条和四条能量线交汇的那些点，一些疗愈师将频率调到这一频率层及时能够看见这个结构，就类似地球周遭的网格地脉。 因此，当某人在修复地球的地脉时，就是在物质层面上修复地球。 当所有的地脉都被修复时，地球便能正常运作也将上升，回到正确的能量，一个存有可利用调频的方法进入辉光层或对应的频率来感应到各个不同的能量层。 面对初学者来说，可通过开启和旋转相应脉轮做到这一点。 比方说如果你想感知或看到以太层的能量，你可以打开海底轮。 如果你想看到情绪层的能量，你可以打开并以正确的方向来旋转。 第二，脉轮用同样的方式可感知或看到地球的能量。因为地球也有辉光层，所以一个人要感受地球的地脉，必须打开和旋转海底轮调频到对应的能量层，用感知或看到地球的情绪层能量，可打开并旋转。 第二，脉轮及情绪轮进而调频到那一层。我再一次强调，这是一个非常初步基本的方法。
 
 SE:First,a bit more on how to inject energy back into the Earth,as this is an important job that humanity can do for the Earth as payback for pulling it down the frequencies with them.Let's start with posture whilst delivering energy since this affects delivery efficiency. 
+
+源实体：
 
 A good example of the posture to achieve is the Christian cross as it is a good illustration of how to receive/channel Earth energies.Although the best configuration involves planes in X,Y &Z,the illustrations below show how one or more people can channel Earth energy.Those with the dots are the head of the channeler with the lines being the arms. 
 
@@ -9681,9 +10935,15 @@ ME:So does the Earth also have auric layers?
 
 SE:Yes,as stated above,the Earth has an aura system and a number of auric layers corresponding to the number of major chakras it has.The auric layers have been detected by man but not yet recognized for what they are although these rings have been described as some form of planetary phenomena relative to ozone,radiation, magnetism,etc.The major Earth chakras are positioned in each of the following places:North and South Poles,the center of the Earth,and along the equator in a north,south,east,and west configuration (as if looking down from the North Pole). Some chakra locations are marked by the location of old world major monuments, such as the pyramids in Egypt,Machu Picchu in Peru,the sunken temples(The Temple of the Sun)off the coast of Japan,and the temples of Angkor in Cambodia.These old world monuments were built there by the ancients to access the myriad Earth energies that were available at these energy junctions.They were used for healing, astral travel,matter manipulation,and for directing energy to other parts of the city or even other parts of the planet.All ley lines cross at these points and as with human chakras are the points where the most lines cross.
 
+源实体：
+
 ME:How would cosmic energy,for instance,be used with Earth energies? 
 
+我：
+
 SE:The energy you call cosmic can be made into a tube to contain and direct the ley line energy;it can also be used to bend matter.To do this the cosmic energy is used to increase the frequency of the matter to be bent and the cosmic energy is woven into the shape required.This is done similar to a hoop being cast around an energy line with more and more loops being added with their position changed to change the direction of the energy line. 
+
+源实体：
 
 #### Earth and the Universe 
 
@@ -9691,7 +10951,7 @@ SE:The energy you call cosmic can be made into a tube to contain and direct the 
 
 In past meditations I have noted that the Earth has a particular role to play in the advancement of the evolution of this universe.I have also noted a number of ways in which the universe works and how to traverse it when in the physical.I asked the Source Entity to clarify these subjects in order to help me understand the importance of our living on the Earth. 
 
-我在之前的冥想中注意到，地球在宇宙进化过程中扮演了一个特别的角色。 我也注意到宇宙运作的几种方式，以及如何在物质界层面理解宇宙，我要求原始体为我澄清这些主题，以便帮助我了解生活在地球上的重要性。
+我在之前的冥想中注意到，地球在宇宙进化过程中扮演了一个特别的角色。 我也注意到宇宙运作的几种方式，以及如何在物质界层面理解宇宙，我要求源实体为我澄清这些主题，以便帮助我了解生活在地球上的重要性。
 
 #### Earth's Pivotal Role in the Progression of the Universe/s 
 
@@ -9703,9 +10963,15 @@ ME:In a past dialogue,you briefly commented on the importance of the role of Ear
 
 SE:Of course.The Earth is pivotal in the progression of the universe because of the ability of its intelligent life,humankind,to have independent thought.Hence,raising Earth's vibrational levels is of the utmost importance.In support of this,many other intelligences are also helping to increase the vibration levels.I will clarify further.The Earth can be considered as a piece of important circuitry in a computer.Without its circuits being complete (ley lines),it does not work properly and doesn't allow the rest of the circuit(the ley lines or wormholes to the other stars and planets)to function. Hence,the rest of the universe cannot move up the vibration levels until the Earth's ley lines are repaired,and the Earth starts to function properly,which will then allow it to increase in vibration level.This will also have a positive effect on the function of the multiverse as this universe is a component of the greater multiverse. 
 
+源实体：
+
 ME:What will this mean to the universe/multiverse? 
 
+我：
+
 SE:The big picture is that if the experiment in individual thought is successful and the Earth manages to survive as a result,then individual choice will work.This will allow the collective wholeness to also have the benefit of independent and individual thought at various levels (currently it has only collective thought).This will contribute significantly to the "whole"and accelerate the speed at which the "whole"progresses through the vibration levels and,therefore,evolves. 
+
+源实体：
 
 #### Traveling Through the Multiverse/Universes
 
@@ -9717,6 +10983,8 @@ ME:I would also like some more details on how we as physical beings can travel t
 
 SE:Mmm,I can see this is one of your pet subjects.Traveling in the universe is done by moving from one dimension or vibration level to another.If you consider that the multiverse is a series of spheres within spheres,you would travel out of one dimension to another of a higher vibration,travel the distance in that dimension, and then drop back into the dimension of origin.The amount of time needed to travel the vast distances of interstellar space is then massively reduced because of the lack of density and,therefore,resistance of the universe traveled through.The effects of gravity are also reduced because of the reduced levels of density;therefore, the amount of energy required to travel in a higher vibrational realm is reduced.In some cases,where the ship rotates to very high vibration levels,it can be almost instantaneous.This method has a similar profile to traveling outside the Earth's atmosphere and letting the Earth (or in this case,the universe)rotate beneath them and then dropping back down to the intended landing point. 
 
+源实体：
+
 #### Teleportation 
 
 **瞬间移动**
@@ -9727,7 +10995,11 @@ Another form of transportation is teleportation.Teleportation can be performed b
 
 Me:How is this done?
 
+我：
+
 SE:Consider that we exist as energy in all dimensions in all times in all of space all at the same time.The being that knows this can take advantage of this condition and use it to transport himself/herself/itself from one side of the universe or galaxy to another by disassembling and reassembling himself/herself/itself.If you consider that we are like dust in a sphere,our current incarnation is,therefore,a localized increase in density and attention in a particular position or point within the sphere. We can,therefore,change our location by reducing this local increase in density (and attention)back to the normal distribution of density and attention that is spread throughout the total volume of the sphere (our real condition as part of the whole) and then refocus our attention and density into another position or point within the sphere.We will,therefore,have instantaneously transported ourselves (our attention and density and the attention and density that represents us in our current incarnation)across the galaxy or Earth or universe or dimension/vibration level. 
+
+源实体：
 
 #### Science and Nature Working Together 
 
@@ -9747,17 +11019,31 @@ The winning design of Burt Routan was small,manned,and used a unique tail plane 
 
 ME:It's incredible that a small company can achieve this in such a small amount of time with such a simple solution when the whole of NASA has thrown mega bucks on huge machines over a long period of time and still not have the totally re-useable vehicle. 
 
+我：
+
 O:Yes,Burt Routan has hit upon the correct way that nature works. 
+
+起源：
 
 ME:How do you mean? 
 
+我：
+
 O:He has found a way that works the way nature works.Don't forget that nature has a set of universal laws that must be used when working within the dimension or frequency that you are manifested within-in this case,the lowest level of manifestation,the physical world.If you look at Routan's design,you will notice that the craft falls the same way as a leaf.A leaf creates its own drag and,therefore,slows itself down. 
+
+起源：
 
 ME:I also got the image of a spider falling.
 
+我：
+
 O:Yes,that's right. 
 
+起源：
+
 ME:So what does that mean in terms of following universal law? 
+
+我：
 
 #### Failing to Follow the Universal Laws/the Laws of Nature 
 
@@ -9771,7 +11057,11 @@ This is the same for moving large distances by using dimensional shift methods.A
 
 ME:I have just seen a picture of a man trying to open a door the wrong way to go through a doorway;he can't do it.However,when he opens it the correct way,he can slip through. 
 
+我：
+
 O:Yes,that's right.The man with the door is a good description of fighting against the universal laws.In your image,he had to go backwards to open the door to allow him to go forwards through the doorway.This is exactly what has happened with the US space program.In fact,their methods are akin to using an axe to break down a door to allow passage through the doorway.This is a good example of the need to use vast amounts of energy to overcome the universal laws of nature as opposed to working with them and requiring very little energy.
+
+起源：
 
 ### Chapter 34 - Choice 
 
@@ -9783,7 +11073,7 @@ O:Yes,that's right.The man with the door is a good description of fighting again
 
 SE:Choice is one of the big experiments that you are all experiencing and working towards validating as a new medium for the other incarnate races.You see,humanity is currently the only incarnate race that is allowed to have personal choice-the ability to make its own decisions and live with consequences.Other races have to do things by committee or by collective mind. 
 
-源实体：选择是你们全体正在体验的重要实验之一，以便确认是否适用于作为其他化身物种的新媒介。 你看目前人类是唯一被允许拥有个人选择的化身物种，个人选择是允许自己做决定并承担后果的能力。 其他物种则必须通过议会或集体意识去做一些事情。这个实验的目的是想了解进化时机是否会因为没有明确引导或管理而受到影响。 可以说你们在我们起源，我和其他的原始体对你们路线或管计的基础上做出自己的选择。 这不但不妨碍你们的进步，反而让你们的经验更加丰富，进而加速个人的进化以及种族的进化。 到目前为止，你们已经经历了选择降低频率的集体道路并差不多到了尽头，这是一条观察起来很有意思的道路，但也将会是很难爬出来的一条路。 确实这对人类而言很艰难，但通过个人选择现在频率在缓慢，但坚定的上升中整体上来看，世界上的暴力现象已比过去少了暴力冲突，现在已是异常而非常态。 我知道就你们的观点来看，这个世界一片混乱，许多坏事依然不断发生。 但反观过去的一切，你们确实正在扬声，所以让频率下降是我们的选择不要误会。 我你们不是在一天之中，突然决定让频率下滑的，而是一种逐渐的腐败。 但果不是在一个特定层级，经过一长段时期的客观观察，你们身处自己的层级是不会注意到的。 如果你你们去观察，你们会发现本可以做一些选择，去改善一个特定情况，但你们并未这么选择。 基于几个原因，第一，一个强而有感召力的人说服你们不这么做。 第二，你们害怕，如果某个人正确，但接近的说法一旦成真会导致改变，而你们害怕这种改变本质上人类有乐意服从的特质，本质上曾经存在的一个古老种族，是证明这一特质的最好例子。
+源实体：选择是你们全体正在体验的重要实验之一，以便确认是否适用于作为其他化身物种的新媒介。 你看目前人类是唯一被允许拥有个人选择的化身物种，个人选择是允许自己做决定并承担后果的能力。 其他物种则必须通过议会或集体意识去做一些事情。这个实验的目的是想了解进化时机是否会因为没有明确引导或管理而受到影响。 可以说你们在我们起源，我和其他的源实体对你们路线或管计的基础上做出自己的选择。 这不但不妨碍你们的进步，反而让你们的经验更加丰富，进而加速个人的进化以及种族的进化。 到目前为止，你们已经经历了选择降低频率的集体道路并差不多到了尽头，这是一条观察起来很有意思的道路，但也将会是很难爬出来的一条路。 确实这对人类而言很艰难，但通过个人选择现在频率在缓慢，但坚定的上升中整体上来看，世界上的暴力现象已比过去少了暴力冲突，现在已是异常而非常态。 我知道就你们的观点来看，这个世界一片混乱，许多坏事依然不断发生。 但反观过去的一切，你们确实正在扬声，所以让频率下降是我们的选择不要误会。 我你们不是在一天之中，突然决定让频率下滑的，而是一种逐渐的腐败。 但果不是在一个特定层级，经过一长段时期的客观观察，你们身处自己的层级是不会注意到的。 如果你你们去观察，你们会发现本可以做一些选择，去改善一个特定情况，但你们并未这么选择。 基于几个原因，第一，一个强而有感召力的人说服你们不这么做。 第二，你们害怕，如果某个人正确，但接近的说法一旦成真会导致改变，而你们害怕这种改变本质上人类有乐意服从的特质，本质上曾经存在的一个古老种族，是证明这一特质的最好例子。
 
 This part of the experiment was to see how the evolutionary timing would be affected by giving no discernable guidance or governance.You can make your own choices based upon what We/the Origin,I,and the remaining Sources decide to put in your way,so to speak.Rather than being detrimental to your progress,this actually enriches your experiences and accelerates the individual evolution,as well as that of the race.So far you have taken the collective path of dropping down the frequencies just about as far as you can go.
 
@@ -9791,7 +11081,11 @@ This was a very interesting path to observe and one that will be very difficult 
 
 ME:So it was our choice to go down the frequencies. 
 
+我：
+
 SE:Don't get Me wrong.You didn't all suddenly decide to slide down the frequency ladder in one day.It was a gradual decay,one that from your own level would not have been noticed without a particular level of objective observation over a long period of time.If you had observed,you would have seen certain choices for improvement of a particular situation but didn't make uplifting choices for a couple of reasons:(1)either a particularly strong and charismatic individual convinced you otherwise,or (2)or you were afraid of the change that would/could occur if a certain someone was right even though what he/she said was radical.In essence,humankind incarnate has been a willing lamb.The best way to describe humankind's willingness to be led is best told from the perspective of one of the older races that existed on the Earth. 
+
+源实体：
 
 #### Atlantis Sliding down the Frequencies 
 
@@ -9803,6 +11097,8 @@ ME:Which one would be the best to use as an example?
 
 SE:Everyone knows the legend of Atlantis,so I could start there.However,there are many more to choose from that would give a better example of how easy it was to slip down the frequencies,but the Atlantis example is one that most people recognize so I will leave it at that.
 
+源实体：
+
 ### Chapter 35 - No Coincidences 
 
 **第35章：没有巧合**
@@ -9813,15 +11109,27 @@ ME:So,it's been three weeks since we last talked,and I have had so many coincide
 
 SE:Everything is pre-ordained and planned.Destiny is there for the taking if you are awake enough to see the signs and act upon them.Many people see the signs and don't act because they either write them off as inconsequential,or they are afraid of going down that path-a path that might take them outside of their comfort zone and cozy life.This is,of course,O.K.with Me as they have free will to do anything they like with their lives.After all,it's their evolution,and they can do what they want with it. You see,even if they don't follow the hints given to them,they still contribute to the greater cause and are still continuing to evolve.It's just that they have not taken the optimal route that has been presented to them. 
 
+源实体：
+
 ME:So who are these people I met?What is their involvement in my evolution or anybody else's, for that matter? 
+
+我：
 
 SE:They are people that you work with whilst in the energetic realms,in Spirit,as your esoterics like to say. 
 
+源实体：
+
 ME:You mean I know these people even though they live on the other side of the world in the physical. 
+
+我：
 
 SE:Yes.Why are you so surprised?You know that you are all connected. 
 
+源实体：
+
 ME:Yes,but... 
+
+我：
 
 #### Nothing Left to Chance 
 
@@ -9833,11 +11141,17 @@ SE:You still get constrained by the thought processes that you are allowed in th
 
 ME:So what you are saying is that we are guided by our team of helpers to make the right decisions in our physical incarnation to make sure that we take the route of least resistance evolution wise. 
 
+我：
+
 SE:In a way,yes.Nothing is left to total chance since everything is understood.Every cause and effect is recognized,understood,and planned.Every event that happens is in the plan.It's just interesting to see which event comes to fruition given the set of circumstances that the individual is working within. 
+
+源实体：
 
 I have been working with humankind and other physical incarnation vessels for many millennia in the quest for a greater understanding of Self for the Origin and Myself. Every time We (humankind in Spirit/energy and I)have planned an incarnate life,We have always used the akashic records to see the permutations that could arise as a result of a different decision made by the incarnate entity whilst in a position of reduced communication with its higher self and the rest of humanity.As a result,nothing is left to chance,and everything is understood and considered.Nothing is really a coincidence; it is part of the plan. 
 
 ME:So what are we supposed to do when we see such coincidences appear in front of us? 
+
+我：
 
 #### Recognizing and Working with the Serendipities in Life 
 
@@ -9869,9 +11183,15 @@ ME:Just our power.
 
 SE:Knowledge is power,and the return to true knowledge and awareness is power. Therefore,the return to Spirit is power.You are only truly in your power when you are in your most energetic state,Spirit.Then you are in control of all of the elements at your disposal,even the universe itself,but don't think of it as being the ability to create and destroy planets.Think of it in terms of being back in control of yourself,of being back with yourself,being whole once again,being whole with the universe.Your knowledge base increases beyond your wildest dreams when you are in Spirit,for you have many millennia in which you have been incarnate and in energetic existence. So have all the others that I created,although some chose to incarnate well before others and have,therefore,evolved faster.On top of this,you have access to all of the combined knowledge of the created entities,the other Source Entities,and Me to draw upon,as well as your own experiences.With this combined knowledge you can draw strength from the experience of others to help you through your own experiences. Your true power here is the ability to make decisions in isolation based upon previous experience,whether it is solely yours or not. 
 
+源实体：
+
 ME:So what does being in our power really do for us in the physical? 
 
+我：
+
 SE:It gives you confidence where previously you may have had none.If you have confidence in a successful outcome even if the outcome is not what you ideally desired,the outcome is a success.The prime objective is really to experience an event and not to pre-judge the outcome of an event and think that one way is desirable whilst the opposite may not be desirable.This is putting a negative spin on the outcome of the event and is not allowing the entity to fully appreciate his/her/its experiences if he/ she/it dictates the outcome. 
+
+源实体：
 
 In essence,the older you get physically,the more aware you become and,therefore,the more powerful you become.The only issue you have here is to allow yourself to have the time to experience this transition and listen to the reality that is happening around you. For this point in time is really exciting;you are being rewarded for your performance of one of the hardest things that an energetic entity can do-go down to the lowest vibration levels possible for the good of his/her/its evolution.This reward is heaven on Earth-the knowledge,understanding,and experience of what you have in the higher energetic/ vibration levels whilst being in the lowest of frequencies. 
 
@@ -9885,7 +11205,11 @@ ME:I have read a couple of books recently that are written by people who took jo
 
 SE:Is this not what we have been talking about in all our dialogues to date?The greater reality is out there for all to see,use,and experience if they are ready to work within the context of the universal law and remove themselves from the vagaries of the commercial/materialistic content of the physical world.This does not mean that you have to abandon it and become a monk.Being a monk does not specifically give you a fast track to enlightenment.It means that you have to work around it and not let it dominate your thinking processes.This is hard.From your perception,the dominant series of senses that you have at hand are physical,and it is difficult to trust anything else,such as inspiration,as your own thoughts. 
 
+源实体：
+
 ME:So does this mean that we as physical humans don't invent anything?
+
+我：
 
 #### All Inventions as Divine Inspirations 
 
@@ -9893,7 +11217,7 @@ ME:So does this mean that we as physical humans don't invent anything?
 
 SE:There is no invention made by man that is not the result of divine inspiration.In spiritual terms,this means that it is channeled to the individual from the spiritual realms. Anyone who thinks that this is not the case is under the spell of the greatest illusion of all:life in the physical.The trick is to work with the physical and some of the creature comforts that present themselves without being taken in by the physical as reality,i.e., not making it your God. 
 
-源实体：所有人类的发明无一不是神圣灵感所产生的结果。 灵性上的说法是灵感都是从灵性世界传导到个体的不认同。 这种说法的人便困于最大的幻觉中及物质界生活最好的做法是与物质界和眼前的一些物质享受共处，但不把物质界当成真相，也就是不把它当成是你的神，让我来告诉你一件事，起源创造了原始体。 接着我又创造了你们，你们都是按照我们的形象而被创造出来的。 这并不是说你们被创造成现在所见的物质人形，而是说你们都是能量体的缩影，你们都被赋予了起源和我的一切能力。 但你们要知道，只有与你们所创造出来，身处的宇宙配合之下，才能充分发挥这些能力。 如此一来，你们与神起源和他最初的造物及原实体，也也就是我都是平等的。 有了这一实，像你们何必将自己限制在更小的现实当中。而你们本可以仅仅通过张开眼睛，就能在地球上达到天堂和实像真正的连通。 所以为什么你们在地球上浪费这么多的时间起源创造你我皆是出于他的喜悦，以及增加他的自我体验的需要。 如果起源对其他原实体和我创造的宇宙中的一切开始感到无聊的话，大可以就职打住。 而重新开始，但无论是他还是我们都没有认为到了这个程度，也更没有必要重新开始。 我们觉得游戏已经进行到了最有意思的一部分，最终的真相超越幻象。 他们中到处有像你们这样的个体，帮助他人去探索他们存在的意义。 这样做，他们让自己更深层的去探索自己的信仰，进一步加深他们的理解。 他们也同样在个人进化的道路大步向前，接着把这种经验传给那些需要帮助和指导的人，在人们初期步履蹒跚的时候，引导他们去了解真相，让他们更接近内在的神，以及他们内在的力量，一种无所不能的力量，只要他们自己敞开胸怀，并相信表面上似乎难以理解的实相。 实际上他们都很有力量，而且只要他们遵守宇宙法则，为了他人利益做事就能击杀成塔。 因为这原本就是由他们所支配的力量。
+源实体：所有人类的发明无一不是神圣灵感所产生的结果。 灵性上的说法是灵感都是从灵性世界传导到个体的不认同。 这种说法的人便困于最大的幻觉中及物质界生活最好的做法是与物质界和眼前的一些物质享受共处，但不把物质界当成真相，也就是不把它当成是你的神，让我来告诉你一件事，起源创造了源实体。 接着我又创造了你们，你们都是按照我们的形象而被创造出来的。 这并不是说你们被创造成现在所见的物质人形，而是说你们都是能量体的缩影，你们都被赋予了起源和我的一切能力。 但你们要知道，只有与你们所创造出来，身处的宇宙配合之下，才能充分发挥这些能力。 如此一来，你们与神起源和他最初的造物及原实体，也也就是我都是平等的。 有了这一实，像你们何必将自己限制在更小的现实当中。而你们本可以仅仅通过张开眼睛，就能在地球上达到天堂和实像真正的连通。 所以为什么你们在地球上浪费这么多的时间起源创造你我皆是出于他的喜悦，以及增加他的自我体验的需要。 如果起源对其他原实体和我创造的宇宙中的一切开始感到无聊的话，大可以就职打住。 而重新开始，但无论是他还是我们都没有认为到了这个程度，也更没有必要重新开始。 我们觉得游戏已经进行到了最有意思的一部分，最终的真相超越幻象。 他们中到处有像你们这样的个体，帮助他人去探索他们存在的意义。 这样做，他们让自己更深层的去探索自己的信仰，进一步加深他们的理解。 他们也同样在个人进化的道路大步向前，接着把这种经验传给那些需要帮助和指导的人，在人们初期步履蹒跚的时候，引导他们去了解真相，让他们更接近内在的神，以及他们内在的力量，一种无所不能的力量，只要他们自己敞开胸怀，并相信表面上似乎难以理解的实相。 实际上他们都很有力量，而且只要他们遵守宇宙法则，为了他人利益做事就能击杀成塔。 因为这原本就是由他们所支配的力量。
 
 Let Me tell you something.When the Origin made the Source Entities and I subsequently made you,you were all made in our image.That is not to say that you were all made to look like what you perceive now as physical man.You are a microcosm of the energetic. You were given all of the abilities that the Origin and I have at hand,but with the understanding that you can use them to their fullest conclusion within their context, the universe that you were created to work within.In this way,you are equal to God,the Origin,and its first creations,the Source Entities,Me.With this as the real reality,why would you want to restrict yourself to this lesser existence when you can achieve heaven (reality and total connectedness)on Earth by simply allowing your eyes to be opened?So why do all of you waste your time on Earth so much? 
 
@@ -9911,6 +11235,8 @@ ME:This "truth"seems fantastic.Does this mean that we could even affect things l
 
 SE:Of course.You only grow old because you expect to grow old.You only expect to grow old because you see others around you growing old.This is the norm;this is the problem. The problem is that the norm is incorrect but is nevertheless accepted as being the norm "because everyone does it."Therefore,it must be real.Right from re-birth into the physical body,you are fed basic un-truths,mis-information based upon ignorance and blindness. 
 
+源实体：
+
 We have talked previously about the primeval desire to be part of a collective,no matter what this means,and being "part"of the norm is part of this desire.In this example it means growing old,allowing the physical body to demise when it really doesn't need to in order to feel that you are part of the norm.In essence,you could negate the inconvenience that decrepitude offers and,instead,command your body to stay like that of a teenager for 500+years or until you feel that you have experienced all that you planned to experience in the physical before returning to Spirit.Why do you do this!?I still chuckle over this because allowing the body to decay was not and is still not in the design of the body.This is just one part of your power that you do not use because you feel the need to be part of the whole,no matter how misguided that whole is.With this the illusion is complete.It is perpetuated by a fear,a fear of the un-known,an un-known which could/ should be known if you only gave yourselves the chance.
 
 ### Chapter 37 - Religion 
@@ -9922,6 +11248,8 @@ ME:One of the questions I have been meaning to ask is why religion started?What 
 我：有一个问题，我一直想提出来，就是为何会有宗教产生？ 你如何看待宗教，还有宗教是否和更高的实相有关？ 在我回答你这三个问题之前，我先说一件事，对于人类处于完全独立以及与整体的分离而创造的一切，我都没有任何意见，被创造的一切都被预知并认可为一个可能被并事实上已经被选择的方向，我们并不对这个方向做评判。 因为每一个方向都是一种可能性，以其完美的方式在呈现自己看到每个生命为呈现的问题，所做的奋斗和最终解决方法是很有意思的一件事。 看到你们在进化各方面的成功是很美妙的一件，是我们为你们对起源进划的贡献而欣喜。
 
 SE:One thing I will say before I answer those three questions is that I have no opinion to give on any of the things that humanity has created as a result of its total independence and isolation from the whole.What has been created has been foreseen and recognized as a certain direction that could have been taken and,in fact,has been taken.There is no judgment on this direction,for every direction is a possibility and is,therefore,perfect in itself.It is interesting to see the individuals'struggles and ultimate solutions to problems presented.It is beautiful to see you succeed in all things evolutionary,and we revel in your contribution to the Origin's evolution. 
+
+源实体：
 
 #### Initial Purpose of Religion 
 
@@ -9943,6 +11271,8 @@ ME:Is that it!?I thought you would have more to say about religion than that-lik
 
 SE:No one religion is correct,for they were all trying to help the individual remember from whence they came and what they are.Each of them had an individual who was more prominent in the teaching of such knowledge,and each of these tackled the problem from a different standpoint.Eventually every one of the current religions and those that are not known by humankind failed to deliver its initial promise.As I previously alluded to,this was due to corruption of the systems created from within,coupled with the general reduction in frequency of the Earth plane,which also included the local spatial neighborhood,by the way,and the desire for the power to control individuals on a local/physical basis.The Original reasons for its development were lost. 
 
+源实体：
+
 You mentioned if I like being worshipped!!!
 
 This is a difficult one to answer as true worship is connectivity to the Origin and Me via group focus(meditation or prayer).It relies on the concentration of many people at the same time to gain some limited gestalt coadunation. 
@@ -9953,7 +11283,11 @@ Currently worship is taken as dedicated belief of the existence of a so called "
 
 ME:Are you talking about the worship of idols or idolization here? 
 
+我：
+
 SE:Idolization is something different,and I will get to this later.The real issue with worship is that it is misdirected,misunderstood,and addictive to those who are susceptible to the idea of so-called "salvation"through worship.This is especially prevalent in cult culture where the teachings and the teacher are both worshiped. In some respects,worship has a positive side:it does bring people together in a common purpose,especially those who feel subconsciously that they need guidance and direction in their lives and thus feel they need to be told how to live their lives.They believe that if they follow the directives,they will gain salvation from inevitable destruction and move into some perfect state of eternal bliss-one that is specifically described by their teacher as being the only real truth and everything else is fake.There are many people being sold this particular "pup"all over the world with some being used ultimately for un-Godlike actions. 
+
+源实体：
 
 In reality all return to the blissful state of communion with the rest of their spiritual intellect and,of course,Me.The promise of being one of the "chosen ones"is just not true. Unfortunately,it is too compelling for some people to ignore so they can continue with working on their real task at hand of experiencing and evolving.Instead,they become engrossed in unreal and manufactured situations. 
 
@@ -9967,7 +11301,11 @@ In essence though,I don't need to be worshipped.The Origin doesn't need to be wo
 
 ME:I thought that anyone could be in communication with You and the Origin?
 
+我：
+
 SE:Your thought is correct,but not everyone is at the point in their human evolution where they are able to see through the mist and fog of unreal reality and grasp what little of the real reality they can perceive with their limited functionality within this plane of existence.You yourself have doubts,as do others who are in similar evolutionary level.How can they possibly believe what they perceive individually when they experience it best in harmony together?So in terms of whether or not I like being worshipped,I would say that communication with my children is always liked and encouraged, 
+
+源实体：
 
 #### The Manipulation of Others for Personal Power 
 
@@ -9985,11 +11323,19 @@ Bear in mind that the whole point of religion is to bring people together to hel
 
 ME:What is a sin?What is your understanding of the word we use here in religious contexts? 
 
+我：
+
 SE:Simply put,sin is a wrongdoing that can be and should be avoided.You can also use "could have been and would have been"avoided if the individual was open enough to feel the inappropriateness of the actions he/she was about to undertake that would cause the action of wrongdoing. 
+
+源实体：
 
 ME:I thought you said that there was no such thing as right and wrong?If this is the case,then there is no such thing as sin! 
 
+我：
+
 SE:Well observed.There is no such sin or wrongdoing;there is just doing without judgment.I was using it as an example of what is construed to be incorrect from your perspective.In essence the manipulation of others for personal power is an experience for both the leader and the led.The fact that this leadership could have been used for the advancement of human evolution but was not is a shame.To say it is wrong is a contradiction in all that I have been saying.However,it is the wrong direction for the opportunity of evolution in an increase in frequency sense.It is still evolution and experience for all of those incarnates that take part.It is just that it would not result in the fastest way to coadunation with their higher selves whilst in the physical. Remember,everything you do is experience,one that the Origin and I are in constant wonder over,for We would not have gone down to the levels of existence that you,My children,have gone in our quest for knowing ourselves.
+
+源实体：
 
 #### Worship vs.Idolization
 
@@ -10001,11 +11347,17 @@ ME:You said that you would get back to idolization earlier,and I would like to k
 
 SE:Although I said they were different,in essence,they are the same.The main difference is the use of or the need for a physical object to give the individual's attention focus. The use of graven images has been used for ages and has proven to be the biggest distraction in working with the higher self,especially in striving to gain a greater connection with the universe and Me.Its capability to be distractive is absolute.Its use is not so prevalent in the current phase on Earth in terms of the use of carved images or paintings of a priest's explanation of what God or a God looks like. 
 
+源实体：
+
 However,the "idolization"of certain well-known individuals has taken over with a vengeance,and that is particularly damaging as it links into the comparison of the physical self with others in the physical.This is perpetuated by the media and used to market what are frankly non-essential products as essential everyday necessities.The celebrity life is now the new graven image used as idols to be worshiped on a daily basis. The once wooden or gold mini-statues have been replaced by sports figures,entertainers, politicians,and,more recently,people who are famous simply for being famous.Parents revere these individuals and their children follow suit,knowing no better,as they are programmed from birth that this is what they should aspire to be,a celebrity!In this instance,idolization is particularly blind and the effect limits the soul,not specifically because it in itself is a distraction but because it is seen as being achievable.Of course,I accept all things as being part of the bigger picture of helping the Origin know all aspects of Itself;however,you have all been here before!And,I am interested in how many times you will feel the need to go down this road before you recognize it for what it is. 
 
 ME:You mean we have done this before? 
 
+我：
+
 SE:Almost all of the races of man have gone down this route,and it has led to a significant contribution to their downfall. 
+
+源实体：
 
 #### Aztec and Toltec Races 
 
@@ -10017,6 +11369,8 @@ ME:So what about races like the Aztec and Toltec where the worship led to human 
 
 SE:Totally misplaced.They both descended into cave man status as a result of a collapse in civilization which was brought about by pure decadence.Those that survived were not the leaders,inventors,craftsmen,and doctors,but the common people.Without proper leadership,they quickly lost the ability to renew and rebuild what they had around them in modern conveniences,which started to break down.All they could remember eventually was that they were once a great race and that they had done something wrong.This,in turn,led to a worship culture where they prayed for their leaders and intelligent individuals to return to bring them back to greatness,which was,of course,impossible as they had died hundreds of years previously.All that was left were the stone monuments that the previous race had built to commemorate the time they finally achieved the first level of understanding of the laws of nature and the universe.These were taken as areas for worship,areas where it was hoped the previous race could be contacted.And so they felt the need to offer gifts to the previous ones,who they now elevated to God status.They must have been Gods,they thought,to have built the pyramids,fulfilled the stories of legends,and given them the power to make gold.When there was no response from these previous leaders to their pleas for help,they resorted to more impressive forms of offerings to attract the attention of the "Gods."The result was human sacrifice,not to kill the individual being sacrificed but to force the gods to come back to save the life of the one being sacrificed.As it was known that the previous ones revered life and would do anything they could to preserve them,they reverted to the radical act of removing the heart. What better way to attract the attention of the gods than to give them real cause to return-to save a life in danger of ending. 
 
+源实体：
+
 #### Starters of Three Major Religions 
 
 **三大宗教的创始者**
@@ -10027,17 +11381,31 @@ ME:I have another question on religion before we move on.I know that we all asso
 
 SE:Wrong!You see,neither the Origin nor I need or desire humanity or any other race to worship us.Why would we want that?We(I)created you to help Us (the Origin) know Itself better.The work all of you do in this area is sterling;you don't know what a difference you are making to Us in Our quest.If anything,We should worship all you incarnates,for worship is only really a form of recognition and a desire to communicate.No,there is no need to worship,only recognize,communicate,and share experience. 
 
+源实体：
+
 ME:What about all those people that our modern religions are founded upon,such as Jesus with Christianity,Buddha with Buddhism,Mohammed with Islam,and Confucius with philosophy. 
+
+我：
 
 SE:If you are going to include philosophers,you should also include all the Greek philosophers as well,for they have equal standing with Confucius.What I would suggest you do is concentrate on the individuals who are attributed with the starting of certain teachings,which are now called a"religion"of one sort or another. 
 
+源实体：
+
 ME:O.K.,let's do that because from my point of view,they are pivotal in understanding the History of God from a human point of view.They are the start of our major religions and are what most people hang their hats on for the longevity of their immortal souls. 
+
+我：
 
 SE:In essence,they each represent a part of the whole.Each one of them was allowed to have a varying level of connectivity with his higher self and the plan of action he was working toward.They worked above and beyond what would normally be possible together with other individuals(disciples?)who also incarnated with a view of helping this "religion starter"on his quest on the physical plane.Each quest was the introduction and the spreading of teachings to help incarnated humankind to evolve in the most efficient way possible without being dragged down into the lower frequencies where they would lose their efficiencies and,therefore,evolve at a much slower pace.To a lesser extent,all of the "religion starters"managed this although they all taught some things in error.Some of these errors have been taken as being the core truths without question or ratification. 
 
+源实体：
+
 ME:So what was the area that each of these people was to specialize in teaching us? 
 
+我：
+
 SE:Remembering that each of them was quite high up the evolutionary ladder anyway. None needed to incarnate to perpetuate his/her own evolution.Each took a risk that he might actually slip backwards as a result of exposure to the lower frequencies.They assumed quite a risk,so it is to be expected that they may not have gotten it totally right in the presentation of what they were trying to achieve.Based upon this,you have to be tolerant on what the actual outcome of the teachings delivered. 
+
+源实体：
 
 So here are the tasks that each of the three undertook to help humanity evolve. 
 
@@ -10077,7 +11445,11 @@ So you can see that the whole reason for allowing three individuals to incarnate
 
 ME:Were the three incarnations planned?It sounds to me as if these three were part of a pre- planned activity of the sort that you previously described-when we want the whole world to change direction in some way. 
 
+我：
+
 SE:Yes,and it still is part of the plan.The only issue is that the intended path that the human race should have taken as a result of these individuals incarnating has not been as effective as energetic humanity expected.It seems that with all things in the physical,there appears to be a certain amount of uncertainty.This,you understand,is a direct result of the vast majority of you not being able to connect with your higher selves and the greater reality.You cannot see what the desire is from the greater human perspective and,therefore,tend to play the situation you find yourselves in to YOUR best advantage rather than for the advantage of the collective human race,both physically and energetically. 
+
+源实体：
 
 #### The Plan for Utopia 
 
@@ -10089,13 +11461,23 @@ ME:So what is the plan?
 
 SE:Look into yourself.You are part of it!
 
+源实体：
+
 ME:I get the impression that the whole point is to put enough way-points/guideposts in place to make the existence of the greater reality stand out and,therefore,gain popularity. 
+
+我：
 
 SE:Good.Go on. 
 
+源实体：
+
 ME:This...Ifeel like I am waffling here! 
 
+我：
+
 SE:That is because you are accessing the true information without intersecting it with your intellect and,therefore,trying to analyze it.Carry on! 
+
+源实体：
 
 ME:This gain in popularity will automatically generate an increase in frequency,locally at first, as people with similar thoughts get together and discuss with excitement what they see, feel,or experience.As the number of these groups increase,they will have a triangulation effect where those areas in between (location-wise)will also be affected by the increase in frequency and will subsequently rise as well.This rise in frequency will cause the incarnating individuals who are not normally open to their higher selves to experience more of the greater reality than they normally would but in a conscious way.This then will bring recognition to who they really are and what they are doing here on Earth in the physical plane.This will enable the frequencies to rise even further when the need for self- aggrandisement and aggressive actions to maintain personal position are recognized for what they are and discarded in favor of working for the whole rather than for the self. Humankind will once again be equal to the Gods in all its manifestations and will be able to accelerate the evolution of the race and the return to the Source and Origin,if so desired. Utopia will,indeed,have been achieved.
 
@@ -10121,9 +11503,15 @@ ME:O.K.,so we have talked a bit about many things,but I can't help feeling that 
 
 SE:You don't want too much,do you? 
 
+源实体：
+
 ME:I don't think so.No. 
 
+我：
+
 SE:O.K.,I will give you the reality about the entity you recognize as Lucifer. 
+
+源实体：
 
 First,I will continue to call this entity Lucifer as that is the name that you recognize although this is not the name that it is recognized by in the energetic/spiritual realms, which is a great shame for this entity has accomplished much in its existence. 
 
@@ -10131,15 +11519,27 @@ Lucifer was one of the first entities to get involved in the physical human bein
 
 ME:Hold on.So why is this Lucifer classified as an evil character if he was instrumental in getting us to where we are now? 
 
+我：
+
 SE:He was classified as bad or evil purely because humanity is where it is now-in the lowest dimensions and frequencies possible.You see,when energetic humankind started this project,you were all existing in very high frequencies.Even your physical projection was what you would call translucent or not solid,more gas-like in substance than physical.Although "gas-like"is not a correct description,it will suffice. 
+
+源实体：
 
 ME:So Lucifer is responsible for us being stuck here at this level. 
 
+我：
+
 SE:No,all of you are.Lucifer simply gave you the means to soar high in the dimensions and frequencies by making the right choices as they were presented to you.You made the decision on which way to jump without the influence of other higher/collective minds. 
+
+源实体：
 
 ME:Ah,we are back to the conversation about free will versus collective minds.
 
+我：
+
 SE:No,not quite,you see,even though you are free to make your own decisions,you are still part of a collective entity and,therefore,a collective mind.Lucifer merely suggested and debated hard for the incarnate human entity to have autonomy in order to maximize the evolutionary opportunity and accelerate the evolution process. His idea was maligned by the other key workers on the physical humanity project as being both unnecessary and dangerous.They felt it was dangerous insomuch as the individual entity or that part of the entity that was projected into the physical, that was incarnated,would lose communication with the rest of itself or humanity. He gained some support from some entities that ran a "what if"scenario,using the Akashic and established that the opportunities for evolutionary expansion and experience were enormous and should,therefore,be considered.On the other side, the opportunities for dropping down the dimensions were also there,but they were not too high statistically in terms of becoming a reality.It was based upon the higher probability of success that allowed Lucifer to win the debate with the others leading the project.It was decided that giving free will was the correct way to go to maximize the opportunity. 
+
+源实体：
 
 The big issue was that Lucifer decided not to advertise the possibility that humanity could actually drop down to the lowest levels as well by choosing this route-even though in doing so,humanity would make its greatest advance in pulling out of the lowest of levels.He saw this as the excuse the others needed to veto his idea.He said they would say that the risk would be too great,so he decided to withhold all of the information that came from the Akashic.In withholding this information,he committed a crime-which he was free to do-but that was compounded by the fact that humanity incarnate actually managed to go along this path.From their point of view,the others believed that they chose the worst path for humankind.They believed that if they had been given the complete picture from the Akashic,they would have decided differently.This resulted in Lucifer being maligned as an evil entity,"one that is not of the whole."As a result of this he was asked to leave the group of individuals that had both developed the physical body for humanity incarnate and been the "steering committee,"if you want to call it that. 
 
@@ -10151,7 +11551,11 @@ His own knowledge was damaging to his own arguments to give humanity the free wi
 
 ME:Wow,he really has made a big impact on humanity,hasn't he?
 
+我：
+
 SE:Bigger than he expected,and he has gained a reputation that is not equivalent to his mistake.Nevertheless,to date,humanity is following the path that was predicted if it individually(collectively)made the decision to go this way,which it did.Now Lucifer is paying the price,the price of not being totally open to his peers even though he is still doing a good job and is now very open with his information,even if it is controversial. 
+
+源实体：
 
 #### Dark Forces and Lower Entities 
 
@@ -10162,6 +11566,8 @@ ME:Over the years I have been to many courses on spiritual matters.All of them r
 我:过去这些年，我上了许多关于灵性内容的课程，所有的课程都提到所谓的黑暗力量或较低实体，并说我们必须保护自己，远离他们。 这可以告诉我实际的情形吗？在较初级的灵性休息者当中，这确实是一个争议点，但幸好它很容易解释，要知道这一点没有所谓的黑暗力量。 他有存在于较低星光层的实体，当能量震动较低的时候，他们才能存在。 他们害怕是源于当地球提升一个层级时，他们一切也都跟着提升所有较低震动层级的实体会因此消失。 为了阻止这种情况，将地球保持在地平中，他们影响那些受低层震动吸引的人们，让他们对抗那些会更大的利益工作的光之工作者们来自诸宇宙及各维度的大量灵体转世到地球上，体验物质生活，目的是加快自身进化速度，有些灵体沉迷于物质界的感官感受。 即便他们处于非物质状态，也不断回到地球，想要体验更多，他们会粘附于对他们开放的人，以便去体验宿主的经验和震动频率，他们越是沉迷频率，越是下滑，直到他们忘记了自己是谁是什么，以及怎么做才能记起这些，他们完全迷失了自己，不知何去何从，他们只是本能的，知道自己需要提升能量层级以及频率，这能让他们记起自己到底是谁并脱离下滑的漩涡。 这些实体游荡在地球上，事实上真的有一条你失灵魂之河环绕着地球寻找那些可以让他们年富以获取能量和经验的态也。 他们找到一个心甘情愿的宿主时，可怜的宿主们，大部分时间都不知道发生的事情，除非他极为敏感。 他们就会感到很快乐，但是当宿主或疗愈时，发现他们的存在在并试图让他们离开时，他们就会因为生气而与反击，直到他们被送到光之中。 事实上，他们只是迷失和恐惧，无无法了解自己，到底发生了什么事。 当他们得得到到想要的东西时，就会变愤怒怒，把他们送送光光中中，很简，你们只需需求求基督或神的意识或能量保护自己，接着给他们大量的爱，你提供他们所需需的能量去回到光中。 事实上，通过这样做，你们给了他们能量，将他们潜回到他们来的地方。
 
 SE:This is a real bone of contention amongst the lower grade spiritualists,but,fortunately, it can be easily explained.Know this:there is no such thing as a dark force.There are only entities that exist in the lower astral.They only exist whilst the energies are at that lower level of vibration.They are scared because when the Earth moves up a level, everything else does,so all the lower vibration level entities will cease to exist.To try to stop this,they are trying to keep the Earth's vibration levels low by influencing those people who naturally gravitate towards the lower vibration levels and make them antagonistic to people who operate for the good of the light work. 
+
+源实体：
 
 Many spirits from all parts of the universe/s and dimension/s come to Earth to incarnate and experience being in the physical with a view toward accelerating their personal evolution.Some of these spirits get addicted to the sensations that they feel in the physical and keep coming back for more,even when they are disincarnate.They do this by attaching themselves to people who are open to them in order to experience their surrogate host's experiences and vibrational frequencies.As they get more and more addicted,they start to slip down the frequencies until they get to a point where they forget who and what they are,and what they need to do to remember.They are effectively lost,have nowhere to go,and don't know what to do. 
 
@@ -10191,7 +11597,11 @@ Spiritualists will additionally comment that the word Christ is also used to des
 
 ME:So if I was purified to the level that allowed me to be aloof of the desires of the physical,then I would be called Guy Christ. 
 
+我：
+
 SE:Yes,but it doesn't sound as good as Jesus Christ,does it?There is,however,much more to this than meets the eye,for you have asked a question about the Christ consciousness. 
+
+源实体：
 
 Once you are Christened,you are then left to develop yourself personally to the point where this Christ state is personified within you,i.e.,you are not tempted by any of the demands or desires of the physical world because you are aware that the physical world is but a minor proportion of the greater reality,the universe and all its levels and frequencies.This is not easy as the temptations of the physical are great and go deep within that part of you that is in-carnate,in the meat.You have to look after your flesh body to enable you to work fully within the physical environment at its most basic level. This is where the confusion sets in and the vast majority of you,once christened,become un-christened due to the contamination of the physical world.It is hard to give up the desires of the physical when they are so alluring and so apparently real. 
 
@@ -10205,7 +11615,11 @@ Your religious leaders just about understand the need for the human body,neigh t
 
 ME:I have heard that being Christened protects one from the devil. 
 
+我：
+
 SE:Rubbish,for as I have stated before,there is no devil except that which is the temptation within you,the devil within with its temptations to succumb to the demands and desires of physical existence.All this is part of the perpetration of un-truths to control the minds of the masses.It has no part in the minds of the seekers of the truth or in the greater reality. I will say this.Anyone who believes in the devil is himself/herself the devil,for there is no such character,energy,or force in the environment contained by the Origin.The word "devil"is in reality just a word,taken out of true context,for the resulting level of personal consciousness reached by succumbing to the desires of the physical. 
+
+源实体：
 
 #### Level of Consciousness of the Fully Christened/Purified 
 
@@ -10231,15 +11645,27 @@ Your entire life would change if you would all take just 2 of your lives to dedi
 
 ME:So material wealth is...immaterial? 
 
+我：
+
 SE:Yes.It means nothing.Material wealth is not only a passing convenience but a massive distraction to spiritual growth.It seduces you entirely and has done so for millennia. You really don't need it in the slightest.When you are in tune with the universe and its energies,you are able to create everything that you need to support you,including any currency that is needed to barter for physical requirements. 
+
+源实体：
 
 ME:Are you saying that we can create money? 
 
+我：
+
 SE:Yes,but more importantly you can create food,water,clothing,and shelter.You can even create energies that provide the same effects as medicine(healing). 
+
+源实体：
 
 ME:So if it's this easy to live,i.e.,you can create everything that you want,then why do people get seduced by the physicality of it all?As it seems to me,it is much harder to do the physical than it is to work with the spiritual.
 
+我：
+
 SE:I ask Myself the very same question on a regular basis.Why are all of you missing the point these days?But I recognize that it is up to the individual to work this out for himself/herself,and this is what your incarnate life is all about. 
+
+源实体：
 
 #### The Crux of Christ Consciousness 
 
@@ -10251,9 +11677,13 @@ ME:So getting back to the crux of the Christ consciousness,what is the whole poi
 
 SE:To return to the Source,Me,and then the Origin.I must make this one point plain though.Once you return to the Source or the Origin,you do not lose the basis of who you are.This is not the point of giving you individuality.As I have stated many times, the point is for you to experience many things and feed this back to the Origin.The end result is evolution of the individual to the point of having no need to return to the lower levels.Evolution at this level is to be evolved to the point of being one with God, so to speak,to the point of being equal.Although you can never really be equal,as God is the Origin and you are a small part of God through being created by Me. 
 
+源实体：
+
 The way to get there is to live the life of simplicity,not to the point of depravity but to the point where you are comfortable in your circumstance and any additional time that you have can be used for the betterment of others without benefit to self.This is the most important piece of advice I can give you,for there are many who use the working in the volunteer sector route as a means to an end.This is usually done by people of wealth to gain higher standing in society and gain public or higher acclaim by helping people who are less privileged than themselves.However,all they really want are the medals, such as knighthoods to further their status,not because they feel the real need to help others in need.To work for the benefit of others/to volunteer at the highest level must be done with the feeling of true love behind it.To help with love as the basis means that you do something for someone because you want to do it,not because you think it will do you some good but because you feel that the individual or individuals involved will really benefit from your actions,and that is what brings you pleasure.Everything is done in love when you are working within the Christ Consciousness.This is the most important thing to remember,for nothing can be done with malice or with the benefit of the individual in mind,for this is not the way of those who operate in this euphoric state of consciousness. 
 
 ME:Why is this? 
+
+我：
 
 #### Being at One with the Universe and All Within It 
 
@@ -10267,7 +11697,11 @@ To be with this level of consciousness is something to behold,truly,for if you c
 
 ME:I don't know.Why do we? 
 
+我：
+
 SE:Because you have all been blinded to the greater reality by the need to conform to the rules of the physical.The way to the Christ consciousness requires some level of dedication to the point where you can work long and hard for little reward,for you expect physical reward and this is not what's at the end of the tunnel.As I have just explained,what is at the end of the tunnel is much,much more than physical reward, for you are invited to sit at the table of God (the Origin)as a brother.
+
+源实体：
 
 ### Chapter 39 - To Be of Service 
 
@@ -10293,17 +11727,31 @@ ME:So being of service is really all about working to get humanity back where it
 
 SE:In a nutshell,yes.Anything that you do to help your fellow man elevate himself in some way helps to bring the whole of humanity back on course.But don't forget that this is not just humanity that this helps,for the planet whose environment that you exist within also benefits. 
 
+源实体：
+
 ME:How do you mean?Does it also rise up through the frequencies? 
+
+我：
 
 SE:Yes,of course.The only reason why it is at its current level is because of human activity. The fascination with the physical caused a general reduction in the frequencies in and around the space/dimensions that the entity called by you "The Earth"exists within; therefore,it was pulled down with you. 
 
+源实体：
+
 ME:The Earth is a living entity as well?
+
+我：
 
 SE:Of course it is.It is just at its lowest vibratory level at the moment-nowhere nearly as vibrant as it could be,even if it was shifted up one or two levels. 
 
+源实体：
+
 ME:So we can be of service to the Earth as well by helping others to better themselves spiritually. 
 
+我：
+
 SE:Most certainly.Being of service,however,does not just mean being of service to the human entity.It can be just as relevant to be of service to the Earth and the other entities that exist on or in the bio-dimensional sphere.This means that working on ecological work for the love of the work,not for political statement because that nullifies the higher frequency energies resulting from the reason for doing the work. Simply completing ecological actions can also be a very rewarding way of being of service,a way that benefits not only humankind but all of "spiritkind"on,in,and around the Earth's bio-dimensional sphere.Some of you are already working directly with energies to supplement the Earth's loss of energy due to being at a lower frequency,and it is starting to respond by waking up,hence the dramatic weather changes you have been experiencing.These are due to shifts in the energy patterns that result in elemental responses from energies that are on the border of the spiritual and the physical.Wind is one of those and is the most noticeable. 
+
+源实体：
 
 You cannot believe how fantastically different life on Earth would be if it were to be lifted back to the level it is supposed to exist on.Just a couple of levels would mean that the areas that are currently desert would start to become fertile again.The weather would change to reflect the most ideal conditions to nourish the land and would create optimal levels of precipitation,temperature,humidity,and cloud coverage to make the most of and then shield the Earth when and where it needed shielding from ultraviolet radiation. 
 
@@ -10322,6 +11770,8 @@ ME:Let's get back to the Masters of the books I was reading about.Are they reall
 我：回到我之前所读的书中的灵性。大师们，他们真的有办法让自己的肉身活到两千岁。 当然可以。事实上，他们可以让自己的肉体想活多久就活多久。 比方说，在一位瑜伽修行者处于完全认知与接受宇宙法则的状态下，他可以无所不能。 人体只是受限于物质性以及其现任灵体获取能量的能力。 这能量原本是人人可以获取的。当现任灵体处于沉睡状态时，就像你们大多数人目前的能况，他就无法接入周遭无处不在的更大实像会认为物质存在辨识一切。 但当灵体一旦觉知到更大实像，便会开始调节到这个实像，这是一些简单的能力，开始出现直觉力增加疗愈能力，聪明传导接触纯粹能量态的存有的能力。 至于一些更高级的能力，比如控制物质的能力，只有当个体突破了物质界的帷幕，并完全不再受物质界局限后才会显现。 不过我应该要先说明在那些大师的时代，要达到这个层级，一数不易。 更何况目前在这个消费驱动的经济世界，你做到更不容易。当你到达这个层级时，你已不再关注物质界的需求，你将能够用能量维持肉体，你能在最基本的层面上更新身体细胞的能量，你不再需要使用有机或无机物转化。 目前你有这种能力，是因为肉体毕竟需要一些低等级能量。随着新细胞的产生，以代替，老化的旧细胞身体也会退化，因为没有能量层面上的细胞再生，你胞只能是部分再生细胞编程的核心细节已在更新过程中逐渐流失，从而导致了衰老。 因为核心生命力会逐渐流失，瑜伽修饰或大师们清楚这一点，所以他们能够抑制或及时给身体细胞结构提供所需的一切，并形成了根据身体某一年龄的记忆进行完全再生的功能。 这一年龄或外表，尤其现任的灵体，自主决定并非所有的灵体，都希望呈现年轻男孩或女孩的样子，很多喜欢展现中年人的样貌。 因为这样最容易赢得跟随这些大师的学生们的尊敬。中年阶段被认为是处于学习与教学能力的最佳状态。 在老一点就会被看成一个老态。龙钟的老傻瓜再年轻一点，又会被认为太年轻，没有传到授业的权威性。 我们还是回到开始这个讨论的主要原因吧。一旦个体开悟，成为大师，就可以影响他的细胞结构达到完美，这意味着细胞结构能以百分之百的效率运作，同时能由能量灵体随意操控。 如果灵体愿意身体便能永恒不朽。方法是通过将肉体转化到真实的能量态，从而进进入完全的灵性状态。 同时，肉体还能在物质界存在这个方法，也可用于肉体在物质界中或周围的移动。 但这种方法只有在灵体掌握了对实像的观察时才能使用能够与能量状态整体运作。 也就是石像对于个体灵体来说是完全可达到的。以认知的可以理解的这似乎有点天方夜谭，但却是每个人都可实现的。 但我再一次强调，物质界的诱惑是如此的大大到难以让人将自己置之于外，但专注于投入，加上相信自己就一定会有收获。 主要的问题是，在现今西方世界的生存环境里，以及东方世界正跌入的生存环境里，是否能长期坚持专注与投入。 尽管肉体是一个不必要的物体，但他在这个进化的机会里，还是有它的用处的。 因为在一个如此受限的情况下，生存本身确实也很有启发，引人觉醒，呈现给灵体的转世化身成肉体的机会是透过努力，他可以选择在临界环境中保有肉体。 如此一来，便可以选择在物质界的任何时间任何地方生存。 而无需经历身体的成长成熟，以及接下来的遗忘和觉醒的过程。 灵体因此不再受限于物质，同时还能够在最基础的层级上生存于物质界，以便体验只有在物质层才可体验的一切，同时还能与临界连接，同时最完美的组合。 因为灵体不受物质需求所控制和干扰，反而全然掌控着物质的过程。
 
 SE:Of course.And realistically they can make their physical bodies live for as long as they want.For instance,a yogi can,when he is in total understanding and acceptance of the universal law,do anything he wants.The human body is only limited by its physicality and the incumbent Spirit's ability to draw upon the energies that are naturally available to all.When the incumbent spirit is in a state of slumber,as most of you are,it is not able to tap into the greater reality that is all around it and it believes that its physical existence is all there is.Once a spirit is aware of the greater reality, it starts to become in tune with it and the simple abilities that are at first available- such as increased intuition,healing,channeling,contact with those who are totally in the energetic state-start to come to the fore. 
+
+源实体：
 
 The greater abilities,such as being able to control the physical only come when the individual has broken through the veil of the physical and is,therefore,not contained by it in any way.When you have achieved this level,which I might add was not easy in those Masters'times and is even harder in the current consumer-driven economies of the world,you are not concerned by the needs of the physical.You are able to feed the body with the energetic,renewing the energies of the cellular structure of the body at its most basic level.You do not need to use the conversion of organic or in-organic materials, which is at best poor but necessary since the physical body does need some low grade energy. 
 
@@ -10345,15 +11795,25 @@ ME:I have noticed that in a number of things in life you work hard for something
 
 SE:This is totally true and if you are able to pass your learning onto them so that they have a higher start point than you had,you have then given them a great service.In fact, this is the whole point of"experience."You experience what you experience and learn as a result.You can then pass on what you have learnt to others which allows them to progress at a faster and more in-depth rate.They will both know the history of how to get to where they are and,therefore,progress forward whilst not needing to spend the time required by the teacher to get to there.This is the natural way of the universe and is the best way to spread evolutionary opportunities and raise the base level of the frequency of the universe and its inhabitants,physical or energetic.
 
+源实体：
+
 ME:So it is a good thing to do,to show your shortcuts to others. 
 
+我：
+
 SE:It is one of the primary ways to be to service.Through your pain do you relieve the suffering of others.You show how to move forward by offering that which is most personal to you:your learning.If you remember in one of our previous dialogues,I mentioned that the total learning of all the beings in this universe is recorded in the Akashic records.That means that everything that you experience,learn,and evolve is recorded and stored for the use of others.This is there for reference so that others can gain the knowledge and experience of others that they have not received themselves in order to help them in incarnations or experiences that are of a similar nature.With this inherent knowledge,they are able to start at a higher level than they would have if they had started from scratch.This allows them to move learning and evolutionary opportunities forward to the point where they find a shortcut and pass this on to others who will follow them. 
+
+源实体：
 
 Hence,the circle is closed because they have benefited from the knowledge and suffering of others.I used the word "suffering"here because all learning and evolution has a level of suffering involved in it whilst one is incarnate in the physical.Entities in the physical that have suffered and learned and then share that knowledge with others to enable them to continue the evolutionary cycle,help accelerate the learning of others.In essence,they create a spiral as incarnate spirits give as they learn,and the cycle continues onward and upward.
 
 ME:I have heard that to achieve spiritual enlightenment,you need to follow strict pathways and meditate with dedication.How can this be possible in today's western society where we are required to react to email in an instant?We are never left alone enough to spend this sort of time to get really spiritual.We aren't able to wander around and teach with no fixed abode and be taken in by strangers like Jesus did. 
 
+我：
+
 SE:And no one is expecting you to.This is the beauty of the upward spiral.As the level of people trying to be spiritual increases,so does the base frequency of the world/ universe.This means that you don't have to do as much to be at the level you are now because others before you have done enough work to give you a higher starting position.As a result,access to the spiritual realms is just that bit easier than it was for them. 
+
+源实体：
 
 #### Spirituality over 2000 Years of Human Incarnation 
 
@@ -10365,13 +11825,23 @@ ME:So what is the difference between us and them?What is the difference over 2,0
 
 SE:The difference is that,in general,your minds are more open to understanding the truth. There are many more of you now that are asking the most fundamental of questions, There must be something else to this life.This is the springboard;this is the first step on the road to enlightenment.When Jesus was alive/incarnate,there were significantly fewer people in the world than there are now.This reflected a smaller number of people on a conscious spiritual path and a reduced opportunity to increase the Earth's frequency levels.If you realize that the increase in today's population has also resulted in a significant increase in the population of people who are consciously on an evolutionary spiritual path,then you can see why the base frequency of Earth and the local universe is much higher than in Jesus'time.The only difference here is the level of things bombarding your consciousness on an hourly/daily basis that distract you from contacting that which is the rest of you,the real you.Those incarnate in Jesus' time did not have these distractions,but they had a much lower level of frequency to battle through first to get to the spiritual realms.They needed to study for most of their lives and their life expectation was different so they had their challenges moving upward through the frequencies to enlightenment. 
 
+源实体：
+
 ME:So how come Jesus was enlightened at so young an age? 
+
+我：
 
 SE:How come you were interested in the psychic at so young an age? 
 
+源实体：
+
 ME:Because he was born surrounded in a higher frequency? 
 
+我：
+
 SE:Correct,and so are all those who are on the path to enlightenment right now,just like you.This does not make you any better than those who are not on this path,but it does give you the opportunity to "Kick Start"them along this path.This is what you are all here for.To help those not as fortunate as yourselves to progress along the path that you have chosen,the way to true enlightenment.
+
+源实体：
 
 #### Awareness-A Comment from the Origin 
 
@@ -10393,13 +11863,23 @@ SE:Forgiveness is one of the main foundation stones of maintaining your spiritua
 
 ME:Forgiveness seems so simple.Why don't we use it more often?It would make the world a much better place. 
 
+我：
+
 SE:Yes,it would and what's more it would solve a lot of the world's problems,if not all of them.The problem is that people say they forgive,but they don't fully forgive.This is because they do not fully understand what they are forgiving or what forgiveness really is.To truly forgive someone,you have to really understand the circumstances surrounding the reason for their actions.Then and only then are you able to put yourself in their position and feel the emotions that went with the action.This is only available when you invoke the empathic function of your true selves,which,of course, is available at any time if you only give yourselves the time to listen to your higher selves.This ability is only a step along the way to instantaneous and unconditional forgiveness that is born out of unconditional love for all because it requires a process to work through to achieve forgiveness.When you are open to and at one with the universe and the opportunities it presents for your evolution,you will see the actions of others not as a rub against you but as an opportunity for them to evolve,as well as yourself.This will be instantly recognized and understood;forgiveness will be instantaneous and unconditional. 
+
+源实体：
 
 ME:So forgiveness is a powerful tool to have in your back pocket. 
 
+我：
+
 SE:It's not a tool.It is another of the rules for life in the physical,a way to ensure that you don't pick up opportunities to lower your vibrations and,therefore,lose your contact with the higher self,that remaining part of you that is within Spirit.In actual fact,it is a fundamental need for existence in incarnate life.If you consider the number of times per day that someone may have wronged you in some way,shape,or form,but you ignore it or so you think,(as some people let things simmer in the background), then you have a tremendous potential for either decreasing your vibrations by taking exception to the events experienced or increasing your vibrations by forgiving those who provided the events and move onwards and upwards.The wise person sees this without further need for thought on the matter and accepts the opportunity for evolutionary progression with joy. 
 
+源实体：
+
 ME:But what about those around you who may suggest that you are being taken advantage of or being ridden over rough-shod? 
+
+我：
 
 #### Showing Others the Thought Process of Forgiveness 
 
@@ -10419,13 +11899,23 @@ ME:Link?What's this link?I thought that if you did something that caused a lower
 
 SE:There is always a karmic link between the doer and receiver of wrongdoing.This link ties the two entities together for eternity until one of the following two things happens: (1)they forgive unconditionally-this is one of the greatest gifts an entity can give another entity,for it severs the karmic link for that particular action between the two entities for eternity;or (2)the entity who gave the initial wrongdoing will receive a similar action from the same entity that previously received the wrongdoing. 
 
+源实体：
+
 ME:Wow,this route seems very messy. 
+
+我：
 
 SE:It is.You can imagine all the links between entities that there are in the incarnate part of the universe.It is a real "buggers'muddle"and one that would be easily remedied if the entities receiving the wrongdoing forgave those giving the wrongdoing at the point of reception.Furthermore,imagine this,if everyone forgave each other at the point of reception of an action,then Earth and its entire population of incarnate souls would be at a significantly higher vibratory level than they are now.This would even raise the individual level of awareness to the point of recognition of the opportunity for committing wrongdoing,thereby lifting the individual to the threshold of universal consciousness whilst incarnate.At this point the bigger picture is recognized and a way to work with it willingly compiled. 
 
+源实体：
+
 ME:So forgiveness is the way forward.
 
+我：
+
 SE:It's not the only way forward,but it is a big player in the methods available to individuals to move forward on their evolutionary paths.
+
+源实体：
 
 ### Chapter 42 - More on Communication with Our Higher Selves 
 
@@ -10436,6 +11926,8 @@ ME:Do you have another example of why it is hard for that part of us that is squ
 我：你有没有另一个例子，可以说明为什么压缩到地球层面的小趣可理的这一部分，我们如此难以与我们的高我沟通。 我会这么问，是因为我曾经试着跟一些朋友和熟人解释时，使用装在一个瓶子里的意识，作为比喻，还有五种感官对比五百万种感官当例子，但这些在帮助他们理解上似乎效果有限。 那么我就用一个大多数人能理解的例子来说明吧，特别是那些年轻人，因为这与电脑有关，想想带宽和从网络上下载东西。 如果你把自己当成一台家用电脑，而你真实的自己，你的高。 我是整个全球互联网里的所有知识，这是你也许就能看出问题所在了。 即使用宽带，无论下载或数据流量都需要时间，尤其是当后台还有其他信息在交换的时候，如果你同时还去下载或浏览一个以上的网址速度就会更慢。 正与你现有的宽带管径或同时能接收多少数据，以及你计算机的处理能力都有关系，缓慢的速度会让你倍感挫折。 在任何时候获取资讯的能力也大为受限。现在想象，你试着一次性下载整个网络上的所有资讯，你的电脑肯定会死机，因为它没有处理这些数据所需要的处理能力，你的网络供应商也没有这么庞大的带宽。 当人类试着与他们的高额接触，试着接入宇宙记忆内存。阿卡西中的知识时也是一样的情形。 所以你们只能受限于处理能力范围内的少量资息，这些充其量会被当做直觉或心灵力量。 正如有些人人有更大的带宽，更好更快的电脑。那样有些人接触高我的能力更强。 这纯粹是因为他们有能力调频到带宽更大处理数据更快的那部分。 自我这需要给自己时间去静静坐下来，不带任何期望成见或理性评判，带着纯粹的接纳去聆听自己和宇宙。
 
 SE:Let Me give you an example that most people should relate to,especially the younger ones,since it relates to computers.Consider the problem of band width and downloading information from the Internet.If you think of yourself as your home computer and your real self/your higher self as the whole of the knowledge in the World Wide Web,you may see the problem.It takes time to download or stream data even via your broadband link,especially when other communications are happening in the background for a single operation.This is made even slower when you try to download or surf more than one web site at the same time.This is to do with the available bandwidth,the pipe size,or how much data can be received at the same time together with the processing power available in your computer.This slowness gives you frustration and a very limited ability to gain information at any one moment in time. 
+
+源实体：
 
 Now consider trying to download all the information in the whole Internet at once.Your computer would crash as it can't cope with the processing power required to process this information;neither has your service provider got the bandwidth to cope with it.This is exactly the same for humanity trying to communicate with their higher selves and the knowledge deposited in the universal memory,the Akashic.So you are limited to the small amount of communication that you can manage,which is put down to intuition or psychic powers at best.As some people have access to greater band width and better and faster computers,so do some humans have a greater capacity to communicate with their higher selves.This is purely due to their ability to tune into that part of themselves that has the greater bandwidth and the faster processing power.It involves giving yourself time-time to sit in silence and listen to yourselves and the universe without expectation,preconception,or intellectual judgment,just with acceptance.
 
@@ -10448,6 +11940,8 @@ ME:I have also had a bit of doubt about the prolific use recently of angels and 
 我：对于最近灵性圈子里对天使和光球之类的大量引入和使用。 我多少有点存疑，特别是那些天使指导灵灵兽灵气恶魔，还有天使长之类的。 他们被当做接通灵性领域和宇宙的权威。连我以前那位疗愈老师都建议已经毕业的学生要他们学习一年的课程，但他这些加入他们的疗愈技术中，在我看来几乎是一种倒退。 本质上来说，这确实是一种倒退，特别是对于像你这类已经很接近开悟的人，但他却有其作用，尤其是对那些站在兴趣边缘，刚开始有机会追求真理的人来说还是有用的。 要记得人们在不确定或自信有限的情况下，需要一个权威或许可来变的灵性。 因此，教会的团体活动灵气疗愈，还有塔罗牌和天使解读等，都能起到类似作用。 这些就像柱行的拐杖，或者更好的解释是焦点，人们借质接入宇宙能量或高。 我就像你曾经用数数的方法来连接，我是一样的。本质。 上天使们印度指导灵灵兽或神魔之类的，都只是一些标签，代表了某种特定能量或能量实体，我们可以接触他们来取的信息或经验知识问题是，既然可以接触到所有信息，为什么还要将自己局限于一个媒介呢？ 还有为什么将一个类型的信息归于一种能量。我再说的详细一点，如果一个孩子正在写数数，我们让他数苹果橘子合理。 由于这个孩子没有经验，会把他们分别数。还果在孩子的心里是五个苹果，加一个橘子，加两个梨，等于五个苹果，加一个橘子，加两个梨。 如果他加上三个梨，他就会得出五个苹果，一个橘子，五个梨，觉得唯一加上的只是梨而已。 这个孩子并没想到水果的例数已经从八个变成十一个，因为他还给水果贴上苹果橘子和梨的标签，他并未把他们当做一个集体的名称或水果。 这个标签，如果你把标签拿走，就像更高的理解层级敞开自己。 因为你不再限制的知识的获取，不再将他与受限于其自身的例子或解释的事物关联在一起。 另一个关于局限思维的例子是证明了费马大定理的数学家。 他当时只用一种数学模式来开始证明，然后用另一种模式来完成证明。 所以一开始他以为他做到了问题是他没有办法证明他从第一种到第二种的计算可以成立。 直到一位年轻的日本数学家发明了另一种数学城市。费马才发现，这个新的数学城市可以将他之前使用的模式们结合在一起，最后成功证明。 费马大定理可以成立。从一开始，他了解到需要将这两个模式用某种方式结合运用。 到最后，他发现日本数学家的模式，正是两者之间的连接，前后共花了他十年的时间。 他之所以受限，是因为他使用了标识。如果他从更大的数学角度去思考他面前的数学问题，全都是数学问题，他就不会在一开始就局限自己，而且可在当时就使用那个年轻科学家同样的方法去解决费马大定理及接入宇宙通用的知识，这就是使用天使卡灵气和其他疗愈灵性媒介的困境所在，他们通过需求或提供一个外来的权威才能被使用，这会限制个体接入宇宙中一切可用信息的能力。 相反，他只约允许人们接入带有特定标签的特定能量。
 
 SE:Well,in real terms,it is a backward step,especially for someone like you who is somewhere near being awake,but it does have its uses,specifically with those who are on the border of interest and are,therefore,at the start of their opportunity to become enlightened. 
+
+源实体：
 
 Remember that people who are unsure or limited in confidence need a level of authority or permission to be spiritual,hence the use of churches for group work,attunements in Reiki,and the use of cards in tarot and angel readings.All are crutches or a better explanation would be focal points that the individual uses to log into the universal energies or their higher selves.You used to use your counting method to get to Me.This is the same.In essence,angels,Indian spirit guides,animal guides,or demons are just labels for one specific type of energy or energy-based entity that can be accessed for information or experiential knowledge. 
 
@@ -10491,7 +11985,7 @@ The following is derived from instructions I received by my energy healing teach
 
 The core star is the essence of who you are.It is described as the source of your physical body's energy.It is the location of your soul and contains the energetic content of the "spirituo-physical,"as well as the individual resonant signature of the incarnate energy that houses the essential objective of your incarnation.Without the soul,your physical body would not function,and your energetic self would not be able to experience the physical realms.Meditating on the light of the Core Star can be used for protection,healing,and understanding your soul's purpose.Please allow up to one hour in a quiet place with no disturbances. 
 
-星河是真实的，你的本质，它被描述为你肉体能量的源泉，它是你灵魂的所在之处，而且包含灵性和物质的能量，以及个体化身能量的频率应气，其中包含了你转时的主要目的。 没有灵魂，你的肉体就无法运作。你的能量，自我也将无法体验物质界的一切冥想。 星河之光可用于保护疗愈，以及了解你的灵魂使命，请空出长达一个小时的时间，在一个安静不受干扰的地方进行一采取站姿，膝盖微曲，两脚与肩膀同宽，两臂与手，自然下垂，在身体双侧。 二将注意力集中。在当前它在肚脐下一点五英寸，也就是三点八厘米左右，位于身体中线，用心去感受它，那是一种类似闭合的感受，维持这种状态，直到你感觉到它的热能以及与大地共振的和谐感出现。 如果你暂时还感受不到，只需要用意念的力量去做。三继续下去，直到你感受到上半身处喉咙下方约二点五英寸，也就是六点三五厘米的区域，也就是中单前的位置。 在哈拉层面，中丹前有时也被称为零座，这里是灵体的渴望与生命蓝图所具之处，请勿把它与旁边最靠近的脉轮星轮相混淆，星轮位于它下方数英寸，一英寸为二点五四厘米。 当你连接到中端前时，有时胸腔内会有一种充满感。如果你完全没有感觉，也没有关系，只需要相信它，就在那里用你的意念与它连接，它呈球体状，且外观纯净。 四现在开始去寻找感受一条细线，它从零座中端前往下来，到下丹前，进入地球中心，调整自己，进入你人生使命。 蓝图连接上，它会产生一股力量，让自己辨识出这股力量。五挺直你的脊柱昂起头来继续让你的觉知来到头顶上方想象一条细线投射穿过你的头顶上方，即顶轮的位置，使用你的内在视觉沿线往上移去，找到一个漩涡，以及它四分之一英寸，也就是零点六厘米左右的开口。 它在你头顶上方大约三英尺，也就是九十厘米的位置去聆听那个高音调的声音，现在让你的细线进入漩涡开口。 如果你的超听觉已经开启在准确连接的那一刻，你会听到类似啪的一声。 在一次声明。如果你没有超听觉，你也许不会听到任何声音，这是只需要用你的意念的连接，并观想自己正在这么做。 六确定能量线已经与你的身体中部对齐，看着它从地球到下丹田到零座中，丹田接着来到漩涡的位置，你可能感觉到意识的扩张。 七穿过漩涡遨游会把你带进更高的石像，也就是原始体神的石像，与你上胸腔内的灵体之歌以及丹田内的创造力调线。 与此同时，去感受这条线，一路往下来，到地球核心去吸收这个能量，这是校准你的生命的课体。 现在你已经在天与地之间建立了一个连接，也一并校准了你的哈拉线，将你的人生目标扩展到所属团体的目标中。 现在伸展开来，去接触与你关系密切的人们的哈拉线，这能够让你的人生目标与你所属团体的目标以及团体的哈拉线同步。 一旦你达到这个层级，你就与你共识的团体连接并同步了。然后你可以跟更大的群体同步，此举能使你连接上城市国家和世界，你可以用这个方法去连接一个交互体系的集体力量。 八将注意力重新集中在你的星河以及你的真我本质上，你在时间空间愿望痛苦和欲望之外，你是一名创造者去创造一个蓝图。 作为创造者，你来到哈拉线，带着创造性的能量，你的蓝图，这是你的神圣使命。 现在把这股能量带到辉光层创造物质的模板，这样你就把能量带到了物质身体。 现在创造性能量。从源头从星河经过头部来到零座，再来到丹田到达哈拉层，再从灰光层进入物质层。 九，一旦完成了一个创造蓝图，你可继续前进。从你真正的本质与使命发出光芒，让你的星河与这个使命一起发光，让你的本质穿透你的辉光场中，然后回来根据意愿创造更多的蓝图计划。 十让你的生命本质之光，穿透肉体星河灵座丹田，然后进入哈拉线与灰光场，让它穿透你身体的每一个细胞，让它随之创造你在物质界中的健康喜悦快乐与你有关的每一件事都会是你神性本质的一种表达体验。 你内在的源头下面的练习，可以让你的三位一体及星河零座和丹田与你的直接与肉体联系在一起的七层灰光层合二为一，你将体验到内在的源头，十一用你的意识眼去观察体内所有细胞，每个细胞就像星河，所以疗愈过程很简单，就会与你真正的生命本质连接。 无论何时，当你生病痛苦生气或害怕猜疑或贪心或忘记了你的目标使命时，专注在你的星河上，把你身体的每个细胞带进星河之光中，这是你的本质，你内在的神疗愈，就是与你真实所示的能量记忆的精准连接，你重新创造这一连接或者个人的创造性，你会继行你的人生使命，让这个结合人生使命的创造力放射出来，照亮你照亮你是谁的记忆，以及你物质生活的道路，记得你是谁是你的首要指令，让你的星河为你指出方向。 十二现在回到你当下的尘世方法是慢慢移动，回到肉体里，将能量线从漩涡与地球收回，将线卷回星河。 十三坐下来喝大量水并休息。你会有一段时间处于高度兴奋状态。
+星核是真实的，你的本质，它被描述为你肉体能量的源泉，它是你灵魂的所在之处，而且包含灵性和物质的能量，以及个体化身能量的频率应气，其中包含了你转时的主要目的。 没有灵魂，你的肉体就无法运作。你的能量，自我也将无法体验物质界的一切冥想。 星核之光可用于保护疗愈，以及了解你的灵魂使命，请空出长达一个小时的时间，在一个安静不受干扰的地方进行一采取站姿，膝盖微曲，两脚与肩膀同宽，两臂与手，自然下垂，在身体双侧。 二将注意力集中。在当前它在肚脐下一点五英寸，也就是三点八厘米左右，位于身体中线，用心去感受它，那是一种类似闭合的感受，维持这种状态，直到你感觉到它的热能以及与大地共振的和谐感出现。 如果你暂时还感受不到，只需要用意念的力量去做。三继续下去，直到你感受到上半身处喉咙下方约二点五英寸，也就是六点三五厘米的区域，也就是中单前的位置。 在哈拉层面，中丹前有时也被称为零座，这里是灵体的渴望与生命蓝图所具之处，请勿把它与旁边最靠近的脉轮星轮相混淆，星轮位于它下方数英寸，一英寸为二点五四厘米。 当你连接到中端前时，有时胸腔内会有一种充满感。如果你完全没有感觉，也没有关系，只需要相信它，就在那里用你的意念与它连接，它呈球体状，且外观纯净。 四现在开始去寻找感受一条细线，它从零座中端前往下来，到下丹前，进入地球中心，调整自己，进入你人生使命。 蓝图连接上，它会产生一股力量，让自己辨识出这股力量。五挺直你的脊柱昂起头来继续让你的觉知来到头顶上方想象一条细线投射穿过你的头顶上方，即顶轮的位置，使用你的内在视觉沿线往上移去，找到一个漩涡，以及它四分之一英寸，也就是零点六厘米左右的开口。 它在你头顶上方大约三英尺，也就是九十厘米的位置去聆听那个高音调的声音，现在让你的细线进入漩涡开口。 如果你的超听觉已经开启在准确连接的那一刻，你会听到类似啪的一声。 在一次声明。如果你没有超听觉，你也许不会听到任何声音，这是只需要用你的意念的连接，并观想自己正在这么做。 六确定能量线已经与你的身体中部对齐，看着它从地球到下丹田到零座中，丹田接着来到漩涡的位置，你可能感觉到意识的扩张。 七穿过漩涡遨游会把你带进更高的石像，也就是源实体神的石像，与你上胸腔内的灵体之歌以及丹田内的创造力调线。 与此同时，去感受这条线，一路往下来，到地球核心去吸收这个能量，这是校准你的生命的课体。 现在你已经在天与地之间建立了一个连接，也一并校准了你的哈拉线，将你的人生目标扩展到所属团体的目标中。 现在伸展开来，去接触与你关系密切的人们的哈拉线，这能够让你的人生目标与你所属团体的目标以及团体的哈拉线同步。 一旦你达到这个层级，你就与你共识的团体连接并同步了。然后你可以跟更大的群体同步，此举能使你连接上城市国家和世界，你可以用这个方法去连接一个交互体系的集体力量。 八将注意力重新集中在你的星核以及你的真我本质上，你在时间空间愿望痛苦和欲望之外，你是一名创造者去创造一个蓝图。 作为创造者，你来到哈拉线，带着创造性的能量，你的蓝图，这是你的神圣使命。 现在把这股能量带到辉光层创造物质的模板，这样你就把能量带到了物质身体。 现在创造性能量。从源头从星核经过头部来到零座，再来到丹田到达哈拉层，再从灰光层进入物质层。 九，一旦完成了一个创造蓝图，你可继续前进。从你真正的本质与使命发出光芒，让你的星核与这个使命一起发光，让你的本质穿透你的辉光场中，然后回来根据意愿创造更多的蓝图计划。 十让你的生命本质之光，穿透肉体星核灵座丹田，然后进入哈拉线与灰光场，让它穿透你身体的每一个细胞，让它随之创造你在物质界中的健康喜悦快乐与你有关的每一件事都会是你神性本质的一种表达体验。 你内在的源头下面的练习，可以让你的三位一体及星核零座和丹田与你的直接与肉体联系在一起的七层灰光层合二为一，你将体验到内在的源头，十一用你的意识眼去观察体内所有细胞，每个细胞就像星核，所以疗愈过程很简单，就会与你真正的生命本质连接。 无论何时，当你生病痛苦生气或害怕猜疑或贪心或忘记了你的目标使命时，专注在你的星核上，把你身体的每个细胞带进星核之光中，这是你的本质，你内在的神疗愈，就是与你真实所示的能量记忆的精准连接，你重新创造这一连接或者个人的创造性，你会继行你的人生使命，让这个结合人生使命的创造力放射出来，照亮你照亮你是谁的记忆，以及你物质生活的道路，记得你是谁是你的首要指令，让你的星核为你指出方向。 十二现在回到你当下的尘世方法是慢慢移动，回到肉体里，将能量线从漩涡与地球收回，将线卷回星核。 十三坐下来喝大量水并休息。你会有一段时间处于高度兴奋状态。
 
 1.Stand with your knees slightly bent,feet shoulder width apart,arms and hands by your side. 
 
@@ -10659,7 +12153,7 @@ Over the days or weeks,slowly progress to higher and higher levels(keeping in mi
 
 **术语表**
 
-次星汽油一种高星玩质汽油巴卡西记录，每个人类行为及后续进化事件的过去未来所有记录埃伯里和基尔马星体一英国的的两个系统黑洞在物质上是局部重力密度的一个区域，在灵性上是一个稳定维度引力区域是维度中的维度脉轮，人体内的能量中心，不同的脉轮构成了人体的能量系统。 星河哈拉或星河基本上同意。但星河星量或灵体或转转能量的的灵系性平率印记及以及人的根根本目。 星星和明响一种进星影响的一样，主要是透过哈拉或星体与我们的高额系统去了解个人人的生命系化星图或转世使命能量层级每一层层级之间的距离，与人体明层不同，层级之间的频率差距一样。 格式塔完形星智，一些个体形成的一个集体，彼此共享同一星智功能。 例如蚂蚁蚁树木以及及宇宙间其他以能量为基础的生命哈拉与实体的转世部分相联系的力量或能量哈拉线转世个体的能量与物质地球之间的连接。 这条纽带能让我们存活于物质界，切断这条能量线便等于切断了哈拉与物质界的连接，从而导致物理死亡。 人体辉光场与人体物质与星光体部分有关的能量场气场。多位宇宙一个含有万千个宇宙的环境灵性和物质的肉体与心灵相会交融的层级丹田在肉体微光场内是哈拉线上一个重要的中心，心灵智斗，使用纯粹思想的力量，将一个物体或人抬升起来，瞬间移动在变换位置的过程中，有能力分解机体并予以重组，嗯，以能量为基础，但未在地球化身的存有原始体。 我们所称的神是我们多维宇宙的创造者，起源是十二个原实体的创造者。 十二个原实体界存在于起源之中。起源是更宏大的神纯粹分粹能量和一一切的开始
+次星汽油一种高星玩质汽油巴卡西记录，每个人类行为及后续进化事件的过去未来所有记录埃伯里和基尔马星体一英国的的两个系统黑洞在物质上是局部重力密度的一个区域，在灵性上是一个稳定维度引力区域是维度中的维度脉轮，人体内的能量中心，不同的脉轮构成了人体的能量系统。 星核哈拉或星核基本上同意。但星核星量或灵体或转转能量的的灵系性平率印记及以及人的根根本目。 星星和明响一种进星影响的一样，主要是透过哈拉或星体与我们的高额系统去了解个人人的生命系化星图或转世使命能量层级每一层层级之间的距离，与人体明层不同，层级之间的频率差距一样。 格式塔完形星智，一些个体形成的一个集体，彼此共享同一星智功能。 例如蚂蚁蚁树木以及及宇宙间其他以能量为基础的生命哈拉与实体的转世部分相联系的力量或能量哈拉线转世个体的能量与物质地球之间的连接。 这条纽带能让我们存活于物质界，切断这条能量线便等于切断了哈拉与物质界的连接，从而导致物理死亡。 人体辉光场与人体物质与星光体部分有关的能量场气场。多位宇宙一个含有万千个宇宙的环境灵性和物质的肉体与心灵相会交融的层级丹田在肉体微光场内是哈拉线上一个重要的中心，心灵智斗，使用纯粹思想的力量，将一个物体或人抬升起来，瞬间移动在变换位置的过程中，有能力分解机体并予以重组，嗯，以能量为基础，但未在地球化身的存有源实体。 我们所称的神是我们多维宇宙的创造者，起源是十二个原实体的创造者。 十二个原实体界存在于起源之中。起源是更宏大的神纯粹分粹能量和一一切的开始
 
 **"Out for a Golden Duck"** - a saying in Cricket when you have been bowled out on your very first bowl of the ball in your first over of a match.In the conversation with Byron I expected to know everything about "time."As soon as Byron stated that time was spherical (in his first sentence on the subject),all of my pre-conceived knowledge was rendered meaningless. 
 
