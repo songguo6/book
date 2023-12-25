@@ -6885,7 +6885,7 @@ ME:You are telling me that there are those among us that know a lot more about o
 
 SE:Yes.This is what is happening.You see,the people who are in power as a result of current understanding are frightened that they will lose everything.They are not interested in the advancement of the understanding of the human race even though this would ultimately help the human race rise in frequencies and,as a consequence,evolve faster.All they are interested in is the now,what they have now;what they have now is power over the thoughts of others,which gives them more power.They have power in an environment that most people recognize as their only environment,and as such they play along with the facade. 
 
-源实体：是的。这就是正在发生的事情。你看，那些靠现有理论而掌权的人害怕会失去一切，他们对人类意识的提升毫无兴趣，哪怕这从根本上会有助于人类获得频率上的提升，并因此而进化得更快。他们所感兴趣的只是眼前，眼前他们拥有些什么？他们眼前拥有的是对他人思想的权利，而这会带给他们更多的权利。在一个被大多数人认为是唯一的生存环境的地方，他们拥有权力，于是他们就与这个幻象一起玩下去。
+源实体：是的。这就是正在发生的事情。你看，那些靠现有理论而掌权的人害怕会失去一切，他们对人类意识的提升毫无兴趣，哪怕这从根本上会有助于人类获得频率上的提升，并因此而进化得更快。他们所感兴趣的只是眼前，眼前他们拥有些什么？他们眼前拥有的是对他人思想的权利，而这会带给他们更多的权利。在一个被大多数人认为是唯一的生存环境的地方，他们拥有权力，于是他们就与这个幻相一起玩下去。
 
 ME:So who has this knowledge?Who has been able to take control of the data that has been "dug p"? 
 
@@ -8473,31 +8473,31 @@ SE:Very perceptive.There is,of course,an end but you knew this,deep down.
 
 I changed my mental focus to extend myself beyond the expansiveness of the Source.I saw that the Source was,in fact,very expansive,but what I saw surprised me.The area around me was in negative format with the Source below me displayed like a bubble with all the universes and dimensions and galaxies contained within the bubble.As I looked around myself,I saw that there were others like the Source,all with similar looking bubbles.I returned to my conversation with Source. 
 
-我改变了意念的焦点，使我扩展到源头之外，我看到源头确实非常广阔。 但是我看到的让我吃了一惊，环绕在我周围的区域是以副片的样式呈现源头。 在我下面看上去像一个气泡气泡里，包含了所有的宇宙维度和星系。 当我环顾我的四周，我看到了其他像源实体的东西都有类似的气泡。 我又回到与源实体的对话，有更多的你呀是的，我们都是更大事物的一部分。 我们都在用不同的方式体验。我们自己我的方式是把自己分成两半制造出很多跟你一样的不朽的灵魂。 然后交给你们任务，让你们去宇宙中经历尽可能多的不同的事情是他像我这样的存在，要么以不同的方式也在做这件事，要么根本不做你创造的所有宇宙，看起来都像是一个脏白球里的黑球，而且他们之间还有空隙。 是的，没错，为什么会有空隙？为了让我的助手们能够在宇宙之间穿行，而不必与宇宙互动，可以把他们当做我的后门。
+我改变了意念的焦点，使我扩展到源头之外，我看到源头确实非常广阔。但是我看到的让我吃了一惊，环绕在我周围的区域是以负片的样式呈现。源头在我下面，看上去像一个气泡，气泡里包含了所有的宇宙、维度和星系。当我环顾我的四周，我看到了其他像源实体的东西都有类似的气泡。我又回到与源实体的对话。
 
 ME:There are more of You. 
 
-我：
+我：有更多的你呀。
 
 SE:Yes.We are all part of something bigger,and We are all experiencing Ourselves in different ways.My way was to split Myself in half and make the many immortal souls that you are and task you with going out into the universe to experience as many different things as you could.Others like Me have done this in different ways or not at all. 
 
-源实体：
+源实体：是的，我们都是更大事物的一部分，我们都在用不同的方式体验我们自己。我的方式是把自己分成两半，制造出很多跟你一样的不朽的灵魂，然后交给你们任务，让你们去宇宙中经历尽可能多的不同的事情。其他像我这样的存在，要么以不同的方式也在做这件事，要么根本不做。
 
 ME:All the universes you created look like black spheres inside a dirty white sphere,and they all have gaps in between them. 
 
-我：
+我：你创造的所有宇宙，看起来都像是一个脏白球里的黑球，而且它们之间还有空隙。
 
 SE:Yes,that's correct. 
 
-源实体：
+源实体：是的，没错。
 
 ME:Why are they here? 
 
-我：
+我：为什么会有空隙？
 
 SE:To allow My helpers to move between the universes without interaction with them. Consider them My back door. 
 
-源实体：
+源实体：为了让我的助手们能够在宇宙之间穿行而不必与宇宙互动。可以把它们当做我的后门。
 
 #### Active Engagement in the Evolutionary Process
 
@@ -8505,19 +8505,19 @@ SE:To allow My helpers to move between the universes without interaction with th
 
 I looked at the other spheres that looked like our Source Entity or God. 
 
-我看着其他与我们的原石器或神相似的球体，我们都是更大的实体起源的一部分。 我把我自己分成你们这些更小的灵魂，就像起源创造我们的过程一样。 这里的我们当然不包括你们这些更小的灵魂，一切都被散不开，一切都在积极参与进化过程，通过在不同环境中体验新事物来理解自我，为的是将这些回馈给整体，使整体或者说起源可以体会他自己是什么。 所以我很荣幸能看到这个，你只是在你非常有限的物质化身中，看到了非常小的一部分。 不过是的，看到过这个的人可不多，更别说在他们目前的状态下去理解他了。 
+我看着其他与我们的源实体或神相似的球体。
 
 SE:They/We are all part of a bigger entity,the Origin.What I have divided Myself into,all you smaller souls,is similar to what the Origin has done to create Us,discounting the smaller souls,of course.Everything is disseminated;everything is actively engaged in the evolutionary process of understanding self by experiencing new things in different environments in order to feed this back to the Whole to make the Whole (the Origin)appreciate what It is. 
 
-源实体：
+源实体：我们都是更大的实体，起源的一部分。我把我自己分成你们这些更小的灵魂，就像起源创造我们的过程一样，这里的我们当然不包括你们这些更小的灵魂。一切都被散布开，一切都在积极参与进化过程，通过在不同环境中体验新事物来理解自我，为的是将这些回馈给整体，使整体（起源）可以体会他自己是什么。
 
 ME:So I am privileged to see this. 
 
-我：
+我：所以我很荣幸能看到这个。
 
 SE:You are only seeing a very small part of it in your very limited physical incarnation,but yes,there are not many people that have seen this,let alone made some sort of sense of it in their current state.
 
-源实体：
+源实体：你只是在你非常有限的物质化身中看到了非常小的一部分。不过，是的，看到过这个的人可不多，更别说在他们目前的状态下去理解它了。 
 
 ### Chapter 23 - The Source Entity's Observations of Souls on Earth
 
@@ -8529,33 +8529,35 @@ SE:You are only seeing a very small part of it in your very limited physical inc
 
 One morning saw me doing my usual morning meditation and hara line work.I had the intention of going into my mind to talk with aliens but was surprised to find myself in the presence of the Source Entity again.This I didn't expect although I knew I was in His presence as I saw Him/It from a very great distance as a nebula of white clouds in space. 
 
-一天早晨我照常做冥想和哈拉线的练习，我有意进到我的头脑中与外星人交谈，但惊奇的发现我又出现在源实体面前，这是我没有料到的。 尽管我知道我在他的面前，因为我远远看到他他在空中呈现为一团白色的星云。 你正在见证的是伟大的分化时刻，我在把我自己分化成我和我的很多更小的部分，我能看到一团光聚合成很多更小的光点，我知道那就是新的灵魂。 正在诞生每个更小部分的我都会有其独立性，并遵循自己的决策过程。 为什么你要像这样把自己分成许多小块呢？为了看清是什什么与很多不同形式的可能是什么之间有什么差别，你是什么意思？ 我能够理解我曾经是什么，但是我觉得我需要体验，我可能是什么？ 如果我只是一分为二，这会需要很长时间。所以我决定把我的一半变成亿万个灵魂，让每一份灵体同时经历不同的事。 这在他们经历之后，把体验过程中的信息反馈给我，目的是通过把我自己同时放在我所能想到的尽可能多的不同环境情形位置时间文化维度等等等等，来体验所有我可能经历到的。 于是我自己成长地球是一个非常有意思的地方，它提供了大量的进化素材。
+一天早晨，我照常做冥想和哈拉线的练习，我有意进到我的头脑中与外星人交谈，但惊奇地发现我又出现在源实体面前，这是我没有料到的。尽管我知道我在他的面前，因为我远远看到他，他在空中呈现为一团白色的星云。
 
 SE:You are witnessing the great division when I divided Myself into Me and the smaller parts of Me. 
 
-源实体：
+源实体：你正在见证的是伟大的分化时刻，我在把我自己分化成我和我的很多更小的部分。
 
 I could see the cloud of light coalesce into smaller points of light that I knew were the new souls being born. 
 
+我能看到一团光聚合成很多更小的光点，我知道那就是新的灵魂。
+
 SE:Each smaller part of Me will have Its own independence and decision process to follow.
 
-源实体：
+源实体：正在诞生每个更小部分的我都会有其独立性，并遵循自己的决策过程。
 
 ME:Why did You split Yourself into many pieces like this? 
 
-我：
+我：为什么你要像这样把自己分成许多小块呢？
 
 SE:To see the difference/s between "what is"compared with the many different forms of“what could be." 
 
-源实体：
+源实体：为了看清“是什么”与很多不同形式的“可能是什么”之间有什么差别？
 
 ME:What do you mean? 
 
-我：
+我：你是什么意思？ 
 
 SE:What I was I could understand,but I felt the need to experience what could be.If I had just divided into two,this would have taken a long time,so I decided to make half of Myself into many billions of souls.Each would experience different things at the same time and feed the information that they are experiencing to Me as they experienced it.The objective was to experience everything that I could by putting Myself in as many different environments,situations,positions,times,civilizations,dimensions,etc.,etc.,as I could think of,all at the same time to make Myself grow through experience.The Earth is a very interesting case and is providing a lot of evolutionary material. 
 
-源实体：
+源实体：我能够理解我曾经是什么，但是我觉得我需要体验我可能是什么？如果我只是一分为二，这会需要很长时间。所以我决定把我的一半变成亿万个灵魂，让每一份灵体同时经历不同的事，并在他们经历之后，把体验过程中的信息反馈给我，目的是通过把我自己同时放在我所能想到的尽可能多的不同环境、情形、位置、时间、文化、维度等等，来体验所有我可能经历到的，以使我自己成长。地球是一个非常有意思的地方，它提供了大量的进化素材。
 
 #### The Incarnate Soul's Lack of Contact with Source 
 
@@ -8563,13 +8565,15 @@ SE:What I was I could understand,but I felt the need to experience what could be
 
 ME:What makes Earth interesting? 
 
-我：是什么？让地球这么有趣。地球有趣是因为我没有想到地球和转世于此的灵魂发生了这样的频率下跌，以觉得这个最有意思是因为在所有其他星球上的那么多，不同类型的化身生命都以某种方式形状或形式与我保持着联系。 而当灵魂在地球当前的这个频率投胎地球层及时灵魂在化身中的那部分，竟然完全不知道我的存在，以至于需要有一个灵魂团队在化身期间来帮助他，灵魂确实是全靠自己了。 而且在不知道一个决定是好是坏的情况下，要自主做出决定。 事实上你无所谓好的或坏的决定只是不同的选择。所以我们确实是聋子哑巴和瞎子。
+我：是什么让地球这么有趣？
 
 SE:The Earth is interesting because I didn't envisage Earth and its incarnate souls falling down the frequencies as occurred.This I found most interesting because on all other planets with all the different types of incarnate beings,the beings are all still in contact with Me in some way,shape,or form.When a soul incarnates at the Earth level at its current frequency,the part of the soul that incarnates is totally unaware of My presence-so much so that it needs to have a team of souls helping it during the incarnation process.A soul is truly on its own and is free to make its own decisions without knowing whether it will be a good or bad decision when,in fact,there is no good or bad decision,only choices. 
 
-源实体：
+源实体：地球有趣是因为我没有想到地球和转世于此的灵魂发生了这样的频率下跌。我觉得这个最有意思，是因为在所有其他星球上的那么多不同类型的化身生命都以某种方式、形状或形式与我保持着联系。而当灵魂在地球当前的这个频率投胎地球层级时，灵魂在化身中的那部分竟然完全不知道我的存在，以至于需要有一个灵魂团队在化身期间来帮助他，灵魂确实是全靠自己了。而且在不知道一个决定是好是坏的情况下，要自主做出决定。事实上，你无所谓好的或坏的决定，只是不同的选择。
 
 ME:So we truly are deaf,dumb,and blind. 
+
+我：所以我们确实是聋子、哑巴和瞎子。
 
 #### Souls on the Cusp of Recovery and Acceleration 
 
@@ -8577,43 +8581,43 @@ ME:So we truly are deaf,dumb,and blind.
 
 SE:Yes.What is even more interesting is that although over the millennia,you have all risen and fallen many times in terms of civilization,spirituality,and technology,but you have never been this low in frequencies.Of greater interest is that you are now on the cusp of recovery and are destined to rise again through the frequencies to even better than before.This was totally unexpected. 
 
-源实体：是的，更有趣的是，尽管在漫长的时间中，你们经历了很多次文明灵性和科技的起起落落，但是你们的频率从没有像现在这么低过。 最为有趣的是，你们现在正处于复苏的风口浪尖，注定会再次在频率上提升，甚至提升到比以前还要高，这是完全出乎意料的。 对于无所不知的你来说，这怎么可能是出乎意料的呢？当然我对此有所预料，但是料想与经验是两码事。 这也正是我为什么在一开始分化自己的原因，我明白了是的，我相信你明白了。 如果这件事在地球上能成功，我会允许其他星球和文明也发生这样的过程。 从单个实体的角度来看，他们对自己的未来并没有多少掌控。 所以地球是一个实验。是的，但是一切都是实验，一切都是体验性的实验，体验就是一切没有体验，就只是理论而已。 为什么呢？我甚至在源头回答之前就知道这个问题的答案了。 因为在第一种情况下，个体需要在没有该如何做的经验和知识的情况下参与互动。 他提前不知道基于所处的环境做何种决定，怎样适当的反应。 如果他做对了，他就学到了。如果他做错了，他也学到了，这是一个双赢局面，充满了学习或体验事物的机会。 当那个人对一件事或一个问题，有了更多的知识或经验时，就能找到解决问题更有效的方法。
+源实体：是的。更有趣的是，尽管在漫长的时间中，你们经历了很多次文明、灵性和科技的起起落落，但是你们的频率从没有像现在这么低过。最为有趣的是，你们现在正处于复苏的风口浪尖，注定会再次在频率上提升，甚至提升到比以前还要高，这是完全出乎意料的。 
 
 ME:How can this be unexpected for the One Who is all seeing? 
 
-我：
+我：对于无所不知的你来说，这怎么可能是出乎意料的呢？
 
 SE:Of course,I expected it,but expectation and experience is a different kettle of fish,which is the whole reason for My dividing Myself in the first place. 
 
-源实体：
+源实体：当然，我对此有所预料，但是料想与经验是两码事。这也正是我为什么在一开始分化自己的原因。
 
 ME:I see. 
 
-我：
+我：我明白了。
 
 SE:Yes,I think you do.IF this works out with Earth,I will allow this process with other planets and civilizations that are less in control of their own future from an individual entity's point of view. 
 
-源实体：
+源实体：是的，我相信你明白了。**如果这件事在地球上能成功，我会允许其他星球和文明也发生这样的过程**。从单个实体的角度来看，他们对自己的未来并没有多少掌控。
 
 ME:So Earth is an experiment. 
 
-我：
+我：所以地球是一个实验。
 
 SE:Yes,but everything is an experiment;everything is an experiential experiment. Experience is everything.Without experience you only have theory. 
 
-源实体：
+源实体：是的，但是一切都是实验，一切都是体验性的实验。体验就是一切，没有体验就只是理论而已。
 
 ME:Why is that? 
 
-我：
+我：为什么呢？
 
 I knew the answer to this question before the Source even answered,or did I? 
 
-SE:Because in the first instance,it involves the interaction of the individual without the prior knowledge of what to do,so he/she has to make decisions based upon his/her circumstances and react accordingly.If he/she gets it right,he/she learns;if he/she gets it wrong,he/she also learns.It's a win-win situation,filled with opportunities to learn or experience something. 
+我甚至在源头回答之前就知道这个问题的答案了，还是我？
 
-源实体：
+SE:Because in the first instance,it involves the interaction of the individual without the prior knowledge of what to do,so he/she has to make decisions based upon his/her circumstances and react accordingly.If he/she gets it right,he/she learns;if he/she gets it wrong,he/she also learns.It's a win-win situation,filled with opportunities to learn or experience something. When the individual has more knowledge or experience of an issue or problem,it makes finding the solution to the problem more efficient. 
 
-When the individual has more knowledge or experience of an issue or problem,it makes finding the solution to the problem more efficient. 
+源实体：因为在第一种情况下，个体需要在没有该如何做的经验和知识的情况下参与互动。他提前不知道基于所处的环境做何种决定，怎样适当地反应。如果他做对了，他就学到了。如果他做错了，他也学到了。这是一个双赢局面，充满了学习或体验事物的机会。当那个人对一件事或一个问题，有了更多的知识或经验时，就能找到解决问题更有效的方法。
 
 #### The Fastest Way to Evolve
 
@@ -8621,15 +8625,15 @@ When the individual has more knowledge or experience of an issue or problem,it m
 
 Experiencing things by having put yourself in a situation where you have to work it all out for yourself is by far the fastest way of evolving.It is wonderful. 
 
-自力更生解决问题来体验事物。这是迄今为止最快的进化途径，这种方式非常有效。 我好像不这样认为，因为你可能会在解决问题的时候，走错路，原因是你的假设是根据另一个情形的数据做出来的。 好的，你在思考，但请接受这个事实及理解意识到走错了路会比没有先前的知识进化的更快。 这是真的想想放在迷宫里的实验。老鼠一旦他在一个迷宫里找到了通向中心的往返道路。 他在另一个不同的迷宫里，找到路的时间会比他在第一个迷宫里快，第三次会更快。
+**自力更生解决问题来体验事物**，这是迄今为止最快的进化途径，这种方式非常有效。
 
 ME:I don't think that is so because you may go down the wrong path in your solution because you have based your assumptions on data from a different situation. 
 
-我：
+我：我好像不这样认为，因为你可能会在解决问题时走错路，原因是你的假设是根据另一个情形的数据做出来的。
 
 SE:Good,you are thinking but accept the fact that the understanding/recognition of going down the wrong route is faster than it would have been without prior knowledge.It's true.Consider the lab rat in a maze.Once he has sorted out the way to the center and back again in one maze,the time it takes him to solve the puzzle when he is put into a different maze,is faster than it was in the first maze.The third time will be even faster. 
 
-源实体：
+源实体：好的，你在思考，但请接受这个事实，即理解/意识到走错了路会比没有先前的知识进化地更快。这是真的，想想放在迷宫里的实验老鼠，一旦它在一个迷宫里找到了通向中心的往返道路，它在另一个不同的迷宫里找到路的时间会比它在第一个迷宫里快，第三次会更快。
 
 #### Author Questions Speech as a Form of Communication 
 
@@ -8637,39 +8641,39 @@ SE:Good,you are thinking but accept the fact that the understanding/recognition 
 
 The next day saw me once again zooming into the mass of light that was the Source Entity. As I closed in on Him/It,I saw all the souls who had decided to return to the Source as a nest of stars moving gradually ever closer to Source.I dived in and immediately saw Him as a wizened old man in a brilliant white robe. 
 
-第二天我再次快速来到原石起的光盘处。 当我靠近他时，我看到所有决定回到源头的灵魂，像一窝星星逐渐的离源头越来越近。 我站了进去，立刻看到他像一个干瘦的老者，穿着一身耀眼的白袍，为什么我们互相交谈，或者说看似在互相交谈，为什么不用其他方式交流？ 比如图像，因为这是你注意的焦点。当你是一个化身时，你以这种方式能更好的沟通，在我们没有转世时，我们可以不用现在这种方式交流吗？ 我们现在不能那么做，因为你现在注意的焦点就在这种交流方式上，如果我们在正常交流时使用你的其他十七种感官，你的显意识自我将会无法应对如此大量瞬势涌入的新数据，你会直接晕过去的其他那些感官是什么？ 其中的一些暂时对你太难理解。不过可以这么说，当我们正常长交流是你不仅会听到说出的话，这其实真的很受局限，就如同只用一个手指头打字一样，而且会收到二十二个频道的信息输入，包括图像，感觉情绪气味知觉触觉以及其他，你甚至还不知道你有或可以用的感官。 哇，所以目前来说，谈话确实是最好的方式。目前来说是的。
+第二天，我再次快速来到源实体的光团处。当我靠近他时，我看到所有决定回到源头的灵魂像一窝星星逐渐地离源头越来越近。我站了进去，立刻看到他像一个干瘦的老者，穿着一身耀眼的白袍。
 
 ME:Why do we speak or appear to speak to each other?Why not use another method of communication?Like images? 
 
-我：
+我：为什么我们互相交谈或者看似在互相交谈，为什么不用其他方式交流？比如图像？
 
 SE:Because this is what your focus is on.You communicate better this way whilst you are an incarnate being.
 
-源实体：
+源实体：因为这是你注意的焦点。当你是一个化身时，你以这种方式能更好地沟通。
 
 ME:Could we not communicate in the way that we do when we are disincarnate? 
 
-我：
+我：在我们没有转世时，我们可以不用现在这种方式交流吗？
 
 SE:We can't do that because your focus is currently on this method of communication.If we used the other seventeen senses that you have when we communicate properly,your conscious self would not be able to cope with the massive and sudden influx of new data.You would just pass out. 
 
-源实体：
+源实体：我们现在不能那么做，因为你现在注意的焦点就在这种交流方式上。如果我们在正常交流时使用你的其他17种感官，你的显意识自我将会无法应对如此大量瞬时涌入的新数据，你会直接晕过去的。
 
 ME:What are these other senses? 
 
-我：
+我：其他那些感官是什么？
 
 SE:Some of them are too difficult for you to understand at the moment but suffice it to say that when we communicate properly,you receive not only the spoken word (which is really very limiting,sort of like trying to type with one finger!)but also you receive twenty-two channels of input,including images,feelings,emotions,smells, perceptions,tactile impressions,and other senses that you wouldn't even know you had or could use. 
 
-源实体：
+源实体：其中的一些暂时对你太难理解。不过可以这么说，当我们正常长交流时，你不仅会听到说出的话（这其实真的很受局限，就如同只用一个手指头打字一样），而且会收到22个频道的信息输入，包括图像、感觉、情绪、气味、知觉、触觉以及其他你甚至还不知道你有或可以用的感官。 
 
 ME:Wow!So for the moment the spoken word really is the best way. 
 
-我：
+我：哇，所以目前来说，谈话确实是最好的方式。
 
 SE:Yes,at the moment. 
 
-源实体：
+源实体：目前来说，是的。
 
 #### Animals in the Ionosphere 
 
@@ -8677,23 +8681,23 @@ SE:Yes,at the moment.
 
 As I then started my core star meditation,my attention focused on the Earth,the animals, trees,birds,and fish.As I logged into each of these animals,I was suddenly one with them, flying in the air,hunting for small mammals,swimming in the sea.My thoughts then went to the Earth,and I wandered into the ionosphere. 
 
-当我开始星和冥想时，我的注意力集中在地球动物树木鸟和鱼上。 当我聚焦在每一个动物身上时，我突然与他们成为一起在空中飞翔，猎取小动物，在大海里畅游。 接下来我的思想回到了地球上，我漫游到了电离层，我突然感觉到电离层也有动物。 没错，室友，他们是气态动物，你们还没有探测到它们。 因为你们缺乏这种设备，在地球上及周围有许许多多，你们还都不知道的动物。 我以后可以问问他们在地球的目的吗？当然可以。
+当我开始星核冥想时，我的注意力集中在地球、动物、树木、鸟和鱼上。当我聚焦在每一个动物身上时，我突然与它们成为一体，在空中飞翔，猎取小动物，在大海里畅游。接下来，我的思想回到了地球上，我漫游到了电离层。
 
 ME:I suddenly got the impression that there are animals in the ionosphere as well! 
 
-我：
+我：我突然感觉到电离层也有动物。
 
 SE:Yes,there are;they are gas animals.You haven't detected them yet because you don't have the equipment to do so.There are many,many animals that live on or around the Earth that you don't know about. 
 
-源实体：
+源实体：没错，是有。它们是气态动物，你们还没有探测到它们，因为你们缺乏这种设备。在地球上及周围有许许多多你们还都不知道的动物。
 
 ME:Can I ask about their purpose on Earth later? 
 
-我：
+我：我以后可以问问它们在地球的目的吗？
 
 SE:Please do.
 
-源实体：
+源实体：当然可以。
 
 ### Chapter 24 - A Bit about the Author's Past Lives 
 
@@ -8701,43 +8705,43 @@ SE:Please do.
 
 A follow-up meditation days later saw me contacting the Source rather quickly.I was starting to just"go there"rather than needing to go through a series of steps.When I arrived, I wanted to talk to Source about the other lives I had on Earth. 
 
-在几天后接下来的冥想中，我很快跟源实体联系上了，我现在可以一下子就到那里。 这不用经过一系列的步骤。当我到达时，我想跟源头谈谈，我在地球的前世，我在地球的前世都是做什么的。 许多事你做过国王民主平民和普通人，但是在你所有的轮回化身中，你一直是做你自己，这是什么意思？ 我一直是我自己，我是说你一直是完整的，你自己，这是说你没有试图成为你所不是的。 而且你也与你全部的自我保持着联系，这其中就包括你们所谓的高，我我还做过什么？ 你在很多事都帮助过人们一起，或不要忘记宇宙的石像，以及他们是谁，这包括使用和感知能量，你教导他们如何感觉能量。 然后如何看到能量，我为什么做这个为了协助将要发生的伟大的一期。 这里曾经需要也仍然需要临近数量的记得足够多的转世着，以便让这知识能够在物质世界中代代相传，而不是永远被遗忘。 这就是你在这个世界所要做的，但是需要用到你以后才会获得的知识。 你会知道具体的时刻就快到了，我该如何获得这个知识呢？
+在几天后接下来的冥想中，我很快跟源实体联系上了，我现在可以一下子就到那里，这不用经过一系列的步骤。当我到达时，我想跟源头谈谈我在地球的前世。
 
 ME:What have I been in my other lives on Earth? 
 
-我：
+我：我在地球的前世都是做什么的？
 
 SE:Many things.You have been kings,lords,paupers,and common folk,but in all of your incarnations,you have been yourself. 
 
-源实体：
+源实体：许多事。你做过国王、领主、平民、普通人，但是在你所有的轮回化身中，你一直是做你自己。
 
 ME:What do you mean?I have been myself? 
 
-我：
+我：这是什么意思？我一直是我自己？
 
 SE:By this,I mean that you have been YOURSELF in its entirety.This means that you were not trying to be something that you were not,and you were also in contact with all of your "self,"which would include what you call your higher self. 
 
-源实体：
+源实体：我是说，你一直是完整的你自己，这是说你没有试图成为你所不是的，而且你也与你全部的自我保持着联系，这其中就包括你们所谓的高我。
 
 ME:What else have I been? 
 
-我：
+我：我还做过什么？
 
 SE:Many of your lives have been assisting people to remember or not forget the reality of the universe and who they are.This included the use of and sensing of energies.You did this by teaching them how to feel the energies and then how to see them. 
 
-源实体：
+源实体：你在很多世都帮助过人们忆起或不要忘记宇宙的实相，以及他们是谁。这包括使用和感知能量，你教导他们如何感觉能量，然后如何看到能量。
 
 ME:Why did I do this? 
 
-我：
+我：我为什么做这个？
 
 SE:To assist in the great remembering that is going to happen.There needed to be and still needs be a critical mass of incarnate beings that have remembered enough to allow the knowledge to be passed on through the centuries and not forgotten forever in the physical world.It is this that you will be doing in this world but with the knowledge that you will gain later.You will know that the remembering is to be soon. 
 
-源实体：
+源实体：为了协助将要发生的伟大的忆起。这里曾经需要也仍然需要临界数量的记得足够多的转世者，以便让这知识能够在物质世界中代代相传，而不是永远被遗忘。这就是你在这个世界所要做的，但是需要用到你以后才会获得的知识。你会知道忆起的时刻就快到了。
 
 ME:How will I get this knowledge? 
 
-我：
+我：我该如何获得这个知识呢？
 
 #### How to Have Consistent Contact with Spirit 
 
@@ -8745,15 +8749,15 @@ ME:How will I get this knowledge?
 
 SE:By making your contact with Spirit/Me consistent. 
 
-源实体：通过持续与灵体，我保持联系。我如何知道我什么时候算是达到了呢？ 你会知道的，例如当你能够在冥想时做到十分钟而无杂念，你就能建立连接了，因为你将可以做的更长长得多。 当你能够在生活中做到不去顾虑别人对你言行的看法，你就会明白，这只是人之常情，你就不会生活在恐惧中了。 而当你这两点都能做到的时候，你将会与灵体建立永久的联系。 你将与你自己宇宙和我作为一体，生活在平和中，你就会拥有一种平和，一种理解真理，且无虚向，包括自己在内的任何人证明任何事的平和，于是你就可以尽你所能的协助。 灵体没有了小我，你将能够掌控能量的力量而不堕落，你将能够做任何事，你将能够创造奇迹。
+源实体：通过持续与灵体/我保持联系。
 
 ME:How will I know when I have gotten there? 
 
-我：
+我：我如何知道我什么时候算是达到了呢？
 
 SE:You will know.For instance,when you can meditate without any stray thoughts for ten minutes,you will be in a position to make the link because you will be able to do it for longer,much longer.When you can live your life to the point where you are not worried about what other people think of what you say or do,you will understand this to be the human condition,and you will not live in fear.At this point when these two things are present,you will be in contact with Spirit on a permanent basis.You will be at one with yourself and the universe/Me and be able to exist in peace.You will then have the peace of someone who understands the truth and does not need to prove anything to anyone nor himself.You can,therefore,assist Spirit to the best of your ability.Without ego,you will be able to handle the power of energy without corruption.You will be able to do anything;you will be able to perform miracles. 
 
-源实体：
+源实体：你会知道的。例如，当你能够在**冥想时做到十分钟而无杂念，你就能建立连接了**，因为你将可以做的更长，长得多。当你能够在生活中做到不去顾虑别人对你言行的看法，你就会明白这只是人之常情，你就不会生活在恐惧中了。而当你这两点都能做到的时候，你将会与灵体建立永久的联系。你将与你自己、宇宙和我作为一体生活在平和中，你就会拥有一种平和，一种理解真理且无需向包括自己在内的任何人证明任何事的平和，于是你就可以尽你所能地协助灵体。没有了小我，你将能够掌控能量的力量而不堕落。你将能够做任何事，你将能够创造奇迹。
 
 #### Significance of Sun and Moon Energies 
 
@@ -8761,55 +8765,55 @@ SE:You will know.For instance,when you can meditate without any stray thoughts f
 
 We had discussed a lot about the sun and moon energies in my healing courses,so much so that I wanted the Origin's view on this subject. 
 
-关于太阳和月球的能量，在我的疗愈课上，我们已经讨论过太多了。 所以我想知道起源对这个话题的看法，太阳和月球能量有何重要性？这要看一个人做什么层次的工作，在过去这与某个个体为了一般大众所做的工作有关。 比如太阳能量是力量能量太阳能量祭司，或者说专家利用太阳产生的能量来操纵大的物体转化物体，或只是作为灯光或飞行器等的能源，它其实是一种工作的能量，所有的东西都是由他提供动力的。 当然，对于不同种类的任务，工作，有不同层级的能量，有不同的人专攻这些层级。 但是有些祭祀能利用所有可用的能量和层级，因而备受尊崇。 那么月球的能量是做什么用的呢？月球的能量基本上是疗愈和修复的能量。 这类能量只有在物质领域才才能真正表现出来。月球的能量就可以用来修补那些还未完成灵魂任务，仍然需要来完成任务的身体载具。 那么疗愈能量和修复能量之间的区别是什么？你应该知道这个问题的基本答案。 因为他不言自明修复是对在物质界中显现的非生物或无灵魂的物体或实体的疗愈而疗愈，则是对拥有一个灵魂或群体，灵魂的生物和非生物的修复，非生物有灵魂吗？ 是的，所有的矿物都是无生命的，但都有灵魂生物体是更高级别的物体，利用于更高级灵魂实体的进化。 所以需要比行星的载具所提供的身体更加独立。所以疗量祭祀是疗愈他们的专家。 是的，他们了解所有这类可用的能量，以及他们的疗愈用途和能量祭司一样，他们中也有擅长这样或那样方法的专家，或能够做所有层级疗愈的高级祭司。
+关于太阳和月球的能量，在我的疗愈课上，我们已经讨论过太多了，所以我想知道起源对这个话题的看法。
 
 ME:What is the significance of sun and moon energy? 
 
-我：
+我：太阳和月球能量有何重要性？
 
 O:This is relative to the level of work the individual is doing.In the past this was relative to what work the individual was doing for the general population. 
 
-起源：
+起源：这要看一个人做什么层次的工作。在过去，这与某个个体为了一般大众所做的工作有关。 
 
 ME:Such as? 
 
-我：
+我：比如？
 
 O:Sun energy is power energy and sun energy priests (experts)used the power generated by the sun to manipulate large objects,trans-mutate objects,or merely as a power source for things,such as lights or flying machines.It was really the "working"energy by which everything was powered.There were,of course,different levels of power that were relative to different types of tasks/work,and different individuals would specialize in these levels.Some priests,however,could use all the powers and levels that were available and so were highly revered. 
 
-起源：
+起源：太阳能量是**力量**能量，太阳能量祭司（专家）利用太阳产生的能量来操纵大的物体，转化物体，或只是作为灯光或飞行器等的能源。它其实是一种工作的能量，所有的东西都是由它提供动力的。当然，对于不同种类的任务/工作有不同层级的能量，有不同的人专攻这些层级。但是有些祭祀能利用所有可用的能量和层级，因而备受尊崇。 
 
 ME:So what were the moon energies for? 
 
-我：
+我：那么月球的能量是做什么用的呢？
 
 O:These are basically healing or repairing energies.These sorts of energies are only really manifested in the physical realms.They are used to repair the physical vehicle if the task of the soul is not yet complete and that vehicle is still required to complete that task. 
 
-起源：
+起源：月球的能量基本上是**疗愈和修复**的能量。这类能量只有在物质领域才能真正表现出来。月球的能量可以用来修补那些还未完成灵魂任务，仍然需要来完成任务的身体载具。
 
 ME:So what is the difference between healing and repairing energies? 
 
-我：
+我：那么疗愈能量和修复能量之间的区别是什么？
 
 O:You know the basic answer to this,as it is self-explanatory.Repairing is the healing of inanimate or soulless objects or entities that are manifested in the physical realm, whereas healing is repairing of animate and inanimate objects that possess a soul or group soul. 
 
-起源：
+起源：你应该知道这个问题的基本答案，因为它不言自明。修复是对在物质界中显现的非生物或无灵魂的物体或实体的疗愈；而疗愈则是对拥有一个灵魂或群体灵魂的生物和非生物的修复。
 
 ME:Inanimate objects have a soul? 
 
-我：
+我：非生物有灵魂吗？
 
 O:Yes,all minerals are inanimate but have a soul.Animate objects are higher level objects that are used for the evolution of higher souls/entities and,therefore,need to be more independent than those bodies offered by vehicles,such as planets,etc. 
 
-起源：
+起源：是的，所有的矿物都是无生命的，但都有灵魂。生物体是更高级别的物体，利用于更高级灵魂实体的进化，所以需要比行星等载具所提供的身体更加独立。
 
 ME:And the moon priests were experts in healing them?
 
-我：
+我：所以月亮祭司是疗愈它们的专家。
 
 O:Yes.They knew all the energies of this type that were available and what healing they could be used on.As with the power priests,they also had people who were experts in some methods and others or "high"priests that were capable of all levels of healing. 
 
-起源：
+起源：是的，他们了解所有这类可用的能量，以及他们的疗愈用途。和能量祭司一样，他们中也有擅长这样或那样方法的专家，或能够做所有层级疗愈的高级祭司。
 
 #### Lives in Egypt and Atlantis Changing the Atomic Composition of Materials 
 
@@ -8817,35 +8821,35 @@ O:Yes.They knew all the energies of this type that were available and what heali
 
 I then got a flash of one of my past lives.I had the impression that I was well in tune with the ways of manipulating energies over a number of incarnations.In some I was a priest and in another I was both a priest and a king at the same time.The images I received showed me on the top of a number of pyramid type structures.At first I thought this was Egypt,but I was told by the Origin that this was both Egypt and Atlantis. 
 
-之后，我眼前闪现了我的一个前世。 我觉得我曾在多次化身中都对操纵能量很在行，在某一式，我是个祭司，在另一世，我同时是祭司和国王。 我收到的画面显示，我站在一些金字塔型建筑的顶部。一开始我以为那是埃及，但起源告诉我，那既是埃及，也是亚特兰蒂斯。 那时候你能够改变任何材料的原子组成我是怎么做到的？ 你能够看到材料的原子级别，通过增加或减少质子当子和电子来把现有的基础材料改变成你想要的基何东西。 当你把材料的机制一向另一位置时，你可以移动，你需要移除的原子来将材料转变为另一频率，这样可以把材料变得很轻，等新的位置一确定你再把缺失的电子原子放回那个材料，就能使它恢复原有的形态结构和密度。 这听起来很复杂。是的，但是你也有其他操作办法。你也曾把每隔两个或三个的分子放在距离，最近的维度或频率，只把物体及其组成材料的空骨架留在这个维度，而只需很少的几个人就能搬运。 它在某些情况下，只需要一个人，一个会使用低级心灵制动的人，只要物体的质量不是特别大，我不敢相信我以前还会做这个任何不在这个频率层面的实体都能做到。 因为每个实体都是我的一部分，有能力做到他渴望做的任何事。
+之后，我眼前闪现了我的一个前世。我觉得我曾在多次化身中都对操纵能量很在行。在某一世，我是个祭司；在另一世，我同时是祭司和国王。我收到的画面显示，我站在一些金字塔型建筑的顶部。一开始我以为那是埃及，但起源告诉我，那既是埃及，也是亚特兰蒂斯。
 
 O:In those days you were able to change the very atomic composition of any material. 
 
-起源：
+起源：那时候，你能够改变任何材料的原子组成。
 
 ME:How did I do this? 
 
-我：
+我：我是怎么做到的？ 
 
 O:You were able to look into the material at the atomic level and add or remove protons, neutrons,and electrons to change the base material you had into anything you wanted it to be.You could make materials very light in this way by moving the atoms you needed to remove to change the composition of the material into another frequency whilst you moved the base mass of the material to another location.Once the new location was established,you returned the missing electrons/atoms to the material,and it regained its original form,structure,and density. 
 
-起源：
+起源：你能够看到材料的原子级别，通过增加或减少质子、中子和电子来把现有的基础材料改变成你想要的任何东西。当你把材料的基质移向另一位置时，你可以移动你需要移除的原子来将材料转变为另一频率，这样可以把材料变得很轻。等新的位置一确定，你再把缺失的电子/原子放回那个材料，就能使它恢复原有的形态、结构和密度。
 
 ME:That sounds very complicated. 
 
-我：
+我：这听起来很复杂。
 
 O:Yes,but you also had other ways of doing this.You also placed all but every 3rd or 4th molecule into the nearest dimension or frequency,leaving behind in this dimension the bare skeleton of the object and its material so that it could literally be man- handled into place by a small number of people or,in some cases,only one person- one that could perform low grade telekinesis,provided that the mass of the object was not too great. 
 
-起源：
+起源：是的，但是你也有其他操作办法。你也曾把每隔两个或三个的分子放在距离最近的维度或频率，只把物体及其组成材料的空骨架留在这个维度，而只需很少的几个人就能搬运它。在某些情况下，只需要一个人，一个会使用低级心灵制动的人，只要物体的质量不是特别大。
 
 ME:I can't believe that I could do this. 
 
-我：
+我：我不敢相信我以前还会做这个。
 
 O:Any entity that is not in this plane of existence can perform these tasks,as every entity is part of Me and has the ability to do anything it desires.
 
-起源：
+起源：任何不在这个频率层面的实体都能做到。因为每个实体都是我的一部分，有能力做到他渴望做的任何事。
 
 ### Chapter 25 - Stars,Incarnating Souls,and Root Races 
 
@@ -8857,27 +8861,27 @@ O:Any entity that is not in this plane of existence can perform these tasks,as e
 
 On another meditation I was pondering over the work of the stars.The Origin offered to comment. 
 
-在另一次冥想时，我正在思考恒星的工作获得了起源。 对此的评论，恒星是由原实体制造的，是怎么做的呢？指挥星系工作者们聚在一起，合成密度较高的，能显现在宇宙物质层面的物质，什么时候是在进化程序一开始的时候吗？ 是的，其目的是给每个区域附近提供一个能源，在这个区域会有一群存有留下来，完成他们的进化学习计划。 恒星则为聚集在所有维度和频率的所有实体和物体行星提供能量。
+在另一次冥想时，我正在思考恒星的工作，获得了起源对此的评论。
 
 O:The stars were made by the Source Entity. 
 
-起源：
+起源：恒星是由源实体制造的。
 
 ME:How did It do that? 
 
-我：
+我：是怎么做的呢？
 
 O:By commanding the workers of the galaxies to gather together and coalesce the denser matter that was manifested in the physical level of the universes. 
 
-起源：
+起源：指挥星系工作者们聚在一起，合成密度较高的能显现在宇宙物质层面的物质。
 
 ME:When did Source Entity do that?At the start of the evolution program? 
 
-我：
+我：什么时候？是在进化程序一开始的时候吗？
 
 O:Yes,the objective was to provide an energy source close to each area where a collection of beings were going to stay to work through their evolution/learning plans.The stars provide energy for all the entities and the masses(planets)that they gather around on all dimensions and all frequencies.
 
-起源：
+起源：是的，其目的是给每个区域附近提供一个能源，在这个区域会有一群存有留下来完成他们的进化/学习计划。恒星则为聚集在所有维度和频率的所有实体和物体（行星）提供能量。
 
 #### The Necessity of Working with the Nature Spirits on Earth 
 
@@ -8885,15 +8889,19 @@ O:Yes,the objective was to provide an energy source close to each area where a c
 
 ME:So how do we affect the energy that the Earth takes from the sun? 
 
-我：那么我们如何影响地球，从太阳接受到的能量呢？ 你们当中有节肢的人可以作为能量通道，为地球提供一种超强的获取能量的方法，使地球和你们自己提升频率，这就是为什么与地球及其自然精灵守护者合作非常之重要。 即此，你们都会在能量上受益提升频率，找回更多的记忆成就更多，并且更多的与你们真正的高。 我连接你们也确实离着第一次转变，非常接近了近到甚至连那些负面的和愤怒的人都无法影响这个变化了，这是个极好的消息，使人类实验的一个巨大的进步。 当我完成早晨的哈拉线冥想后，我正打算做一个只是存在的冥想时，我在意识眼中瞥见有成千上万颗星星，仅仅靠在一起，因为不是很清楚，我就问原实体他们是什么？
+我：那么我们如何影响地球从太阳接受到的能量呢？
 
 O:Those of you who are aware can act as a conduit for the energy and give the Earth a sort of supercharged method of gaining energy that allows it (and yourselves)to move up the frequencies.This is why it is essential that you work with the Earth and its nature spirits(caretakers).Then all of you will benefit energetically which will allow you to move up the frequencies,gain more of your memory back,achieve more,and be more in contact with your true higher selves. 
 
-起源：
+起源：你们当中有觉知的人可以作为能量通道，为地球提供一种超强的获取能量的方法，使地球和你们自己提升频率，这就是为什么与地球及其自然精灵（守护者）合作非常重要。这样，你们都会在能量上受益，提升频率，找回更多的记忆，成就更多，并且更多地与你们真正的高我连接。
 
 It's also true that you are so close to making this first transition-so close that even those who are negative and angry are not able to affect the change.This is wonderful news and such a forward step for the human experiment! 
 
+你们也确实离这第一次转变非常接近了，近到甚至连那些负面的和愤怒的人都无法影响这个变化了，这是个极好的消息，是人类实验的一个巨大的进步。
+
 I was expecting to do just a "just being"meditation after completing my morning hara line meditation when I caught a glimpse of thousands of stars close together in my mind's eye.I asked the Source Entity what they were as it wasn't clear. 
+
+当我完成早晨的哈拉线冥想后，我正打算做一个“只是存在”的冥想时，我在意识眼中瞥见有成千上万颗星星，紧紧靠在一起，因为不是很清楚，我就问源实体他们是什么？
 
 #### The Variety of Souls Waiting to Incarnate 
 
@@ -8901,23 +8909,27 @@ I was expecting to do just a "just being"meditation after completing my morning 
 
 ME:What are these stars?They look like a close-up of a nebula?
 
-我：这些星星是什么？他们看着像一个星云的禁忌，他们是正在等待转世到地球的灵魂，他们迫不及待的等着投胎并满怀期待的环绕着地球。 另外我感觉到那里还有别的灵魂。是的，这些是比较执着于地球的人类灵魂，他们变得沉溺于化身中的生活。 所以无法恰当的离开地球层面，他们在等待机会偷偷溜进酩鼎大醉的人的身体。 因为人体的辉光场会被高度酒精强行打开，使另一个灵魂有机会侵入，而再次经历化身生命，会在将有短暂的一刻，当我把这信息告诉给我侵入。 他马上说还有第六和第七根源种族的灵魂在等待转世继续下一阶段人类的进化。 当这些灵魂转世时，他们会保留他们是谁，以及是什么的。所有记忆会在将要发生的，由于地球频率提升而导致的环境事件中带来帮助。 第二天，我再次就这个问题进行了冥想。
+我：这些星星是什么？他们看着像一个星云的特写？
 
 SE:They are the souls that are waiting to incarnate on Earth.They can't wait to incarnate and surround the Earth in anticipation. 
 
-源实体：
+源实体：他们是正在等待转世到地球的灵魂，他们迫不及待地等着投胎，并满怀期待地环绕着地球。
 
 ME:I also get the impression that there are other souls there as well. 
 
-我：
+我：另外我感觉到那里还有别的灵魂。
 
 SE:Yes,there are.These are the souls of people who are more earth bound.They have become addicted to incarnate life and,therefore,can't break away from the Earth plane properly.They wait for the opportunity to sneak into the body of a person who is very drunk,as the aura is forced open by the high alcohol intake and allows another soul to invade it and,therefore,experience incarnate life again,albeit for a short moment. 
 
-源实体：
+源实体：是的，这些是比较执着于地球的人类灵魂，他们变得沉溺于化身中的生活，所以无法恰当地离开地球层面。他们在等待机会偷偷溜进酩酊大醉的人的身体。因为**人体的辉光场会被高度酒精强行打开**，使另一个灵魂有机会侵入，而再次经历化身生命，尽管只有短暂的一刻。
 
 When I told my wife about this,she immediately said that there were also the root six and seven souls who were waiting to incarnate and continue the next stage of human evolution. These souls,when incarnate,will retain all memory of who and what they are and will help in the environmental events that will happen as a result of the raising of the Earth's frequencies. 
 
+当我把这信息告诉给我夫人，她马上说还有第六和第七根源种族的灵魂在等待转世，继续下一阶段人类的进化。当这些灵魂转世时，他们会保留他们是谁以及是什么的所有记忆，会在将要发生的由于地球频率提升而导致的环境事件中带来帮助。 
+
 I meditated on this subject again the next day. 
+
+第二天，我再次就这个问题进行了冥想。
 
 #### The Differences in the Root 5,6,and 7 Races 
 
@@ -8925,25 +8937,27 @@ I meditated on this subject again the next day.
 
 ME:So what is the difference in the root 5,6 7 races?
 
-我：那么第五第六和第七根源种族有什么区别呢？ 第五，根源种族必须经过一个漫长的过程，其成员才能与他们的高我连接，并开始获得真正的能力，这是一件很难的事，需要个体。 在物质层面重新学习，如何得到这些能力，这些个体也需要进化自己去除。 迄今为止，许多次生命中积累的所有障碍。那第六根源种族呢，他们的任务是给第七根源种族铺路，他们从出生起就更了解自己的能力以及灵性问题会帮助其他人为了频率提升做好准备，他们会让人们对灵性的事情更加了解，让人们开始意识到，生命真的不仅仅是他们以为的在地球的这一次，这将会让人们开始从更长远的灵性种族来考虑问题。 那第七根源种族又是怎样的？他们是那些愿意再次转世的大师们，他们从出生起就会完全截知于自己的真我和能力，会积极公开的教导和影响地球及其居民的改变，使频率提高到月升入下一个层级所需要的程度，这样就可以使频率继续提升，直至回到他本应的高度。 到那时，人间天堂就会成为现实。
+我：那么第五、第六和第七根源种族有什么区别呢？
 
 SE:The root 5 race has to go through a lengthy process to get into a position where its members are in contact with their higher selves and start to access their true abilities. This is quite difficult to do and requires the individual to re-learn how to access these abilities from the physical plane.The individual also needs to cleanse himself/herself and remove all the blockages accrued over lifetimes to date. 
 
-源实体：
+源实体：第五根源种族必须经过一个漫长的过程，其成员才能与他们的高我连接，并开始获得真正的能力。这是一件很难的事，需要个体在物质层面重新学习如何得到这些能力。这些个体也需要进化自己，去除迄今为止许多次生命中积累的所有障碍。
 
 ME:So what about the 6th root race? 
 
-我：
+我：那第六根源种族呢？
 
 SE:It is their job to pave the way for the root 7 race.They will be more aware of their abilities and spiritual issues from birth and will take on the task of preparing the rest of the human race for the progression up the frequencies.They will make them more aware of spiritual matters so that they can start to realize that there really is more to life than just considering their one shot here on Earth.This will start to make them think from a spiritual perspective on a longer term. 
 
-源实体：
+源实体：他们的任务是给第七根源种族铺路。他们从出生起就更了解自己的能力以及灵性问题，会帮助其他人为了频率提升做好准备。他们会让人们对灵性的事情更加了解，让人们开始意识到，生命真的不仅仅是他们以为的在地球的这一次，这将会让人们开始从更长远的灵性角度来考虑问题。
 
 ME:So what will the 7th root race be? 
 
+我：那第七根源种族又是怎样的？
+
 SE:They are those masters who wish to re-incarnate.They will be fully aware of their true selves and their abilities from birth and will actively and openly teach and affect the changes necessary to raise the frequencies of the Earth and its inhabitants to the levels required to project it up to the next level,so that it may continue its rise up the frequencies back to where it belongs.At this point heaven on Earth will be a reality.
 
-源实体：
+源实体：他们是那些愿意再次转世的大师们。他们从出生起就会完全觉知于自己的真我和能力，会积极公开地教导和影响地球及其居民的改变，使频率提高到跃升入下一个层级所需要的程度。这样就可以使频率继续提升，直至回到它本应的高度。到那时，人间天堂就会成为现实。
 
 ### Chapter 26 - No Such Thing as Psychic Powers 
 
@@ -8951,23 +8965,23 @@ SE:They are those masters who wish to re-incarnate.They will be fully aware of t
 
 ME:I want to know about our psychic powers.Do we have any,what they are,and if we do,why can't we use them now? 
 
-我：我想了解一下超心灵能力的问题，我们有超心灵能力吗？ 它是什么？如果我们有的话，为什么现在我们不能使用它，这对你来说是一个相当低级的问题，谢谢。 但是我想很多人都想知道答案，好吧。首先没有超心灵能力，这回事只有在当前投射到物质世界的你能够使用的能力，这可能包括也可能不包括你在能量状态下的一些正常功能，这些可能是什么？
+我：我想了解一下超心灵能力的问题，我们有超心灵能力吗？它是什么？如果我们有的话，为什么现在我们不能使用它？
 
 SE:This is quite a low level question for you. 
 
-源实体：
+源实体：这对你来说是一个相当低级的问题。
 
 ME:Thanks,but it is something that I guess many people would like to know the answer to. 
 
-我：
+我：谢谢，但是我想很多人都想知道答案。
 
 SE:O.K.First,there are no such things as psychic powers.There just are the faculties that you are able to use whilst in this current projection into the physical.These may or may not include some of your normal functions when in the energetic state. 
 
-源实体：
+源实体：好吧。首先没有超心灵能力这回事，只有在当前投射到物质世界的你能够使用的能力。这可能包括也可能不包括你在能量状态下的一些正常功能。
 
 ME:What may these be? 
 
-我：
+我：这些可能是什么？
 
 #### The Alienation and Limitations of Special Powers 
 
@@ -8975,21 +8989,23 @@ ME:What may these be?
 
 SE:Anything that is relevant to the needs of this incarnation.Most individuals who incarnate have no need whatsoever for any of their normal faculties whilst in the physical.Indeed to have them would invalidate the reason for being in this limited space in the first place since the whole point is evolving and understanding self. Having what most of the world would classify as special powers would simply alienate you from the rest of society and limit you in terms of your life's direction. Your focus would be almost totally on this power rather than working with what you have,which is what everyone else has,basic limited functionality.You can see this if you look at "so called"psychics.Their lives are limited to working with the one function that can be attributed to the higher self.They focus specifically on this to the detriment of working with the other challenges of life in the physical,such as working with people.The other thing to note is that you choose not to have access to your higher/normal self when you incarnate and,as a result,limit yourself freely. Finally,it should be noted that the current level of the frequencies in this dimension does not readily support higher self functionality due to its low levels and restricted communication lines between the projected self and the energetic self. 
 
-源实体：可以是任何这个化身需要的东西，大多数化身个体在肉体中不需要能量太下的任何正常功能。 事实上拥有这些。首先会使身处这个有限空间失去意义。 因为重点是为了进化和认识自己，拥有世界上。大多数人认为是特殊能力的东西，会让你脱离社会，限制你的人生方向，你的重心将几乎完全集中在这个能力上。 而不是如何运用你和其他人所拥有的同样的最基本的有限功能。 如果你去看看那些所谓的特异功能者，就会明白这点他们的生活局限于使用某一项得益于高。 我的功能上，他们特别关注这一点，以致损害到物质生活中的其他挑战。 比如与人打交道。另外要注意的是，你们选择了在化身中不去连接自己的高，我正常自我，从而能自由的对自己施加限制。 最后还应该注意当前这个维度的频率水平还达不到支持高我功能的程度，因为它的层级太低，限制了被投射的自我和能量自我之间的沟通联系。 至于你问到什么是超心灵能力，我会用一个问题来回答你，你觉得他是什么？ 我希望他是我能想象到的一切答的好，事实上，当你完全回归到你的能量状态时，只有想不到没有做不到。 实际上你的能力是没有限制的。这就是为什么他们跟着你一起进入肉体的原因。 如果你把这些能力都带来并用在物质环境中，你恐怕不仅会被当做神，还会造成真正的灾害。 人类过去曾经拥有过哪些属于神的能力吗？
+源实体：可以是任何这个化身需要的东西。大多数化身个体在肉体中不需要能量态下的任何正常功能。事实上，拥有这些首先会使身处这个有限空间失去意义，因为重点是为了进化和认识自己。拥有世界上大多数人认为是特殊能力的东西，会让你脱离社会，限制你的人生方向，你的重心将几乎完全集中在这个能力上，而不是如何运用你和其他人所拥有的同样的最基本的有限功能。如果你去看看那些所谓的特异功能者，就会明白这点。他们的生活局限于使用某一项得益于高我的功能上，他们特别关注这一点，以致损害到物质生活中的其他挑战，比如与人打交道。另外要注意的是，你们选择了在化身中不去连接自己的高我/正常自我，从而能自由地对自己施加限制。最后，还应该注意，当前这个维度的频率水平还达不到支持高我功能的程度，因为它的层级太低，限制了被投射的自我和能量自我之间的沟通联系。
 
 To answer your question about what your psychic powers are,I will answer it with a question to you:"What do you think they are?" 
 
+至于你问到什么是超心灵能力，我会用一个问题来回答你，“你觉得它是什么？” 
+
 ME:I would expect them to be everything that I can think of. 
 
-我：
+我：我希望它是我能想象到的一切。
 
 SE:Good answer.In fact when you are fully back in the energetic state,your abilities are only limited by your ability to think of them.In reality,your abilities are limitless,hence, why they don't come with you into the physical.If you brought them all with you and used them in the physical environment,you would not only be classified as a god but could wreak some real damage. 
 
-源实体：
+源实体：答的好。事实上，当你完全回归到你的能量状态时，只有想不到，没有做不到。实际上你的能力是没有限制的，这就是为什么它没跟着你一起进入肉体的原因。如果你把这些能力都带来并用在物质环境中，你恐怕不仅会被当做神，还会造成真正的灾害。
 
 ME:Has humankind ever had some of his abilities available to him in the past? 
 
-我：
+我：人类过去曾经拥有过哪些属于神的能力吗？
 
 #### First Experiments of Energetic Man Having a Fully Retained Memory of Abilities 
 
@@ -8997,23 +9013,23 @@ ME:Has humankind ever had some of his abilities available to him in the past?
 
 SE:As I have explained before in previous dialogue,the first experiments made by energetic man into the physical included fully retained memory and the ability to communicate with others both in the energetic state and in the physical.These were the main faculties that were maintained during incarnation.The issue with that is that knowledge of what you could and couldn't do whilst in the physical actually caused distress in a high number of those who chose to incarnate.You can liken the response to an attack of claustrophobia.It was because of this that it was decided by the creators of physical man to cut off all links with the remaining energetic self whilst the entity was incarnate.Imagine what it would be like to know what you are and what you can do but not be able to do it;the frustration would be immense.However, there are and have been in the past certain individuals who elected to leave certain faculties turned on whilst in the physical in order to use them for the good of others. Others have had them turned on to allow them to experience the isolation they create. Knowing that you can do something that appears to be rather incredible and that others can't do does in fact create a certain level of isolation within the psyche.The other reason for these not being available to all is that at this point in time,they would be misused and not used for the common good.Instead,they would be used for the betterment of the individual in the physical.When humankind was a younger race and,indeed,of a higher frequency,certain functions were allowed.These were basic functions of telepathy,telekinesis,and healing.Healing is the more benign of the three and is the first one to re-appear as a race starts to reverse its decent into the lower frequency levels,which it is currently doing,hence the re-appearance of this function. 
 
-源实体：正如我在前面对话中解释过的那样，能量态人类进入肉体的最初实验，是带着完整保留的记忆以及与其他物质或能量状态实体沟通的能力的这些就是在化身期间所保留的主要能力。 由此而来的问题是，知道你在肉体中能做什么和不能做什么。 实际上造成了大量化身灵体的痛苦。你可以把这种反应比作是患上幽闭恐怖症。 想因如此，人类物质身体的创造者才决定当实体转世时，切断其与其余能量自我的所有联系。 想象一下，这就像你知道自己是什么能做什么，但却不能去做，你会有多么沮丧。 不过过去和现在一直有些个体选择在物质身体中开启某些能力，以造福其他人，其他人让自己的这些能力开启，从而让自己能体验到被孤立的感觉。 要知道，如果你能做到一些看起来相当不可思议的事情。 而其他人做不到这，其实会在心理上造成一定程度的孤立，也是当所有人都能使用这些能力的。 另一个原因是在这个时间点上能力会被滥用，不是被用于共同的福祉，而是被用来服务化身的个人。 当人类种族族为年轻，而且频频率高高时候，就些功能是可以使用的，就是心灵灵感心灵制动和疗愈。 这些基本功能疗愈功能是三者中最无害的一种，也是当一个种族开始脱离降频趋势时，第一个会重新出现的功能，而是被现在这种情况。 因此这个功能又重新出现了。
+源实体：正如我在前面对话中解释过的那样，能量态人类进入肉体的最初实验，是带着完整保留的记忆以及与其他物质或能量状态实体沟通的能力的，这些就是在化身期间所保留的主要能力。由此而来的问题是，知道你在肉体中能做什么和不能做什么，实际上造成了大量化身灵体的痛苦，你可以把这种反应比作是患上幽闭恐怖症。正因如此，人类物质身体的创造者才决定当实体转世时，切断其与其余能量自我的所有联系。想象一下，这就像你知道自己是什么能做什么，但却不能去做，你会有多么沮丧。不过，过去和现在一直有些个体选择在物质身体中开启某些能力，以造福其他人。其他人让自己的这些能力开启，从而让自己能体验到被孤立的感觉。要知道，如果你能做到一些看起来相当不可思议的事情，而其他人做不到，这其实会在心理上造成一定程度的孤立。不是当所有人都能使用这些能力的另一个原因是，在这个时间点上能力会被滥用，不是被用于共同的福祉，而是被用来服务化身中的个人。当人类种族较为年轻，而且频率较高时候，就些功能是可以使用的，就是心灵感应、心灵制动和疗愈这些基本功能。疗愈功能是三者中最无害的一种，也是当一个种族开始脱离降频趋势时第一个会重新出现的功能，就像现在这种情况，因此这个功能又重新出现了。
 
 #### Requirements to Use Energetic Functions 
 
 **运用能量功能的要求**
 
-The main requirement of the ability to use some of the normal everyday energetic functions in the physical is,of course,purity of heart and a total lack of aggression and personal ambition.The latter two(aggression and personal ambition)together are a dangerous combination when combined with the power to influence the environment of others because they create tyranny,and that could not be allowed.In fact,it is that very combination that has been a component that led the human race to descend into the lower frequencies where it is now struggling to pull itself away from. 
+SE:The main requirement of the ability to use some of the normal everyday energetic functions in the physical is,of course,purity of heart and a total lack of aggression and personal ambition.The latter two(aggression and personal ambition)together are a dangerous combination when combined with the power to influence the environment of others because they create tyranny,and that could not be allowed.In fact,it is that very combination that has been a component that led the human race to descend into the lower frequencies where it is now struggling to pull itself away from. 
 
-要在物质身体中使用一些日常的正常能量功能，其主要要求当然是心地纯洁，还有完全没有攻击性和个人野心。 当后，两者攻击性和个人野心与影响他人环境的力量相结合在一起的时候会比较危险。 因为这会造成暴政，而这是不被允许的。事实上，这种组合正是导致人类降到如今你们力求解脱的低频的原因之一。 你提到了三种能力，心灵感应心灵制动和疗愈能力。另外两种是什么呢？ 就像你几分钟前刚刚说过的那样，在能量状态下，你可以做任何你想做的事情，你所需要的就是去做心灵制动时间旅行维度旅行创造随便什么，你需要做的就是想要去做，然后他就会实现所有人类仍然拥有的能力中，最重要也是最容易被忽略的能力，就是调频到实现，想避于他们自己与我和周围宇宙沟通的能力。 这就是开悟之道，也是你们所有人转世于人类化身的原因之一，去体验进化，再回到源头回归我。
+源实体：要在物质身体中使用一些日常的正常能量功能，其主要要求当然是心地纯洁，还有完全没有攻击性和个人野心。当后攻击性和个人野心与影响他人环境的力量相结合在一起时会比较危险，因为这会造成暴政，而这是不被允许的。事实上，这种组合正是导致人类降到如今你们力求解脱的低频的原因之一。
 
 ME:You mentioned three faculties of telepathy,telekinesis,and healing.What would the others be? 
 
-我：
+我：你提到了三种能力，心灵感应、心灵制动和疗愈能力。另外两种是什么呢？ 
 
 SE:As you said yourself just a few minutes ago,you can do anything you want in the energetic state;all you have to do is do it-teleportation,time travel,dimension travel, creation,anything!All you have to do is want to do it,and it is done.The most important faculty that all humans still have though is the one that is most ignored -the ability to tune into reality and communicate with themselves,Me,and the universe around them.This is the way to enlightenment and is part of the reason why all of you incarnate into the physical human form:to experience,evolve,and return to Source,Me. 
 
-源实体：
+源实体：就像你几分钟前刚刚说过的那样，在能量状态下，你可以做任何你想做的事情，你所需要的就是去做心灵制动、时间旅行、维度旅行、创造，随便什么。你需要做的就是想要去做，然后它就会实现。所有人类仍然拥有的能力中，最重要也是最容易被忽略的能力，就是**调频到实相，并与他们自己，与我和周围宇宙沟通的能力**。这就是开悟之道，也是你们所有人转世于人类化身的原因之一，去体验、进化，再回到源头，回归我。
 
 #### The Physics of Telekinesis 
 
@@ -9021,43 +9037,43 @@ SE:As you said yourself just a few minutes ago,you can do anything you want in t
 
 ME:I have a question on the physics of telekinesis.I thought that this worked by giving energy to an object so that it lost some of its density and,therefore,became lighter,light enough to be moved by the etheric. 
 
-我：我对心灵制动的物理原理有一个疑问，我认为它的运作是通过给一个物体提供能量，使它密度有所降低，并因此变得更轻轻到可以在以态层面被移动接近，但真正的做法是使物体周围区域变得比物体更稠密，从而使物体能够像球浮于水面那样漂浮起来。 然后你可以使局部的密度水平降低，而让它移动，就是让它落向某个方向。 那么如何在不创造物质，比如冰的情况下做到这一点呢？通过改变周围物质能量场的性质，磁力就是这样运作的。 但是磁力需要两个物体都具有某种磁性。当然提到磁力只是为了帮你理解，只要加强一个物体周围的能量场，它就能变得更加稠密，就能把不那么强的场推开。 如果场在物体的下面，加强这个场的物体就会被抬起。如果场被削弱，物体就会落回到地面上，也可以通过摇篮效应做到这个，从而实现横向移动译者注摇篮效应。 因指牛顿的摇篮有多个质量相同的金属球摆紧密排列组成。 比如四个每个球上有两条白线，当摆动最右侧的球，它在回摆时碰撞紧密排列的另外四个球最左边的球将被弹出，并仅有最左边的球被弹出。
+我：我对心灵制动的物理原理有一个疑问。我认为它的运作是通过给一个物体提供能量，使它密度有所降低，并因此变得更轻，轻到可以在以态层面被移动。
 
 O:Close,but the real way is to make the area around the object denser than the object itself, therefore,allowing the object to float rather like a ball floating to the surface of water. You then make it move by making the local level of density less dense,literally making it "fall"in a certain direction. 
 
-起源：
+起源：接近，但真正的做法是使物体周围区域变得比物体更稠密，从而使物体能够像球浮于水面那样漂浮起来。然后，你可以使局部的密度水平降低，而让它移动，就是让它落向某个方向。
 
 ME:So how do you do that without creating a physical object,such as ice? 
 
-我：
+我：那么，如何在不创造物质，比如冰的情况下做到这一点呢？
 
 O:By changing the energy field characteristics of the surrounding material.That's how magnetism works. 
 
-起源：
+起源：通过改变周围物质能量场的性质，磁力就是这样运作的。
 
 ME:But magnetism relies on two objects being magnetic in some way.
 
-我：
+我：但是磁力需要两个物体都具有某种磁性。
 
 O:Of course,the reference to magnetism was just a reference to help you understand. The energy field surrounding an object can be made more dense by simply making it stronger and allowing it to push less strong fields out of the way.If the field is underneath the object,it is lifted;if it is weakened,the object falls back to Earth.This can be done in a cradle effect so that lateral movement can also be achieved. 
 
-起源：
+起源：当然，提到磁力只是为了帮你理解。只要加强一个物体周围的能量场，它就能变得更加稠密，就能把不那么强的场推开。如果场在物体的下面，加强这个场的物体就会被抬起。如果场被削弱，物体就会落回到地面上。也可以通过摇篮效应做到这个，从而实现横向移动。
 
 #### The Great Illusion 
 
-**巨大的幻象**
+**巨大的幻相**
 
 In another meditation the Origin showed a brief description of life on Earth as an illusion. 
 
-在另一次冥想中，起源将地球上的生活简单描述成是一种幻象幻象最妙的地方，就是他能让观察者完全把他在有限的能力感官下体验到的东西。 当真这么说来，我们生活在一个特别令人幸福的幻想中。
+在另一次冥想中，起源将地球上的生活简单描述成是一种幻相。
 
 O:An illusion is at its best when it is able to distract the observer to the point where he/she is totally convinced that what he/she is experiencing with his/her limited ability/senses is reality. 
 
-起源：
+起源：幻相最妙的地方，就是他能让观察者完全把他在有限的能力感官下体验到的东西当真。
 
 ME:So we are living in a particularly convincing illusion. 
 
-我：
+我：这么说来，我们生活在一个特别令人幸福的幻相中。
 
 #### Trusting One's Intuition 
 
@@ -9065,19 +9081,19 @@ ME:So we are living in a particularly convincing illusion.
 
 O:No,you are not,but you are all easily convinced that physical life is all there is,and this is because you are not able to trust your higher senses.This is because you rely too much on your human senses rather than accept that your higher senses are there and are accurate.You need to trust your intuition.
 
-起源：不不是的，但是你们都很容易相信物质生活就是一切。 这是因为你们没能相信你们更高级的感官。这是因为你们过于依赖你们的人类感官，不相信你们的高级感官存在，而且精准你们需要信任你们的直觉。 所以我越信任我的直觉，我就越会运用我的高级感官，而且我也越能看清人生，不过是幻想，是帮助我进化的幻想。 是的，现在你明白了，这很有趣，为什么？
+起源：不，不是的，但是你们都很容易相信物质生活就是一切，这是因为你们没能相信你们更高级的感官。这是因为你们过于依赖你们的人类感官，不相信你们的高级感官存在而且精准。你们需要信任你们的直觉。
 
 ME:So the more I trust my intuition,the more I will use my higher senses,and the more I will see that this life is mere illusion,one for the benefit of my evolution. 
 
-我：
+我：所以我越信任我的直觉，我就越会运用我的高级感官，而且我也越能看清人生不过是幻相，是帮助我进化的幻相。
 
 O:Yes,now you are getting it.This is fun. 
 
-起源：
+起源：是的，现在你明白了，这很有趣。
 
 ME:Why? 
 
-我：
+我：为什么？
 
 #### Evolution's Fast Track
 
@@ -9085,7 +9101,7 @@ ME:Why?
 
 O:Because all of you feel that you are suffering for such a long time,but in reality,that is REALITY,you are here for a fraction of the blink of an eye in relation to the length of time that you have all been in existence.Earth is an evolutionary fast track of astounding potential.You can evolve in years here what it might take thousands of years or even eons to accomplish in the pure energetic.Yet when you are incarnate,it feels like such a long time.Rejoice in the fact that this reality is so short.
 
-起源：因为你们都感觉自己受了这么久的苦。但实际上这就是现实，你在这里的时间相对于你已经存在的漫长时光来说，连一眨眼的功夫都不到地球，是一个有着惊人潜力的进化。 快车道，你在这里几年的进化，在纯能量状态，可能需要几千年甚至数不清的年代才能完成。 只是因为你在化身中才会觉得时间如此。漫长事实是现实如此，短暂，享受这一事实吧。
+起源：因为你们都感觉自己受了这么久的苦，但实际上，这就是现实。你在这里的时间，相对于你已经存在的漫长时光来说，连一眨眼的功夫都不到。地球是一个有着惊人潜力的进化快车道，你在这里几年的进化，在纯能量状态可能需要几千年甚至数不清的年代才能完成。只是因为你在化身中才会觉得时间如此漫长，事实是现实如此短暂，享受这一事实吧。
 
 ## Part Three - Communication with Aliens
 
@@ -9097,21 +9113,23 @@ O:Because all of you feel that you are suffering for such a long time,but in rea
 
 I considered what Byron had said earlier about communicating with aliens and decided that I would dedicate some meditation time purely for this cause.Hum was to help me here. 
 
-在对拜伦之前说过的与外星人沟通的事情做过一番考虑后，我决定为这件事，专门做些冥想。 他们将在这里帮助我。你好嗯请在外星人的问题上帮帮我。我曾在一次冥想中接收到过一些关于这个话题的一知半解的信息。 现在想花点时间来聊聊这个问题。首先并没有所谓的外星人，这只是地球人用来描述做自地球以外的人或曾有的一种说法。 鉴于此，只有其他实体而非生活在其他星系宇宙维度或频率的行星上的外星人，他们是我们真正的兄弟姐妹，因为我们都来自同一个源头的能量，都在为了语言实体的重聚而努力演化和进步，在其他宇宙和维度中的生命，如此多种多样，就像地球上昆虫和哺乳动物的数量那样，众多有纯能量形式的。 我们的灵魂灵体就是这样的，也有基于物质成分的某些躯体类型，接近人体的大小和形状，而另一些则可能看起来像章鱼鸟蜥蜴或鱼，有些甚至是两三种载具的混合体，一些存有可以随意改变自己身体外貌的形状和大小。 因为它们能控制自己的更高心智和灵性能力，更高频率的存油，也拥有物质组成部分。 这些组成部分对他们来说，就像肉体对你们来说一样坚实。如果你能感知碰触到它们，就会像触摸风或非常稀薄的气体一样，外星人会造访地球吗？
+在对拜伦之前说过的与外星人沟通的事情做过一番考虑后，我决定为这件事专门做些冥想。HUM将在这里帮助我。
 
 ME:Hello,Hum.Can you help me a bit on the subject of aliens.I have received a smattering of information on this subject during one of my meditations and now would like to commit some time for dialogue on the subject. 
 
-我：
+我：你好，HUM。在外星人的问题上帮帮我。我曾在一次冥想中接收到过一些关于这个话题的一知半解的信息，现在想花点时间来聊聊这个问题。
 
 HUM:First,there is no such thing as aliens.That is just a description that people on Earth use to describe people or beings that don't come from Earth.Based upon this,there are only other entities,not aliens that live on planets in this and other galaxies,universes, dimensions or frequency levels.They are really our brothers and sisters as we are all from the same Source energy and are all working to expand our evolution and progress towards being re-united with the Source Entity again. 
 
-HUM：
+HUM：首先，并没有所谓的外星人。这只是地球人用来描述来自地球以外的人或存有的一种说法。鉴于此，只有其他实体，而非生活在其他星系、宇宙、维度或频率的行星上的外星人。他们是我们真正的兄弟姐妹，因为我们都来自同一个源头的能量，都在为了在源实体的重聚而努力演化和进步。
 
 Life in other universes and dimensions is as diverse as the number of insects and mammal life here on Earth.There are beings of pure energy,which our souls/spirits are really,and beings that are based upon physical components.Some of the body types are close to the sizes and shapes of human bodies,whereas others may appear to look like squids or birds or lizards or fish,some even being a mixture of two or three mediums. Some beings are able to change the shape and size of their physical appearance at will,as they have control of their higher mental and spiritual capabilities.Beings that exist in the higher frequencies have physical components that are as solid to them as your bodies are to you.If you could perceive them and touch them,it would be like trying to touch the wind or a very rare gas. 
 
+在其他宇宙和维度中的生命如此多种多样，就像地球上昆虫和哺乳动物的数量那样众多。有纯能量形式的，我们的灵魂灵/体就是这样的。也有基于物质成分的，某些躯体类型接近人体的大小和形状，而另一些则可能看起来像章鱼、鸟、蜥蜴或鱼，有些甚至是两三种载具的混合体。一些存有可以随意改变自己身体外貌的形状和大小，因为它们能控制自己的更高心智和灵性能力。更高频率的存有也拥有物质组成部分，这些组成部分对他们来说就像肉体对你们来说一样坚实。如果你能感知碰触到它们，就会像触摸风或非常稀薄的气体一样。
+
 ME:Do aliens visit Earth? 
 
-我：
+我：外星人会造访地球吗？
 
 #### The Consistent Presence of Visiting Entities 
 
@@ -9119,9 +9137,11 @@ ME:Do aliens visit Earth?
 
 HUM:Yes,other beings do visit your planet on a regular basis,and there are many different types of beings that do so.They are here to help you evolve and make the leap to the next spiritual level.They help raise the frequency of the Earth which will allow you to start to remember more about who you are and what your job here on Earth is.Their primary task is to help prepare and assist you for the coming changes at this turning point in your evolution.Once you have achieved the raising of the frequencies,the beings will make themselves known to all of you here on Earth.At that point they will feel safe in the knowledge that you will be more tolerant of different body types and will not shoot them on sight as many of the 1950's B movies predicted.Instead,you will accept them for what they are:your friends and brothers in evolution.
 
-HUM：是的，其他存友会定期拜访你们的星球，许多不同类型的存友都在这么做。 他们来这里帮助你们进化并跃升到下一个灵性水平。他们帮助地球提升频率，这让你们开始更多的记起你是谁和你来地球做什么？ 他们的主要任务是在你们进化转折点上，帮助你们做好存备，并支持你们应对即将到来的变化。 一旦你们实现了频率的提升，这些存友就会让所有地球人知道他们的存在，到那时候他们才会感到安全，知道你们会更能接受不同的身体形态，而不会像很多一九五零年代那些低成本的影片中描述的那样，一见到他们就开枪射击。 相反，你们会很乐意接受他们的本来面目及你们进化道路上的朋友和兄弟。 前面提到过，地球正处在自由抑制实验的一个非常重要的关头，最终的选选择是个人的责任。 这个实验的成功会让你们增加宇宙中其他种族个体自由选择的力量提高，包括人类灵体在内的个体存有和整体种族的进化速度，从而使地球及其居民的频率得到进一步提升，一旦地球频率提高，他的目的就会被知晓。 于是他也将能够恰当的运作。这就像计算机里面一个损坏了的重要电路，一旦被修复，就会使整个宇宙都能按照设计运行，就像一个生命体那样。 这就是来自其他星球的兄弟姐妹到这里来，要帮助你们实现的是。
+HUM：是的，其他存有会定期拜访你们的星球，许多不同类型的存有都在这么做。他们来这里帮助你们进化，并跃升到下一个灵性水平。他们帮助地球提升频率，这让你们开始更多地记起你是谁和你来地球做什么。他们的主要任务是在你们进化转折点上帮助你们做好准备，并支持你们应对即将到来的变化。一旦你们实现了频率的提升，这些存有就会让所有地球人知道他们的存在。到那时候他们才会感到安全，知道你们会更能接受不同的身体形态，而不会像很多1950年代那些低成本的影片中描述的那样，一见到他们就开枪射击。相反，你们会很乐意接受他们的本来面目：你们进化道路上的朋友和兄弟。
 
 As previously mentioned,the Earth is at a very important juncture in the experiment of free will,with ultimate choice being the responsibility of the individual.Success of this experiment will allow you to increase this power of individual free choice to other races within the universe/universes and will increase the speed of evolution of individual beings and whole races of beings,including human spirits,further increasing the frequency of the Earth and its inhabitants.Once the Earth's frequency is raised,its purpose will be known,and it will be able to function properly.Like an important circuit in a computer that is broken,once repaired it will allow the whole universe to function as it was designed to function,as a living being in its own right.This is what your brothers and sisters from other planets are here to help you achieve. 
+
+前面提到过，地球正处在自由意志实验的一个非常重要的关头，最终的选择是个人的责任。这个实验的成功会让你们增加宇宙中其他种族个体自由选择的力量，提高包括人类灵体在内的个体存有和整体种族的进化速度，从而使地球及其居民的频率得到进一步提升。一旦地球频率提高，它的目的就会被知晓，于是它也将能够恰当的运作。这就像计算机里面一个损坏了的重要电路一旦被修复，就会使整个宇宙都能按照设计运行，就像一个生命体那样。这就是来自其他星球的兄弟姐妹到这里来要帮助你们实现的事。
 
 #### Methods for Traveling Among the Stars 
 
@@ -9129,35 +9149,54 @@ As previously mentioned,the Earth is at a very important juncture in the experim
 
 The subject of traveling vast distances in an efficient manner has always been a dream of science fiction writers.I decided to ask Hum about this subject to see if it was consistent with my existing level of understanding. 
 
-高效的超远距离旅行一直是科幻小说家的梦想，我决定向行请教。 这个问题，看他是否与我现有的理解水平一致。你们所谓的外星飞船可以将自身转换到更高的频率或维度来实现星际间的超远去航行。 在这个维度舱内的存有可以用精神力量将自己投射到另一个恒星系统或行星上。 之所以能这样做，是因为所有宇宙的各个频率或维度都是彼此相互叠加的。 既然他们是同时存在的，由于频率提高的物理学原理较低频率中的个人的分子，就可以穿越至高频界域中进行移动。 即使他们其实在较低频率中离得很远。在高频空间中的阻力会无限减小，使得星际旅行变得更快，实际上相当于四维的速度，它快到对于较低频率中的观察者来说，从a到b的移动看起来一眨眼就完成成了，就像瞬间移动一样，较高频率中的物理规则也不同，允许个体获得日常频率中不具备的信息和心智能力。 因此，当他们突然想起来，如何将自己进行心智投射，他们就有能力做到这点。 当太空船在更高的频率中到达了目的地。他就转换回原来的频率，出现在目标地点。 这样做的缺点是随着飞船及其乘客转换到较低频率，心智能力也就被快速遗忘了。 不过这不是远距旅行的唯一方法是吗？那还有什么其他方法有很多方法可以用来进行星际旅行，有简单的也有难的。 不过一般来说，有四种主要方法，第一种使用你们所熟悉并且理解的传统旅行方式。 当然，即使能达到百分之九十的光速，这也耗时太久，而且还必须得有太空船。 第二种，使用维度间跳跃在穿过空间中两点之间的桥梁。 第三种，用纯思维驱动太空船或心灵装置，以保护相关实体不会降频，从而跌落低频。 第四种则要求只能在较高维度中旅行，并且只在纯心智层面完成，不需要任何保护性的心智装置进行这种旅行的实体一般不会到太低的频率中冒险。 他们觉得这些低频让人很不舒服。就像你们在潜水时，因为感官和能力的削弱而感到不是一样。 他们只需要想到或集中注意力与某个星系行星或恒星系统的位置，然后他们就在那里了再说一次之所以能这样做，是因为一个实体其实同时处于所有地方，因而他能够有意将注意力集中在某一个特定的地点或时间点上，并在那里整合。
+高效的超远距离旅行一直是科幻小说家的梦想，我决定向HUM请教这个问题，看他是否与我现有的理解水平一致。
 
 HUM:What you call "alien space craft"travel the vast distances between the stars by translating themselves into a higher frequency or dimension.Within this dimension the beings on-board can literally use mental power to project themselves to another star system or planet.This is achievable because the different frequencies or dimensions of all the universes are literally overlaid on each other.Since they exist at the same time,the physics of higher frequencies results in the molecules for a lower frequency individual to travel in a higher frequency realm even though they are essentially further apart. 
 
-HUM：
+HUM：你们所谓的外星飞船可以将自身转换到更高的频率或维度来实现星际间的超远距离航行。在这个维度舱内的存有可以用精神力量将自己投射到另一个恒星系统或行星上。之所以能这样做，是因为所有宇宙的各个频率或维度都是彼此相互叠加的。既然它们是同时存在的，由于频率提高的物理学原理，较低频率中的个人的分子就可以穿越至高频界域中进行移动，即使他们其实在较低频率中离得很远。
 
 There is an infinitesimal reduction in resistance that allows traveling from star to star to happen much faster,in fact at the speed of thought.This is so fast that to the observer in the lower frequency,traveling from A to B appears to be at the blink of the eye,like teleportation. 
 
+在高频空间中的阻力会无限减小，使得星际旅行变得更快，实际上相当于思维的速度。它快到对于较低频率中的观察者来说，从A到B的移动看起来一眨眼就完成了，就像瞬间移动一样。
+
 There are also a different set of physical rules with higher frequencies that allow the individual to have access to information and mental abilities/powers in higher frequencies that they would not normally have in their own home frequency.Hence, they have the ability to mentally project themselves as they suddenly remember how to do this.Once the space ship reaches its destination in the higher frequency,it is then converted back into its original frequency and appears at the point of destination.The down side of this is the rapid forgetting of mental ability as the craft and its inhabitants convert to the lower frequencies.This is not the only way to travel great distances though. 
+
+较高频率中的物理规则也不同，允许个体获得日常频率中不具备的信息和心智能力。因此，当他们突然想起来如何将自己进行心智投射，他们就有能力做到这点。当太空船在更高的频率中到达了目的地。他就转换回原来的频率，出现在目标地点。这样做的缺点是，随着飞船及其乘客转换到较低频率，心智能力也就被快速遗忘了。不过这不是远距离旅行的唯一方法。
 
 ME:It isn't?What are the other ways then? 
 
-我：
+我：是吗？那还有什么其他方法？
 
 HUM:There are many ways to perform interstellar travel,both easy and hard.In general though,four main methods are used.The first is to use conventional travel as you know and understand it,which,of course,takes too long and would require a space ark even at 90%light speeds.The second uses inter-dimensional jumps to cross the bridge between two points in space.The third uses pure thought to drive a space ship or mental construction to protect the entities from the decrease in frequency that results in dropping into lower frequencies.The fourth requires travel in the higher dimensions only and is done purely on a mental basis and requires no protective mental constructs whatsoever.The entities who perform this sort of travel don't generally venture this far down the frequency ladder and find these lower frequencies very uncomfortable,just as you do when you have some of your senses and abilities reduced when scuba diving.They merely think or focus on a galactic,planetary,or system location,and they are there.Again this is possible because an entity is really in all places at the same time and is able to focus its attention to one particular special or temporal point at will and coalesce there. 
 
-HUM：
+HUM：有很多方法可以用来进行星际旅行，有简单的也有难的。不过一般来说，有四种主要方法：
+
+- 第一种，使用你们所熟悉并且理解的传统旅行方式。当然，即使能达到90%的光速，这也耗时太久，而且还必须得有太空船；
+- 第二种，使用维度间跳跃在穿过空间中两点之间的桥梁；
+- 第三种，用纯思维驱动太空船或心灵装置，以保护相关实体不会降频，从而跌落低频；
+- 第四种，只能在较高维度中旅行，并且只在纯心智层面完成，不需要任何保护性的心智装置。
+
+进行第四种旅行的实体一般不会到太低的频率中冒险，他们觉得这些低频让人很不舒服。就像你们在潜水时，因为感官和能力的削弱而感到不适一样。他们只需要想到或集中注意力于某个星系、行星或恒星系统的位置，然后他们就在那里了。再说一次，之所以能这样做，是因为一个实体其实同时处于所有地方，因而他能够有意将注意力集中在某一个特定的地点或时间点上，并在那里整合。
 
 #### A Most Interesting Method of Transportation 
 
 **最有趣的一种交通方式**
 
-The third method is the most interesting,however,as the ship or mental construct has other functions other than protecting the entities from the lower frequencies and allowing them to travel from point to point.Due to their make-up,these entities lose their higher abilities as they come down the frequencies just as you have lost your ability to remember who and what you are when you incarnate into the physical.They start to forget what they knew and what they could do.
+The third method is the most interesting,however,as the ship or mental construct has other functions other than protecting the entities from the lower frequencies and allowing them to travel from point to point.Due to their make-up,these entities lose their higher abilities as they come down the frequencies just as you have lost your ability to remember who and what you are when you incarnate into the physical.They start to forget what they knew and what they could do. To combat this,the ship or mental construct can perform one of two techniques.By using a number of different ways:
 
-不过第三种方法是最有趣的，因为飞船或心智装置，除了保护实体免受较低频率影响，并保证他们点到点的旅行之外，还具有其他功能，就于这些做星际旅行实体的构造，他们在频率下降时会失去更高的能力。 就像你们转世进入肉体时，会忘记自己是谁是什么一样，他们开始忘记他们所知道的，忘记他们所能做的，为解决这个问题，飞船或心智装置，可以实现以下两种技术之一，一是飞船可以通过多种不同方法，记住所有受保护的实体，在他们自己的环境中所具有的更高个体频率的知识。 因为他们会忘记这些，并将频率降低至你们的维度。这么做可以使他们的所有知识和能力，通过放大器仍然保持在可用状态，飞船或心智装置可以执行的。 第二种功能是就在一个维度中维持另一个维度或在一个频率内维持另一个频率，在飞船存在于较低频率的同时，维持内部频率与其中实体所在的频率一致。 因此，第十二级频率的实体也可以乘坐飞船或装置到第三维度。 旅行关要舱内可以维持较高频率的泡泡，使这些实体能够在执行他们的地球任务时，保持个人的更高心智和能量一致。 类似于你们在物质世界所做的事情，飞船内的较高频率或维度就好比是潜艇人员在水下六十米深七个大气压处的潜水艇或潜水球中航行，或者潜艇内只受到一个大气压的压力或者正常的环境压力。 
+不过，第三种方法是最有趣的。因为飞船或心智装置除了保护实体免受较低频率影响，并保证他们点到点的旅行之外，还具有其他功能。由于这些做星际旅行实体的构造，他们在频率下降时会失去更高的能力。就像你们转世进入肉体时，会忘记自己是谁、是什么一样。他们开始忘记他们所知道的，忘记他们所能做的。为解决这个问题，飞船或心智装置可以实现以下两种技术之一：
 
-To combat this,the ship or mental construct can perform one of two techniques.By using a number of different ways,the ship can memorize the higher individual frequency knowledge of all the entities protected within its environment as they forget and come down the frequencies into your dimension.Doing this will allow all their knowledge and abilities (through an amplifier)to still be available.The second function the ship or mental construct can perform is to maintain a dimension within a dimension(or frequency within a frequency).The ship is able to exist in the lower frequencies whilst maintaining an internal frequency consistent with that of the entities within. 
+the ship can memorize the higher individual frequency knowledge of all the entities protected within its environment as they forget and come down the frequencies into your dimension.Doing this will allow all their knowledge and abilities (through an amplifier)to still be available.
+
+一，飞船可以通过多种不同方法，记住所有受保护的实体在他们自己的环境中所具有的更高个体频率的知识。因为他们会忘记这些，并将频率降低至你们的维度。这么做可以使他们的所有知识和能力通过放大器仍然保持在可用状态。
+
+The second function the ship or mental construct can perform is to maintain a dimension within a dimension(or frequency within a frequency).The ship is able to exist in the lower frequencies whilst maintaining an internal frequency consistent with that of the entities within. 
+
+二，飞船或心智装置可以在一个维度中维持另一个维度，或在一个频率内维持另一个频率。在飞船存在于较低频率的同时，维持内部频率与其中实体所在的频率一致。 
 
 As a result 12th level frequency entities can travel in the 3rd dimension within a ship or construct that is maintaining a higher frequency bubble inside the shell of its construct, thereby allowing these entities to maintain their personal higher mental and energetic functions whilst performing whatever jobs they have to do on the Earth plane.To draw a parallel with something you do in the physical world,the higher frequency or dimension within the ship could be considered as a similar concept to submariners traveling at 60 meters,7 bar pressure,underwater in a submarine or bathysphere but only having 1 bar pressure,or ambient pressure,inside the submarine.
+
+因此，第12级频率的实体也可以乘坐飞船或装置到第3维度旅行。只要舱内可以维持较高频率的泡泡使这些实体能够在执行他们的地球任务时保持个人的更高心智和能量一致。类似于你们在物质世界所做的事情，飞船内的较高频率或维度就好比是潜艇人员在水下60米深7个大气压处的潜水艇或潜水球中航行，或者潜艇内只受到1个大气压的压力或者正常的环境压力。 
 
 ### Chapter 28 - Hum on the Om 
 
@@ -9165,43 +9204,47 @@ As a result 12th level frequency entities can travel in the 3rd dimension within
 
 On a particular short meditation I found myself logging into Hum,who furnished me with a very short explanation of what the Om are and how they interact with Earth. 
 
-在一次特别短暂的冥想中，我发现自己简接到了m对于在什么以及他们如何何地球球互动，他给了我一个常简短短的解释。 你好，m很高兴今早与你对话，我也很高兴和你说话，因为你很快就不再笑我了。 这是为什么？只要你愿意，你将能够与任何存友实体沟通，不需要指导或后援了。 哦，好吧，我有一个问题想问你on是怎么回事？他们在地球上是如何显化的？ 这个回答答很简短，因为他已渗透透在你们的民间故事和传说中了on是一个古老的种族，只能被描述为是生活在天堂层级，非常接近源实体的光之存友，有许多昂存有转世于亚特兰蒂斯时代。 这也是为什么今天地球上有这么多曾经的亚特兰蒂斯人来帮助地球从频率层级为负九的位置恢复过来。 因为地球已经从他最初所在的地方降低了九个频率层级on本，不需要在地球层面转世。 但是他们认为有必要帮助这个星球，因为他们知道对所有生物的进化而言，地球对宇宙所能产生的影响。 因然我们曾转世于亚特兰蒂斯时代，但任何帮助都是有限。 因为亚特兰蒂斯是相对孤立的海岛文明而帮助需要更加的全球化。
+在一次特别短暂的冥想中，我发现自己连接到了HUM，对于OM是什么以及他们如何与地球互动，他给了我一个非常简短的解释。
 
 ME:Hello,Hum.It is good to speak to you this morning. 
 
-我：
+我：你好，HUM。很高兴今早与你对话。
 
 HUM:It is good to speak to you as well,for you will no longer need Me soon. 
 
-HUM：
+HUM：我也很高兴和你说话，因为你很快就不再需要我了。
 
 ME:Why is this? 
 
-我：
+我：这是为什么？
 
 HUM:You will be able to communicate with any being/entity you wish without guidance or backup. 
 
-HUM：
+HUM：只要你愿意，你将能够与任何存有/实体沟通，不需要指导或后援了。
 
 ME:Oh.O.K.I have a question for you.What are the Om and how have they manifested on the Earth? 
 
-我：
+我：哦，好吧。我有一个问题想问你，OM是怎么回事？他们在地球上是如何显化的？
 
 HUM:This will be a very short answer for it is steeped in your folklore and legend. 
 
-HUM：
+HUM：这个回答会很简短，因为它已经渗透在你们的民间故事和传说中了。
 
-The Om are an old race that can only be described as light beings that live in the heaven levels(very close to the Source Entity).There were many Om beings incarnating in the Atlantis days,and this is why there are many old Atlanteans here on Earth today to help the Earth recover from her position of-9 on the frequency levels since Earth has fallen nine frequency levels from where she originated.The Om did not need to incarnate on the Earth plane,but they felt the need to help the planet as they understood the impact that the Earth could have on the universe,in terms of evolution for all beings.Although we incarnated in the Atlantean days,any help would have been limited as the Atlanteans were quite an insular civilization whereas the help needed to be more global. 
+The Om are an old race that can only be described as light beings that live in the heaven levels(very close to the Source Entity).There were many Om beings incarnating in the Atlantis days,and this is why there are many old Atlanteans here on Earth today to help the Earth recover from her position of -9 on the frequency levels since Earth has fallen nine frequency levels from where she originated.The Om did not need to incarnate on the Earth plane,but they felt the need to help the planet as they understood the impact that the Earth could have on the universe,in terms of evolution for all beings.Although we incarnated in the Atlantean days,any help would have been limited as the Atlanteans were quite an insular civilization whereas the help needed to be more global. 
+
+OM是一个古老的种族，只能被描述为是生活在天堂层级，非常接近源实体的光之存有。有许多OM存有转世于亚特兰蒂斯时代，这也是为什么今天地球上有这么多曾经的亚特兰蒂斯人来帮助地球从频率层级为-9的位置恢复过来，因为地球已经从它最初所在的地方降低了9个频率层级。OM本不需要在地球层面转世，但是他们认为有必要帮助这个星球，因为他们知道对所有生物的进化而言，地球对宇宙所能产生的影响。虽然我们曾转世于亚特兰蒂斯时代，但任何帮助都是有限的。因为亚特兰蒂斯是相对孤立的海岛文明，而帮助需要更加地全球化。
 
 #### Old Atlanteans Who Are Really of the Om 
 
 **真正属于OM的老亚特兰蒂斯人**
 
-This is why there are many old Atlanteans incarnating today,but they are not really old Atlanteans.Instead,they are really Om.The Om understand that with the Earth now having a more global civilization,the opportunity for progression is vastly improved so they are,therefore,getting more involved at a "coal face"level-the most basic level.This is your reason for being here,for you are of the Om. 
+HUM:This is why there are many old Atlanteans incarnating today,but they are not really old Atlanteans.Instead,they are really Om.The Om understand that with the Earth now having a more global civilization,the opportunity for progression is vastly improved so they are,therefore,getting more involved at a "coal face"level-the most basic level.This is your reason for being here,for you are of the Om. 
 
-这就是为什么有如此多曾经的亚特兰蒂斯人转世于今日，但他们并不是真正的老的亚特兰蒂斯人，他们其实是昂on知道，随着地球现在拥有更加全球化的文明进步的机会大大提高。 因此，他们更多的参与到最基本的表层作业层面，这也是你来这里的原因。 因为你是昂的一员，要知道昂不是生物，他们是一种纯粹的存友。 至于我们的帮助，当你们的震动水平提高了，会有越来越多的人能够连接到他们的高。 我许多人从一开始生来就知道自己是谁。不过，开始忆起自己是谁的，大多数人其实是老亚特兰蒂斯人或者OM。
+HUM：这就是为什么有如此多曾经的亚特兰蒂斯人转世于今日，但他们并不是真正的老的亚特兰蒂斯人，他们其实是OM。OM知道，随着地球现在拥有更加全球化的文明，进步的机会大大提高，因此他们更多地参与到最基本的表层作业层面，这也是你来这里的原因，因为你是OM的一员。
 
 Know this,the Om aren't beings.They just are!As for our help,as you increase your movement up the vibrational levels,more and more people will be able to get in contact with their higher selves.Many others will be born knowing who they are from the start. Most of those who will start to remember,however,will be old Atlanteans or will be of the Om.
+
+要知道OM不是生物，他们是一种纯粹的存有。至于我们的帮助，当你们的振动水平提高了，会有越来越多的人能够连接到他们的高我。许多人从一开始生来就知道自己是谁，不过开始忆起自己是谁的大多数人，其实是老亚特兰蒂斯人或者OM。
 
 ### Chapter 29 - Aliens/Other Entities and Intention 
 
@@ -9209,7 +9252,7 @@ Know this,the Om aren't beings.They just are!As for our help,as you increase you
 
 During a morning meditation in December 2003,I was wondering where or what subject Hum and I were going to address next.I was trying desperately to not pre-conceive what this would be when I suddenly saw myself traveling around the galaxy at a speed that was inconceivably fast.I was very surprised when I arrived back on Earth,for the alien/other entity that I had spoken to on my earlier visit was there to greet me;Hum was also by my side. 
 
-在2003年12月的一次早晨的冥想中，我在想汉和我要讲的下一个话题会是什么？ 正当我竭尽全力的不去预想，这会是什么？我突然看见自己以一种难以置信的速度，绕着银河系转圈，等我回到地球上，我大吃一惊。 因为在我早先的拜访中与我交谈过的外星人，其他实体正在那迎接我胖也出现在我身边。
+在2003年12月的一次早晨的冥想中，我在想HUM和我要讲的下一个话题会是什么？正当我竭尽全力地不去预想这会是什么，我突然看见自己以一种难以置信的速度绕着银河系转圈。等我回到地球上，我大吃一惊，因为在我早先的拜访中与我交谈过的外星人/其他实体正在那里迎接我，HUM也出现在我身边。
 
 #### The Ripple Caused by Intention 
 
@@ -9217,67 +9260,67 @@ During a morning meditation in December 2003,I was wondering where or what subje
 
 ME:How did you know that I was coming over here to see you? 
 
-我：你们怎么知道我会来这里见你们，我们收到你要来这里的意愿，所以有时间做准备，这怎么可能我只有一个印象，就是我绕了银河系三圈，我离地球简直远了，不能再远了。 是的，但是我们收到了，你要来这里的意愿，这是什么意思？你们是怎么收到我的意愿的，你要来这里的意愿，先于你的行动到达你的意愿到达我们引起一种波纹，我们接收到的正是这些波纹，并以此采取行动。 你们怎么知道？这是我呢？根据我们接受到波纹的签名，当我们确定了这签名是谁的，就准备迎接你，你能解释一下吗？ 我本以为如果我的意愿形成了一个波纹，那么他应该比我实际到达这里慢的多。 我在到达这里之前，已经快到足够绕银河系三圈了。是的，但意愿的传送是在不同的维度层面上，这个层面专门用于沟通和意愿行动思想，因此不是受干扰，也不会干扰个体所在的维度层面或频率这样啊。 但是波纹一此暗示会有某种阻力或其他什么，因此，让人想到，他可能会以某种方式慢下来，在你的意愿运作的维度情况不是这样的，最贴切的描述，是把它比作一种首波当船在水面上时，宇头的首波走在船的前面，这是因为船会推开排出行进方向的水，以便为船身开辟出一条路来，可以在船的前面取一些固定的点进行测量。 基于这些信息就能推算出船的大小和吨位，这就是他的签名，你的意愿与之类似，只是位于不同维度意愿的首波要运行到意宙或维度中的某一点，与个体随之采取的行动之间的相对距离可以是无限的。 但对于接收者来说，仍然是可识别的，并且可以通过测定意愿行为的幅度而进行测量。 因此有时间为这样一个拜访做准备。这就是为什么你们总是能准备好来接待我没错。 这也正是我们如何感知到你想与我们沟通的意愿的。如果有两个相互冲突的意愿，会发生什么呢？
+我：你们怎么知道我会来这里见你们？
 
 A:We/I received your intention to be here and so had time to prepare. 
 
-外星人：
+外星人：我们收到你要来这里的意愿，所以有时间做准备。
 
 ME:How can that be?I just had the impression that I have been three times around the galaxy.I was as far away from the Earth as I could be. 
 
-我：
+我：这怎么可能？我只有一个印象，就是我绕了银河系三圈，我离地球简直远的不能再远了。
 
 A:Yes,but we received your intention to be here.
 
-外星人：
+外星人：是的，但是我们收到了你要来这里的意愿。
 
 ME:How do you mean you received my intention?How do you receive my intention? 
 
-我：
+我：这是什么意思？你们是怎么收到我的意愿的？
 
 A:Your intention to be here arrives before you do.The intention travels toward us and causes a ripple.It is these ripples that we pick-up/receive and act upon. 
 
-外星人：
+外星人：你要来这里的意愿先于你的行动到达。你的意愿到达我们，引起一种波纹，我们接收到的正是这些波纹，并以此采取行动。 
 
 ME:How did you know it was me? 
 
-我：
+我：你们怎么知道这是我呢？
 
 A:By the signature of the ripple we felt it coming in,and when we established whose signature it was,we prepared ourselves to receive you. 
 
-外星人：
+外星人：根据我们接受到波纹的签名，当我们确定了这签名是谁的，就准备迎接你。
 
 ME:Can you please explain?I would have thought that if my intention caused a ripple,then it would be much slower that my actually traveling here.I was traveling fast enough to go three times around the galaxy before I got here. 
 
-我：
+我：你能解释一下吗？我本以为如果我的意愿形成了一个波纹，那么它应该比我实际到达这里慢得多。我在到达这里之前，已经快到足够绕银河系三圈了。
 
 A:Yes,but the intention that is transmitted is in on a different dimensional plane.This plane is specific to communication and intended actions/thoughts and,hence,is not interfered by nor interferes with the dimensional plane or frequencies of the individual entity. 
 
-外星人：
+外星人：是的，但意愿的传送是在不同的维度层面上。这个层面专门用于沟通和意愿/行动/思想，因此不受干扰，也不会干扰个体所在的维度层面或频率。
 
 ME:O.K.,but a ripple indicates some sort of resistance or other and,therefore,suggests that it is slowed down in some way. 
 
-我：
+我：这样啊。但是波纹一词暗示会有某种阻力或其他什么，因此让人想到它可能会以某种方式慢下来。
 
 A:This is not so in the dimension that your intention operates within.The best way to describe it is as a bow wave.When a ship is on the water,the bow wave goes before the boat because the boat is pushing/displacing the water out of the way to make way for the hull of the boat.This can be picked up at various stationary points in front of the boat and measured;based upon this information,the size and tonnage of the boat can be extrapolated.This is its signature.Your intention is similar but in a different dimension.The distance in relative terms between the bow wave of the intention to travel to a point in the universe or dimension and the action of the individual entity that follows can be infinite,but it is nevertheless discernable by the receiving entity and measurable by ascertaining the amplitude of the intended action,therefore, allowing time to prepare for such a visit. 
 
-外星人：
+外星人：在你的意愿运作的维度，情况不是这样的。最贴切的描述是把它比作一种头波。当船在水面上时，船头的头波走在船的前面，这是因为船会推开排出行进方向的水，以便为船身开辟出一条路来，可以在船的前面取一些固定的点进行测量，基于这些信息就能推算出船的大小和吨位，这就是它的签名。你的意愿与之类似，只是位于不同维度。意愿的头波要运行到宇宙或维度中的某一点，与个体随之采取的行动之间的相对距离可以是无限的，但对于接收者来说仍然是可识别的，并且可以通过测定意愿行为的幅度而进行测量，因此有时间为这样一个拜访做准备。
 
 ME:So this is how you are always ready for me. 
 
-我：
+我：这就是为什么你们总是能准备好来接待我。
 
 A:Correct. 
 
-外星人：
+外星人：没错。 
 
 HUM:This is exactly how we perceive your intention to communicate with us as well. 
 
-HUM：
+HUM：这也正是我们如何感知到你想与我们沟通的意愿的。
 
 ME:What happens if two sets of intention collide with each other? 
 
-我：
+我：如果有两个相互冲突的意愿，会发生什么呢？
 
 #### The Impossibility of Two Sets of Intention Colliding 
 
@@ -9285,43 +9328,43 @@ ME:What happens if two sets of intention collide with each other?
 
 A:They don't. 
 
-外星人：不会发生这种情况，为什么不会这肯定就像两艘船的首播，互相干扰。 那样他们会拉低彼此的速度，互相干扰，并扭曲彼此的信号。不不会这样，为什么？ 因为如前所述，每个实体都有自己的签名，就像电台频率的签名，一个签名可以是无线电信号相位中的一秒，甚至可以是疫秒的很小一部分。 这个无线电信号在振幅频率维度和密度上有着无数种可能。 所以两个实体具有相同，签名的几率很小喽，没错，那是不可能的。 因为还应考虑意愿的方向和目的地，这些也增加了意愿签名，以及由此产生的首波的独特性。 所以两个首播永远也不会干扰彼此。是的，永远不会，谢谢。 现在清楚了
+外星人：不会发生这种情况。
 
 ME:Why not?Surely it would be like the bow wave of two boats interfering with each other.They would slow each other down and interfere and distort each other's signals. 
 
-我：
+我：为什么不会？这肯定就像两艘船的头波互相干扰，那样它们会拉低彼此的速度，互相干扰并扭曲彼此的信号。
 
 A:No,they don't. 
 
-外星人：
+外星人：不，不会这样。
 
 ME:Why? 
 
-我：
+我：为什么？
 
 A:Because each entity has its own signature,as previously stated.Liken the signature to the frequency of a radio station.Each signature can be one second(and this can be minute fractions of a second)of phase on a radio signal that has infinitely variable amplitude, frequency,dimensional basis,and density. 
 
-外星人：
+外星人：因为如前所述，每个实体都有自己的签名，就像电台频率的签名。一个签名可以是无线电信号相位中的一秒，甚至可以是一秒的很小一部分。这个无线电信号在振幅、频率、维度和密度上有着无数种可能。
 
 ME:So the chances of two entities having the same signature are small? 
 
-我：
+我：所以两个实体具有相同签名的几率很小喽？
 
 A:No.They are not possible because you also have to take account of the direction and end destination of the intent which also adds to the uniqueness of the intent signature and the resultant "bow wave." 
 
-外星人：
+外星人：没错，那是不可能的。因为还应考虑意愿的方向和目的地，这些也增加了意愿签名以及由此产生的头波的独特性。
 
 ME:So two bow waves would never interfere with each other. 
 
-我：
+我：所以两个头波永远也不会干扰彼此。
 
 A:No.Never. 
 
-外星人：
+外星人：是的，永远不会。
 
 ME:Thank you.That explains it.
 
-我：
+我：谢谢，现在清楚了。
 
 ### Chapter 30 - Aliens/Other Entities on Universes,Null Space, Hyperspace,Collective Beings,and Hillside Space Bases 
 
@@ -9329,15 +9372,15 @@ ME:Thank you.That explains it.
 
 I continued the conversation the next day.This time I was on my own.I felt that Hum had done his job here in being part of my earlier dialogues with the aliens.He had been there to "hold my hand,"so to speak. 
 
-第二天我继续对话，这交谈，只有我自己与外星人，我觉得哈姆已经完成了。 在这里参与我之前和外星人谈话的任务，可以说他一直给予我援手，能再次来到这里，和你们见面真是太好了。 是的，我们也很荣幸与你交谈，能把我们的一些知识传播到你们的种族，对我们双方都是一个绝好的机会。
+第二天我继续对话，这交谈只有我自己与外星人。我觉得HUM已经完成了在这里参与我之前和外星人谈话的任务，可以说他一直给予我援手。
 
 ME:It's good to be here again and to log into you. 
 
-我：
+我：能再次来到这里和你们见面真是太好了。
 
 A:Yes,it is also an honor for us to talk to you.To be able to extend some of our knowledge to your race is a great opportunity for both of us. 
 
-外星人：
+外星人：是的，我们也很荣幸与你交谈，能把我们的一些知识传播到你们的种族，对我们双方都是一个绝好的机会。
 
 #### The Multifaceted Universes 
 
@@ -9345,23 +9388,23 @@ A:Yes,it is also an honor for us to talk to you.To be able to extend some of our
 
 ME:Thank you.I have been picking up strands of things about the universe for the past two days, stuff about the multiplicity of it.I have also been receiving images to explain it. 
 
-我：谢谢你这两天我一直在搜集一些关于宇宙的信息是关于宇宙多样性的，我也一直在收到解释这个问题的画面。 是的，我们一直在给你发送画面，以引起你的注意。宇宙的确有很多面向他们于同一时间在许多地方有着多次重叠，这里所说的空间与人类通常对空间和时间的理解无关。 因为它可以是基于频率或是维度的。我们发给你的画面显示，宇宙是一系列相互交错的球体，他们互相之间的空间位置有着或大或小的变化。 是这样。这正是我看到的，它就是这个样子的。我们利用不同宇宙球体的相接近之处，实现宇宙间的转换，我们可以借此移动非常大的空间距离。 只要沿着球体临近处的边缘，这区域最靠近两个球体，但又没有真的进入其中任何一个宇宙环境，这个区域就是或可归类为零领域，是超空间吗？
+我：谢谢你。这两天我一直在搜集一些关于宇宙的信息，是关于宇宙多样性的，我也一直在收到解释这个问题的画面。
 
 A:Yes,we have been sending you images to grab your attention.The universes are truly multifaceted.They overlap many times in many places,all at the same time.The space is not relative to the human convention of space or time,for it can be frequency or dimensionally based.The image we sent you showed the universes are a series of spheres all interlaced upon each other with the spatial position varying slightly or greatly one from the other. 
 
-外星人：
+外星人：是的，我们一直在给你发送画面，以引起你的注意。宇宙的确有很多面向，它们于同一时间在许多地方有着多次重叠。这里所说的空间与人类通常对空间和时间的理解无关，因为它可以是基于频率或维度的。我们发给你的画面显示，**宇宙是一系列相互交错的球体**，他们互相之间的空间位置有着或大或小的变化。
 
 ME:That's right.That's exactly how I saw it. 
 
-我：
+我：是这样。这正是我看到的。
 
 A:That's exactly how it is.We use/exploit the closeness of the different universal spheres to translate ourselves between them.We can use this opportunity to move great spatial distances by moving along the adjoining spherical edge,the area closest to the two spheres,but not actually entering either of the two universal environments.This area is or can be classified as a null area. 
 
-外星人：
+外星人：它就是这个样子的。我们利用不同宇宙球体的接近之处实现宇宙间的转换，我们可以借此移动非常大的空间距离，只要沿着球体临近处的边缘。这区域最靠近两个球体，但又没有真的进入其中任何一个宇宙环境，这个区域就是或可归类为零领域。
 
 ME:Hyperspace? 
 
-我：
+我：超空间？
 
 #### A Description of Null Space 
 
@@ -9369,23 +9412,23 @@ ME:Hyperspace?
 
 A:No,not quite.Hyperspace,as you call it,is still space,space that is constrained by a law particular to the universe it is associated with.This null space has no association and,therefore,is open to manipulation by those who know how to manipulate the energies there,which of course,we do.
 
-外星人：不不完全是超空间。就像你所称呼的那样，仍然是空间会受到它所属宇宙的特定规则的约束，而零领域并无所属。 因此，那些知道如何操控那里能量的人就可以操纵它。当然我们就是这么做的。 我刚刚得到一个图像是关于一种使不同宇宙保持分开的能量，而且得知它本身也是一个可以支持能量生命的环境，它好像推着宇宙互相远离，同时也是宇宙之间的自然吸引力变得无效了。 它就像是一个光环一样很好，这正是它的样子，你观察的完全正确，它是一种力量。 在任何宇宙之间几排斥力的作用。如果你愿意，可以把这个区域看作是后门，让那些维护更大宇宙环境的实体安全而快速的通行于他们负责的这些区域宇宙以及世界之间。 为什么说到安全，他是说他们可能会受到攻击什么的吗？不是的，但他们会被宇宙中找他们帮忙的其他同事实体拦截，这会耽搁他们按计划本来要去做的事，在零领域中旅行，可使他们不受打扰的，从一个地方平静的移动到另一个地方。 因为其他人要么不知道他们在那里，要么当地法则不允许其转换到零领域。
+外星人：不，不完全是。超空间，就像你所称呼的那样，仍然是空间，会受到它所属宇宙的特定规则的约束，而零领域并无所属。因此，那些知道如何操控那里能量的人就可以操纵它。当然，我们就是这么做的。 
 
 ME:I just got this picture of an energy that keeps the universes apart and learned that this is an environment that supports energetic life in itself.It sort of repulses the universes away from each other while it nullifies their natural attractivity to each other.It's just like an aura. 
 
-我：
+我：我刚刚得到一个图像，是关于一种使不同宇宙保持分开的能量，而且得知它本身也是一个可以支持能量生命的环境。它好像推着宇宙互相远离，同时也是宇宙之间的自然吸引力变得无效了，它就像是一个光环。
 
 A:Well done.This is exactly what it is and as you quite rightly observed,it is a force that acts as a repulsive agent between any of the universes in question.This area is,if you like,the back corridor that allows those entities who work for the maintenance of the greater universal environment safe and fast passage between the areas,universes,and worlds they are responsible for. 
 
-外星人：
+外星人：很好，这正是它的样子，你观察的完全正确。它是一种力量，在任何宇宙之间起排斥力的作用。如果你愿意，可以把这个区域看作是后门，让那些维护更大宇宙环境的实体安全而快速地通行于他们负责的这些区域、宇宙及世界之间。
 
 ME:Why safe?Do you mean they can get attacked or something? 
 
-我：
+我：为什么说到安全？他是说他们可能会受到攻击什么的吗？
 
 A:No,but they can get waylaid by other entities in the universes they work with who ask them for help,which delays them from getting on with the work they had planned to do.Traveling in null space allows them to move from location to location in peace,for these others do not know they are there or are not allowed by local law to translate to null space. 
 
-外星人：
+外星人：不是的，但他们会被宇宙中找他们帮忙的其他同事实体拦截，这会耽搁他们按计划本来要去做的事。在零领域中旅行，可使他们不受打扰地从一个地方平静的移动到另一个地方。因为其他人要么不知道他们在那里，要么当地法则不允许其转换到零领域。
 
 #### Here Right Under Your Nose 
 
@@ -9393,11 +9436,11 @@ A:No,but they can get waylaid by other entities in the universes they work with 
 
 Just to give you an example,you cannot see the base,the environment we have created for ourselves here where you currently are,but you know we are there because you are in tune with the wider environment.To you,we are to all intents invisible;we do not exist. Nevertheless we do exist,and we are here,right under your nose.However,we do have to say that we are not in null space but just a couple of frequencies above you,enough to maintain ourselves and low enough to communicate with you. 
 
-给你举个例子，你看不到我们的基地，就是你现在正在其中的我们在这里建造的环境。 但是你知道我们在那里，因为你与更广大的环境调频一致。对你而言，我们无论如何是看不见的，我们似乎是不存在的。 然而我们确实存在，而且我们就在这里，就在你的鼻子底下。不过我们不得不说，我们并不在零领域里，仅仅是在比你们高几个频率的地方，这让我们足以维持自己的形态，又能低到足以和你沟通。 那你们怎样把自己转换到零领域呢？
+给你举个例子，你看不到我们的基地，就是你现在正在其中的我们在这里建造的环境。但是你知道我们在那里，因为你与更广大的环境调频一致。对你而言，我们无论如何是看不见的，我们似乎是不存在的，然而我们确实存在，而且我们就在这里，就在你的鼻子底下。不过，我们不得不说，我们并不在零领域里，仅仅是在比你们高几个频率的地方，这让我们足以维持自己的形态，又能低到足以和你沟通。 
 
 ME:So how do you translate yourselves into null space? 
 
-我：
+我：那你们怎样把自己转换到零领域呢？
 
 #### Translating Themselves into Null Space 
 
@@ -9405,7 +9448,7 @@ ME:So how do you translate yourselves into null space?
 
 A:Wouldn't you like to know?!Sorry,a little joke.Well,it's all about changing the frequency and dimensional relationship of the craft (construct)we are in and ourselves on a random and regular/irregular basis to the point where we are no longer associated with our home universal dimension or any other dimensions or frequencies.This needs to be done at a speed so that we are no longer recognized by a particular universe as part of its content and,therefore,not bound by its attractivity and subsequent laws of operation.Simply put,we mess with frequencies and dimensionalities enough to belong nowhere else but in null space. 
 
-外星人：你会不想知道吗？抱歉，开个玩笑。其实就是随机规律无规律的改变。 我们所在的飞船结构，以及我们自身之间的频率和维度的关系。直到我们与所属宇宙维度或者任何其他维度或频率无关，这需要较为迅速的完成，以便我们不被某个特定维度识别为它的组成部分直会受到其引力和相关运作法则的制约。 简而言之，我们把频率和维度搞乱乱到不属于任何地方，就是在零领域。
+外星人：你会不想知道吗？抱歉，开个玩笑。其实就是随机规律/无规律地改变我们所在的飞船结构，以及我们自身之间的频率和维度的关系，直到我们与所属宇宙维度或者任何其他维度或频率无关。这需要较为迅速的完成，以便我们不被某个特定宇宙识别为它的组成部分，不会受到其引力和相关运作法则的制约。简而言之，我们把频率和维度搞乱，乱到不属于任何地方，就是在零领域。
 
 #### Defining Hyperspace 
 
@@ -9413,23 +9456,23 @@ A:Wouldn't you like to know?!Sorry,a little joke.Well,it's all about changing th
 
 ME:So if null space is in between universes and is not relative to a particular universe,how would you describe hyperspace?This is what science fiction writers and,to some extent,current physics is suggesting.
 
-我：那么如果说零领域位于宇宙之间，不属于某一特定宇宙，你会如何来描述超空间呢？ 就是科幻小说家以及当今物理学家在某种程度上所假设的那个正如我们前面说过的超空间属于某个特定的宇宙。 如果有二十个宇宙，就会有二十个版本的超空间，每个宇宙都有一个超空间，每个超空间都受其所属宇宙的吸引力与法则的制约，这些光速与功能性相关。 因为每个宇宙都有其独特性。正此，我有自己的运作机制，你所谓的超空间只是一个与标准相位刻度不同的频率和维度相位的片段，它不支持超光速旅行，因为光速是物质世界速度的物理标准，也不支持从物质世界的一个位置，瞬间移动到另一个位置。 它并不是如很多科幻小说描述的是一个物质宇宙的捷径，因为它不会弯曲物理空间或时间，它所能做的是支持是维度和频率环境之间的移动，因为它的相位并不是静态的，所以它相当于局部宇宙的零领域。 如果你愿意这么想，那也随你，但它们显然不一样，那么它对于跨越遥远，物理距离的旅行有帮助吗？ 在这方面有什么优势吗？
+我：那么，如果说零领域位于宇宙之间，不属于某一特定宇宙，你会如何来描述超空间呢？就是科幻小说家以及当今物理学家在某种程度上所假设的那个。
 
 A:As we previously stated,hyperspace is relative to a particular universe.If there are twenty universes,there will be twenty versions of hyperspace:one for each universe and each bound by the attractiveness and laws of the universe with which it is associated.The laws are of functionality,for each universe has its own role to play and,therefore,its own operating regime.What you call hyperspace is simply a moment of frequential and dimensional phase that is different to the normal graduations of phase.It does not allow faster than light travel,for this is a physical metric that is related to speed in the physical,nor does it allow instantaneous travel from one position in physicality to another.It is not a physical short cut,as it does not warp physical space or time.What it does is allow movement between dimensional and frequential environments,for its phase is not static. 
 
-外星人：
+外星人：正如我们前面说过的，超空间属于某个特定的宇宙。如果有20个宇宙，就会有20个版本的超空间，每个宇宙都有一个超空间，每个超空间都受其所属宇宙的吸引力与法则的制约。这些法则与功能性相关，因为每个宇宙都有其独特性，因此也有自己的运作机制。你所谓的超空间只是一个与标准相位刻度不同的频率和维度相位的片段，它不支持超光速旅行，因为光速是物质世界速度的物理标准；也不支持从物质世界的一个位置瞬间移动到另一个位置。它并不是如很多科幻小说描述的是一个物质宇宙的捷径，因为它不会弯曲物理空间或时间。它所能做的是支持是维度和频率环境之间的移动，因为它的相位并不是静态的。
 
 ME:So it is the local universal equivalent of null space. 
 
-我：
+我：所以它相当于局部宇宙的零领域。
 
 A:If you wish to consider it as such,then that is up to you,but it is clearly not the same. 
 
-外星人：
+外星人：如果你愿意这么想，那也随你，但它们显然不一样。
 
 ME:So is it usefulfor traveling great physical distances? Does it have any advantage in this area? 
 
-我：
+我：那么它对于跨越遥远物理距离的旅行有帮助吗？在这方面有什么优势吗？
 
 #### Moving to a Different Locale Using One's Will 
 
@@ -9437,15 +9480,15 @@ ME:So is it usefulfor traveling great physical distances? Does it have any advan
 
 A:No,only as a medium for travel between frequential and dimensional environments,but there is a way to use the travel between these environments by jumping from one environment to another and choosing your re-entry point.However,this takes time and calculation to understand and waiting for the correct event or opportunity to use as an entry point.The dimensional and frequential relationships are not static,and this can be used in your favor,but it is not an efficient way to reduce physical distance or journey time.The best way to do that is in the energetic state using your "Origin- given"right to use the powers of the total universe to move your "will"to a different focal point.This does not need physical means,no matter which dimensional or frequential environment you are currently linked to.It needs your "full"awareness. 
 
-外星人：没有，只是作为在频率和维度环境之间旅行的媒介。 但是有一种方法可以利用这些环境之间的旅行，从一个环境跳到另一个环境，并选择你重新进入的点。 不过这需要时间和思考才能明白，还要等待恰当的世界或时机作为接入点维度与频率关系不是静态的这一点你可以利用，但这并非缩短物理距离或旅行时间的有效途径。 要想做到这点，最好的方法是在能量状态下使用你那起源赋予的权利，使用整个宇宙的力量，将你的意志移动到一个不同的焦点，这不需要物质手段也无所谓。 你当前连接到的是哪个维度或频率环境，这需要你的完全觉知。 我们在开车旅游的时候，我得到一个图像，是一艘位于山里的大型太空船，没有着陆，而是在盘旋，这不是你以为的太空船，而是一种让让我们能在你们的频率下工作的结构。 你在脑海中看到的是你的心智，对感知的再现心智会在所看到的东西上叠加。 他认为你熟悉和舒适的东西，这个结构的形状，不是你能够辨识或描述的。 因为它是一种非物质的能量。尽管一切物质都是能量，但并不是所有能量都是或需要是物质的，而且物质也不非得是或者往往不是像你们的物质这样稠密，我们所使用的结构，只不过是我们双方所存在的环境之间的一个界面接口，让我们可以来回移动，并且从进化的观点来体验你们所经历的事，观察你们如何运用你们学到的东西，这将造福所有存有。
+外星人：没有，只是作为在频率和维度环境之间旅行的媒介。但是有一种方法可以利用这些环境之间的旅行，从一个环境跳到另一个环境并选择你重新进入的点。不过，这需要时间和思考才能明白，还要等待恰当的事件或时机作为接入点。维度与频率关系不是静态的，这一点你可以利用，但这并非缩短物理距离或旅行时间的有效途径。 要想做到这点，最好的方法是在能量状态下使用你那起源赋予的权利，使用整个宇宙的力量，将你的意志移动到一个不同的焦点，这不需要物质手段，也无所谓你当前连接到的是哪个维度或频率环境，这需要你的完全觉知。
 
 ME:While we were on a tour in our car,I had the image of a large space ship located up in the mountains,not landed,but hovering. 
 
-我：
+我：我们在开车旅游的时候，我得到一个图像，是一艘位于山里的大型太空船，没有着陆，而是在盘旋。
 
 A:This was not a space ship as you were expecting but a construct to allow us to work in your frequency.What you were seeing in your mind's eye was your mind's representation of what you perceived.It overlaid what it had seen with something it knows you would be both familiar with and comfortable with.The shape of the construct is nothing you would recognize nor relate to,as it is energy not physicality. Although everything physical is energy,not everything energetic is or needs to be physical,and physicality is not specifically or normally as dense as your physicality. The construct we use is merely an interface between the environments we both exist within,which allows us to move around and experience what you are experiencing from an evolutionary point of view and see how you are applying what you have learned for the benefit of all.
 
-外星人：
+外星人：这不是你以为的太空船，而是一种能让我们能在你们的频率下工作的结构。你在脑海中看到的是你的心智对感知的再现，心智会在所看到的东西上叠加它认为你熟悉和舒适的东西。这个结构的形状不是你能够辨识或描述的，因为它是一种非物质的能量。尽管一切物质都是能量，但并不是所有能量都是或需要是物质的，而且物质也不非得是或者往往不是像你们的物质这样稠密。我们所使用的结构，只不过是我们双方所存在的环境之间的一个界面接口，让我们可以来回移动，并且从进化的观点来体验你们所经历的事，观察你们如何运用你们学到的东西，这将造福所有存有。
 
 #### Humanity Working Individually Rather Than Collectively 
 
@@ -9745,7 +9788,7 @@ A:Because it's the closest we can get to the Earth plane without being detected.
 
 ME:I thought that you used certain portals for this. 
 
-我：我以为你们使用了某种门户。是的，确实如此。在这些天然门户附近转换会更加容易。 因为这些区域是不稳定的，等一下我以为他们是纯净的能量，所以你们才使用他们，这是我很困惑。 因为我心里同时收到了三个答案。没错，这些天然门户从物质意义上来说是不稳定的。 因为他们在能量上太纯净了，他们还没有被人类污染，人类，还没把这个地区的频率降下来，你能多解释一些吗？ 构成这个地区，山峦和树木的物质频率的特性，比世界其他地区的频率更高。 所以很显然他们更接近于我们的运作频率。因此他们就成了维度之间的门户，也可以说是门上的裂缝，再进一步去解释，就是物体频率提升的越高，他就越接近向下一个更高维度转换的状态。 因而从物质维度的角度看来，由于密度的丢失，它也就在物质上变得不稳稳定了。 我现在明白了，谢谢我与另一个存友，拜伦也在沟通。我被告知你们会转换到更高维度来实现更快速的远距离航行。 是的，这是正确的阻力，会由于更高维度的频率而减少，可以使我们行驶时的摩擦更小，因此在更高的维度上能够更快的行进，这对航行时间的节省是非常显著的。
+我：我以为你们使用了某种门户。是的，确实如此。在这些天然门户附近转换会更加容易。 因为这些区域是不稳定的，等一下我以为他们是纯净的能量，所以你们才使用他们，这是我很困惑。 因为我心里同时收到了三个答案。没错，这些天然门户从物质意义上来说是不稳定的。 因为他们在能量上太纯净了，他们还没有被人类污染，人类，还没把这个地区的频率降下来，你能多解释一些吗？ 构成这个地区，山峦和树木的物质频率的特性，比世界其他地区的频率更高。 所以很显然他们更接近于我们的运作频率。因此他们就成了维度之间的门户，也可以说是门上的裂缝，再进一步去解释，就是物体频率提升的越高，他就越接近向下一个更高维度转换的状态。 因而从物质维度的角度看来，由于密度的丢失，它也就在物质上变得不稳稳定了。 我现在明白了，谢谢我与另一个存有，拜伦也在沟通。我被告知你们会转换到更高维度来实现更快速的远距离航行。 是的，这是正确的阻力，会由于更高维度的频率而减少，可以使我们行驶时的摩擦更小，因此在更高的维度上能够更快的行进，这对航行时间的节省是非常显著的。
 
 A:Yes,that is true.It is even easier to translate in the vicinity of these natural portals because they are areas of instability. 
 
@@ -10659,7 +10702,7 @@ NS:That is good.We like working with you.
 
 ME:Do you use the energy vortices here much?
 
-我：你们经常在这里利用能量漩涡吗？在我的花园里，我注意到有一些能量线一些小的地脉，他们在地表形成漩涡一直都用，但那些能够接入地球能量的人类使用的最好。 那些人能为地球做很多好事，并且能提升地球的频率。 他们是怎么做的？他们让自己成为宇宙能量的天线，将能量传到地球上，供地球本身和其他与地球合作的存有使用。 所以除了自然精灵，还有其他存友在与地球合作。是的，下次你与我们连接时，我们会给你看他们是谁。
+我：你们经常在这里利用能量漩涡吗？在我的花园里，我注意到有一些能量线一些小的地脉，他们在地表形成漩涡一直都用，但那些能够接入地球能量的人类使用的最好。 那些人能为地球做很多好事，并且能提升地球的频率。 他们是怎么做的？他们让自己成为宇宙能量的天线，将能量传到地球上，供地球本身和其他与地球合作的存有使用。 所以除了自然精灵，还有其他存有在与地球合作。是的，下次你与我们连接时，我们会给你看他们是谁。
 
 I had noticed that there were energy lines,small ley lines,in our garden and that these came to the surface as vortices. 
 
@@ -10721,7 +10764,7 @@ O:They experience life without complication,without striving,without greed,witho
 
 SE:Animals are an integral part of the spiritual biosphere of the Earth.They form a function of tending to the needs of the Earth in certain ways,rather like nature spirits.They work on the more physical levels of the Earth,those that the nature spirits have difficulty with due to their level of frequency. 
 
-源实体：动物是地球整体灵性生物圈的重要部分。 他们的功能是通过一些特殊的方式照顾地球所需与自然精灵，有些类似他们的工作更多属于地球的物质层面。 而自然精灵，由于频率的关系比较难做到这一点。但他们对我们而言，似乎只是动物好像并没有做什么特别的事。 那是因为你们无法看到自己所体验的层面之外，如果没有动物为地球所做的一切。 那么灵性生物圈将会比现在更为污浊动物们清理并调整那些最低频率的能量为人类目前对地球的照顾不周做出补偿。 所以动物本质上是光之工作者。是的，而人类却意识不到这一点，动物界所做的一切都是为了地球及其高等居民，也就是人类的利益。 你们只是认识不到罢了。以昆虫界为例，你们能够认识到昆虫在其微小层面中所尽的责任。 但你们却完全忽略了较大动物所做的事，只因为他们和你们的体型结构是如此的。 接近。此外，动物们本身也是一种灵性体。你的意思是说，他们类似于人类的灵性体不是的，他们不在同一个层级里。 你记得在我们一开始的对话里，我曾经提到，当我将自我分出来，你创造出所有你们的时候，我同时也创造了一些不太一样的实体。 这是因为当我在创造所有你们的时候，能量分配并不一致。 动物们是有觉知的实体，但和人类的觉知层次不同。如果这些实体与人类合作一段时间，当然也可以往上移动到和你们一样的层级，这种情形不多，但也有足够的实体，即将进入人类的能量层级，或是已有这种能力。 这纯粹是他们与所爱的人类持续互动的结果，会因为人类爱它们，所以要求他们一起转世。 同理，在另一层面上，植物与矿物灵也能够提升频率进入下一层级。 只不过对他们而言，要困难，许多可能需要好几千年才能达到这些，取决于他们与高于自己的存友互动的水平，以及与高频存有接触的机会多少？ 只有与高频存有之间规律，甚至持续的互动，才能帮助他们在频率上往前或往上移动。 所以这种本身作为一个存友，与所有这些时体在合作。当然是的，行星在宇宙中也扮演着其他的角色。 因为他们所在的环境需要许多所谓的家务工作才能使环境有序正常的运作。 他们擅长清扫杂乱能量及同时存在于物质或灵性频率的，没有明确关联的能量，并为这种能量提供一种位置或连接的原点，给予它一个方向和目的一切能量都应有一个目的，以有什么能比成为为行星的一部分更好呢？ 因为行星从多元维度来看，它是一个较大的实体，目的是维持宇宙的平衡。 人类目前拥有的绝佳机会与动物植物与人物共同合作。 他支援吸引你们的星球之所需，因为所有的存友都会被那些最能在合作中他助自己进化的星球所吸引，即便动物与人类相比较为简单，但某种程度上他们更靠精神，因为他们投胎时的行为与意愿是纯粹的。 你们应该把动物们视为人类的朋友与帮手，因为他们的确也是这样的，他们存在于这个环境的目的，就是为了帮助你们进化并回到源头，他们做这些工作，而不求回报。 他们只是为你们服务，他果有动物，有机会进化到人类的能量级别。 对他们来说就是一种极大的荣幸，因为他们的天然本性不会怀着在与人类合作时能跳跃至更高层层级这样的秘密。 期待从这方面来看，他们太纯洁了，因为没有被人类创造的低频腐化，而正是人类试图改善自身，却毫不顾及对周围存有或环境影响的行为。 正如了这些低频能量，动物，不会对环境造成不利，他们与环境合作，就连蝗虫也是。 正如我先前说过的，所有的动物都有特定工具，他们为了环境而工作，并非为了自己，他们会这么做，是因为他们无法以这种方式去思考，结果是他们的思想和行为都发自内心而尽自己拥有的物质工具所能来提供最好的服务，他们也有能量性工具。 他以人类一无所知，意识不到的方式，在与地球及宇宙保持和谐的状态下使用这些工具。 如果人类足够觉察能意识到动物们在幕后为他们所做的一切是多么重要。 他们将会谦逊的去改变自己。他们将不会再用同样的方式去对待动物和这个世界。 动物界经常为了人类的利益牺牲自己，而人类却不屑一顾，是正是这一切的时候了。
+源实体：动物是地球整体灵性生物圈的重要部分。 他们的功能是通过一些特殊的方式照顾地球所需与自然精灵，有些类似他们的工作更多属于地球的物质层面。 而自然精灵，由于频率的关系比较难做到这一点。但他们对我们而言，似乎只是动物好像并没有做什么特别的事。 那是因为你们无法看到自己所体验的层面之外，如果没有动物为地球所做的一切。 那么灵性生物圈将会比现在更为污浊动物们清理并调整那些最低频率的能量为人类目前对地球的照顾不周做出补偿。 所以动物本质上是光之工作者。是的，而人类却意识不到这一点，动物界所做的一切都是为了地球及其高等居民，也就是人类的利益。 你们只是认识不到罢了。以昆虫界为例，你们能够认识到昆虫在其微小层面中所尽的责任。 但你们却完全忽略了较大动物所做的事，只因为他们和你们的体型结构是如此的。 接近。此外，动物们本身也是一种灵性体。你的意思是说，他们类似于人类的灵性体不是的，他们不在同一个层级里。 你记得在我们一开始的对话里，我曾经提到，当我将自我分出来，你创造出所有你们的时候，我同时也创造了一些不太一样的实体。 这是因为当我在创造所有你们的时候，能量分配并不一致。 动物们是有觉知的实体，但和人类的觉知层次不同。如果这些实体与人类合作一段时间，当然也可以往上移动到和你们一样的层级，这种情形不多，但也有足够的实体，即将进入人类的能量层级，或是已有这种能力。 这纯粹是他们与所爱的人类持续互动的结果，会因为人类爱它们，所以要求他们一起转世。 同理，在另一层面上，植物与矿物灵也能够提升频率进入下一层级。 只不过对他们而言，要困难，许多可能需要好几千年才能达到这些，取决于他们与高于自己的存有互动的水平，以及与高频存有接触的机会多少？ 只有与高频存有之间规律，甚至持续的互动，才能帮助他们在频率上往前或往上移动。 所以这种本身作为一个存有，与所有这些时体在合作。当然是的，行星在宇宙中也扮演着其他的角色。 因为他们所在的环境需要许多所谓的家务工作才能使环境有序正常的运作。 他们擅长清扫杂乱能量及同时存在于物质或灵性频率的，没有明确关联的能量，并为这种能量提供一种位置或连接的原点，给予它一个方向和目的一切能量都应有一个目的，以有什么能比成为为行星的一部分更好呢？ 因为行星从多元维度来看，它是一个较大的实体，目的是维持宇宙的平衡。 人类目前拥有的绝佳机会与动物植物与人物共同合作。 他支援吸引你们的星球之所需，因为所有的存有都会被那些最能在合作中他助自己进化的星球所吸引，即便动物与人类相比较为简单，但某种程度上他们更靠精神，因为他们投胎时的行为与意愿是纯粹的。 你们应该把动物们视为人类的朋友与帮手，因为他们的确也是这样的，他们存在于这个环境的目的，就是为了帮助你们进化并回到源头，他们做这些工作，而不求回报。 他们只是为你们服务，他果有动物，有机会进化到人类的能量级别。 对他们来说就是一种极大的荣幸，因为他们的天然本性不会怀着在与人类合作时能跳跃至更高层层级这样的秘密。 期待从这方面来看，他们太纯洁了，因为没有被人类创造的低频腐化，而正是人类试图改善自身，却毫不顾及对周围存有或环境影响的行为。 正如了这些低频能量，动物，不会对环境造成不利，他们与环境合作，就连蝗虫也是。 正如我先前说过的，所有的动物都有特定工具，他们为了环境而工作，并非为了自己，他们会这么做，是因为他们无法以这种方式去思考，结果是他们的思想和行为都发自内心而尽自己拥有的物质工具所能来提供最好的服务，他们也有能量性工具。 他以人类一无所知，意识不到的方式，在与地球及宇宙保持和谐的状态下使用这些工具。 如果人类足够觉察能意识到动物们在幕后为他们所做的一切是多么重要。 他们将会谦逊的去改变自己。他们将不会再用同样的方式去对待动物和这个世界。 动物界经常为了人类的利益牺牲自己，而人类却不屑一顾，是正是这一切的时候了。
 
 ME:But they appear just as animals to us and don't appear to do anything special.
 
@@ -10765,7 +10808,7 @@ Even though the animals are a simpler entity than the human entity they are in s
 
 ME:I was pondering on what a wonderful life the old Greeks must have had working on the land and being in tune with the seasons that nature has given us. 
 
-我：我在讲古希腊人在大地上劳作顺应大自然赐予我们的四季。 这种生活是多么的美好。请记住这是一个很重要的思考方式。 比如，在当今时代，被认真看待的事情，能否维系世界的平衡，取决于人类是否与大自然配合。 比如当你们以可持续的方式，所否利用世林的时候，如果人类能够视他为一种良好的工作模式，所有工业带来的损害都将消除。 还有一种可选的现代做法，可以实现这个目的，即人类远离世界，或是到地底下生活这么做，可让地球表面回到自然状态。 如果人类能够以无污染的农业方式照料，地球也会让地球维持平衡，人类与大自然密不可分。 人类所做的每件事对大自然都会有影响。而自然界所发生的一切，也对人类有影响。 如木动物物海洋岩石大气以及磁场地球灰光场都对人类有影响，也都受到人类的影响。 自然精灵与树木和森林对人类破坏了大部分的森林，人遍漠视大自然的情形感到很失望。 如果人类能够遵从自然法，则生活通过发明与大自然互补的科技。 比如利用风海洋或太阳能等可持续发展的能源，而不是通过斗争和污染的方式，人类将会进化的快。 很多科技的目的是帮助你们进步，减轻你们的日常工作负担，但不要让它引领你们走向自我毁灭。 如果使用得到科技，会使你们更能在自然法则下工作得到灵性的成长。 人类不仅和地球的大自然链接，也和宇宙层级里的大自然链接。 事实上，自然是源实体，也就是我或神的一部分，因此自然存在于任何时间。 一切宇宙星系中的所有地方。因此，我们在地球所做的事，对整个宇宙处处都有影响，不难想象会有其他存友。 对于你们在地球上的行为感到忧虑，你们与各星球太阳系迎合及各宇宙中各个自然界连习你们的每个部分都和其他地方相互依赖，彼此影响，因此与大自然连接，可以让你们和宇宙链接，并与神或者说起源，真正的我们交流这个时代，我们最好相谁学习，他们可以跟巫师和女巫们学习，他们仍然存在，只是不再带尖尖的巫师帽或其扫帚，他们是懂得如何运用大自然的人类，他们知道一切能治疗疾病和辅助冥想的药草和植物。 他们也知道如何看到能量使用能量进行疗愈操纵物质和使用炼金术，包括其他更高的功能。 他们也能看到自然精灵与之交谈，在自然中与去合作。 基本上他们是自己环境的主人，因为他们完全了解宇宙及其运作模式。 所谓现代人类可以向他们学到很多东西。
+我：我在讲古希腊人在大地上劳作顺应大自然赐予我们的四季。 这种生活是多么的美好。请记住这是一个很重要的思考方式。 比如，在当今时代，被认真看待的事情，能否维系世界的平衡，取决于人类是否与大自然配合。 比如当你们以可持续的方式，所否利用世林的时候，如果人类能够视他为一种良好的工作模式，所有工业带来的损害都将消除。 还有一种可选的现代做法，可以实现这个目的，即人类远离世界，或是到地底下生活这么做，可让地球表面回到自然状态。 如果人类能够以无污染的农业方式照料，地球也会让地球维持平衡，人类与大自然密不可分。 人类所做的每件事对大自然都会有影响。而自然界所发生的一切，也对人类有影响。 如木动物物海洋岩石大气以及磁场地球灰光场都对人类有影响，也都受到人类的影响。 自然精灵与树木和森林对人类破坏了大部分的森林，人遍漠视大自然的情形感到很失望。 如果人类能够遵从自然法，则生活通过发明与大自然互补的科技。 比如利用风海洋或太阳能等可持续发展的能源，而不是通过斗争和污染的方式，人类将会进化的快。 很多科技的目的是帮助你们进步，减轻你们的日常工作负担，但不要让它引领你们走向自我毁灭。 如果使用得到科技，会使你们更能在自然法则下工作得到灵性的成长。 人类不仅和地球的大自然链接，也和宇宙层级里的大自然链接。 事实上，自然是源实体，也就是我或神的一部分，因此自然存在于任何时间。 一切宇宙星系中的所有地方。因此，我们在地球所做的事，对整个宇宙处处都有影响，不难想象会有其他存有。 对于你们在地球上的行为感到忧虑，你们与各星球太阳系迎合及各宇宙中各个自然界连习你们的每个部分都和其他地方相互依赖，彼此影响，因此与大自然连接，可以让你们和宇宙链接，并与神或者说起源，真正的我们交流这个时代，我们最好相谁学习，他们可以跟巫师和女巫们学习，他们仍然存在，只是不再带尖尖的巫师帽或其扫帚，他们是懂得如何运用大自然的人类，他们知道一切能治疗疾病和辅助冥想的药草和植物。 他们也知道如何看到能量使用能量进行疗愈操纵物质和使用炼金术，包括其他更高的功能。 他们也能看到自然精灵与之交谈，在自然中与去合作。 基本上他们是自己环境的主人，因为他们完全了解宇宙及其运作模式。 所谓现代人类可以向他们学到很多东西。
 
 SE:Listen,this is an important thought process and one that needs serious consideration in this day and age.The world balance would be maintained if man worked together with nature,such as when you worked in harmony with the forests in a sustainable way.If man could see this as a good way of working,then all of the damage caused by industry could be undone.A modern way of doing this would be for man to live either off world or underground.This would leave the Earth to return to its natural ways on the surface.If man could even tend the earth in the agricultural ways without using pollutants,it would maintain the balance. 
 
@@ -11051,7 +11094,7 @@ ME:So what does that mean in terms of following universal law?
 
 O:It means that if you follow and work with universal laws,you don't need much work to achieve what you want.In the case of the NASA space program,they are fighting nature;therefore,the more they fight nature to achieve what they need,the more energy they have to generate to achieve what they want to achieve-hence,the huge machines needed to get into space versus the small machine that Routan designed. The greater the power used,the greater the resistance and the greater the power needed to go faster.This resistance is manifested as friction,resulting in heat in your dimension.This is also correct for movement through space at near light speeds. Your physicists have already noted that there is resistance incurred even in the near vacuum of space.This resistance results in a bow wave and an increase in mass in the ship that is associated by location of the ship to the bow wave.This results in more energy being required to accelerate from the current speed to that closer to and above the speed of light. 
 
-起源：这表示，如果你遵守并按照宇宙法则做事，你便可达到事半功倍的效果，以美国太空总署的太空计划为例，他们总是与大自然对抗，因此越是对抗自然以图达到他们所求，达到他们目的所消耗的能量也越多。 因此，相比如坦设计的小畸型，他们需要巨大的机器来进入太空中，所需动力越大，产生的阻力越大，就需要更大的动力来加速摩擦是阻力的表现在你们的维度导致摩擦升温，就接近光速，穿越太空的运动也是一样。 你们的物理学家也注意到，即便在几近真空的外太空也有阻力的产生阻力，会导致首波的产生，进而使太空船相对首波位置的船身质量增加，使得需要更多的能量，才能从当下的速度加到接近或超越光的速度，利用维度转换的方法进行远距离移动也是如此。 在物质界或亚物质界的许多其他物质或半物质实体位置介于一个维度和下个维度之间的层级。 他们运用的是协同作用来配合宇宙法则，因此不会因对抗大自然而导致能量损失。 我看到一幅画面就是一个人试图用错误的方式打开一扇门进去，他打不开。 然而当他以正确的方式打开门时，他就能搜的一下进去了。就是这样，这个开门的例子清楚的说明了要宇宙法则对抗的结果。 在你想象的画面中，他必须退回去开门，才能让他前进穿过门户，这正好是美国太空计划所发生的状况。 事实上，他们的方法类似用斧头打破一道门进去，这是一个很好的例子，显示了要克服自然宇宙法则需要大量能量，反之，配合自然法则去从事活动，用很小的能量就能做到。
+起源：这表示，如果你遵守并按照宇宙法则做事，你便可达到事半功倍的效果，以美国太空总署的太空计划为例，他们总是与大自然对抗，因此越是对抗自然以图达到他们所求，达到他们目的所消耗的能量也越多。 因此，相比如坦设计的小畸型，他们需要巨大的机器来进入太空中，所需动力越大，产生的阻力越大，就需要更大的动力来加速摩擦是阻力的表现在你们的维度导致摩擦升温，就接近光速，穿越太空的运动也是一样。 你们的物理学家也注意到，即便在几近真空的外太空也有阻力的产生阻力，会导致头波的产生，进而使太空船相对头波位置的船身质量增加，使得需要更多的能量，才能从当下的速度加到接近或超越光的速度，利用维度转换的方法进行远距离移动也是如此。 在物质界或亚物质界的许多其他物质或半物质实体位置介于一个维度和下个维度之间的层级。 他们运用的是协同作用来配合宇宙法则，因此不会因对抗大自然而导致能量损失。 我看到一幅画面就是一个人试图用错误的方式打开一扇门进去，他打不开。 然而当他以正确的方式打开门时，他就能搜的一下进去了。就是这样，这个开门的例子清楚的说明了要宇宙法则对抗的结果。 在你想象的画面中，他必须退回去开门，才能让他前进穿过门户，这正好是美国太空计划所发生的状况。 事实上，他们的方法类似用斧头打破一道门进去，这是一个很好的例子，显示了要克服自然宇宙法则需要大量能量，反之，配合自然法则去从事活动，用很小的能量就能做到。
 
 This is the same for moving large distances by using dimensional shift methods.A lot of the other physical or semi-physical entities in the physical and sub-physical universe(the level between this dimension and the next one up)use synergistic methods to work with the universal laws and,therefore,do not incur the energy penalties incurred by going against nature. 
 
@@ -11179,7 +11222,7 @@ SE:What power?
 
 ME:Just our power. 
 
-我：就是我们的力量。知识本身就是力量，返回真正的知识与觉知就是力量。 因此回归灵体就是力量。当你处于最强能量状态灵体的状态时，你才真正拥有力量。 那时你能随意掌控所有的元素，即便是宇宙本身，但不要把这认为是有能力创造或摧毁星球，把它想成是回归到对自己的控制，回归自我，再度成为整体和宇宙成为一体。 当你在灵体状态时，你的知识库的扩容会远远超乎想象。因为你们已经有漫长的处于化身和能量之中的经验。 同样的我所创造的其他生命体有些选择比其他的生命体化身的更早，因此进化的更快。 除此之外，你还有所有受造实体，其他原实体及我的联合知识及你自身经验可供利用。 有了这些联合知识，你可以汲取他人状态，来注意自身的体验。 此处你真正的力量是指基于先前经验独立做决定的能力。 无论这个经验是否单独属于你个人，对于我们身处物质界来说，活在我们的力量中，究竟有什么用，它会带给你延续。 此前从未拥有过的信心。如果你对一项成果有信心，即便他并非你理想预期中的样子，也依然是成功的，主要目标是真正去体验一个事件，而不适于评判。 其结果认为某种方式是我想要的另一种方式可能不合心愿。 如果预设结果就是使一个事件的结果，南辕北辙使得个体无法全然体会他的体验大体上，你们在生理上越老会越有觉察，因此也变得更有力量。 唯一需要注意的是，你们要让自己有时间去体验这种转变。如果一听发生在你周遭的真相，因为这种时候真的非常激动人心。 你们正在为一个能量体所能做到的最困难的是之一，为了他的进化而下降到最低频率而获得回报。 回报就是在地球实现天堂及身处最低频率的同时，却拥有处于较高能量震动层级里的知识理解和经验。
+我：就是我们的力量。知识本身就是力量，返回真正的知识与觉知就是力量。 因此回归灵体就是力量。当你处于最强能量状态灵体的状态时，你才真正拥有力量。 那时你能随意掌控所有的元素，即便是宇宙本身，但不要把这认为是有能力创造或摧毁星球，把它想成是回归到对自己的控制，回归自我，再度成为整体和宇宙成为一体。 当你在灵体状态时，你的知识库的扩容会远远超乎想象。因为你们已经有漫长的处于化身和能量之中的经验。 同样的我所创造的其他生命体有些选择比其他的生命体化身的更早，因此进化的更快。 除此之外，你还有所有受造实体，其他源实体及我的联合知识及你自身经验可供利用。 有了这些联合知识，你可以汲取他人状态，来注意自身的体验。 此处你真正的力量是指基于先前经验独立做决定的能力。 无论这个经验是否单独属于你个人，对于我们身处物质界来说，活在我们的力量中，究竟有什么用，它会带给你延续。 此前从未拥有过的信心。如果你对一项成果有信心，即便他并非你理想预期中的样子，也依然是成功的，主要目标是真正去体验一个事件，而不适于评判。 其结果认为某种方式是我想要的另一种方式可能不合心愿。 如果预设结果就是使一个事件的结果，南辕北辙使得个体无法全然体会他的体验大体上，你们在生理上越老会越有觉察，因此也变得更有力量。 唯一需要注意的是，你们要让自己有时间去体验这种转变。如果一听发生在你周遭的真相，因为这种时候真的非常激动人心。 你们正在为一个能量体所能做到的最困难的是之一，为了他的进化而下降到最低频率而获得回报。 回报就是在地球实现天堂及身处最低频率的同时，却拥有处于较高能量震动层级里的知识理解和经验。
 
 SE:Knowledge is power,and the return to true knowledge and awareness is power. Therefore,the return to Spirit is power.You are only truly in your power when you are in your most energetic state,Spirit.Then you are in control of all of the elements at your disposal,even the universe itself,but don't think of it as being the ability to create and destroy planets.Think of it in terms of being back in control of yourself,of being back with yourself,being whole once again,being whole with the universe.Your knowledge base increases beyond your wildest dreams when you are in Spirit,for you have many millennia in which you have been incarnate and in energetic existence. So have all the others that I created,although some chose to incarnate well before others and have,therefore,evolved faster.On top of this,you have access to all of the combined knowledge of the created entities,the other Source Entities,and Me to draw upon,as well as your own experiences.With this combined knowledge you can draw strength from the experience of others to help you through your own experiences. Your true power here is the ability to make decisions in isolation based upon previous experience,whether it is solely yours or not. 
 
@@ -11217,7 +11260,7 @@ ME:So does this mean that we as physical humans don't invent anything?
 
 SE:There is no invention made by man that is not the result of divine inspiration.In spiritual terms,this means that it is channeled to the individual from the spiritual realms. Anyone who thinks that this is not the case is under the spell of the greatest illusion of all:life in the physical.The trick is to work with the physical and some of the creature comforts that present themselves without being taken in by the physical as reality,i.e., not making it your God. 
 
-源实体：所有人类的发明无一不是神圣灵感所产生的结果。 灵性上的说法是灵感都是从灵性世界传导到个体的不认同。 这种说法的人便困于最大的幻觉中及物质界生活最好的做法是与物质界和眼前的一些物质享受共处，但不把物质界当成真相，也就是不把它当成是你的神，让我来告诉你一件事，起源创造了源实体。 接着我又创造了你们，你们都是按照我们的形象而被创造出来的。 这并不是说你们被创造成现在所见的物质人形，而是说你们都是能量体的缩影，你们都被赋予了起源和我的一切能力。 但你们要知道，只有与你们所创造出来，身处的宇宙配合之下，才能充分发挥这些能力。 如此一来，你们与神起源和他最初的造物及原实体，也也就是我都是平等的。 有了这一实，像你们何必将自己限制在更小的现实当中。而你们本可以仅仅通过张开眼睛，就能在地球上达到天堂和实像真正的连通。 所以为什么你们在地球上浪费这么多的时间起源创造你我皆是出于他的喜悦，以及增加他的自我体验的需要。 如果起源对其他原实体和我创造的宇宙中的一切开始感到无聊的话，大可以就职打住。 而重新开始，但无论是他还是我们都没有认为到了这个程度，也更没有必要重新开始。 我们觉得游戏已经进行到了最有意思的一部分，最终的真相超越幻象。 他们中到处有像你们这样的个体，帮助他人去探索他们存在的意义。 这样做，他们让自己更深层的去探索自己的信仰，进一步加深他们的理解。 他们也同样在个人进化的道路大步向前，接着把这种经验传给那些需要帮助和指导的人，在人们初期步履蹒跚的时候，引导他们去了解真相，让他们更接近内在的神，以及他们内在的力量，一种无所不能的力量，只要他们自己敞开胸怀，并相信表面上似乎难以理解的实相。 实际上他们都很有力量，而且只要他们遵守宇宙法则，为了他人利益做事就能击杀成塔。 因为这原本就是由他们所支配的力量。
+源实体：所有人类的发明无一不是神圣灵感所产生的结果。 灵性上的说法是灵感都是从灵性世界传导到个体的不认同。 这种说法的人便困于最大的幻觉中及物质界生活最好的做法是与物质界和眼前的一些物质享受共处，但不把物质界当成真相，也就是不把它当成是你的神，让我来告诉你一件事，起源创造了源实体。 接着我又创造了你们，你们都是按照我们的形象而被创造出来的。 这并不是说你们被创造成现在所见的物质人形，而是说你们都是能量体的缩影，你们都被赋予了起源和我的一切能力。 但你们要知道，只有与你们所创造出来，身处的宇宙配合之下，才能充分发挥这些能力。 如此一来，你们与神起源和他最初的造物及源实体，也也就是我都是平等的。 有了这一实，像你们何必将自己限制在更小的现实当中。而你们本可以仅仅通过张开眼睛，就能在地球上达到天堂和实像真正的连通。 所以为什么你们在地球上浪费这么多的时间起源创造你我皆是出于他的喜悦，以及增加他的自我体验的需要。 如果起源对其他源实体和我创造的宇宙中的一切开始感到无聊的话，大可以就职打住。 而重新开始，但无论是他还是我们都没有认为到了这个程度，也更没有必要重新开始。 我们觉得游戏已经进行到了最有意思的一部分，最终的真相超越幻相。 他们中到处有像你们这样的个体，帮助他人去探索他们存在的意义。 这样做，他们让自己更深层的去探索自己的信仰，进一步加深他们的理解。 他们也同样在个人进化的道路大步向前，接着把这种经验传给那些需要帮助和指导的人，在人们初期步履蹒跚的时候，引导他们去了解真相，让他们更接近内在的神，以及他们内在的力量，一种无所不能的力量，只要他们自己敞开胸怀，并相信表面上似乎难以理解的实相。 实际上他们都很有力量，而且只要他们遵守宇宙法则，为了他人利益做事就能击杀成塔。 因为这原本就是由他们所支配的力量。
 
 Let Me tell you something.When the Origin made the Source Entities and I subsequently made you,you were all made in our image.That is not to say that you were all made to look like what you perceive now as physical man.You are a microcosm of the energetic. You were given all of the abilities that the Origin and I have at hand,but with the understanding that you can use them to their fullest conclusion within their context, the universe that you were created to work within.In this way,you are equal to God,the Origin,and its first creations,the Source Entities,Me.With this as the real reality,why would you want to restrict yourself to this lesser existence when you can achieve heaven (reality and total connectedness)on Earth by simply allowing your eyes to be opened?So why do all of you waste your time on Earth so much? 
 
@@ -12153,7 +12196,7 @@ Over the days or weeks,slowly progress to higher and higher levels(keeping in mi
 
 **术语表**
 
-次星汽油一种高星玩质汽油巴卡西记录，每个人类行为及后续进化事件的过去未来所有记录埃伯里和基尔马星体一英国的的两个系统黑洞在物质上是局部重力密度的一个区域，在灵性上是一个稳定维度引力区域是维度中的维度脉轮，人体内的能量中心，不同的脉轮构成了人体的能量系统。 星核哈拉或星核基本上同意。但星核星量或灵体或转转能量的的灵系性平率印记及以及人的根根本目。 星星和明响一种进星影响的一样，主要是透过哈拉或星体与我们的高额系统去了解个人人的生命系化星图或转世使命能量层级每一层层级之间的距离，与人体明层不同，层级之间的频率差距一样。 格式塔完形星智，一些个体形成的一个集体，彼此共享同一星智功能。 例如蚂蚁蚁树木以及及宇宙间其他以能量为基础的生命哈拉与实体的转世部分相联系的力量或能量哈拉线转世个体的能量与物质地球之间的连接。 这条纽带能让我们存活于物质界，切断这条能量线便等于切断了哈拉与物质界的连接，从而导致物理死亡。 人体辉光场与人体物质与星光体部分有关的能量场气场。多位宇宙一个含有万千个宇宙的环境灵性和物质的肉体与心灵相会交融的层级丹田在肉体微光场内是哈拉线上一个重要的中心，心灵智斗，使用纯粹思想的力量，将一个物体或人抬升起来，瞬间移动在变换位置的过程中，有能力分解机体并予以重组，嗯，以能量为基础，但未在地球化身的存有源实体。 我们所称的神是我们多维宇宙的创造者，起源是十二个原实体的创造者。 十二个原实体界存在于起源之中。起源是更宏大的神纯粹分粹能量和一一切的开始
+次星汽油一种高星玩质汽油巴卡西记录，每个人类行为及后续进化事件的过去未来所有记录埃伯里和基尔马星体一英国的的两个系统黑洞在物质上是局部重力密度的一个区域，在灵性上是一个稳定维度引力区域是维度中的维度脉轮，人体内的能量中心，不同的脉轮构成了人体的能量系统。 星核哈拉或星核基本上同意。但星核星量或灵体或转转能量的的灵系性平率印记及以及人的根根本目。 星星和明响一种进星影响的一样，主要是透过哈拉或星体与我们的高额系统去了解个人人的生命系化星图或转世使命能量层级每一层层级之间的距离，与人体明层不同，层级之间的频率差距一样。 格式塔完形星智，一些个体形成的一个集体，彼此共享同一星智功能。 例如蚂蚁蚁树木以及及宇宙间其他以能量为基础的生命哈拉与实体的转世部分相联系的力量或能量哈拉线转世个体的能量与物质地球之间的连接。 这条纽带能让我们存活于物质界，切断这条能量线便等于切断了哈拉与物质界的连接，从而导致物理死亡。 人体辉光场与人体物质与星光体部分有关的能量场气场。多位宇宙一个含有万千个宇宙的环境灵性和物质的肉体与心灵相会交融的层级丹田在肉体微光场内是哈拉线上一个重要的中心，心灵智斗，使用纯粹思想的力量，将一个物体或人抬升起来，瞬间移动在变换位置的过程中，有能力分解机体并予以重组，嗯，以能量为基础，但未在地球化身的存有源实体。 我们所称的神是我们多维宇宙的创造者，起源是十二个源实体的创造者。 十二个源实体界存在于起源之中。起源是更宏大的神纯粹分粹能量和一一切的开始
 
 **"Out for a Golden Duck"** - a saying in Cricket when you have been bowled out on your very first bowl of the ball in your first over of a match.In the conversation with Byron I expected to know everything about "time."As soon as Byron stated that time was spherical (in his first sentence on the subject),all of my pre-conceived knowledge was rendered meaningless. 
 

@@ -4,11 +4,40 @@
 
 书名|其他版本|英文原版
 ---|---|---
-[《前世今生》](https://book.douban.com/subject/2139687/)|[《前世今生》](https://book.douban.com/subject/3327830/)|[《Many Lives, Many Masters》](https://www.amazon.com/dp/0671657860)（1988）
-[《生命輪迴》](https://book.douban.com/subject/2278308/)|[《生命輪迴》](https://book.douban.com/subject/1335301/)|[《Through Time Into Healing》](https://www.amazon.com/dp/0671867865/)（1993）
-[《返璞歸真》](https://book.douban.com/subject/27052543/)|[《返璞归真》](https://book.douban.com/subject/3377058/)<br>[《爱是唯一的真相》](https://book.douban.com/subject/26873207/)<br>[《前世今生愛未央》](https://book.douban.com/subject/26940226/)|[《Only Love Is Real》](https://www.amazon.com/dp/0446672653/)（1997）
-[《前世今生之回到當下》](https://book.douban.com/subject/1332027/)|[《穿越时空的心理治疗》](https://book.douban.com/subject/5936423/)|[《Messages from the Masters》](https://www.amazon.com/dp/B01BRUX0WQ)（2001）
-[《前世今生來生緣》](https://book.douban.com/subject/2088773/)|[《轮回》](https://book.douban.com/subject/6714584/)|[《Same Soul, Many Bodies》](https://www.amazon.com/dp/0743264347)（2005）
+[《前世今生》](https://book.douban.com/subject/2139687/)|[《前世今生》](https://book.douban.com/subject/3327830/)|[Many Lives, Many Masters](https://www.amazon.com/dp/0671657860)（1988）
+[《生命輪迴》](https://book.douban.com/subject/2278308/)|[《生命輪迴》](https://book.douban.com/subject/1335301/)|[Through Time Into Healing](https://www.amazon.com/dp/0671867865/)（1993）
+[《返璞歸真》](https://book.douban.com/subject/27052543/)|[《返璞归真》](https://book.douban.com/subject/3377058/)<br>[《爱是唯一的真相》](https://book.douban.com/subject/26873207/)<br>[《前世今生愛未央》](https://book.douban.com/subject/26940226/)|[Only Love Is Real](https://www.amazon.com/dp/0446672653/)（1997）
+[《前世今生之回到當下》](https://book.douban.com/subject/1332027/)|[《穿越时空的心理治疗》](https://book.douban.com/subject/5936423/)|[Messages from the Masters](https://www.amazon.com/dp/B01BRUX0WQ)（2001）
+[《前世今生來生緣》](https://book.douban.com/subject/2088773/)|[《轮回》](https://book.douban.com/subject/6714584/)|[Same Soul, Many Bodies](https://www.amazon.com/dp/0743264347)（2005）
+
+## 深入研究
+
+### 朵洛莉丝·侃南的书籍
+
+- Five Lives Remembered（2009）《五世回忆》
+- A Soul Remembers Hiroshima（2020）《魂忆广岛》
+- Between Death and Life: Conversations with a Spirit (Updated and Revised)（2013）《生死之间》
+- KEEPERS of the GARDEN: Most Recent Edition 2021（2018）《地球守护者》
+- Custodians: Beyond Abduction（1998）《监护人：超越外星绑架案（上、下）》
+- Three Waves of Volunteers and the New Earth（2011）《三波志愿者与新地球》
+- Search For Hidden Sacred Knowledge（2015）《探尋神聖知識的旅程：從未失落的光明(上、下)》
+- The Convoluted Universe: Book 1（2001）《回旋宇宙序曲》《回旋宇宙1》
+- The Convoluted Universe, Book 2（2007）《回旋宇宙2（上、中、下）》
+- The Convoluted Universe, Book 3（2008）《迴旋宇宙３（上）》
+- The Convoluted Universe: Book 4（2011）**回旋宇宙4**
+- The Convoluted Universe: Book 5（2015）**回旋宇宙5**
+- Legend of Starcrash（1994）**坠星传奇**
+- Legacy from the Stars（1996）**星之遗产**
+- Conversations With Nostradamus: His Prophecies Explained, Volume 1 (Revised Edition & Addendum 2001)（1997）**对话诺查丹马斯1**
+- Conversations with Nostradamus: His Prophecies Explained, Volume 2 (Revised & Addendum)（1997）**对话诺查丹马斯2**
+- Conversations with Nostradamus: His Prophecies Explained, Volume 3（1994）**对话诺查丹马斯3**
+- Jesus and the Essenes（1999）**耶稣与艾赛尼**
+- They Walked with Jesus: Past Life Experiences with Christ（2011）**与耶稣同行—与基督的前世经历**
+- Kosmiczni ogrodnicy（2000）
+- Conversation with a Spirit（2006）
+- Sri Sathya Sai Baba & the Golden Age: The Fourth Dimension That Will Change the World（2006）
+- A Very Special Friend（2022）
+- Horns of the Goddess（2023）
 
 ## 道家经典
 
