@@ -9494,27 +9494,29 @@ A:This was not a space ship as you were expecting but a construct to allow us to
 
 **人类是独立运作体而非集体运作体**
 
-We are most interested in the differing of opinions you have individually on this,as this is something alien to us and is a result of your gifts of individual choice.This is a very rare level of functionality,for most physical beings operate in a collective basis.In this mode of operation what one does,one does for the benefit of the whole and on behalf of the whole,not for the benefit of the self or on behalf of the self.Being of service to the whole is the way of the universe as a whole,including all the dimensional and frequential states and universes that are part of the Source Entity.It is by way of individuality that the individual entity eventually realizes this,for selfishness is counterproductive to the evolution of the collective and the individual. 
+A:We are most interested in the differing of opinions you have individually on this,as this is something alien to us and is a result of your gifts of individual choice.This is a very rare level of functionality,for most physical beings operate in a collective basis.In this mode of operation what one does,one does for the benefit of the whole and on behalf of the whole,not for the benefit of the self or on behalf of the self.Being of service to the whole is the way of the universe as a whole,including all the dimensional and frequential states and universes that are part of the Source Entity.It is by way of individuality that the individual entity eventually realizes this,for selfishness is counterproductive to the evolution of the collective and the individual. 
 
-我们最感兴趣的是，你们在一个问题上的不同意见，因为这对我们来说是陌生的这是由于你们具有独立选择的天赋，这是一种非常罕见的功能，因为大多数物质存有都是集体运作的。 在这种运作模式下，个体形式是为了整体利益，并且代表着整体利益，而不是为了个人利益或者代表个人利益，为整体服务才是宇宙作为整体的运作方式。 这个整体包含了源实体内的所有维度和频率状态和宇宙。这是通过个体化才是单个实体，最终意识到这点，即自私自利，对集体和个体的进化都是适得其反的，很像是蚂蚁或其他昆虫。 从个体为集体工作的角度来说，是的，有相似之处，但也不一样。 因为从蚂蚁的例子来看，他所做的是不经过思考或不需要理由的。 他只不过是集体心智的一只手躲避或一个功能。更贴切的描述，其实是大脑中的一个细胞。 这只蚂蚁所做的一切都是对整体的集体要求做出的反应，并非在知道为整体利益的情况下做出的服务集体的单独行为。 在我们的例子中，我们对自己的行为和思想，对我们共同体中，其他人的影响是有意识的。 不论这些人是独自还是聚集在宇宙的什么地方，这就是为什么我们会以这种方式一起合作，我们知道如何推进我们种族的进化。 因为我们可以看到集体努力的成果。就这样我们独立的为整体利益贡献力量，并以此实现服务整体的普遍愿望，这是任何实体所能从事工作的最高形式。 我们的生存规则与人类规则的主要差别在于你们就完全的自由意志去做出任何行为而不在意，这会如何影响到整体。 最有趣的是，在于你们所有人都有能力知道自己对整体有何影响。 但你们选择不使用这项能力，这是对自我最有趣的否定。因为在对自我的否定中，你也否定了整体，这又反过来否定了自我通过帮助整体包向完美的进化机会，个体仅仅为了帮助个体而做的努力是白费的。 因为其益处是有限的，大多数情况下是剥夺了周围的人的权利，而不是帮助他们我们所做的每一件事都是为了整体的利益。 正如反过以无私的方式是整体受益一样，我们也是以无私的方式在这样做，我们也意识到，通过观察和帮助你们种族，我们也为其他有物质身体的种族，包括我们自己打开了，在相互依存中达成个性化的大门。 当独立和个体化选择所导致的权利私用，以及进一步造成的频率，螺旋式下跌趋势被打破个且自我得以实现的话，那么无论是对个体还是整体来说，我们获得真正成长的机会，也只只有在下面的情形下，才有这种可能性。 当个体知道某一行为的受益者只有自己。那么如果有其他选择，他就会自愿的去选择另一种行为去帮助同类，请原谅我这样说，但你听上去就像袁世旭，这对你应该不是什么意外。 因此我们都是源头的一部分，事实是你自己就与源头交融。很荣幸，你认为我们以同样的方式与你交谈。 因为我们也在努力争取尽早与源头合一。我们与你的这种对话方式是为了让你能够理解并轻松传达而无需进一步解释，那样会丢失信息，否则这可能会描绘出错误的景象，并引起原本会受益于我们谈话的一些人的排斥。 因此我们感谢你能认可我们和我们的话，我们现在告辞，下次再见。
+外星人：我们最感兴趣的是，你们在一个问题上的不同意见，因为这对我们来说是陌生的。这是由于你们具有独立选择的天赋，这是一种非常罕见的功能，因为大多数物质存有都是集体运作的。在这种运作模式下，个体形式是为了整体利益，并且代表着整体利益，而不是为了个人利益或者代表个人利益，为整体服务才是宇宙作为整体的运作方式。这个整体包含了源实体内的所有维度和频率状态和宇宙。正是通过个体化，才使单个实体最终意识到这点，即自私自利对集体和个体的进化都是适得其反的。
 
 ME:Rather like ants or other insects. 
 
-我：
+我：很像是蚂蚁或其他昆虫。
 
 A:In terms of the individual working for the collective,yes,it is similar but dissimilar since in the case of the ant,it does what it does without thought or reason.It is merely an arm or a function,(a better description would be a cell in a brain)of what is a collective mind.Everything the ant does is responsive to the requirements of the whole as a whole,not a singular action made in the knowledge that it will benefit the whole "for the benefit of the whole,"In our instance we are conscious of the effect that our actions and thoughts have on the rest of our community,no matter where they are individually or in collections in the universe.This is why we work together the way we do.We know how to progress the evolution of the race because we can see the fruits of our efforts in a collective way.In this way we strive individually to benefit the whole, and in doing so we fulfil the universal desire to be of service.This is the highest form of work any entity can undertake.The main difference between our rules of existence and those of the human race is that you have total free will to do any action,no matter how it affects the whole.The most interesting thing is that all of you have the ability to know how you affect the whole,but you choose not to use this facility.This is a most interesting denial of self,for in denying the self,you deny the whole,which in turn denies the self of its opportunity for evolution through the actions available to help the whole progress towards perfection.The efforts spent by the individual to help only the individual are wasted,for they are a finite benefit,which in most cases disenfranchises those closest to the individual,rather than helping them. 
 
-外星人：
+外星人：从个体为集体工作的角度来说，是的，有相似之处，但也不一样。因为从蚂蚁的例子来看，它所做的是不经过思考或不需要理由的。它只不过是集体心智的一只手臂或一个功能。更贴切的描述，其实是大脑中的一个细胞。这只蚂蚁所做的一切都是对整体的集体要求做出的反应，并非在知道为整体利益的情况下做出的服务集体的单独行为。在我们的例子中，我们对自己的行为和思想，对我们共同体中其他人的影响是有意识的，不论这些人是独自还是聚集在宇宙的什么地方。这就是为什么我们会以这种方式一起合作。我们知道如何推进我们种族的进化，因为我们可以看到集体努力的成果。就这样，我们独立地为整体利益贡献力量，并以此实现服务整体的普遍愿望，这是任何实体所能从事工作的最高形式。我们的生存规则与人类规则的主要差别在于，你们就完全的自由意志去做出任何行为，而不在意这会如何影响到整体。最有趣的是，你们所有人都有能力知道自己对整体有何影响，但你们选择不使用这项能力。这是对自我最有趣的否定，因为在对自我的否定中，你也否定了整体，这又反过来否定了自我通过帮助整体走向完美的进化机会。个体仅仅为了帮助个体而做的努力是白费的，因为其益处是有限的，大多数情况下是剥夺了周围的人的权利，而不是帮助他们。
 
 Everything we do is for the benefit of the whole.Just as the ant works to benefit the whole in its selfless fashion,so do we in a selfless fashion.We also realize that in observing your race and helping your race,we are opening the door for other physical races,including our own,to achieve individuality within co-dependence.Once the downward spiral resulting from independent and individual choice resulting in the selfish application of power is broken and self-realization is achieved,the opportunity for real growth is available,both on an individual and on a holistic basis.This is only possible because the individual,knowing that one particular action will benefit itself,will willingly choose another action to help others of its own kind if the opportunity is available. 
 
+我们所做的每一件事都是为了整体的利益，正如蚂蚁以无私的方式使整体受益一样，我们也是以无私的方式在这样做。我们也意识到，通过观察和帮助你们种族，我们也为其他有物质身体的种族，包括我们自己，打开了在相互依存中达成个性化的大门。当独立和个体化选择所导致的权利私用，以及进一步造成的频率螺旋式下跌趋势被打破，并且自我得以实现的话，那么无论是对个体还是整体来说，就会获得真正成长的机会。也只有在下面的情形下才有这种可能性。当个体知道某一行为的受益者只有自己，那么如果有其他选择，他就会自愿的去选择另一种行为去帮助同类。
+
 ME:Forgive me for saying this,but you sound just like the Source Entity
 
-我：
+我：请原谅我这样说，但你听上去就像源实体。
 
 A:This should not to be a surprise to you as we are all part of the Source.The fact that you are in communion with the Source yourself and that you think we talk to you in the same way is an honor,for we strive to be one with the Source at the earliest opportunity. Our dialogue with you is designed to be in a method you will understand and be able to convey easily without the need for interpretation and subsequent loss of correct information.This would portray the wrong image and cause rejection amongst those who would benefit from our communications.For this we thank you for recognizing us and our word.We leave you now until the next time. 
 
-外星人：
+外星人：这对你应该不是什么意外，因此我们都是源头的一部分。事实是你自己就与源头交融，很荣幸你认为我们以同样的方式与你交谈，因为我们也在努力争取尽早与源头合一。我们与你的这种对话方式是为了让你能够理解并轻松传达而无需进一步解释，那样会丢失信息，否则这可能会描绘出错误的景象，并引起原本会受益于我们谈话的一些人的排斥。因此我们感谢你能认可我们和我们的话，我们现在告辞，下次再见。
 
 #### The Bases Perched on Hillsides in Crete 
 
@@ -9522,21 +9524,23 @@ A:This should not to be a surprise to you as we are all part of the Source.The f
 
 During a core star meditation on the roof of our cottage in Crete,I concentrated on the hill at the back of our garden because my wife had previously stated that she had felt a lot of energy there.During the meditation I received the impression that there was an alien base perched on the hillside with a craft also perched on a landing pad.I then sensed Hum's presence and with him keeping a fatherly eye on me,I extended my consciousness up towards the hillside until I perceived a thin metal fence and was instantly greeted by an entity. 
 
-当我在我们的克里特岛小屋的屋顶进行星核冥想时，我把注意力集中在了我们花园后面的小山上。 因为我妻子之前曾经说她感到那里有很多能量在冥想中，我得到了一个画地，山坡上坐落着一个外星人基地降落，场上还停放着一艘飞船。 我感觉他们在我身边，在他慈父般目光流注视下我的意识，向山坡上延伸，直到看到一个稀疏的金属栅栏，并马上受到了一个实体的迎接。 你们为什么会在这里有个基地？我们在这里有个基地，是因为这里的能量纯净，而且当地居民还没把能量流破坏掉。 我的思想回到了之前的一艘冥响。那次我在脑海里看到了能量之河，绕着这个地区的山丘和山脉流淌，他们至少是老一辈人，仍然尊重土地与自然精灵合作，利用土地。 虽然他们并没有完全意识到这一点。
+当我在我们的克里特岛小屋的屋顶进行星核冥想时，我把注意力集中在了我们花园后面的小山上，因为我妻子之前曾经说她感到那里有很多能量。在冥想中，我得到了一个画面，山坡上坐落着一个外星人基地，降落场上还停放着一艘飞船。我感觉他们在我身边，在他慈父般目光流注视下，我把意识向山坡上延伸，直到看到一个稀疏的金属栅栏，并马上受到了一个实体的迎接。
 
 ME:Why do you have a base here? 
 
-我：
+我：你们为什么会在这里有个基地？
 
 A:We have a base here because the energies are pure,and the local inhabitants have not yet ruined the energy flow.
 
-外星人：
+外星人：我们在这里有个基地，是因为这里的能量纯净，而且当地居民还没把能量流破坏掉。 
 
 My mind went back to a previous meditation where I mentally saw rivers of energy flowing around the hills and mountains in the area. 
 
+我的思想回到了之前的一艘冥想，那次我在脑海里看到了能量之河绕着这个地区的山丘和山脉流淌。
+
 A:They,the old ones at least,still respect and use the land working together with the nature spirits although they aren't fully aware of it. 
 
-外星人：
+外星人：他们，至少是老一辈人，仍然尊重土地，与自然精灵合作利用土地，虽然他们并没有完全意识到这一点。
 
 #### The Shape of the Spaceship 
 
@@ -9544,19 +9548,19 @@ A:They,the old ones at least,still respect and use the land working together wit
 
 I asked the being about the shape of the ship. 
 
-我问他关于飞船的形状，我们的飞船总是采用跨维度航行时阻力最小的形状，也就是球形。 那为什么我得到的画面中的飞船看起来是扁平的呢？就像UL目击事件所报道的那样，那是因为我们的飞船连接在一起，成为一个球形。 而每一艘飞船是整个球体或大或小的一片。
+我问他关于飞船的形状。
 
 A:Our ships are always the shape that offers the least resistance when traveling inter-dimensionally,which is spherical. 
 
-外星人：
+外星人：我们的飞船总是采用跨维度航行时阻力最小的形状，也就是球形。
 
 ME:So why do Iget the impression that the craft I perceived is aflat shape like the shapes reported in UFO sightings. 
 
-我：
+我：那为什么我得到的画面中的飞船看起来是扁平的呢？就像UFO目击事件所报道的那样。
 
 A:That is because our craft join together to make a sphere with each craft a larger or smaller slice of the sphere. 
 
-外星人：
+外星人：那是因为我们的飞船连接在一起成为一个球形，而每一艘飞船是整个球体或大或小的一片。
 
 #### The Temple of Zeus 
 
@@ -9564,45 +9568,47 @@ A:That is because our craft join together to make a sphere with each craft a lar
 
 ME:O.K.,thanks.Some spiritualists believe that there is a structure called The Temple of Zeus. Does it exist or is it just misinterpretation?For example,is this "temple"a real place?
 
-我：哦，是这样，谢谢一些维新论者，相信有个叫做宙斯神殿的建筑，它是真的存在，还是只是误解。 比如这个神殿是现实中存在的一个地方吗？是的，他曾经且仍然存在这个建筑之所以被称为神殿，是因为当时人们对于他的理解能力有限。 事实上，他是一艘非常庞大的飞船，是今天的话来说，可以看成是一个漂浮城市。 那些值得信任的当地居民被转换到飞船所处的维度，然后通过心灵制动被传送过去。 人们在这个维度被提升，漂浮到飞船以及飞船的成员在那里，却不能被看见的事实是，当地人认为飞船上居住着众神。 对他们来说，这飞船如此巨大，大的像个漂浮城市，还是在阳台的，以至于他们把飞船当做了神殿宙斯是当时一个外星人的名字，这些刻载了当地居民的脑海里。 这艘飞船还在这里吗？是的，你刚刚在你住的村子里感受到了它的存在，你更多是感觉到的，而不是看到的克里特岛，这里有很多基地吗？ 是的，他们遍布这里的山丘，我们用他们来观察你们所有人这里能量纯净。 所以我们更愿意待在这里，而不是其他地方。当地人也与这里的自然能量保持着和谐。 我将意识眼的注意力转移到周围的山坡上，看到许多点缀在乡间的平台，为什么我们看不到你们？ 因为我们和你们的频率或维度不同，你们看不到较高频率的事物，但是高频中的人却可以看到低频的事物。 例如当你查看水在不同温度下的不同频率和状态或分子的震动水平时，就可以看见这种效果。 而只有当蒸汽的震动比较低的时候，你才能感觉到它变得再高，你就看不见了。 而且他的确从你的视野中离开去到了另一个维度频率。当然当它频率不断下降，变成了冰，你就能看得到它了。 所以最好还是在更高的维度或频率。是的，你能看到更多做的更多做一个气态存有更好。 因为你既能感受到处于气体振动水平的所有东西，也能感受到较低频率的物体
+我：哦，是这样，谢谢。一些唯心论者相信有个叫做宙斯神殿的建筑。它是真的存在，还是只是误解？比如这个神殿是现实中存在的一个地方吗？
 
 A:Yes,it was and still is.The structure was called a temple because of the limited ability of the humans at that time to understand what it was.It is,in fact,a very large craft that can be classed as a floating city in today's terms.The local inhabitants that could be trusted were translated into the dimension that the craft was in and were flown up to it by telekinesis.The effect of levitating them to the craft in this dimension and the fact that they were "there"but couldn't be"seen"made the locals think that the craft's inhabitants were gods.The craft was so big to them(as big as a floating city which also had balconies)that they thought the craft was a temple.Zeus was the name of one of the aliens at that time,and this stuck in their minds. 
 
-外星人：
+外星人：是的，它曾经且仍然存在。这个建筑之所以被称为神殿，是因为当时人们对于它的理解能力有限。事实上，它是一艘非常庞大的飞船，是今天的话来说，可以看成是一个漂浮城市。那些值得信任的当地居民被转换到飞船所处的维度，然后通过心灵制动被传送过去。人们在这个维度被提升，漂浮到飞船以及飞船的成员在那里，却不能被看见的事实，使得当地人认为飞船上居住着众神。对他们来说，这飞船如此巨大，大得像个漂浮城市，还是带阳台的，以至于他们把飞船当做了神殿。宙斯是当时一个外星人的名字，这些刻在了当地居民的脑海里。
 
 ME:Is the craft still here? 
 
-我：
+我：这艘飞船还在这里吗？
 
 A:Yes,and you just managed to perceive its existence when you were at the village you stay in.You sensed it rather than saw it. 
 
-外星人：
+外星人：是的，你刚刚在你住的村子里感受到了它的存在，你更多是感觉到的，而不是看到的。
 
 ME:Are there many bases here in Crete? 
 
-我：
+我：克里特岛这里有很多基地吗？
 
 A:Yes,they are all over the hills;we are using them to monitor all of you.The energy here is pure so we stay here rather than anywhere else.The locals are in tune with the energy of nature here.
 
-外星人：
+外星人：是的，它们遍布这里的山丘，我们用它们来观察你们所有人。这里能量纯净，所以我们更愿意待在这里，而不是其他地方。当地人也与这里的自然能量保持着和谐。
 
 I shifted my attention in my mind's eye to the surrounding hill sides and saw lots of platforms dotting the country side. 
 
+我将意识眼的注意力转移到周围的山坡上，看到许多点缀在乡间的平台。
+
 ME:Why can't we see you? 
 
-我：
+我：为什么我们看不到你们？ 
 
 A:Because we are in a different frequency or dimension than you.YOU can't see the higher frequencies but a person in a higher frequency can see things in a lower frequency.For example,you can see this effect when you look at the different frequencies and states (or vibration levels of molecules)that water adopts at different temperatures.You can just perceive a gas when it is at the slightly lower vibration of steam but any higher, and it goes out of your visual range literally into another dimension(frequency).Of course,you see it when it is lowered even further down the frequencies and becomes ice. 
 
-外星人：
+外星人：因为我们和你们的频率或维度不同。你们看不到较高频率的事物，但是高频中的人却可以看到低频的事物。例如，当你查看水在不同温度下的不同频率和状态或分子的震动水平时，就可以看见这种效果。而只有当蒸汽的振动比较低的时候，你才能感觉到它，变得再高你就看不见了。而且它的确从你的视野中离开，去到了另一个维度/频率。当然，当它频率不断下降，变成了冰，你就能看得到它了。
 
 ME:So it is better to be in a higher dimension or frequency. 
 
-我：
+我：所以最好还是在更高的维度或频率。
 
 A:Yes,you can see and do more.It is better being a gas being as you can perceive everything on the gas vibration level and on the lower frequencies of the physical as well.
 
-外星人：
+外星人：是的，你能看到更多，做的更多。做一个气态存有更好，因为你既能感受到处于气体振动水平的所有东西，也能感受到较低频率的物体。
 
 ### Chapter 31 - Extended Dialogues with the Aliens/Other Entities 
 
@@ -9614,31 +9620,31 @@ A:Yes,you can see and do more.It is better being a gas being as you can perceive
 
 One wet weekend morning I was meditating on the back porch of our house with the back door open.Some of the rain was hitting me in the face and was making it difficult to concentrate.I thought about raising my frequencies and found myself on the aliens'balcony. 
 
-在一个湿漉漉的周末早上我正在家后面的门廊上鸣响房子的后门敞开着细微的雨滴打在我的脸上，让我难以集中注意力。 我正想着提高我的频率，却发现自己来到了外星人的阳台上。我很惊讶，会来到这里，不必惊讶，这就是你想要来的地方。 我想问一些问题问吧，你是昂吗？不是，但我们确实与昂一起工作。
+在一个湿漉漉的周末早上，我正在家后面的门廊上冥想，房子的后门敞开着，些微的雨滴打在我的脸上，让我难以集中注意力。我正想着提高我的频率，却发现自己来到了外星人的阳台上。
 
 ME:I am surprised to be here. 
 
-我：
+我：我很惊讶会来到这里。
 
 A:Don't be.This is where you wanted to come. 
 
-外星人：
+外星人：不必惊讶，这就是你想要来的地方。
 
 ME:I want to ask some questions. 
 
-我：
+我：我想问一些问题。
 
 A:Go ahead. 
 
-外星人：
+外星人：问吧。
 
 ME:Are you the Om? 
 
-我：
+我：你是OM吗？
 
 A:No,but we do work with the Om.
 
-外星人：
+外星人：不是，但我们确实与OM一起工作。
 
 #### From Beyond the Pleiades and Orion's Belt 
 
@@ -9646,37 +9652,39 @@ A:No,but we do work with the Om.
 
 ME:Where do you come from? 
 
-我：你来自哪里呢？卯速星和猎户座腰带这些词语瞬间浮现在我的脑海里，我询问是不是这样？ 不是的，是在那个方向，但是你的意识心智插入了一个你知道的名字。 卯速星和猎户座腰带。因为你不知道我们发源地的名字，这里有这么多基地，有点像集中营，不是故意给人这种印象的。 我们的基地和舰船之所以定位在这个地区是因为本地区独特的能量特性，这里的能量可以使得从我们维度到你们维度的转换变得比通常更容易。 还有许多其他基地也位于类似的地方，维持这个巨大的舰船需要多少动力不多？ 它是对话突然停下来，我脑海中得到了一个汽车引擎的图像和千瓦的单位。 所以我有一种感觉，就是所需能量，相当于一辆汽车的发动机所产生的力量，这样的话是不多。
+我：你来自哪里呢？
 
 The words Pleiades and Orion's belt came into my mind momentarily.I asked if this was correct. 
 
+昴宿星和猎户座腰带这些词语瞬间浮现在我的脑海里。我询问是不是这样。
+
 A:No,it's in that direction,but your conscious mind inserted a name you know (Pleiades and Orion's belt)as you wouldn't know the name of our origin. 
 
-外星人：
+外星人：不是的，是在那个方向，但是你的意识心智插入了一个你知道的名字（昴宿星和猎户座腰带），因为你不知道我们发源地的名字。
 
 ME:It seems that with all these bases here,it is a bit of a prison camp. 
 
-我：
+我：这里有这么多基地，有点像集中营。
 
-A:It is not intended to give that impression.Our bases and the ship are positioned in this area because of the unique energy properties that are in this locale.The energies are such that it makes translation from our dimension to yours easier than normal. 
+A:It is not intended to give that impression.Our bases and the ship are positioned in this area because of the unique energy properties that are in this locale.The energies are such that it makes translation from our dimension to yours easier than normal. There are many others also positioned in similar areas. 
 
-外星人：
-
-There are many others also positioned in similar areas. 
+外星人：不是故意给人这种印象的。我们的基地和舰船之所以定位在这个地区，是因为本地区独特的能量特性，这里的能量可以使得从我们维度到你们维度的转换变得比通常更容易。还有许多其他基地也位于类似的地方。
 
 ME:How much power is required to keep this huge ship? 
 
-我：
+我：维持这个巨大的舰船需要多少动力？
 
 A:Not much,it's... 
 
-外星人：
+外星人：不多，它是...
 
 The dialogue dropped suddenly,and I got the image in my head of a car engine and the units "kilowatts,"so I had the impression that the power a car engine produces is what is necessary.
 
+对话突然停下来，我脑海中得到了一个汽车引擎的图像和千瓦的单位。所以我有一种感觉，就是所需能量相当于一辆汽车的发动机所产生的力量。
+
 ME:This is not a lot. 
 
-我：
+我：这样的话，是不多。
 
 #### Movement by Affecting the Quantum Level of the Material 
 
@@ -9684,23 +9692,27 @@ ME:This is not a lot.
 
 A:No,you only need to affect the quantum level of the material so that the quantum force is aligned in an opposing manner to the ambient quantum force.This can be manipulated to allow movement in different directions. 
 
-外星人：是的，你只需要影响物质的量子层，使其量子力与周围环境的量子力方向相反，就并不需要很多能量可以操控它来实现不同方向的运动。 我随之在脑海中接收到了一个滚珠轴承的相向。它代表的是聚集在一起的物质分子滚珠们独立移动，以改变量子力，从而实现反重力效应和朝向三个轴及三维的运动，这跟子斥力不是一样的吗？ 不一样，磁斥力的产生是利用已知流向的电流，使金属中的分子朝一个方向排列，从而使分子的吸引力全变成同一个方向。 在你们称为磁极的地方会产生推力或拉力。这与分子的朝向有关，简单讲分子排列方向相同，但这两个物体摆放位置相反就会产生斥力。 这只适用于金属或可以被电流影响分子排列的物质产生反重力所需的量子变化啊，则适用于所有物质。 因为是在最微小的层面，对物质产生影响，而不仅仅只是影响组成物质的电子和质子，因而处于更高的量子水平，就好像是操纵构成砖块的沙子中的分子与操纵砖块之间的区别，从事这个层面的操作有一个关键而和聚变，将是通向这一关键的正确方向的一个步骤。 好的感谢你的解释。我现在的走了，当我把这些打出来，试着去理解它时，就开始觉得有点头痛，但接收到的信息看起来又确实有道理。
+外星人：是的，你只需要影响物质的量子层，使其量子力与周围环境的量子力方向相反，就并不需要很多能量。可以操控它来实现不同方向的运动。
 
 I then received the image in my mind of a bed of ball bearings (which represented the molecules of a material bunched up together)moving independently to effect changes in the quantum force that would allow the anti-gravity effect and movement in all three axes. 
 
+我随之在脑海中接收到了一个滚珠轴承的图像，它代表的是聚集在一起的物质分子。滚珠们独立移动以改变量子力，从而实现反重力效应和朝向三个轴及三维的运动。
+
 ME:Isn't this the same as magnetic repulsion? 
 
-我：
+我：这跟磁斥力不是一样的吗？
 
 A:No,magnetic repulsion is created by aligning the molecules in a metal in one direction by using electricity flowing in a known direction,so that the attraction of the molecules is all one way.A push or pull force is experienced at what you call the poles of the magnet and is relative to the direction that the molecules are orientated.Simply put,materials with the molecules arranged in the same direction but positioned opposing each other create opposition.This is only true for metals or materials where the molecules can be organized by exposing them to a circular electric current.The quantum changes necessary to effect antigravity are applicable to ALL materials,as it affects them at the smallest level rather than just affecting the electrons and protons that make up the material,and are,therefore,at a higher quantum level.Consider the difference being in manipulating the molecules in the grains of sand that make up a house brick in comparison to manipulating the building that is made of the bricks. There is a key to doing this level of manipulation;atomic fusion is a step in the right direction to finding this key. 
 
-外星人：
+外星人：不一样，磁斥力的产生是利用已知流向的电流使金属中的分子朝一个方向排列，从而使分子的吸引力全变成同一个方向。在你们称为磁极的地方，会产生推力或拉力，这与分子的朝向有关。简单讲，分子排列方向相同，但这两个物体摆放位置相反就会产生斥力，这只适用于金属或可以被电流影响分子排列的物质。产生反重力所需的量子变化则适用于所有物质，因为是在最微小的层面对物质产生影响，而不仅仅只是影响组成物质的电子和质子，因而处于更高的量子水平。就好像是操纵构成砖块的沙子中的分子与操纵砖块之间的区别。从事这个层面的操作有一个关键，而核聚变将是通向这一关键的正确方向的一个步骤。
 
 ME:O.K.,thanks for this,I have to go now. 
 
-我：
+我：好的，感谢你的解释，我现在得走了。
 
 As I type this up,it starts to make my head hurt as I try to get to grips with it.But the information received did seem reasonable. 
+
+当我把这些打出来，试着去理解它时，就开始觉得有点头痛。但接收到的信息看起来又确实有道理。
 
 #### One Thing at a Time 
 
@@ -9708,39 +9720,39 @@ As I type this up,it starts to make my head hurt as I try to get to grips with i
 
 The next day saw me back at the alien base and talking to the alien again. 
 
-第二天我又回到了外星人的基地。再次和外星人交谈，你们来自哪个层级呢？ 第五十层哇这么高，我们不这样看你们在地球上做什么？ 我们来这里是为了帮助地球及其居民的进化。你是这个任务的一部分。 这就是你在瑞典被调频的原因，正是这次调频时，你能够在短时间内提高觉知水平，这也是你得以轻松联系和感知我们的原因，我需要做什么才能进化呢？ 你需要专注于去除你头脑的杂念，这样你才能听到真正的你要做到这一点，你需要放慢脚步，在做事的时候更线性一次只做一件事，一次只想一件事，这只是集中注意力的一种方式。 你习惯了同时处理多维度的很多事情，你的潜意识记的这一点。 因此你试图在物质层面上做同样的事情，这并不容易，而你做的也不错，但但是他会妨碍你专注于将觉知扩展到高我和真我。
+第二天我又回到了外星人的基地，再次和外星人交谈。
 
 ME:What level are you from? 
 
-我：
+我：你们来自哪个层级呢？
 
 A:The 50th. 
 
-外星人：
+外星人：第50层。
 
 ME:Wow,that's high. 
 
-我：
+我：哇，这么高。
 
 A:We don't see it that way. 
 
-外星人：
+外星人：我们不这样看。
 
 ME:What are you doing here on Earth?
 
-我：
+我：你们在地球上做什么？
 
 A:We are here to help the evolution of the Earth and its inhabitants.You are part of this task, that's why you were attuned in Sweden.It is this attunement that has enabled you to increase your awareness to the level you have in this short time.It is also the reason you have been able to contact and perceive us so easily. 
 
-外星人：
+外星人：我们来这里是为了帮助地球及其居民的进化。你是这个任务的一部分，这就是你在瑞典被调频的原因。正是这次调频使你能够在短时间内提高觉知水平，这也是你得以轻松联系和感知我们的原因。
 
 ME:What do I need to do to evolve? 
 
-我：
+我：我需要做什么才能进化呢？
 
 A:You need to concentrate on removing the chatter from your mind so that you can hear the real you.To do this,you need to slow down and become more linear in the jobs that you are doing,doing only one thing at a time and thinking of only one thing at a time.This is only one way of creating focus.You are used to working on many things in many dimensions all at the same time.Your subconscious remembers this,and,as a result,you try to do the same thing on the physical plane.This is difficult and you are doing it well,but it doesn't allow you to focus on expanding your awareness to your higher and real self. 
 
-外星人：
+外星人：你需要专注于去除你头脑的杂念，这样你才能听到真正的你。要做到这一点，你需要放慢脚步，在做事的时候更线性，一次只做一件事，一次只想一件事，这只是集中注意力的一种方式。你习惯了同时处理多维度的很多事情，你的潜意识记得这一点。因此，你试图在物质层面上做同样的事情，这并不容易。而你做的也不错，但但是它会妨碍你专注于将觉知扩展到高我和真我。
 
 #### On a Spaceship in the Dimension Above Earth
 
@@ -9748,39 +9760,39 @@ A:You need to concentrate on removing the chatter from your mind so that you can
 
 The next morning I was in a hurry and didn't expect too much from the short meditation I performed before going to work;however,I found myself on what I can only describe as the observation lounge or room of a space craft in orbit far above the Earth.The alien I had talked to was also with me.In front of me was an amazing sight.All around the Earth were myriad ships and stations of different designs.In the background was a wonderfully colorful vista of nebulae and other planets close by. 
 
-第二天早晨，我有点匆忙，没有对上班前的短暂冥想，抱有太多的期望。 然而我发现自己来到了一个远离地球的轨道上的航天器里，我所在的地方只能被描述为观测时或观察间曾与我交谈过的外星人也跟我在一起，我面前的景象令人惊叹，无数各种各样的飞船和空间站环绕着地球背景是一幅由色彩斑斓的星云和附近的行星组成的画卷。 哇，这真是难以置信的。美丽。是的，宇宙是美丽的，我们也是因为我们也是宇宙的一部分，这些行星和星云在这里做什么？ 我以为太阳系只有几颗行星，算上冥王星是九颗算像我们的天文学家告诉我们的那样。 是的，是这样，但我们处于比地球高一级的维度上。所以你会看到地球附近还存在很多其他行星在你们的维度是看不到，也探测不到他们的。 但是我们确实在那里，你们真的是被你们的物质感知，限制住了这些太空船和空间，站在这里做什么？ 这些是帮助人类的各种族的轨道基地和交通工具，他们要帮人类进化，提升回到地球原本的频率。 当这件事发生时，我们将会对人类公开自己，因为届时你们将能够接受我们之间的差异。 你们为什么会在这个维度呢？因为在不被探测到的情况下，这是我们能接近地球最近的地方，这里也可以让我们与你们频率之间的转换更加容易些。
+第二天早晨，我有点匆忙，没有对上班前的短暂冥想抱有太多的期望。然而，我发现自己来到了一个远离地球的轨道上的航天器里，我所在的地方只能被描述为观测室或观察间，曾与我交谈过的外星人也跟我在一起。我面前的景象令人惊叹，无数各种各样的飞船和空间站环绕着地球，背景是一幅由色彩斑斓的星云和附近的行星组成的画卷。 
 
 ME:Wow,this is incredibility beautiful. 
 
-我：
+我：哇，这真是难以置信的美丽。
 
 A:Yes,the universe is beautiful and so are we,as we are also part of the universe. 
 
-外星人：
+外星人：是的，宇宙是美丽的，我们也是，因为我们也是宇宙的一部分。
 
 ME:What are all these planets and nebulae doing here?I thought that the solar system was spread apart with just a few planets(nine,eight if you discount Pluto),just as we are told by our astronomers. 
 
-我：
+我：这些行星和星云在这里做什么？我以为太阳系只有几颗行星（算上冥王星是9颗），就像我们的天文学家告诉我们的那样。 
 
 A:Yes,it is,but we are in the next dimension up from the Earth plane,so you can see that there are many other planets that exist in the vicinity of the Earth that are not visible or detectable from your dimension but are nevertheless there.You are truly limited by your physical perceptions. 
 
-外星人：
+外星人：是的，是这样，但我们处于比地球高一级的维度上，所以你会看到地球附近还存在很多其他行星，在你们的维度是看不到，也探测不到它们的，但是它们确实在那里。你们真的是被你们的物质感知限制住了。
 
 ME:What are all these space ships and stations doing here? 
 
-我：
+我：这些太空船和空间站在这里做什么？ 
 
 A:These are the orbital bases and transportation for all the races that are helping to raise the evolution of humankind to a level where the frequency of the Earth is back where it should be.When this happens,we will make ourselves known to humankind as you will be able to accept the differences in us by then. 
 
-外星人：
+外星人：这些是帮助人类的各种族的轨道基地和交通工具，他们要帮人类进化，提升回到地球原本的频率。当这件事发生时，我们将会对人类公开自己，因为届时你们将能够接受我们之间的差异。
 
 ME:Why are you in this dimension?
 
-我：
+我：你们为什么会在这个维度呢？
 
 A:Because it's the closest we can get to the Earth plane without being detected.It also makes translation to and from your frequency easier. 
 
-外星人：
+外星人：因为在不被探测到的情况下，这是我们能接近地球最近的地方。这里也可以让我们与你们频率之间的转换更加容易些。
 
 #### Natural Portals 
 
@@ -9788,35 +9800,35 @@ A:Because it's the closest we can get to the Earth plane without being detected.
 
 ME:I thought that you used certain portals for this. 
 
-我：我以为你们使用了某种门户。是的，确实如此。在这些天然门户附近转换会更加容易。 因为这些区域是不稳定的，等一下我以为他们是纯净的能量，所以你们才使用他们，这是我很困惑。 因为我心里同时收到了三个答案。没错，这些天然门户从物质意义上来说是不稳定的。 因为他们在能量上太纯净了，他们还没有被人类污染，人类，还没把这个地区的频率降下来，你能多解释一些吗？ 构成这个地区，山峦和树木的物质频率的特性，比世界其他地区的频率更高。 所以很显然他们更接近于我们的运作频率。因此他们就成了维度之间的门户，也可以说是门上的裂缝，再进一步去解释，就是物体频率提升的越高，他就越接近向下一个更高维度转换的状态。 因而从物质维度的角度看来，由于密度的丢失，它也就在物质上变得不稳稳定了。 我现在明白了，谢谢我与另一个存有，拜伦也在沟通。我被告知你们会转换到更高维度来实现更快速的远距离航行。 是的，这是正确的阻力，会由于更高维度的频率而减少，可以使我们行驶时的摩擦更小，因此在更高的维度上能够更快的行进，这对航行时间的节省是非常显著的。
+我：我以为你们使用了某种门户。
 
 A:Yes,that is true.It is even easier to translate in the vicinity of these natural portals because they are areas of instability. 
 
-外星人：
+外星人：是的，确实如此。在这些天然门户附近转换会更加容易，因为这些区域是不稳定的。
 
 ME:Hang on!I thought they were pure in energy,and that is why you used them. I was getting confused here as my mind received about three answers at the same time. 
 
-我：
+我：等一下！我以为它们是纯净的能量，所以你们才使用他们。这使我很困惑，因为我心里同时收到了三个答案。
 
 A:That is right.These natural portals are unstable in the physical sense because they are so pure in energy.They have not yet been contaminated by man,and he has not yet brought the frequency of the area down. 
 
-外星人：
+外星人：没错，这些天然门户从物质意义上来说是不稳定的，因为它们在能量上太纯净了。他们还没有被人类污染，人类还没把这个地区的频率降下来。
 
 ME:Can you explain further? 
 
-我：
+我：你能多解释一些吗？ 
 
 A:The frequency properties of the materials that make up the mountains and the trees in the area are at a higher frequency than other areas in the world,so by definition, they are closer to the frequency levels that we operate in.They,therefore,become a portal between dimensions,a crack in the door,so to speak.To explain further,as the frequency of an object is increased,the closer it gets to translating into the next (higher)dimensional level;thus,from the point of view of the physical dimension,it becomes unstable physically as it loses its density. 
 
-外星人：
+外星人：构成这个地区山峦和树木的物质频率的特性比世界其他地区的频率更高，所以很显然它们更接近于我们的运作频率。因此，它们就成了维度之间的门户，也可以说是门上的裂缝。再进一步去解释，就是物体频率提升的越高，它就越接近向下一个更高维度转换的状态。因而从物质维度的角度看来，由于密度的丢失，它也就在物质上变得不稳稳定了。
 
 ME:Now I understand.Thank you.I am in communication with another being (Byron).I was told that you translate to a higher dimension to help travel long distances faster. 
 
-我：
+我：我现在明白了，谢谢。我与另一个存有（拜伦）也在沟通。我被告知你们会转换到更高维度来实现更快速的远距离航行。
 
 A:Yes,this is correct.Because of the frequency of the higher dimension,the resistance is reduced and allows less friction when we travel-hence,the ability to travel faster in the higher dimension.The reduction in travel time is very significant. 
 
-外星人：
+外星人：是的，这是正确的。阻力会由于更高维度的频率而减少，可以使我们行驶时的摩擦更小，因此在更高的维度上能够更快地行进，这对航行时间的节省是非常显著的。
 
 #### Translating to a Higher Dimension 
 
@@ -9824,75 +9836,75 @@ A:Yes,this is correct.Because of the frequency of the higher dimension,the resis
 
 ME:So how do you translate to the higher dimension?I would have thought that if you would increase the frequency of an object,you would lose the ability of the molecules that make up that object to maintain their cohesion or form. 
 
-我：那你们怎么转换到更高维度呢？我们以为如果你要提高一个物体的频率，物体的构成分子，就会失去保持凝聚成型的能力。 是的，这是一个有趣的难题。然而，物体的分子可以通过一种加速水平，在维持整体位置与完整性的同时，提升频率到下一个维度水平。 这个概念对你来说难以理解，因而确实可以在不需要真的移动物体的情况下，移动物体实际上加速是一种往复运动或旋转运动位置移动是有的，但是这只在量子水平上测量的出来，因而对于维持分子所构成的外形来说是微不足道的。 如此一来，物体的外形或形状功能以及物理特性都不会被破坏，因而也不会受到任何影响。 其本来意图和目的完全不受任何的影响，除了它现在处于另一个维度了。 那你们是如何将一个物体或者转换到更高维度的呢？就像我说的，我们在量子层面给物体加速。 是的，但是你们是怎么做到的？你们是用磁铁还是什么？没有那么简单，我们所做的是用能量场作用于物体中的每个分子能量场可以影响被转换物体的量子层面，然后操纵这个能量场，使加速程度和加速方向，在量子水平上作用于物体的分子加速的程度和方向是一致且受控的。 这样我们就能够知道物体处于什么样的维度状态，最终整个物体和能量场，包括能量场生成器一并被转换。 如果你们在量子水平上工作，你们一定需要庞大的计算能力，以便标记物质的分子和量子，并在整个转换过程记录每个量子在任意加速点的位置，以提防物体分崩离析。 是的，你或许需要庞大的计算能力来达到这个目标。但在实际情况下，你并不需要这样做，这也是我们第一次尝试实验，转换到相邻的更高维度，做太空旅行时的最初想法。 那你们是怎么做的呢？我们只是加速能量场内的所有东西，把同样的加速程度和加速方向均匀的施加。 在整个能量场上，由于整个能量场的加速度是相等的。所以物体分子的定位不会受到破坏，因此物体能够保持其形状和功能，这样就变得简单多了，所需要的计算能力也明显更少。 那你们怎么处理多个物体的同时转换呢？多个物体不是作为一个整体，而是分别受到影响的。 因此当多个物体需要被同时转换时，由此不会互相影响，所以多个物体不会被融合在一块不会的，只有当你在加速场外想这样做的话，才可能发生这种情况。 那你们怎样转换太空船呢？飞船周围安置有能量场生成器，场内的所有东西都会被加速到下一个维度。 那么一旦转换完成，你们会把能量场生成器留在低维里吗？不会因为能量场的渗漏会超出生成器的范围，这会使得生成器也被同时转换，而不会被留在低维频率里，有时不完美，会更好。
+我：那你们怎么转换到更高维度呢？我本以为如果你要提高一个物体的频率，物体的构成分子就会失去保持凝聚成型的能力。 
 
 A:Yes,it's an interesting conundrum.However,the molecules of the object are raised to the next dimensional level by raising their frequency through a process of acceleration whilst maintaining positional integrity.It is a difficult concept for you to understand, but it is possible to make an object move without it actually moving.In actual fact, the acceleration is a back and forth or rotational movement.There is some positional movement,but this is measured at a quantum level and is therefore insignificant in terms of maintaining the form that the molecules make up.The form or shape, functionality,and physical properties of the object are,therefore,not compromised and are,therefore,not affected in any way.It remains to all intents and purposes unaffected with the exception that it is now in another dimension. 
 
-外星人：
+外星人：是的，这是一个有趣的难题。然而，物体的分子可以通过一种加速水平，在维持整体位置与完整性的同时提升频率到下一个维度水平。这个概念对你来说难以理解，因而确实可以在不需要真的移动物体的情况下移动物体。实际上，加速是一种往复运动或旋转运动，位置移动是有的，但是这只在量子水平上测量的出来，因而对于维持分子所构成的外形来说是微不足道的。如此一来，物体的外形或形状、功能以及物理特性都不会被破坏，因而也不会受到任何影响。其本来意图和目的完全不受任何的影响，除了它现在处于另一个维度了。
 
 ME:So how do you translate an object or person into the higher dimensions? 
 
-我：
+我：那你们是如何将一个物体或者转换到更高维度的呢？
 
 A:As I said,we accelerate the object at the quantum level. 
 
-外星人：
+外星人：就像我说的，我们在量子层面给物体加速。 
 
 ME:Yes,but how do you do it? Do you use magnets or what? 
 
-我：
+我：是的，但是你们是怎么做到的？你们是用磁体还是什么？
 
 A:It's not as simple as that.What we do is affect every molecule in the object with a field of energy which affects the quantum level of the object being translated.The field is then manipulated so that the level of acceleration and direction of acceleration affects the object's molecules at the quantum level.The level and direction is known and controlled so that we know where in the dimensional state the object is.The whole object and field,including the field generating hardware,are also translated. 
 
-外星人：
+外星人：没有那么简单，我们所做的是用能量场作用于物体中的每个分子。能量场可以影响被转换物体的量子层面，然后操纵这个能量场，使加速程度和加速方向在量子水平上作用于物体的分子，加速的程度和方向是一致且受控的，这样我们就能够知道物体处于什么样的维度状态。最终整个物体和能量场，包括能量场生成器一并被转换。
 
 ME:If you are working at the quantum level,you must need a massive amount of computer power to map the molecules and quanta of the object and note the position of each quanta at any one point in the acceleration throughout the translation process so that the object doesn't fall apart. 
 
-我：
+我：如果你们在量子水平上工作，你们一定需要庞大的计算能力，以便标记物质的分子和量子，并在整个转换过程记录每个量子在任意加速点的位置，以提防物体分崩离析。 
 
 A:Yes,you would need a massive amount of computational power to achieve this,but in actual affect,you don't need to do this.This was our initial thought when we first experimented with translating to the next higher dimension for space travel. 
 
-外星人：
+外星人：是的，你或许需要庞大的计算能力来达到这个目标。但在实际情况下，你并不需要这样做。这也是我们第一次尝试实验，转换到相邻的更高维度做太空旅行时的最初想法。 
 
 ME:So how do you do it then? 
 
-我：
+我：那你们是怎么做的呢？
 
 A:We just accelerate everything within the field applying the acceleration level and direction equally throughout the field.Because the acceleration is equal throughout the field the position of the molecules of the object are not compromised and therefore the object maintains its shape and function.This makes it much easier and requires significantly less computational power. 
 
-外星人：
+外星人：我们只是加速能量场内的所有东西，把同样的加速程度和加速方向均匀的施加在整个能量场上。由于整个能量场的加速度是相等的，所以物体分子的定位不会受到破坏，因此物体能够保持其形状和功能。这样就变得简单多了，所需要的计算能力也明显更少。
 
 ME:So how do you handle translating more than one object at the same time? 
 
-我：
+我：那你们怎么处理多个物体的同时转换呢？
 
 A:Multiple objects are not affected collectively but separately and,therefore,do not affect each other when more than one object is to be translated at the same time. 
 
-外星人：
+外星人：多个物体不是作为一个整体，而是分别受到影响的。因此当多个物体需要被同时转换时，彼此不会互相影响。
 
 ME:So objects do not merge together? 
 
-我：
+我：所以多个物体不会被融合在一块？
 
 A:No.This can only happen if you try to do this outside of an acceleration field. 
 
-外星人：
+外星人：不会的。只有当你在加速场外想这样做的话，才可能发生这种情况。 
 
 ME:So how do you translate a space craft? 
 
-我：
+我：那你们怎样转换太空船呢？
 
 A:The craft has the field generating hardware positioned around the periphery of the craft; everything inside the field is then accelerated up to the next dimension.
 
-外星人：
+外星人：飞船周围安置有能量场生成器，场内的所有东西都会被加速到下一个维度。
 
 ME:So once you have translated,don't you tend to leave the acceleration field generating hardware behind in the lower dimension? 
 
-我：
+我：那么一旦转换完成，你们会把能量场生成器留在低维里吗？
 
 A:No,because the field leaks beyond the generating hardware.This has the effect of allowing the hardware to be translated at the same time without being left behind in the lower dimensional frequency.Sometimes it is better to be imperfect! 
 
-外星人：
+外星人：不会，因为能量场的渗漏会超出生成器的范围，这会使得生成器也被同时转换，而不会被留在低维频率里。有时不完美会更好！
 
 #### Moving from Point A to Point B via a Shunt 
 
@@ -9900,43 +9912,43 @@ A:No,because the field leaks beyond the generating hardware.This has the effect 
 
 ME:O.K.,so once you have gotten to this next level,how do you move from point A to B? 
 
-我：嗯，好的，那一旦你们到了下一个维度，你们怎样从a点移动到b点呢？ 我们使用相同的方法来创建一个分流器，一个什么分流器，我们用能量场将飞船及其乘客的分子朝已知方向分流，这个动作很像是螺线管。 随旦飞船开始移动分流器就会越来越多，越来越快的被使用。 而每一次启动分流器都会使飞船被推进到更高的速度，这个过程会一直持续到飞船以理想的速度行驶，而零到六十的速度是相当惊人的，有用。 这个分流器可以达到的速度有极限呢？有的。但是对于目前来说，这个极限足够高，我们用不着担心这个每次提升到下一个维度，分流器的极限都会提高。 因此你总是在增加飞船的最大潜在速度，而这个最大潜在速度从来没有真正达到过。 因为引起维度转换所需的速度极限低于这个最大值，所以可以把这个最大值当做是虚拟上限而忽略不计。 那你们是如何减速的呢？减速是加速的反转，他们使用相同的过程只是方向完全相反，这些听起来都太难操作和监控了。 就你目前的理解而言似的，但不要忘记操作这些的计算机比你们的电脑强大，何指数百万倍，而且它能够识别并考虑必要的变动，从而将过程控制在有效范围内。
+我：嗯，好的。那一旦你们到了下一个维度，你们怎样从A点移动到B点呢？ 
 
 A:We use the same method to create a shunt. 
 
-外星人：
+外星人：我们使用相同的方法来创建一个分流器。
 
 ME:A what? 
 
-我：
+我：一个什么？
 
 A:A shunt.We use the field to shunt the molecules of the ship and its occupants in a known direction;the action is rather like a solenoid.Once the ship is moving,the shunt is used more and more,faster and faster,resulting in the ship being pushed up to a higher velocity each time the shunt is activated.The process continues until the ship is traveling at the desired velocity.The 0 to 60 speed is quite phenomenal. 
 
-外星人：
+外星人：分流器。我们用能量场将飞船及其乘客的分子朝已知方向分流，这个动作很像是螺线管。一旦飞船开始移动，分流器就会越来越多、越来越快地被使用。而每一次启动分流器都会使飞船被推进到更高的速度，这个过程会一直持续到飞船以理想的速度行驶，而0到60的速度是相当惊人的。
 
 ME:Is there not a limit to the speed that can be achieved with this shunt? 
 
-我：
+我：使用这个分流器可以达到的速度有极限吗？
 
 A:Yes,but at the moment the limit is too high for us to worry about it.The limit of the shunt is increased each time you go up to the next dimension so you are always increasing the potential max speed of the ship.The potential max speed is never actually achieved,as the limit necessary to affect translation is lower than the max,therefore, eliminating the max as a virtual ceiling. 
 
-外星人：
+外星人：有的，但是对于目前来说这个极限足够高，我们用不着担心。随着每次提升到下一个维度，分流器的极限都会提高，因此你总是在增加飞船的最大潜在速度，而这个最大潜在速度从来没有真正达到过。因为引起维度转换所需的速度极限低于这个最大值，所以可以把这个最大值当做是虚拟上限而忽略不计。 
 
 ME:So how do you slow down? 
 
-我：
+我：那你们是如何减速的呢？
 
 A:Deceleration is the reverse of acceleration in so much as the same process is used but in the diametrically opposite direction. 
 
-外星人：
+外星人：减速是加速的反转，它们使用相同的过程，只是方向完全相反。
 
 ME:This sounds all too hard to control and monitor. 
 
-我：
+我：这些听起来都太难操作和监控了。
 
 A:It is,with your current understanding,but don't forget that the computer controlling this is many millions of times more powerful than yours.And it is able to sense and take account of the changes necessary to allow the process to be controlled to a fashion where it is useful. 
 
-外星人：
+外星人：就你目前的理解而言，是的。但不要忘记操作这些的计算机比你们的电脑强大数百万倍，而且它能够识别并考虑必要的变动，从而将过程控制在有效范围内。
 
 #### Continued Dialogue on Multiple Topics  - Morality Issues Within Alien Worlds 
 
@@ -9944,15 +9956,15 @@ A:It is,with your current understanding,but don't forget that the computer contr
 
 I continued this dialogue in another meditation and started the discussion by asking a question about morality issues within the alien's worlds.
 
-我在另一次冥想中继续了这个对话。 我以外星世界中的道德问题作为讨论的开始，在你们的种族会遇到任何道德问题吗？ 没有，我们都是在为了整个种族的利益而一起努力。有些种族不采用这种责点，人类就是其中之一。 大多数种族甚至不需要取得道德制高点。因为他们不会把自己置于或认为自己会处于为了整体利益而使自己受损的境地，整体的身心健康，既是整体的责任，也是组成整体的个人的责任。 这对我们所有人都有好处。所以我们不会打乱平衡。
+我在另一次冥想中继续了这个对话，我以外星世界中的道德问题作为讨论的开始。
 
 ME:Do you have any issues with morality within your race? 
 
-我：
+我：在你们的种族会遇到任何道德问题吗？ 
 
 A:No,we all work together for the good of the whole race.There are races that don't take this opinion,and humans are one of these.Most don't even need to take the moral high ground because they don't put themselves or find themselves in situations which compromise them in relation to the good of the whole.The mental and physical health of the whole is the responsibility of the whole,and the individuals that make up the whole.It benefits us all,so we don't upset the balance. 
 
-外星人：
+外星人：没有，我们都是在为了整个种族的利益而一起努力。有些种族不采用这种观点，人类就是其中之一。大多数种族甚至不需要取得道德制高点，因为他们不会把自己置于或认为自己会处于为了整体利益而使自己受损的境地。整体的身心健康，既是整体的责任，也是组成整体的个人的责任。这对我们所有人都有好处，所以我们不会打乱平衡。
 
 #### Maintaining Health 
 
@@ -9960,27 +9972,27 @@ A:No,we all work together for the good of the whole race.There are races that do
 
 ME:You talked about physical health as well.How do you keep your selves healthy? 
 
-我：你还谈到了身体健康，你们是怎样使自己保持健康的呢？ 我们的身体需要活很长时间。为了完成他要做的工作，他需要维持在一定的健康或频率水平例，以我们不会摄入任何有损健康或频率水平的东西。 例如，我们想都不会想用酒精茶咖啡或香烟来污染。 我们身体你们知道香烟，我从你的思想里得知的，不过我们的种族知道你们有这个问题，那你们吃东西吗？ 有些种族需要从植物和动物制品中获取能量，但是他们更喜欢植物。 因为动物制品的频率比较低，会降低震动水平，包括我们在内的大多数，其他种族都直接从宇宙能量中获取能量。 我们能够使用体内的专门器官来代谢它，其中的接收器被整合到你们所称的皮肤毛孔中。 另外一些种族则是从构成他们母亲大气层的空气中获得能量。 它他们把类似肺的过滤系统，从气体中提取能量，还有一些种族利用他们皮肤上的器官来做相同的事情。
+我：你还谈到了身体健康，你们是怎样使自己保持健康的呢？ 
 
 A:Our bodies need to live for a long time,so we don't consume any substance that compromises the health or frequency levels that the body needs to achieve to do its job of work.For instance,we wouldn't dream of contaminating our bodies with alcohol, tea,coffee,or cigarettes. 
 
-外星人：
+外星人：我们的身体需要活很长时间，为了完成它要做的工作，它需要维持在一定的健康或频率水平，所以我们不会摄入任何有损健康或频率水平的东西。例如，我们想都不会想用酒精、茶、咖啡或香烟来污染我们的身体。
 
 ME:You know of cigarettes? 
 
-我：
+我：你们知道香烟？
 
 A:I took it from your mind,but our race knows of this problem you have. 
 
-外星人：
+外星人：我从你的思想里得知的，不过我们的种族知道你们有这个问题。
 
 ME:So do you eat?
 
-我：
+我：那你们吃东西吗？ 
 
 A:Some races need to take energy from the produce of plants and animals,but they prefer plants as the vibrations in animal products are low and can reduce vibratory levels. Most others,ourselves included,take energy from the universal energy directly.We are able to metabolize it by using specialized organs within our bodies,the receptors of which are integrated into what you would call the pores of our skin.Others take energy from the gases that make up the atmosphere of their home planet and use a lung like system of filters to extract the energy from the gases.Others use organs in their skin to do the same thing. 
 
-外星人：
+外星人：有些种族需要从植物和动物制品中获取能量，但是他们更喜欢植物。因为动物制品的频率比较低，会降低振动水平。包括我们在内的大多数其他种族都直接从宇宙能量中获取能量，我们能够使用体内的专门器官来代谢它，其中的接收器被整合到你们所称的皮肤毛孔中。另外一些种族则是从构成他们母星大气层的空气中获得能量，他们用类似肺的过滤系统从气体中提取能量。还有一些种族利用他们皮肤上的器官来做相同的事情。
 
 #### Metabolizing Pure Energy 
 
@@ -9988,19 +10000,19 @@ A:Some races need to take energy from the produce of plants and animals,but they
 
 ME:So how do the aliens that metabolize pure energy metabolize it? 
 
-我：那么代谢纯能量的外星人是如何代谢他的呢？这是在量子层面上进行的能量中心，或如你们所称的脉轮吸收不同频率的能量。 这些能量随后通过遍布全身的能量经络，或称为能量脉络进行传输细胞，在量子水平上吸收能量并变得有活力，因而得以进行日常能作。 就像你的细胞在你身体中所做的那样，这就像是电池的感应充电，这样的身体会更简单，因为它不需要从物质中创造能量，出于相同的原因，它也会更持久。 并且由于不会持续摄入外来物质对疾病也明显有更强的抵抗力。 所以我们之间的主要差别，就是我们的身体必须将物质分解成能量而进行纯能量。 代谢的外星人则不需要。是的，不过那些从他们母星的大气层中摄取能量的外星人，所做的是你们人类身体做法的简化版，因此也更加健康。
+我：那么代谢纯能量的外星人是如何代谢的呢？
 
 A:It is done at a quantum level.The energy centers or chakras,as you call them,take in energy at different frequencies.This energy is then distributed via the energy meridians(call them energy veins),which are positioned throughout the body.At the quantum level the cells pick up the energy and become energized and,therefore,go about their daily jobs as your cells do in your body.This is rather like the inductive charging of a battery.The body is simpler as it does not have to create energy from physical matter.It is also longer lasting for the same reason and is significantly more resistant to disease since it is not introduced to foreign matter on a continuous basis.
 
-外星人：
+外星人：这是在量子层面上进行的。能量中心，或如你们所称的脉轮，吸收不同频率的能量。这些能量随后通过遍布全身的能量经络，或称为能量脉络进行传输。细胞在量子水平上吸收能量并变得有活力，因而得以进行日常能作，就像你的细胞在你身体中所做的那样，这就像是电池的感应充电。这样的身体会更简单，因为它不需要从物质中创造能量。出于相同的原因，它也会更持久。并且由于不会持续摄入外来物质，对疾病也明显有更强的抵抗力。 
 
 ME:So the main difference with us is that our bodies have to breakdown physical matter into energy whereas the energy metabolizing aliens doesn't need to. 
 
-我：
+我：所以我们之间的主要差别就是，我们的身体必须将物质分解成能量，而进行纯能量代谢的外星人则不需要。
 
 A:Yes,however,the aliens that metabolize energy from the atmospheres of their home planets do a simpler version of what your human bodies do,and are,therefore,also more robust. 
 
-外星人：
+外星人：是的，不过那些从他们母星的大气层中摄取能量的外星人，所做的是你们人类身体做法的简化版，因此也更加健康。
 
 #### Aliens/Other Entities on Emotions 
 
@@ -10008,39 +10020,39 @@ A:Yes,however,the aliens that metabolize energy from the atmospheres of their ho
 
 The next day we touched the subject of emotions. 
 
-第二天我们触及了情绪的话题，你对你所做的工作感到开心吗？ 我不能说我开心，因为我们没有你们那种情绪范愁，我只能说我对自己的表现感到满意，而且我的上级对此也满意，我所做的工作与我应担负和完成的工作是相称的，所以你们不会感到忧郁，你对能伤或喜悦和你们感受不一样，我们会对自己的表现水平感到满足。 我果我们做出什么重大发泄，我们不会感到兴高采烈。我们只是对我们完成的工作产生了预期成果，这个事实感到满足，你们会为感受不到这些情绪而感到极妒吗？ 不会，但我们确实觉得很有意思。这也是我们来这里的原因之一。 拉丁语背景的国家非常善于表达自己的感情。他们在表达各种情绪时，不会因为周围人的想法而压抑自己。 我以我们发现一个人的情绪与周围人的反应之间的相互作用很有趣。 我们在英国人或德国人那里没有得到这样幅度的反应。所以对他们不是那么感兴趣，不过你也很有趣，因为你抑制了自己的情绪，在地球上有关这个主题，我们还有很多工作要做，看来是这样的。 是的，他也和自由意志的实验联系在一起，并产生了有趣的结果，就是情绪的内容会影响做出理性决定的能力，并且当做决定更多是基于情绪，而非逻辑时会导致错误决定。
+第二天我们触及了情绪的话题。
 
 ME:Are you happy with the job you do? 
 
-我：
+我：你对你所做的工作感到开心吗？
 
 A:I cannot say that I am happy because we do not have the same range of emotions that you have.All I can say is that I am satisfied with my performance,and my supervisors are satisfied.The work that I do is adequate to the work load and the output expected of me. 
 
-外星人：
+外星人：我不能说我开心，因为我们没有你们那种情绪范畴。我只能说我对自己的表现感到满意，而且我的上级对此也满意。我所做的工作与我应担负和完成的工作是相称的。
 
 ME:So you do not feel depression or elation or sadness or joy. 
 
-我：
+我：所以你们不会感到忧郁、高兴、悲伤或喜悦。
 
 A:Not in the sense that you do.We feel content with the level of our performance.We do not feel elation if we make a big discovery.We merely feel content at the fact that the work we have done has borne the fruit it was intended to.
 
-外星人：
+外星人：和你们感受不一样，我们会对自己的表现水平感到满足。如果我们做出什么重大发现，我们不会感到兴高采烈，我们只是对我们完成的工作产生了预期成果这个事实感到满足。
 
-ME:Do you feeljealous that you do not feel these emotions? 
+ME:Do you feel jealous that you do not feel these emotions? 
 
-我：
+我：你们会为感受不到这些情绪而感到嫉妒吗？
 
 A:No.But we do find it interesting,and that is one of the reasons we are here.The Latin- based countries are very good at expressing their emotions.They are not inhibited by what people around them will think when they display the full range of emotions,and so we find the interplay of personal emotions vs.response of the people around them interesting.We don't get the same spectrum of responses from the English or German people,so we are not so interested in them.However,you are also interesting because you suppress your emotions.We have a lot of work to do on this subject here on Earth. 
 
-外星人：
+外星人：不会，但我们确实觉得很有意思，这也是我们来这里的原因之一。拉丁语背景的国家非常善于表达自己的感情，他们在表达各种情绪时，不会因为周围人的想法而压抑自己。所以我们发现一个人的情绪与周围人的反应之间的相互作用很有趣。我们在英国人或德国人那里没有得到这样幅度的反应，所以对他们不是那么感兴趣。不过，你也很有趣，因为你抑制了自己的情绪。在地球上有关这个主题，我们还有很多工作要做。
 
 ME:So it seems. 
 
-我：
+我：看来是这样的。
 
 A:Yes,it is also linked in with the free will experiment and is bearing interesting results as the emotional content affects the ability to make rational decisions and can result in incorrect decisions based upon emotional content rather than the logical content. 
 
-外星人：
+外星人：是的，它也和自由意志的实验联系在一起，并产生了有趣的结果。就是情绪的内容会影响做出理性决定的能力，并且当做决定更多是基于情绪而非逻辑时，会导致错误决定。
 
 #### Life Spans,Stress,Professions,and Genetic Modification 
 
@@ -10048,71 +10060,71 @@ A:Yes,it is also linked in with the free will experiment and is bearing interest
 
 The next day I talked to the alien about age. 
 
-第二天我和外星人谈论了年龄的问题，你们能活到多少岁？ 我们的物质部分按照你们的时间可以活两千到三千年活的可真久啊，你们一定会觉得无聊吧。 不不会的，别忘了在万物的宏大设计中，一个化身人类的寿命是短的可怜的这让你完全没有时间去完成任何事情。 而你们完成了这么多的事，这是你们的荣耀，你是觉得我们的生命很短暂了。 是的，但是你们却往里面塞了很多事情，导致你们的生活压力很大。 我们不会无聊，因为我们是从长远眼光来看待我们对社会的贡献，我们的工作或项目的执行和结果，需要在更长的时间尺度上去衡量，这是什么意思？ 我们在行星和进化层面做工作，要得到结果，就需要更长的时间。 在这方面，我们可以同时做很多事情，让他们能以一种交错的方式得到结果。 结果我们也就可以持续的保持兴趣。那么就寿命来说，你们会怎样描述你们的生命呢？ 我们也会说，生命是短暂的，因为生命中充满了要做的事情。那你们做什么工作呢？ 都有什么职责？我们有很多职业就跟你们一样，我们有医生工程师艺术家分析师电脑程序员能源专家心理学家等等。 你们在这里的时候做些什么？我们协助并观察你们的进化，你们怎样进行协助呢？ 我们通过使关键人物保持健康来给予协助那些人的使命是帮助地球及其居民，以某种方式进化，我们也以心灵感应的方式提供建议。 在他们的决策过程中，施以帮助让他们经历正确的事情，让他们进化的更快。 你们还提供其他建议来帮助技术的进步。
+第二天，我和外星人谈论了年龄的问题。
 
 ME:How old do you live to be? 
 
-我：
+我：你们能活到多少岁？ 
 
 A:The physical part of us lives from 2,000 to 3,000 of your years.
 
-外星人：
+外星人：我们的物质部分按照你们的时间，可以活2000到3000年。
 
 ME:That's a long time to live;you must get bored. 
 
-我：
+我：活的可真久啊，你们一定会觉得无聊吧。
 
 A:No we don't.Don't forget that in the great scheme of things,the life span of a physical human is pitifully small and gives you absolutely no time to accomplish anything. The fact that you accomplish so much is a credit to you. 
 
-外星人：
+外星人：不会的。别忘了，在万物的宏大设计中，一个化身人类的寿命是短的可怜的，这让你完全没有时间去完成任何事情。而你们完成了这么多的事，这是你们的荣耀。
 
 ME:You think our lives are very short then? 
 
-我：
+我：你是觉得我们的生命很短暂？ 
 
 A:Yes,but you pack a lot in.Your lives are very stressful as a result.We don't get bored because our contribution to our society is based upon a longer term vision.We have jobs or projects that have a longer time scale within which to work and get our results. 
 
-外星人：
+外星人：是的，但是你们却往里面塞了很多事情，导致你们的生活压力很大。我们不会无聊，因为我们是从长远眼光来看待我们对社会的贡献，我们的工作或项目的执行和结果，需要在更长的时间尺度上去衡量。
 
 ME:How do you mean? 
 
-我：
+我：这是什么意思？ 
 
 A:We are working on a planetary and evolutionary level so things take longer to give results. In this respect we can do many things at the same time and plan them so that we get the results back in a staggered fashion that keeps us interested. 
 
-外星人：
+外星人：我们在行星和进化层面做工作，要得到结果就需要更长的时间。在这方面，我们可以同时做很多事情，让它们能以一种交错的方式得到结果，我们也就可以持续地保持兴趣。
 
 ME:So how would you describe your lives in terms of length of life? 
 
-我：
+我：那么就寿命来说，你们会怎样描述你们的生命呢？
 
 A:We would also describe them as being short as they are packed with things to do. 
 
-外星人：
+外星人：我们也会说生命是短暂的，因为生命中充满了要做的事情。
 
-ME:What do you do for jobs?What are your responsibilities?
+ME:What do you do for jobs? What are your responsibilities?
 
-我：
+我：那你们做什么工作呢？都有什么职责？
 
 A:We have many professions,just like you.We have doctors,engineers,artists,analysts,computer programmers,energy specialists,psychologists,etc. 
 
-外星人：
+外星人：我们有很多职业就跟你们一样，我们有医生、工程师、艺术家、分析师、电脑程序员、能源专家、心理学家等等。
 
 ME:What do you do with your time here? 
 
-我：
+我：你们在这里的时候做些什么？
 
 A:We assist with and observe your evolution. 
 
-外星人：
+外星人：我们协助并观察你们的进化。
 
 ME:How do you assist? 
 
-我：
+我：你们怎样进行协助呢？ 
 
 A:We assist by giving health care to those key people who are destined to help the Earth and its inhabitants evolve in some way.We make telepathic suggestions to people to help them with their decision process so that they experience the right things so they evolve faster.We also make other suggestions to help with the progress of technology. 
 
-外星人：
+外星人：我们通过使关键人物保持健康来给予协助，那些人的使命是帮助地球及其居民以某种方式进化。我们也以心灵感应的方式提供建议，在他们的决策过程中施以帮助，让他们经历正确的事情，让他们进化地更快。我们还提供其他建议来帮助技术的进步。
 
 #### Genetic Modifications and "On the Rebound"Incarnations 
 
@@ -10120,19 +10132,19 @@ A:We assist by giving health care to those key people who are destined to help t
 
 ME:Do you do anything else? 
 
-我：你们还做什么别的事吗？有我们还做一些基因改造，让你们身体载具的寿命变长，这样你们体验更多事物的能力就会增强。 因此能帮你们快速进化，只们这里的生命实在太短暂了。 所以有一大堆的灵魂在等着转世，这里的情况很快就会变成只有那些将会对人类进化产生影响的灵魂，才被允许迅速的回弹。 转世回弹是什么意思？意思是，那些灵魂需要立刻转世，以便继续他们的工作，延长你们种族的寿命将是一个灵魂，在一个身体中存活两到三倍的生命周期
+我：你们还做什么别的事吗？
 
 A:Yes,we also still make some genetic modifications to make your physical vehicle live longer so that your ability to experience more things is enhanced,therefore,assisting in your ability to evolve faster.Your lives here are so short that there is a backlog of souls waiting to incarnate.It is quickly becoming the case that only those souls who are going to make a difference to the evolution of humankind will be allowed to make rapid“on-the rebound”incarnations.
 
-外星人：
+外星人：有，我们还做一些基因改造，让你们身体载具的寿命变长，这样你们体验更多事物的能力就会增强，因此能帮你们快速进化。只们这里的生命实在太短暂了，所以有一大堆的灵魂在等着转世。这里的情况很快就会变成，只有那些将会对人类进化产生影响的灵魂才被允许迅速的回弹转世。
 
 ME:What does "on the rebound"mean? 
 
-我：
+我：“回弹”是什么意思？
 
 A:It means those souls who need to incarnate straight away so that they can continue with their work.Extending the life span of your race will allow a soul to live two or three life spans in one body. 
 
-外星人：
+外星人：意思是那些灵魂需要立刻转世，以便继续他们的工作。延长你们种族的寿命，将使一个灵魂在一个身体中存活两到三倍的生命周期。
 
 #### Observing and Recording Energy Changes on,in,and Around Earth 
 
@@ -10140,35 +10152,35 @@ A:It means those souls who need to incarnate straight away so that they can cont
 
 ME:What else do you do? 
 
-我：你们还做些什么？我们还观察并记录地球表面内部和周围的能量变化，为什么要做这个？ 因为人类和地球都很特别，他们既有能量体又有物质，身体相互作用，又彼此依赖，这是很罕见的。 因为大多数其他存有和行星，要么是物质的，要么是能量的，而不是两者的混合物，为什么会对这有兴趣？ 因为地球上有些区域是这两种身体相结合的地方。而那个结合点上，物质世界与能量世界之间有能量的流动形成漩涡，这就形成了我们所利用的两个世界之间的通道。 而观察这种能量的交换并用来做实验是非常有趣的。你们从两种载体间的相互作用中，可以获得无尽的能量，只需要用你们的心智，甚至是一种特殊的机器接入其中。 如果你们拥有这些，你们将不再需要使用煤炭或核能来发电。所以我们可以拥有无限的免费能源。 是的，这正是我们在帮助你们开发的东西之一，接入该能源的机器。
+我：你们还做些什么？
 
 A:We also observe and record the changes in the energies on,in,and around the Earth. 
 
-外星人：
+外星人：我们还观察并记录地球表面、内部和周围的能量变化。
 
 ME:Why do you do that? 
 
-我：
+我：为什么要做这个？ 
 
 A:Because both humans and Earth are special.They have energy bodies and physical bodies that both operate and depend on each other.This is rare,as most other beings and planets are either physical or energetic,not a mixture of both. 
 
-外星人：
+外星人：因为人类和地球都很特别，他们既有能量体又有物质身体，相互作用又彼此依赖，这是很罕见的。因为大多数其他存有和行星要么是物质的，要么是能量的，而不是两者的混合物。
 
 ME:So why the interest? 
 
-我：
+我：为什么会对这有兴趣？
 
 A:With the Earth there are areas where the two bodies join.At that juncture point there is a movement of energies between the physical and energy worlds,a vortex.This causes a gateway between the worlds which we take advantage of,but the interchange in the energies is very interesting to observe and experiment with.You have limitless energy available from this interplay between the two bodies;all you have to do is tap into it with your minds or even a special machine.If you had this,you wouldn't need to use coal or nuclear power to generate electricity. 
 
-外星人：
+外星人：因为地球上有些区域是这两种身体相结合的地方。而那个结合点上，物质世界与能量世界之间有能量的流动形成漩涡，这就形成了我们所利用的两个世界之间的通道。而观察这种能量的交换并用来做实验是非常有趣的。你们从两种载体间的相互作用中可以获得无尽的能量，只需要用你们的心智，甚至是一种特殊的机器接入其中。如果你们拥有这些，你们将不再需要使用煤炭或核能来发电。
 
 ME:So we could have limitless free energy. 
 
-我：
+我：所以我们可以拥有无限的免费能源。 
 
 A:Yes,and this is one of the things(the machines to tap into this energy)we are helping you to develop. 
 
-外星人：
+外星人：是的，这正是我们在帮助你们开发的东西之一（接入该能源的机器）。
 
 #### Life on an Alien's Planet 
 
@@ -10176,23 +10188,23 @@ A:Yes,and this is one of the things(the machines to tap into this energy)we are 
 
 In January 2004,(my first day back to work after a long Christmas break)I started my meditation with the intent of speaking to the alien.When I focused my attention there,I asked about what life was like on his planet. 
 
-二零零四年一月圣诞长假后，我第一天回来上班，我开始冥想试图与那个外星人说话。 当我集中注意力的时候，我问在他们星球上的生命是什么样子的？就跟在地球上的差不多，这是什么意思？ 我们也有土生土长的动物，就跟你们这里一样，他们是什么样子呢？
+2004年1月（圣诞长假后，我第一天回来上班），我开始冥想试图与那个外星人说话。当我集中注意力的时候，我问在他们星球上的生命是什么样子的。
 
 A:Pretty much as it is on Earth. 
 
-外星人：
+外星人：就跟在地球上的差不多。
 
 ME:How do you mean? 
 
-我：
+我：这是什么意思？
 
 A:We also have animals that are indigenous to the planet the same as you do. 
 
-外星人：
+外星人：我们也有土生土长的动物，就跟你们这里一样。
 
 ME:What do they look like? 
 
-我：
+我：他们是什么样子呢？
 
 #### Indigenous Animals,Fish,Insects
 
@@ -10200,67 +10212,67 @@ ME:What do they look like?
 
 A:They come in many shapes and sizes.Where do I start? 
 
-外星人：它们有不同的形状和大小，从哪里说起呢？ 就是要按大类吧，比如腿的数量是飞的，还是有的。某些动物有两条腿就跟你我一样，他们甚至看起来也像人，但他们不是，而其他动物的腿可以达到十二条之多大小，相当于你们的一头牛。 他们中的大多数是草食的，但也有少数一两种是肉食动物，还有的吸取大气中的能量。 那是什么样的动物？那些是在我们星球的平流层飞行的动物，因此他们已经进化到可以利用更普遍存在的宇宙能量而生存。 他们长什么样子呢？他们有点像你们地球上的乌贼，只是他们有气态的内部结构，使他们能够通过在内部混合气体，而在大气中升降，他们通过吸入大气和分离气体成分的方式做到这一点，他们留下部分，他们生存所需的气体。 其他则被排出去留下的部分分被分别储存在不同内腔中当需要不同气体时，它们在混合在一起。 鱼呢，在你们的星球上也存在鱼吗？是的，我们有鱼和其他海洋生物，它们在大小和形状上也与你们的生物不同，你们会打猎或杀戮动物为食吗？ 不，因为我们不需要吃固体为食，我们先是进化到以植物为食，后来进化到以宇宙能量为食，你们也有地球上那样的昆虫吗？ 是的，但只有一两种，总的来说，我们并没有像你们这种程度的全球物种多样性，但你们不是有气态动物吗？ 是的，但你们地球上也有在不同能量或维度层的动物呀，我们也有吗？
+外星人：它们有不同的形状和大小，从哪里说起呢？ 
 
 ME:Just try with a general outline,such as the number of legs,whether they fly or swim. 
 
-我：
+我：就试着按大类吧，比如腿的数量，是飞的还是游的。
 
 A:Some come with two legs the same as you and me.They even look humanoid but they aren't whilst others have up to twelve legs and are the size of one of your cows.Most of them eat vegetation,but there is the odd one or two that hunt or even assimilate the energy in the atmosphere. 
 
-外星人：
+外星人：某些动物有两条腿，就跟你我一样，他们甚至看起来也像人，但他们不是。而其他动物的腿可以达到12条之多，大小相当于你们的一头牛。它们中的大多数是草食的，但也有少数一两种是肉食动物，还有的吸取大气中的能量。
 
 ME:What are those like? 
 
-我：
+我：那是什么样的动物？
 
 A:They are those that fly in the stratosphere of our planet and have,therefore,evolved to live off the more universal energies. 
 
-外星人：
+外星人：那些是在我们星球的平流层飞行的动物，因此它们已经进化到可以利用更普遍存在的宇宙能量而生存。 
 
 ME:What do they look like? 
 
-我：
+我：它们长什么样子呢？
 
 A:They are a bit like the cuttlefish you have on Earth,only they have a gaseous internal structure that allows them to rise and fall in the atmosphere by mixing gases internally.They do this by sucking in the atmosphere and separating out the component gases.Some gases they exist on whilst others are discarded.The rest are stored separately in different internal chambers and mixed together when a different gas is required. 
 
-外星人：
+外星人：它们有点像你们地球上的乌贼，只是它们有气态的内部结构，使它们能够通过在内部混合气体而在大气中升降，它们通过吸入大气和分离气体成分的方式做到这一点。它们留下部分它们生存所需的气体，其他则被排出去。留下的部分被分别储存在不同内腔中，当需要不同气体时，它们再混合在一起。
 
 ME:What about fish?Do you also have them on your planet?
 
-我：
+我：鱼呢？在你们的星球上也存在鱼吗？
 
 A:Yes,we do have fish and other sea dwelling creatures.They are also as different in their size and shape as your creatures. 
 
-外星人：
+外星人：是的，我们有鱼和其他海洋生物，它们在大小和形状上也与你们的生物不同。
 
 ME:Do you hunt or kill your animals for food? 
 
-我：
+我：你们会打猎或杀戮动物为食吗？ 
 
 A:No,because we don't need to eat solid food.We primarily evolved to eat vegetation and later evolved to use the universal energies. 
 
-外星人：
+外星人：不，因为我们不需要吃固体为食。我们先是进化到以植物为食，后来进化到以宇宙能量为食。
 
 ME:Do you also have insects like on Earth? 
 
-我：
+我：你们也有地球上那样的昆虫吗？ 
 
 A:Yes,but only one or two species.In general,we don't have the same level of diversification of species,planet-wide,as you do. 
 
-外星人：
+外星人：是的，但只有一两种。总的来说，我们并没有像你们这种程度的全球物种多样性。
 
 ME:But you do have gaseous animals? 
 
-我：
+我：但你们不是有气态动物吗？ 
 
 A:Yes,but you also have animals that are on different energy or dimensional levels on the Earth as well. 
 
-外星人：
+外星人：是的，但你们地球上也有在不同能量或维度层的动物呀。
 
 ME:We do? 
 
-我：
+我：我们也有吗？
 
 #### Earth Entities in the Space Between Dimensions 
 
@@ -10268,31 +10280,31 @@ ME:We do?
 
 A:Yes.The Earth really is a special place.It has a much greater level of diversity of entities in one place than any other planet in this dimension or universe.This is another reason we come here-to see how you interact with all these beings.There are,of course, many more on the Earth that you have not yet discovered.They are in the depths of the oceans,in the Arctic,and in the space between dimensions. 
 
-外星人：是的，地球真是一个特殊的地方，它的实体多样性比这个维度或宇宙中，任何其他行星要高得多得多。 这是我们来到这里的另一个原因，观察你们如何与所有这些存有互动。 当然地球上还有许多你们尚未发现的生物，他们在海洋深处在北极在维度之间的空间，维度之间的空间。 是的，他们占据了这个维度和下一个维度之间的空间。我们将来能看见这些动物吗？ 是的，你们中有些人已经看见过了，他们已经被那些吸食毒品的人看到过这些人的零视觉被强行打开，所以能看到这个空间，我明白了他们和地表的动物差不多吗？ 不，他们长得不一样，会引起人们的恐慌。因为人们可没有料想会看到这么奇特的生物。
+外星人：是的，地球真是一个特殊的地方。它的实体多样性比这个维度或宇宙中任何其他行星要高得多得多。这是我们来到这里的另一个原因，观察你们如何与所有这些存有互动。当然，地球上还有许多你们尚未发现的生物，它们在海洋深处，在北极，在维度之间的空间。
 
 ME:The space between dimensions? 
 
-我：
+我：维度之间的空间？
 
 A:Yes,they occupy the space between this dimension and the next one up. 
 
-外星人：
+外星人：是的，它们占据了这个维度和下一个维度之间的空间。
 
 ME:Will we ever see these animals? 
 
-我：
+我：我们将来能看见这些动物吗？
 
 A:Yes,some of you already have.They have been seen by those people who take drugs and are,therefore,able to see this space with their spiritual eyes forced open. 
 
-外星人：
+外星人：是的，你们中有些人已经看见过了。它们已经被那些吸食毒品的人看到过，这些人的灵视觉被强行打开，所以能看到这个空间。
 
 ME:I see.Are they similar to those on Earth? 
 
-我：
+我：我明白了。它们和地表的动物差不多吗？ 
 
 A:No,they are different and cause people to panic as they do not expect to see such wonderful creatures. 
 
-外星人：
+外星人：不，它们长得不一样，会引起人们的恐慌，因为人们可没有料想会看到这么奇特的生物。
 
 #### Star Burst Energy 
 
@@ -10300,47 +10312,47 @@ A:No,they are different and cause people to panic as they do not expect to see s
 
 My next encounter of any significance with the aliens was not until September 2005 when I was in Crete for a week on my own in order to meditate and do the odd jobs before my wife came over,so we could enjoy a real holiday. 
 
-我和外星人没再发生什么重要的会面。直到二零零五年九月，我在克里特岛的那一个星期，我独自去那里冥想，并在我妻子来之前做些临时的工作，以便我们能享受一个真正的假期。 今天的课程是什么？首先我们想说，我们很高兴你和我们一起在这里和你互动很愉快。 今天的课程是有关恒爆能量的，什么是横爆能量，这种能量来自物体的物质形态，与其可用的创造的力量的聚合。 你的意思是这种能量可以被利用。是的，这是恒星在物质宇宙中存在的主要原因为创造提供能量。 这种能量被各种各样的实体，用于各种各样的事物，从创造新的行星为物质生命提供生存基础，到创作艺术作品，通过用能量制造不同形状大小和颜色的气体云，包括他们在其他维度的样子。 那我可以利用他吗？当然可以，而且且你经常会用到我们在这里再教你做一遍，以提高你的能力，这将会在你冥想的时候完成，那我还会记得该怎么做这件事吧，还不行。 因为他首先需要被你吸收，然后你必须让自己进入心智的心理框架，让你能够安全明智的施展这样的能力，这意味着你必须能够原谅人们所做的任何事情，否则你会当场把他们给炸烂。
+我和外星人没再发生什么重要的会面，直到2005年9月，我在克里特岛的那一个星期，我独自去那里冥想，并在我妻子来之前做些临时的工作，以便我们能享受一个真正的假期。 
 
 ME:So what is the lesson for today?
 
-我：
+我：今天的课程是什么？
 
 A:First of all,let us say that we are so pleased that you are here with us.We enjoy your interaction.Star Burst energy is the lesson for today. 
 
-外星人：
+外星人：首先，我们想说，我们很高兴你和我们一起在这里。和你互动很愉快，今天的课程是有关恒爆能量的。
 
 ME:What is Star Burst energy? 
 
-我：
+我：什么是恒爆能量？
 
 A:It is the energy that comes from the coalescence of matter in its physical form and its ability to be used by an entity to create. 
 
-外星人：
+外星人：这种能量来自物体的物质形态与其可用的创造的力量的聚合。
 
 ME:You mean it can be used. 
 
-我：
+我：你的意思是这种能量可以被利用。
 
 A:Yes,that is the main reason for a star's presence in the physical universe-to provide energy for use in creation.This energy is used by all sorts of entities for all sorts of things from creating new planets for corporeal life to exist upon to creating works of art by using the energy to create gas clouds of differing shapes,sizes,and colors,including how they appear in the other dimensions. 
 
-外星人：
+外星人：是的，这是恒星在物质宇宙中存在的主要原因，为创造提供能量。这种能量被各种各样的实体用于各种各样的事物，从创造新的行星为物质生命提供生存基础，到创作艺术作品，通过用能量制造不同形状大小和颜色的气体云，包括它们在其他维度的样子。
 
 ME:Can I use this? 
 
-我：
+我：那我可以利用它吗？
 
 A:Of course,and you do on a regular basis.We are here to teach you to do it again and enhance your abilities.This will be done whilst you are in meditation. 
 
-外星人：
+外星人：当然可以，而且你经常会用到。我们在这里再教你做一遍，以提高你的能力，这将会在你冥想的时候完成。
 
 ME:Will I remember how to do this stuff then? 
 
-我：
+我：那我还会记得该怎么做这件事吧？
 
 A:Not yet,as it will need to be absorbed by you first,and then you have to get yourself into the mental frame of mind to be able to wield such power in a safe and sensible way.This means that you will have to be able to forgive people for anything that they do,or you will be frying them on the spot. 
 
-外星人：
+外星人：还不行。因为它首先需要被你吸收，然后你必须让自己进入心智的心理框架，让你能够安全明智的施展这样的能力。这意味着你必须能够原谅人们所做的任何事情，否则你会当场把他们给炸烂。
 
 #### How Aliens Generate Energy 
 
@@ -10348,25 +10360,27 @@ A:Not yet,as it will need to be absorbed by you first,and then you have to get y
 
 I then asked the Alien how aliens generated their own energy. 
 
-然后我问他外星人是如何生成自己的能量的，我们使用的是维度间摩擦产生的能量，维度之间会有摩擦。 是的，但不是你所知的那种做相对运动物体表面的摩擦生热，它更像是吸引力进到足以相互影响，但又不足以干扰各自的运作而产生的那种能量。 然后我看到了热量上升时会看到的视觉扭曲的图像。没错，这很好的掩示了它看起来的样子，我们收集这种能量，或者我们只是接入它，只要你拥有适当的技术水平或能量能力，就可以自由轻松的获得。
+然后我问他，外星人是如何生成自己的能量的。
 
 A:We use the energy generated by the friction created between the dimensions. 
 
-外星人：
+外星人：我们使用的是维度间摩擦产生的能量。
 
 ME:The dimensions have friction between them? 
 
-我：
+我：维度之间会有摩擦？
 
 A:Yes,but not the sort of friction that you know that is created by two surfaces being placed together and then moved on opposing planes creating heat.It is more like the energy generated by attracting forces being close enough to affect each other but not close enough to interfere with each other's operation. 
 
-外星人：
+外星人：是的，但不是你所知的那种做相对运动物体表面的摩擦生热。它更像是吸引力近到足以相互影响，但又不足以干扰各自的运作而产生的那种能量。 
 
 I then saw a picture of the distortion in vision one sees when heat is rising. 
 
+然后我看到了热量上升时会看到的视觉扭曲的图像。
+
 A:That's right.That is a good rendition of what it "looks like."We harvest this energy,or we just simply tap into it.It's free and easy to acquire provided you have the right level of technology and/or energetic abilities. 
 
-外星人：
+外星人：没错。这很好的演示了它看起来的样子。我们收集这种能量，或者我们只是接入它。只要你拥有适当的技术水平和/或能量能力，就可以自由轻松地获得。
 
 #### Going with the Flow
 
@@ -10374,21 +10388,23 @@ A:That's right.That is a good rendition of what it "looks like."We harvest this 
 
 ME:What about going with the flow? 
 
-我：该怎么理解？顺势而为是的，这是个非常重要且被人误解的概念。 你是否理解每一件已经发生的，将要发生的和正在发生的事，将会同时发生的。 是的，那么试图改变这些也是徒劳的，只会导致阻力和混乱。 一旦你从最根本的层面上认识到这一点，我真正感受到它，你就会知道事情的发生都是有缘由的。 这个缘由就是他注定会是那样，其他任何事不过是在于那不可避免的事物相对抗，接受该来的自慧来信任宇宙这种真正深刻的领悟，将会解除压力的负担。 我曾经在工作中以不同方式经历过这样的事情，我觉得生活因此变得轻松的多，也简单的多，确实有一种巨大的负担。 从我身上被卸掉的感觉到了假期的最后一天，我真正感受到了与宇宙同在，顺其自然。
+我：该怎么理解顺势而为？
 
 A:Ah yes.This is a very important and misunderstood concept.You understand that everything that has happened,that will happen,and that is happening is occurring simultaneously? 
 
-外星人：
+外星人：是的，这是个非常重要且被人误解的概念。你是否理解每一件已经发生的、将要发生的、正在发生的事，都是同时发生的。 
 
 ME:Yes. 
 
-我：
+我：是的。
 
 A:Then trying to change this is futile and only causes resistance and unrest.Once you acknowledge this on the most fundamental level and truly feel it,then you will know that things happen for a reason.That reason is that this is how it is supposed to be,and anything else is going against the inevitable.Acceptance that what will be,will be and trusting in the universe is a truly profound realization that will relieve the burden of stress. 
 
-外星人：
+外星人：那么试图改变这些也是徒劳的，只会导致阻力和混乱。一旦你从最根本的层面上认识到这一点，并真正感受到它，你就会知道事情的发生都是有缘由的。这个缘由就是它注定会是那样，其他任何事不过是在于那不可避免的事物相对抗。接受该来的自会来，信任宇宙，这种真正深刻的领悟将会解除压力的负担。 
 
 I had experienced this in a couple of ways at work and decided that it makes life so much easier and simpler.It did feel like a huge burden was lifted off me.By the time I had reached my last day on the vacation,I actually felt at one with the universe and that what will be,will be. 
+
+我曾经在工作中以不同方式经历过这样的事情，我觉得生活因此变得轻松的多，也简单的多，确实有一种巨大的负担从我身上被卸掉的感觉。到了假期的最后一天，我真正感受到了与宇宙同在，顺其自然。
 
 #### The Alien Mind 
 
@@ -10396,53 +10412,55 @@ I had experienced this in a couple of ways at work and decided that it makes lif
 
 A meditation early 2004 enthralled me.I was seeing lots of different colored fireflies in my mind's eye.
 
-二零零四年年初的一次冥想，让我着迷我的意识眼看到很多各种颜色的萤火虫宇宙是一个多姿多彩的奇妙事物，我的思绪飘向了外星人，然后我发现自己在询问他们是否有独立性。 他们是否也有我们这样的自由意志呢？不，他们和你们不一样，你们是非常独特的，你们把自己与高，我和我隔离了。 那以你们是完全独立的，能够在生活中做出自己的决定和判断。 那么外星人的心智是如何运作的呢？他们彼此永远保持着联系。 如果愿意他们中的每一个都知道另一个在想什么或者能做什么。 那么如果他们中的一个想要或者将要做什么坏事，会发生什么呢？ 他们做不到，因为整个外星人的心智会，就是他们中的每一个都会感觉到并团结起来，阻止这种行为的发生。 这是一种自我监督的形式，会引导个体，只做对整体来说正确，也就是对的事情。 那什么对他们来说是正确的呢？任何能加速进化比赛的事情。 进化是一场比赛，不是只是从个体以能达到回归我的进化水平为目标。 这个角度来形容的
+2004年年初的一次冥想让我着迷，我的意识眼看到很多各种颜色的萤火虫。
 
 SE:The universe is a many colored wondrous thing. 
 
-源实体：
+源实体：宇宙是一个多姿多彩的奇妙事物。
 
 My mind went to the aliens.I then found myself asking about their independence. 
 
+我的思绪飘向了外星人。然后我发现自己在询问它们是否有独立性。 
+
 ME:Do they have free will the same as us? 
 
-我：
+我：他们是否也有我们这样的自由意志呢？
 
 SE:No,they don't.You are unique in so much as you are cut off from your higher self and Me, so you are totally alone and able to make your own decisions and judgements in life. 
 
-源实体：
+源实体：不，他们和你们不一样。你们是非常独特的，你们把自己与高我和我隔离了。所以你们是完全独立的，能够在生活中做出自己的决定和判断。
 
 ME:How does the alien mind work then? 
 
-我：
+我：那么外星人的心智是如何运作的呢？
 
 SE:They are constantly linked into each other.Every one of them knows (if they want to) what the other is thinking or is capable of. 
 
-源实体：
+源实体：他们彼此永远保持着联系。如果愿意，他们中的每一个都知道另一个在想什么或者能做什么。 
 
 ME:So what would happen if one of them wanted to,or was about to,do something bad?
 
-我：
+我：那么如果他们中的一个想要或者将要做什么坏事，会发生什么呢？ 
 
 SE:They wouldn't be able to because the whole alien mind,that is every one of them,would sense it and would be able to collect together and stop the act from happening.This is a form of self-policing and leads to the individual only doing what is right for the whole and,therefore,right. 
 
-源实体：
+源实体：他们做不到，因为整个外星人的心智，也就是他们中的每一个都会感觉到，并团结起来阻止这种行为的发生。这是一种自我监督的形式，会引导个体只做对整体来说正确，也就是对的事情。 
 
 ME:So what is right for them? 
 
-我：
+我：那什么对他们来说是正确的呢？
 
 SE:Anything that accelerates the evolution race. 
 
-源实体：
+源实体：任何能加速进化比赛的事情。 
 
 ME:Evolution is a race? 
 
-我：
+我：进化是一场比赛？
 
 SE:No,but only in so much as the individual's purpose is to get to a level of evolution that allows them to return to Me.
 
-源实体：
+源实体：不是，只是从个体以能达到回归我的进化水平为目标这个角度来形容的。
 
 ### Chapter 32 - The Source Entity and the Council of Twelve 
 
@@ -10454,27 +10472,27 @@ SE:No,but only in so much as the individual's purpose is to get to a level of ev
 
 I then thought about the question that a Bulgarian friend had asked me about the word Zion and asked Earth's Source Entity for an answer on this matter. 
 
-我又想起曾有个保加利亚朋友问到我关于西安这个名词，我向地球的源实体询问，请他解答这个问题。 西安是绕索普顿星球旋转的一颗卫星，我也是这么想的。但回头看看我的笔记发现，索普顿星球是没有卫星的世界。 的确如此，西安实际上是一颗小行星，但你可以称它为卫星，因为它太小了。 西安和索普顿互相环绕转动。哇，一对互相绕转的行星绕着一对互相绕转的恒星旋转。 哇，一定很罕见得自我以前关于索普顿的冥想记录，没有你，所以为的那么罕见。
+我又想起曾有个保加利亚朋友问到我关于锡安（Zion）这个名词，我向地球的源实体询问，请他解答这个问题。 
 
 SE:Zion is a moon that rotates around the planet Zorpeton. 
 
-源实体：
+源实体：锡安是绕索普顿（Zorpeton）星球旋转的一颗卫星。
 
 ME:I thought this,too,but looking back at my notes,I found that Zorpeton is a moonless world. 
 
-我：
+我：我也是这么想的，但回头看看我的笔记，发现索普顿星球是没有卫星的世界。
 
 SE:It is.Zion is really a small planet,but you might call it a moon as it is so small.Zion and Zorpeton rotate around each other. 
 
-源实体：
+源实体：的确如此。锡安实际上是一颗小行星，但你可以称它为卫星，因为它太小了。锡安和索普顿互相环绕转动。
 
-ME:Wow,a pair of planets that rotate around each other and rotate around a pair of suns that also rotate around each other [taken from my notes on a previous meditation on Zorpeton].That must be rare. 
+ME:Wow,a pair of planets that rotate around each other and rotate around a pair of suns that also rotate around each other.That must be rare. 
 
-我：
+我：哇，一对互相绕转的行星绕着一对互相绕转的恒星旋转。一定很罕见。
 
 SE:Not as rare as you might think.
 
-源实体：
+源实体：没有你所以为的那么罕见。
 
 #### Zion,the Residence of the Council of Twelve 
 
@@ -10482,19 +10500,19 @@ SE:Not as rare as you might think.
 
 ME:So what is the significance of it? 
 
-我：那么它有什么重要意义呢？它是十二长老议会的所在地，西安真的很美丽，这是个花园般的星球处处让人赏心悦目。 议会是物质存有吗？不当然不是，但他们可以显现到物质中使用和享受西安所提供的所有东西。
+我：那么它有什么重要意义呢？
 
 SE:It is where the council of twelve reside.Zion really is a beautiful planet.It is a garden planet and it is a real pleasure to be there. 
 
-源实体：
+源实体：它是十二长老议会的所在地。锡安真的很美丽，这是个花园般的星球，处处让人赏心悦目。 
 
 ME:Are the Council physical beings? 
 
-我：
+我：议会是物质存有吗？
 
 SE:No,of course not,but they can manifest themselves physically to take advantage of and enjoy what Zion has to offer them. 
 
-源实体：
+源实体：不，当然不是，但他们可以显现到物质中，使用和享受锡安所提供的所有东西。
 
 #### Roles of the Council of Twelve 
 
@@ -10502,27 +10520,27 @@ SE:No,of course not,but they can manifest themselves physically to take advantag
 
 ME:Why are there twelve on the Council? 
 
-我：议会成员为什么是十二个有十二个成员，是因为每个成员代表着十二个维度中的一个，他们是其所代表维度的守护者或监督者。 那他们为谁工作呢？为我他们确保一切顺利进行，每一个进化的机会都无遗漏的得到利用。 他们也曾到过地球，只不过是以能量状态，十二长老议会在地球上做了些什么呢？ 他们参与了地球上一个文明的发展。
+我：议会成员为什么是12个？
 
 SE:There are twelve because each member represents one of the twelve dimensional levels. They are the guardians or overseers of the level that they represent. 
 
-源实体：
+源实体：有12个成员，是因为每个成员代表着12个维度中的一个，他们是其所代表维度的守护者或监督者。 
 
 ME:So who do they work for? 
 
-我：
+我：那他们为谁工作呢？
 
 SE:Me.They ensure that everything is running smoothly,and every opportunity for evolution is taken and not missed.They have been on Earth,too,but only in their energetic state.
 
-源实体：
+源实体：为我。他们确保一切顺利进行，每一个进化的机会都无遗漏地得到利用。他们也曾到过地球，只不过是以能量状态。
 
 ME:What did the council of twelve do on Earth? 
 
-我：
+我：十二长老议会在地球上做了些什么呢？ 
 
 SE:They were involved with the first civilization. 
 
-源实体：
+源实体：他们参与了地球上一个文明的发展。
 
 #### The Council's Blunder with Atlantis 
 
@@ -10530,19 +10548,19 @@ SE:They were involved with the first civilization.
 
 ME:Which was the first civilization? 
 
-我：是哪一个文明呢？当然是亚特兰蒂斯了十二位长老派代表，有的甚至是亲自定期到访地球，为的是建立一个物质灵性结合的文明，一种基于身体性智和灵魂的融合的文明。 那么发生了什么事？十二长老犯了一个错误。他们以为可以认那些转世为亚特兰蒂斯人的灵魂们自由自主，但事实并非如此，他们太过沉迷于物质体验而失去了与他们的高我和我的文接。
+我：是哪一个文明呢？
 
 SE:Atlantis,of course.The representatives of the twelve,including some of the twelve themselves,visited Earth on a regular basis to establish a civilization based upon the integration of the physical and the spiritual,a fusion of mind,body,and soul. 
 
-源实体：
+源实体：当然是亚特兰蒂斯了。12位长老派代表，有的甚至是亲自定期到访地球，为的是建立一个物质灵性结合的文明，一种基于身体、心智和灵魂融合的文明。 
 
 ME:So what happened? 
 
-我：
+我：那么发生了什么事？
 
 SE:The twelve made a mistake.They thought that the spirits who incarnated as the Atlanteans could be left to their own devices,but this was not the case.They became too engrossed in the physical experience and lost the connection with their higher selves and with Me. 
 
-源实体：
+源实体：12长老犯了一个错误。他们以为可以认那些转世为亚特兰蒂斯人的灵魂们自由自主，但事实并非如此。他们太过沉迷于物质体验，而失去了与他们的高我和我的连接。
 
 #### The Greek,Roman,and Egyptian Connections with Atlantis 
 
@@ -10550,27 +10568,27 @@ SE:The twelve made a mistake.They thought that the spirits who incarnated as the
 
 ME:So what is the connection with the Greeks(Minoans)and the Egyptians and the Romans(the Romans have the similar architecture as the Greeks)?
 
-我：那么与希腊人米诺斯人埃及人，还有罗马人有什么联系呢？ 罗马人的建筑与希腊人相似，希腊人和米诺斯人是同一个种族，但由于他们彼此隔绝，因而发展历史不同。 从本质上讲，他们都是亚特兰蒂斯文明的孤立幸存者的后代。 不过这些都在逆传奇传导资料中被详细记载下来。那埃及人呢，他们跟希腊人和米诺斯人的源头是一样的。 埃及文明建立在亚特兰蒂斯残存文明的基础上，并完整保留了占星术的内容。 好了，那罗马人在这里扮演什么角色呢？他们极度希腊人的聪明才智，所以就模仿希腊人的建筑，想让别的国家因这些建筑所蕴含的智慧而敬重他们。 他们相信他们房屋和寺庙建筑，可以向其他同时代的民族宣告，他们的水平超越了那些竞争国家，而这可以为他们提供某种保护，以免受侵犯。 就如同说我们的建筑是神圣的，是神所恩赐的，所以你最好不要攻击我们，因为我们是被庇佑的，因此是不可战胜的。
+我：那么与希腊人、米诺斯人、埃及人、罗马人有什么联系呢（罗马人的建筑与希腊人相似）？ 
 
 SE:The Greeks and the Minoans are one and the same,but their isolation from each other made their history different.Essentially they are the isolated remnants of the Atlantean civilization,but this is well-documented in esoteric and channeled texts. 
 
-源实体：
+源实体：希腊人和米诺斯人是同一个种族，但由于他们彼此隔绝，因而发展历史不同。从本质上讲，他们都是亚特兰蒂斯文明的孤立幸存者的后代，不过这些都在秘传及传导资料中被详细记载下来。
 
 ME:What about the Egyptians? 
 
-我：
+我：那埃及人呢？
 
 SE:They come under the same heading as the Greeks and Minoans.Their civilization is based upon the surviving remnants of the Atlantean civilization,complete with its astrological content. 
 
-源实体：
+源实体：他们跟希腊人和米诺斯人的源头是一样的。埃及文明建立在亚特兰蒂斯残存文明的基础上，并完整保留了占星术的内容。
 
 ME:O.K.,so how do the Romans figure in this equation? 
 
-我：
+我：好了，那罗马人在这里扮演什么角色呢？
 
 SE:They were jealous of the perceived intelligence and intellect of the Greeks,so copied their architecture with the hope that other countries would hold them in high esteem through intellectual association of the architecture.They believed that the architecture of their buildings and temples spelled out to the other nations of their time that they were able to think above the level of their competitor nations,and that this provided them some sort of protection from invasion-i.e.,our buildings are divine and the gifts of the gods,so you had better not attack us as we are in favor and are,therefore,invincible. 
 
-源实体：
+源实体：他们嫉妒希腊人的聪明才智，所以就模仿希腊人的建筑，想让别的国家因这些建筑所蕴含的智慧而敬重他们。他们相信，他们的房屋和寺庙建筑可以向其他同时代的民族宣告他们的水平超越了那些竞争国家，而这可以为他们提供某种保护，以免受侵犯。就如同说，我们的建筑是神圣的，是神所恩赐的，所以你最好不要攻击我们，因为我们是被庇佑的，因此是不可战胜的。
 
 #### Greek and Roman Gods as Remembrances,Not Legends
 
@@ -10578,19 +10596,19 @@ SE:They were jealous of the perceived intelligence and intellect of the Greeks,s
 
 ME:We have heard a lot of legends of the gods,especially the Greek and Roman gods.Where did this come from? 
 
-我：我们听过很多神话传说，特别是希腊和罗马的神，这些是来自哪里的呢？ 这些不是传说，而是真实的记忆是十二长。老议会成员造访地球时，以及他们的代表与亚特兰蒂斯希腊罗马人中信任的代表们会面和交流时，地球人类的种族记忆。 实际上这些人类也无法用其他方式来感知他们。因为那时人们太专注于物质而忘记了自己的真正琐事。 我的一部分。所以人们将他们视为神，也是源于他们自身的知识水平。 是的。
+我：我们听过很多神话传说，特别是希腊和罗马的神，这些是来自哪里的呢？
 
 SE:These are not legends but actual remembrances.They are the racial memories of the people of Earth at that time of the visitations of the members of the council of twelve and of their representative's appearances and communications with the people of Atlantis and Greek/Roman trusted representatives.Essentially they could not perceive them in other ways because they were too engrossed in the physical by then and had forgotten who they really where,part of Me. 
 
-源实体：
+源实体：这些不是传说，而是真实的记忆。是十二长老议会成员造访地球时，以及他们的代表与亚特兰蒂斯、希腊、罗马人中信任的代表们会面和交流时，地球人类的种族记忆。实际上，这些人类也无法用其他方式来感知他们，因为那时人们太专注于物质，而忘记了自己的真正所是，我的一部分。
 
 ME:So they perceived them as gods because of what they could achieve with their knowledge. 
 
-我：
+我：所以人们将他们视为神，也是源于他们自身的知识水平。 
 
 SE:Yes. 
 
-源实体：
+源实体：是的。
 
 #### More About the Work of the Council of Twelve 
 
@@ -10598,51 +10616,51 @@ SE:Yes.
 
 ME:I would like to speak a bit more about the council of twelve and their work for You. 
 
-我：我想多聊聊十二长老议会的事，以及他们为你所做的工作。 他们的任务是帮助其他灵体以及物质化身的实体以及工作并获得觉知。 随着觉知的提升，我们的集体经验也会增加，怎么会是这样的呢？ 我还以为计划是要我们多去独自体验而不去与自己的高额接触。 因为觉知会让我们洞见更广大的实效会给我们带来更多的优势，这是对的。 但十二长老的目标是让灵魂在化身的过程中与我融成为一体。 我不懂，我以为我们在化身中遗忘的目的是在事先不知道会发生什么的。 前提下，允许我们有完全的自由意志，拥有觉知，肯定会破坏这一点。 不不一定，因为你自己知道，你可以有一定范围内的自由意志，这是什么意思？ 你有自由意志去做决定，但你也有生命中必须要做的事。在达到最终目标，它的范围内，你拥有自由意志。 大多情情况下就是这样的。而且其实就算是觉知到了真正的实效，也并不会有什么不同。 你拥有完全的自由意志，这很罕见。随之而来的是对自己和自己行为的更大责任。 可以这么说，你必须要在进，没有指示牌，就没有gps导航的情况下，找到你的回家之路。 那十二长老会怎么帮助我呢？使你在做出成功选择之后，你能够明显意识到，那是一个正确的选择，通过帮助你意识到他们是正确的决定，这种帮助不会那么明显。 但当你回过头来和你所做的事，和你走过的路时，就会感觉到那是对的。 你现在就在这样一条路上，一个十字路口路的两边都很吸引人，但只有一条路是最好的。 当我选择了正确的道路时，我会知道吗？不会。但是作为忠告在你内心的最深处，你知道如何合作才能最终成功，现在就去做吧。 你知道你必须做什么？
+我：我想多聊聊十二长老议会的事，以及他们为你所做的工作。
 
 SE:Their job is to help the other spirits and physically incarnating entities to work together and to attain awareness.With increased awareness,all of our(My/your/our)collective experiences increase. 
 
-源实体：
+源实体：他们的任务是帮助其他灵体，以及物质化身的实体一起工作并获得觉知。随着觉知的提升，我们的集体经验也会增加。
 
 ME:How can that be?I thought the idea was that we experience more by being alone and not having access to our higher selves since awareness would give us more of an advantage due to having insight of the bigger reality. 
 
-我：
+我：怎么会是这样的呢？我还以为计划是要我们多去独自体验而不去与自己的高我接触。因为觉知会让我们洞见更广大的实相，会给我们带来更多的优势。
 
 SE:This is correct,but the objective of the twelve is to achieve coadunation with Me when incarnate. 
 
-源实体：
+源实体：这是对的。但十二长老的目标是让灵魂在化身的过程中与我融成为一体。 
 
 ME:I don't understand.I thought that the objective of our incarnating with the forgetting was that we were allowed total freewill without prior knowledge of what could happen.Surely having awareness spoils this. 
 
-我：
+我：我不懂。我以为我们在化身中遗忘的目的是，在事先不知道会发生什么的前提下，允许我们有完全的自由意志，拥有觉知肯定会破坏这一点。
 
 SE:No,not necessarily,as you yourself know you can have freewill that is within certain parameters. 
 
-源实体：
+源实体：不，不一定，因为你自己知道，你可以有一定范围内的自由意志。
 
 ME:What do you mean? 
 
-我：
+我：这是什么意思？ 
 
 SE:You have freewill to make decisions,but you have a compulsion to do a certain thing in life.You have freewill within certain limits as long as you achieve your end goal.Most of the time this happens and would,in effect,be no different to having awareness of the real reality.You have total freewill,which is rare,and so with this comes even bigger responsibility for yourself and your actions.You have to find your way home without sign posts or GPS navigation,so to speak. 
 
-源实体：
+源实体：你有自由意志去做决定，但你也有生命中必须要做的事。**在达到最终目标的范围内，你拥有自由意志**。大多情情况下就是这样的，而且其实就算是觉知到了真正的实相，也并不会有什么不同。你拥有完全的自由意志，这很罕见，随之而来的是对自己和自己行为的更大责任。可以这么说，你必须要在既没有指示牌，又没有GPS导航的情况下找到你的回家之路。 
 
 ME:So how will the twelve help me?
 
-我：
+我：那十二长老会怎么帮助我呢？
 
 SE:By making your successful choices apparent to you after you have made them.By helping you to realize that they were the correct decisions.This help will not be apparent but will feel right when you look back upon what you have done and the roads you have taken.You are on such a road now,a junction;both sides of the road are enticing,but one will be the best one to take. 
 
-源实体：
+源实体：使你在做出成功选择之后，你能够明显意识到那是一个正确的选择，通过帮助你意识到它们是正确的决定。这种帮助不会那么明显，但当你回头来看你所做的事和你走过的路时，就会感觉到那是对的。你现在就在这样一条路上，一个十字路口，路的两边都很吸引人，但只有一条路是最好的。 
 
 ME:Will I know when I have taken the correct road? 
 
-我：
+我：当我选择了正确的道路时，我会知道吗？
 
 SE:No,but as a word of advice,you know in your heart of hearts what to do to be ultimately successful.Go now and know what you must do.
 
-源实体：
+源实体：不会，但是作为忠告，在你内心的最深处，你知道如何合作才能最终成功。现在就去做吧，你知道你必须做什么。
 
 ## Part 4 - The Less Than Mechanical Side
 
@@ -10650,7 +10668,7 @@ SE:No,but as a word of advice,you know in your heart of hearts what to do to be 
 
 As I moved through the details that were being given to me,I noticed that I was moving away from the mechanical angle of the universe and how humankind was developed into learning how to live in such an environment to the best of my ability by taking all of the opportunities that are given to evolve while not being dragged down by the lower frequencies that we are attracted to whilst being incarnate.I do note,however,that some of you may have noticed this transition earlier in the book while others might not,so it is at this point that I have decided to take the opportunity to point out to the reader that this transition has been fully made.And the content that is being read is truly to do with how to live life in the physical in the most efficient way possible.In addition,a few age old questions have been answered.This is,therefore,the next part of the book!
 
-当我在接收到的这些细节信息的海洋中遨游时，我发现自己正从一个人类是如何发展而来的的机械化的观点逐渐转变为另一个新的视角学习，尽我最大的能力，好好生活于目前的环境中抓住所有出现在我面前的进化机会，同时不被转世化身时的那些对我们有强大吸引力的低频率所拖累。 我也明白，一部分读者已经在本书前面的部分发现了这种转变，而其他读者可能还未意识到，无论如何，此时我决定利用这个机会向读者们指出，这个转变已彻底完成了他们正在阅读的这些内容所提到的正是如何在物质频率世界中尽可能以最有效的方式去生活。 此外，一被转世久远的问题也获得了答案。现在我们将要进入到本书崭新的下一部分。
+当我在接收到的这些细节信息的海洋中遨游时，我发现自己正从一个人类是如何发展而来的机械化的观点，逐渐转变为另一个新的视角学习，尽我最大的能力好好生活于目前的环境中，抓住所有出现在我面前的进化机会，同时不被转世化身时的那些对我们有强大吸引力的低频率所拖累。我也明白，一部分读者已经在本书前面的部分发现了这种转变，而其他读者可能还未意识到。无论如何，此时我决定利用这个机会向读者们指出，这个转变已彻底完成了。他们正在阅读的这些内容所提到的，正是如何在物质频率世界中尽可能以最有效的方式去生活。此外，一被历时久远的问题也获得了答案。现在，我们将要进入到本书崭新的下一部分。
 
 ### Chapter 33 - Nature Spirits in My Garden 
 
