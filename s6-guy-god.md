@@ -9600,7 +9600,7 @@ ME:Why can't we see you?
 
 A:Because we are in a different frequency or dimension than you.YOU can't see the higher frequencies but a person in a higher frequency can see things in a lower frequency.For example,you can see this effect when you look at the different frequencies and states (or vibration levels of molecules)that water adopts at different temperatures.You can just perceive a gas when it is at the slightly lower vibration of steam but any higher, and it goes out of your visual range literally into another dimension(frequency).Of course,you see it when it is lowered even further down the frequencies and becomes ice. 
 
-外星人：因为我们和你们的频率或维度不同。你们看不到较高频率的事物，但是高频中的人却可以看到低频的事物。例如，当你查看水在不同温度下的不同频率和状态或分子的震动水平时，就可以看见这种效果。而只有当蒸汽的振动比较低的时候，你才能感觉到它，变得再高你就看不见了。而且它的确从你的视野中离开，去到了另一个维度/频率。当然，当它频率不断下降，变成了冰，你就能看得到它了。
+外星人：因为我们和你们的频率或维度不同。你们看不到较高频率的事物，但是高频中的人却可以看到低频的事物。例如，当你查看水在不同温度下的不同频率和状态或分子的振动水平时，就可以看见这种效果。而只有当蒸汽的振动比较低的时候，你才能感觉到它，变得再高你就看不见了。而且它的确从你的视野中离开，去到了另一个维度/频率。当然，当它频率不断下降，变成了冰，你就能看得到它了。
 
 ME:So it is better to be in a higher dimension or frequency. 
 
@@ -10680,39 +10680,43 @@ As I moved through the details that were being given to me,I noticed that I was 
 
 During a morning's meditation before I went to work,I decided to link into the nature spirits that are in and around my garden.As I turned my perceptual focus to the same energetic level as these nature-based entities,they instantly appeared in my mind's eye to surround me.They were delighted that I saw them since this is not always the case with human contact.As an act of friendship,they clung to me and climbed all over me,each one showing me that it was there.I then decided to ask a few questions. 
 
-一天早晨，在我上班前的冥想中，我决定连接花园附近的大自然精灵了。 我将自己的感知焦点调节到自然精灵所在的能量层时，他们瞬间出现在我心灵视野中围绕着我，我能看到他们，他们很开心，因为与人类的接触并非一向如此，他们表示友好，他们贴近我，在我全身上下爬动，每个精灵都向我展示着自己的存在。 于是我决定问几个问题。为什么我看见的你们就像是缩小版的人类，我们选择人类的外形有两个原因。 第一个原因是我们所显现的外形取决于人类对我们的期待。 这意味着人类期待精灵，就像这个样子是人类的缩小版带有一对蝴蝶的翅膀，所以这就成了我们被这些人看到的样子。 第二个原因是我们很喜欢你们对我们外形的翅想。所么你们真正的样子是什么样？ 我们会让你看的就在此刻，我接收到一个光球的影像，缓缓的移动穿过花园，每一次当光球被要求为一棵树或灌物养护时，一根能量的储须变，从光球长出来，连接到要被养护的植物的辉光或能量系统上，这样的方式可以同时影响两到三颗植物，能看到光球行云流水的缓缓穿过花园，一路伸出触手接触，需要养护的植物真的很美妙。 为什么你们不像人们显示你们真正的样子。因为他们会无法理解自己看到的是自然精灵。 对他们而言，我们是精灵微小的人形精灵小人小妖精，他们还没有准备好看到精灵能量体的真正世界。 当他们无意间调节进入了我们的世界或者维度，他们会使用自己能接受的形象，也就是神话中的精灵的样子。 我更愿意看到你们的元貌能量体的外观非常好。我们喜欢跟你合作。
+一天早晨，在我上班前的冥想中，我决定连接花园附近的大自然精灵了。我将自己的感知焦点调节到自然精灵所在的能量层时，他们瞬间出现在我心灵视野中围绕着我。我能看到他们，他们很开心，因为与人类的接触并非一向如此。为了表示友好，他们贴近我，在我全身上下爬动，每个精灵都向我展示着自己的存在。于是我决定问几个问题。
 
 ME:How come I see you as smaller versions of human beings? 
 
-我：
+我：为什么我看见的你们就像是缩小版的人类？
 
 Nature Spirits together (NS):We take the form of humans for two reasons.The first reason is that we appear in a way that is expected ofus.That means that humans expect nature spirits to be smaller versions of humans with butterfly wings,so that is what we look like to those who see us.Second,we like the appearance that you give us. 
 
+自然精灵：我们选择人类的外形有两个原因。第一个原因是，我们所显现的外形取决于人类对我们的期待。这意味着人类期待精灵就像这个样子，是人类的缩小版，带有一对蝴蝶的翅膀，所以这就成了我们被这些人看到的样子。第二个原因是，我们很喜欢你们对我们外形的设想。
+
 ME:So what do you really look like?
 
-我：
+我：所么你们真正的样子是什么样？
 
 NS:We will show you. 
 
-自然精灵：
+自然精灵：我们会让你看的。
 
 At this point I got the image of a ball of light slowly moving through the garden.Each time the ball of light was called to do some maintenance with a tree or a bush,an energy tendril grew from the ball and linked into the aura and energy system of the plant being maintained.This could happen to two or three plants at the same time.It was wonderful to see the fluid movement of this ball just slowly moving through the garden reaching out and touching plants as necessary. 
 
+就在此刻，我接收到一个光球的影像，缓缓的移动穿过花园。每一次当光球被要求为一棵树或灌物养护时，一根能量的触须便从光球长出来，连接到要被养护的植物的辉光或能量系统上，这样的方式可以同时影响两到三颗植物。能看到光球行云流水地缓缓穿过花园，一路伸出触手接触需要养护的植物，真的很美妙。
+
 ME:So why don't you appear to people who see you as you really are? 
 
-我：
+我：为什么你们不像人们显示你们真正的样子？
 
 NS:Because they would not understand what they see as being nature spirits.To them we are fairies(small human-like spirits,the little people,and leprechauns).They are not yet ready to see the real world of spirit/energy beings.When they do inadvertently tune into our world/dimension,they use the image that they can cope with,the one of fairy tales. 
 
-自然精灵：
+自然精灵：因为他们会无法理解自己看到的是自然精灵。对他们而言，我们是精灵（微小的人形精灵，小人，小妖精），他们还没有准备好看到精灵能量体的真正世界。当他们无意间调谐进入了我们的世界或者维度，他们会使用自己能接受的形象，也就是神话中的精灵的样子。
 
 ME:I prefer to see you as you are,energy beings. 
 
-我：
+我：我更愿意看到你们的原貌，能量体的外观。
 
 NS:That is good.We like working with you. 
 
-自然精灵：
+自然精灵：非常好。我们喜欢跟你合作。
 
 #### Nature Spirits and the Energy Vortices 
 
@@ -10720,25 +10724,31 @@ NS:That is good.We like working with you.
 
 ME:Do you use the energy vortices here much?
 
-我：你们经常在这里利用能量漩涡吗？在我的花园里，我注意到有一些能量线一些小的地脉，他们在地表形成漩涡一直都用，但那些能够接入地球能量的人类使用的最好。 那些人能为地球做很多好事，并且能提升地球的频率。 他们是怎么做的？他们让自己成为宇宙能量的天线，将能量传到地球上，供地球本身和其他与地球合作的存有使用。 所以除了自然精灵，还有其他存有在与地球合作。是的，下次你与我们连接时，我们会给你看他们是谁。
+我：你们经常在这里利用能量漩涡吗？
 
 I had noticed that there were energy lines,small ley lines,in our garden and that these came to the surface as vortices. 
 
+在我的花园里，我注意到有一些能量线，一些小的地脉，它们在地表形成漩涡。
+
 NS:All of the time but they are best used by humans who can tap into the Earth energies. Those people can really do some good work with the Earth and raise the Earth's vibrations. 
 
-自然精灵：
+自然精灵：一直都用，但那些能够接入地球能量的人类使用得最好。那些人能为地球做很多好事，并且能提升地球的频率。
 
 ME:How do they do that? 
 
-我：
+我：他们是怎么做的？
 
 NS:By being antennas for the universal energies and directing them to the Earth for use by the Earth and the other entities that work with the Earth. 
 
-自然精灵：
+自然精灵：他们让自己成为宇宙能量的天线，将能量传到地球上，供地球本身和其他与地球合作的存有使用。 
 
-ME:So there are other entities that work with the Earth other than nature spirits? NS:Yes,and we will show you who they are when you next log into us. 
+ME:So there are other entities that work with the Earth other than nature spirits? 
 
-我：
+我：所以除了自然精灵，还有其他存有在与地球合作？
+
+NS:Yes,and we will show you who they are when you next log into us. 
+
+自然精灵：是的，下次你与我们连接时，我们会给你看他们是谁。
 
 #### The Origin on the Purpose of Animals on Earth 
 
@@ -10746,35 +10756,35 @@ ME:So there are other entities that work with the Earth other than nature spirit
 
 ME:What purpose do the animals on the Earth play? 
 
-我：地球上为什么有动物的存在目的是什么？他们在地球上陪伴你们，也带给你们快乐，带给我们快乐，难道不是吗？ 确实我喜欢听小鸟唱歌，也喜欢我的猫咪们毫无保留的爱。 我只要我一回到家，他们都很高兴看到我，那么他们一直都很尽职。 地球上若没有这些动物，将会是一个寂寞的地方，他们也在帮我们的忙，帮什么忙，他们对生命的体验没有那么复杂，没有挣扎，没有贪婪，除了成为自己，他们一无所求，他们对死亡和疾病没有恐惧，所以能够在相当程度上以一种最为过滤的方式来体验一切。 所以对我们而言，在与人类的进化体验进行对比时，动物是一条很有用的基准线。 因为相较于那些完全没有自由意志的动物，你们拥有任何想要的自由意志。
+我：地球上为什么有动物的存在？目的是什么？
 
 O:They are there to keep you company and bring you joy. 
 
-起源：
+起源：它们在地球上陪伴你们，也带给你们快乐。
 
 ME:Bring us joy? 
 
-我：
+我：带给我们快乐？
 
 O:Yes,do they not?
 
-起源：
+起源：难道不是吗？ 
 
 ME:Yes,I enjoy listening to the birds,and I enjoy the fact that my cats love me without reservation and are always pleased to see me when I come home. 
 
-我：
+我：确实，我喜欢听小鸟唱歌，也喜欢我的猫咪们毫无保留的爱我，只要我一回到家，它们都很高兴看到我。
 
 O:Then they are doing their job.It would be a lonely place on the Earth without the animals. They also do Me a service as well. 
 
-起源：
+起源：那么它们一直都很尽职。地球上若没有这些动物，将会是一个寂寞的地方。它们也在帮我们的忙。
 
 ME:What is that? 
 
-我：
+我：帮什么忙？
 
-O:They experience life without complication,without striving,without greed,without needing anything other than to be what they are.They have no fear of death and disease and,therefore,accomplish quite a lot by experiencing things in a most un- filtered way.They are,therefore,a useful datum line for Me to have when comparing the evolutionary experiences that you have in human form,where you have all the freewill you want,to those who clearly do not have any free will. 
+O:They experience life without complication,without striving,without greed,without needing anything other than to be what they are.They have no fear of death and disease and,therefore,accomplish quite a lot by experiencing things in a most un-filtered way.They are,therefore,a useful datum line for Me to have when comparing the evolutionary experiences that you have in human form,where you have all the freewill you want,to those who clearly do not have any free will. 
 
-起源：
+起源：它们对生命的体验没有那么复杂，没有挣扎，没有贪婪，除了成为自己，它们一无所求。它们对死亡和疾病没有恐惧，所以能够在相当程度上以一种最为过滤的方式来体验一切。所以对我们而言，在与人类的进化体验进行对比时，动物是一条很有用的基准线。因为相较于那些完全没有自由意志的动物，你们拥有任何想要的自由意志。
 
 #### The Source Entity on the Purpose of Animals on Earth 
 
@@ -10782,43 +10792,47 @@ O:They experience life without complication,without striving,without greed,witho
 
 SE:Animals are an integral part of the spiritual biosphere of the Earth.They form a function of tending to the needs of the Earth in certain ways,rather like nature spirits.They work on the more physical levels of the Earth,those that the nature spirits have difficulty with due to their level of frequency. 
 
-源实体：动物是地球整体灵性生物圈的重要部分。 他们的功能是通过一些特殊的方式照顾地球所需与自然精灵，有些类似他们的工作更多属于地球的物质层面。 而自然精灵，由于频率的关系比较难做到这一点。但他们对我们而言，似乎只是动物好像并没有做什么特别的事。 那是因为你们无法看到自己所体验的层面之外，如果没有动物为地球所做的一切。 那么灵性生物圈将会比现在更为污浊动物们清理并调整那些最低频率的能量为人类目前对地球的照顾不周做出补偿。 所以动物本质上是光之工作者。是的，而人类却意识不到这一点，动物界所做的一切都是为了地球及其高等居民，也就是人类的利益。 你们只是认识不到罢了。以昆虫界为例，你们能够认识到昆虫在其微小层面中所尽的责任。 但你们却完全忽略了较大动物所做的事，只因为他们和你们的体型结构是如此的。 接近。此外，动物们本身也是一种灵性体。你的意思是说，他们类似于人类的灵性体不是的，他们不在同一个层级里。 你记得在我们一开始的对话里，我曾经提到，当我将自我分出来，你创造出所有你们的时候，我同时也创造了一些不太一样的实体。 这是因为当我在创造所有你们的时候，能量分配并不一致。 动物们是有觉知的实体，但和人类的觉知层次不同。如果这些实体与人类合作一段时间，当然也可以往上移动到和你们一样的层级，这种情形不多，但也有足够的实体，即将进入人类的能量层级，或是已有这种能力。 这纯粹是他们与所爱的人类持续互动的结果，会因为人类爱它们，所以要求他们一起转世。 同理，在另一层面上，植物与矿物灵也能够提升频率进入下一层级。 只不过对他们而言，要困难，许多可能需要好几千年才能达到这些，取决于他们与高于自己的存有互动的水平，以及与高频存有接触的机会多少？ 只有与高频存有之间规律，甚至持续的互动，才能帮助他们在频率上往前或往上移动。 所以这种本身作为一个存有，与所有这些时体在合作。当然是的，行星在宇宙中也扮演着其他的角色。 因为他们所在的环境需要许多所谓的家务工作才能使环境有序正常的运作。 他们擅长清扫杂乱能量及同时存在于物质或灵性频率的，没有明确关联的能量，并为这种能量提供一种位置或连接的原点，给予它一个方向和目的一切能量都应有一个目的，以有什么能比成为为行星的一部分更好呢？ 因为行星从多元维度来看，它是一个较大的实体，目的是维持宇宙的平衡。 人类目前拥有的绝佳机会与动物植物与人物共同合作。 他支援吸引你们的星球之所需，因为所有的存有都会被那些最能在合作中他助自己进化的星球所吸引，即便动物与人类相比较为简单，但某种程度上他们更靠精神，因为他们投胎时的行为与意愿是纯粹的。 你们应该把动物们视为人类的朋友与帮手，因为他们的确也是这样的，他们存在于这个环境的目的，就是为了帮助你们进化并回到源头，他们做这些工作，而不求回报。 他们只是为你们服务，他果有动物，有机会进化到人类的能量级别。 对他们来说就是一种极大的荣幸，因为他们的天然本性不会怀着在与人类合作时能跳跃至更高层层级这样的秘密。 期待从这方面来看，他们太纯洁了，因为没有被人类创造的低频腐化，而正是人类试图改善自身，却毫不顾及对周围存有或环境影响的行为。 正如了这些低频能量，动物，不会对环境造成不利，他们与环境合作，就连蝗虫也是。 正如我先前说过的，所有的动物都有特定工具，他们为了环境而工作，并非为了自己，他们会这么做，是因为他们无法以这种方式去思考，结果是他们的思想和行为都发自内心而尽自己拥有的物质工具所能来提供最好的服务，他们也有能量性工具。 他以人类一无所知，意识不到的方式，在与地球及宇宙保持和谐的状态下使用这些工具。 如果人类足够觉察能意识到动物们在幕后为他们所做的一切是多么重要。 他们将会谦逊的去改变自己。他们将不会再用同样的方式去对待动物和这个世界。 动物界经常为了人类的利益牺牲自己，而人类却不屑一顾，是正是这一切的时候了。
+源实体：动物是地球整体灵性生物圈的重要部分。它们的功能是通过一些特殊的方式照顾地球所需，与自然精灵有些类似。它们的工作更多属于地球的物质层面，而自然精灵由于频率的关系比较难做到这一点。
 
 ME:But they appear just as animals to us and don't appear to do anything special.
 
-我：
+我：但他们对我们而言，似乎只是动物，好像并没有做什么特别的事。
 
 SE:That is because you cannot see beneath the level that you are experiencing.Without the animals doing their work for the Earth,the spiritual biosphere would be even more stagnant than it is now.They clean up and re-align the energies that are at the very bottom of the frequencies,making up for the lack of care that humanity is currently taking of the Earth. 
 
-源实体：
+源实体：那是因为你们无法看到自己所体验的层面之外。如果没有动物为地球所做的一切，那么灵性生物圈将会比现在更为污浊。动物们清理并调整那些最低频率的能量，为人类目前对地球的照顾不周做出补偿。 
 
 ME:So animals are essentially lightworkers? 
 
-我：
+我：所以动物本质上是光之工作者？
 
 SE:Yes,they are,and humanity incarnate does not even recognize this.Everything that the animal kingdom does is for the benefit of the Earth and its senior inhabitants, humankind;you just don't recognize it.Consider the insect kingdom,for example. You recognize the work that they do on the small level that they have to work within, but you totally miss the work that the bigger animals do because they are so close to you in size and shape and makeup.What's more,the animals are also spirits in their own right. 
 
-源实体：
+源实体：是的，而人类却意识不到这一点。动物界所做的一切都是为了地球及其高等居民，也就是人类的利益，你们只是认识不到罢了。以昆虫界为例，你们能够认识到昆虫在其微小层面中所尽的责任，但你们却完全忽略了较大动物所做的事，只因为它们和你们的体型、结构是如此的接近。此外，动物们本身也是一种灵性体。
 
 ME:You mean that they are like human spirits? 
 
-我：
+我：你的意思是说，它们类似于人类的灵性体？
 
 SE:No,they are not at the same level.Remember in a dialogue we had right at the start of this relationship where I mentioned that when I separated Myself out to form all of you,I also created entities that were not quite the same.This was because the amount of energy was not consistently distributed when I created all of you.These are also sentient beings,but the sentience is of a different level.They can,of course, move up to the same level as you if they work with humanity over a period of time. Not many do this,but there are enough that are either on the cusp of moving up to the same level as the human energy level or are capable of doing so,purely as a result of their continued interaction with loved humans,or humans that love them and ask them to incarnate with them.Again on a different level,the plant and mineral spirits are also capable of moving up the frequencies to the next level,but that is a much bigger job for them to do,taking many,many millennia to achieve purely due to the level of interaction that they have with entities that are higher than themselves and the number of opportunities to be exposed to the environments that give them the contact with entities of higher frequencies.It is the regular or even constant interaction with entities of a higher frequency that helps them move onwards and upwards. 
 
-源实体：
+源实体：不是的，它们不在同一个层级里。你记得在我们一开始的对话里，我曾经提到，当我将自我分出来，并创造出所有你们的时候，我同时也创造了一些不太一样的实体。这是因为当我在创造所有你们的时候，能量分配并不一致。动物们是有觉知的实体，但和人类的觉知层次不同。如果这些实体与人类合作一段时间，当然也可以往上移动到和你们一样的层级。这种情形不多，但也有足够的实体即将进入人类的能量层级，或是已有这种能力。这纯粹是它们与所爱的人类持续互动的结果，或因为人类爱它们，所以要求它们一起转世。同理，在另一层面上，植物与矿物灵也能够提升频率进入下一层级。只不过对它们而言要困难许多，可能需要好几千年才能达到。这些取决于它们与高于自己的存有互动的水平，以及与高频存有接触的机会多少。只有与高频存有之间规律甚至持续的互动，才能帮助它们在频率上往前或往上移动。 
 
 ME:So working with this is the Earth,an entity in its own right. 
 
-我：
+我：所以地球本身作为一个存有，与所有这些实体在合作。
 
 SE:Yes,of course. 
 
-源实体：
+源实体：当然是的。
 
 The planets have other roles to play within the universe as well,for they exist in an environment that needs a lot of,shall we say,housekeeping,to keep it in good running order.They are good at mopping up all of the stray energy that has no clear association that exists in both physical and spiritual form and provides a location/association for it,giving it a direction,a purpose.All energy should have a purpose and what better way than to be part of a planet,a large entity that has a purpose,the maintenance of the equilibrium of the universe from a multi-dimensional point of view.The great opportunity you have is for humanity to work together with the animals,the plants,and the minerals to support the requirements of the planet that attracted you,for all entities are attracted to those with whom they feel they can work best to help them evolve. 
 
+行星在宇宙中也扮演着其他的角色，因为它们所在的环境需要许多所谓的家务工作，才能使环境有序正常地运作。它们擅长清扫杂乱能量及同时存在于物质或灵性频率的没有明确关联的能量，并为这种能量提供一种位置或连接的原点，给予它一个方向和目的。一切能量都应有一个目的，还有什么能比成为为行星的一部分更好呢？因为行星从多元维度来看，它是一个较大的实体，目的是维持宇宙的平衡。人类目前拥有的绝佳机会是与动物、植物、矿物共同合作，去支援吸引你们的星球之所需。因为所有的存有都会被那些最能在合作中帮助自己进化的星球所吸引。
+
 Even though the animals are a simpler entity than the human entity they are in some respects closer to God,for they are pure in their actions and intentions when they are incarnate.You should consider the animals as your friends and helpers,for this is what they are.They exist in this environment purely to help you evolve and return to the Source.In doing this,they ask for nothing;they work only to be of service.When one of them is given the opportunity to progress to the human energy levels,it is a great honor for them,for it is not in their nature to work with humanity with the ulterior motive of being able to jump to the next level.They are too pure in this sense,as they have not been corrupted by the lower levels of frequency that humanity creates for itself by trying to better itself without any consideration on how that might affect the entities or environment around them.Animals do not affect the environment adversely;they work with it,even locusts do.As I have just stated,all animals have specific jobs to do and do them for the sake of the environment and not themselves.They do this because they are not capable of thinking this way.As a result,their thoughts and actions are pure of heart and are committed to being of the best service that they can with the physical tools they have at hand.They also have energetic tools as well that they use in complete harmony with the Earth and the universe and in a completely unknown and unrecognized way by humanity.If humanity incarnate was aware enough of how much important work animals do for them behind the scenes,they would be humbled to the point of change. They would no longer do the things that they do to animals and the world.The animal kingdom sacrifices itself on a regular basis for the good of humankind,and humankind does not even bat an eyelid.It's time they did. 
+
+即便动物与人类相比较为简单，但某种程度上它们更靠近神，因为它们投胎时的行为与意愿是纯粹的。你们应该把动物们视为人类的朋友与帮手，因为它们的确也是这样的。它们存在于这个环境的目的，就是为了帮助你们进化并回到源头。它们做这些工作而不求回报，它们只是为你们服务。如果有动物有机会进化到人类的能量级别，对他们来说就是一种极大的荣幸，因为它们的天然本性，不会怀着在与人类合作时能跳跃至更高层级这样的秘密期待。从这方面来看，它们太纯洁了，因为没有被人类创造的低频腐化。而正是人类试图改善自身却毫不顾及对周围存有或环境影响的行为，产生了这些低频能量。动物不会对环境造成不利，它们与环境合作，就连蝗虫也是。正如我先前说过的，所有的动物都有特定工作，它们为了环境而工作，并非为了自己。它们会这么做，是因为它们无法以这种方式去思考，结果是它们的思想和行为都发自内心，而尽自己拥有的物质工具所能来提供最好的服务。它们也有能量性工具，并以人类一无所知意识不到的方式，在与地球及宇宙保持和谐的状态下使用这些工具。如果人类足够觉察，能意识到动物们在幕后为他们所做的一切是多么重要，他们将会谦逊地去改变自己，他们将不会再用同样的方式去对待动物和这个世界。动物界经常为了人类的利益牺牲自己，而人类却不屑一顾，是正视这一切的时候了。
 
 #### The Necessity of Working with Nature to Achieve Balance on All Levels 
 
@@ -10826,23 +10840,27 @@ Even though the animals are a simpler entity than the human entity they are in s
 
 ME:I was pondering on what a wonderful life the old Greeks must have had working on the land and being in tune with the seasons that nature has given us. 
 
-我：我在讲古希腊人在大地上劳作顺应大自然赐予我们的四季。 这种生活是多么的美好。请记住这是一个很重要的思考方式。 比如，在当今时代，被认真看待的事情，能否维系世界的平衡，取决于人类是否与大自然配合。 比如当你们以可持续的方式，所否利用世林的时候，如果人类能够视他为一种良好的工作模式，所有工业带来的损害都将消除。 还有一种可选的现代做法，可以实现这个目的，即人类远离世界，或是到地底下生活这么做，可让地球表面回到自然状态。 如果人类能够以无污染的农业方式照料，地球也会让地球维持平衡，人类与大自然密不可分。 人类所做的每件事对大自然都会有影响。而自然界所发生的一切，也对人类有影响。 如木动物物海洋岩石大气以及磁场地球灰光场都对人类有影响，也都受到人类的影响。 自然精灵与树木和森林对人类破坏了大部分的森林，人遍漠视大自然的情形感到很失望。 如果人类能够遵从自然法，则生活通过发明与大自然互补的科技。 比如利用风海洋或太阳能等可持续发展的能源，而不是通过斗争和污染的方式，人类将会进化的快。 很多科技的目的是帮助你们进步，减轻你们的日常工作负担，但不要让它引领你们走向自我毁灭。 如果使用得到科技，会使你们更能在自然法则下工作得到灵性的成长。 人类不仅和地球的大自然链接，也和宇宙层级里的大自然链接。 事实上，自然是源实体，也就是我或神的一部分，因此自然存在于任何时间。 一切宇宙星系中的所有地方。因此，我们在地球所做的事，对整个宇宙处处都有影响，不难想象会有其他存有。 对于你们在地球上的行为感到忧虑，你们与各星球太阳系迎合及各宇宙中各个自然界连习你们的每个部分都和其他地方相互依赖，彼此影响，因此与大自然连接，可以让你们和宇宙链接，并与神或者说起源，真正的我们交流这个时代，我们最好相谁学习，他们可以跟巫师和女巫们学习，他们仍然存在，只是不再带尖尖的巫师帽或其扫帚，他们是懂得如何运用大自然的人类，他们知道一切能治疗疾病和辅助冥想的药草和植物。 他们也知道如何看到能量使用能量进行疗愈操纵物质和使用炼金术，包括其他更高的功能。 他们也能看到自然精灵与之交谈，在自然中与去合作。 基本上他们是自己环境的主人，因为他们完全了解宇宙及其运作模式。 所谓现代人类可以向他们学到很多东西。
+我：我在想，古希腊人在大地上劳作，顺应大自然赐予我们的四季，这种生活是多么的美好。
 
 SE:Listen,this is an important thought process and one that needs serious consideration in this day and age.The world balance would be maintained if man worked together with nature,such as when you worked in harmony with the forests in a sustainable way.If man could see this as a good way of working,then all of the damage caused by industry could be undone.A modern way of doing this would be for man to live either off world or underground.This would leave the Earth to return to its natural ways on the surface.If man could even tend the earth in the agricultural ways without using pollutants,it would maintain the balance. 
 
-源实体：
+源实体：请记住，这是一个很重要的思考方式。需要在当今时代被认真看待的事情，能否维系世界的平衡取决于人类是否与大自然配合，比如当你们以可持续的方式和谐利用森林的时候。如果人类能够视它为一种良好的工作模式，所有工业带来的损害都将消除。还有一种可选的现代做法可以实现这个目的，即人类远离世界或是到地底下生活，这么做可让地球表面回到自然状态。如果人类能够以无污染的农业方式照料地球，也会让地球维持平衡。
 
 Man is inseparably linked to nature.Everything he does has an effect on nature,and everything that happens in nature has an effect on man.The trees,the animals,the seas, the rock,the atmosphere,and the magnetic field/Earth's aura all have an effect on and are affected by man.Nature spirits aligned with trees and forests are disappointed with the human race for destroying most of the forests and their disregard for nature in general. If man could learn to live within the laws of nature by producing technologies that are complementary to nature,like sustainable energies,such as wind,sea,or solar energy, rather than fighting or polluting,humankind would evolve a lot faster.Technology is there to help you progress and find ways to relieve you of your daily burdens,but you need to ensure that it is not your undoing.It will,if used properly,allow you to work more within the rules of nature and progress spiritually. 
 
+人类与大自然密不可分，人类所做的每件事对大自然都会有影响，而自然界所发生的一切也对人类有影响。树木、动物、海洋、岩石、大气，以及磁场、地球辉光场都对人类有影响，也都受到人类的影响。自然精灵与树木和森林对人类破坏了大部分的森林、普遍漠视大自然的情形感到很失望。如果人类能够遵从自然法则生活，通过发明与大自然互补的科技，比如利用风、海洋或太阳能等可持续发展的能源，而不是通过斗争和污染的方式，人类将会进化的快很多。科技的目的是帮助你们进步，减轻你们的日常工作负担，但不要让它引领你们走向自我毁灭。如果使用得当，科技会使你们更能在自然法则下工作，得到灵性的成长。 
+
 Man is not only linked with nature here on Earth but also linked to nature on the universal level.Indeed,nature is part of the Source Entity (Me)or God and is,therefore, everywhere in all the galaxies in all the universes in all time.Thus,what we do here on Earth has an effect throughout the universe.No wonder other beings are worried about what you do to your planet.You are linked to all parts of nature throughout the different planets,solar systems,galaxies,and universes.Every part of you is interdependent upon the other,each having an effect on each other.Connecting with nature,therefore,allows you to connect with the universe and communicate with God(the Origin,the real Us). 
+
+人类不仅和地球的大自然连接，也和宇宙层级里的大自然连接。事实上，自然是源实体（我）或神的一部分，因此自然存在于任何时间、一切宇宙、星系中的所有地方。因此，我们在地球所做的事对整个宇宙处处都有影响，不难想象会有其他存有对于你们在地球上的行为感到忧虑。你们与各星球、太阳系、银河及各宇宙中各个自然界连接，你们的每个部分都和其他地方相互依赖，彼此影响。因此，与大自然连接可以让你们和宇宙连接，并与神（起源，真正的我们）交流。
 
 ME:Who would be the best to learn from in this day and age? 
 
-我：
+我：这个时代，我们最好向谁学习？
 
-SE:Learn from the wizened ones(wizards)and witches.They are still around;they just don't wear pointed hats or ride on broomsticks.They are people who are knowledgeable in the use of nature.They know all of the herbs and plants that can be used for healing and to aid meditations.They also know how to see and use energy for healing,manipulation of matter and alchemy,including other higher functions.They can see and talk to the nature spirits and work together with them within nature's framework.Essentially they are masters of their environment as they have a total understanding of the universe and its workings.So-called "modern"humankind could learn a lot from them. 
+SE:Learn from the wizened ones(wizards)and witches.They are still around;they just don't wear pointed hats or ride on broomsticks.They are people who are knowledgeable in the use of nature.They know all of the herbs and plants that can be used for healing and to aid meditations.They also know how to see and use energy for healing,manipulation of matter and alchemy,including other higher functions.They can see and talk to the nature spirits and work together with them within nature's framework.Essentially they are masters of their environment as they have a total understanding of the universe and its workings.So-called "modern" humankind could learn a lot from them. 
 
-源实体：
+源实体：你们可以跟巫师和女巫们学习，他们仍然存在，只是不再戴尖尖的巫师帽或骑扫帚。他们是懂得如何运用大自然的人类，他们知道一切能治疗疾病和辅助冥想的药草和植物。他们也知道如何看到能量，使用能量进行疗愈，操纵物质和使用炼金术，包括其他更高的功能。他们也能看到自然精灵与之交谈，在自然中与之合作。基本上他们是自己环境的主人，因为他们完全了解宇宙及其运作模式。所谓“现代”人类可以向他们学到很多东西。
 
 #### The Essence of Trees
 
@@ -10850,43 +10868,47 @@ SE:Learn from the wizened ones(wizards)and witches.They are still around;they ju
 
 In this dialogue I communicate with the Source Entity on the subject of trees.I personally like trees and feel that they have a special association with us.Once I had focused my attention on the Source Entity,communication was instantaneous. 
 
-在这段对话里，我与源实体谈到有关树的话题，我个人很喜欢树木，而且觉得他们与我们有一种特殊的连接。 当我把精神集中在源实体上时，一瞬间便开始了我们的交谈。有关树木，我想问一个问题问吧，你可否告诉我树的重要性？ 还有为何新时代的人们如此敬仰它？你知道树木是能量的源泉，而且顺着地脉生长哦，我没有从这些角度看待过他他们是这样的。 那么让我解释给你听德鲁伊教师们在一棵燃烧的树木四周舞蹈或祈祷的图片，只是艺术家们的一种想象。 因为他们听说一个敏感者能看到能量从树中流出，特别是当这棵树是在能量出口或分流处。 此外，作为低能量的生命，同类型的树木是同一种树木格式塔性质的一部分，比如榆树属于同一个榆木性质，享树同树项目心智。 关于树木有一件事很有意思，那就是如果一座森林里的某个树种只剩一棵，而它的一些种子被种下种子，长大后，那棵树的心智便会跟着扩张，单独一棵树，并非各有其单独的灵体，它们是一个集体灵体的部分。 所以树林中一棵单独的树仍然与地球上其他同类树种保持连接，但在其他树苗长大前，它就像一个孤独的哨兵，人类这个物种则有所不同。 当它们繁殖时，它们繁殖出独立思考的生命体。由于树木覆盖了整个星球，古代巫师们曾经一度使用它们来与其他巫师沟通。 为了做到这点，他们与树林连接，比如一棵山毛举，然后向树林送出信息，在另一方的智者可接入同一树林，比如一棵山毛举来取得信息信息，可用这种方式在任何距离间传递。 当然在别的星球上也有树木。虽然有些树与地球上的树有很大的不同，但有些还是类似的。 所以一些不同星球上的树林便可彼此沟通。类似的树木较容易沟通，因为它们的林相互连接，这意味着当一个人与一种树林连接时，可以从另一些星球上的同样或类似树木那里接收到影像自信，这画面真美。 没错，让我举另一个例子，说明人类如何忽视树木影响能量的工作的。 现在是二零零三年三月世界上的这个部分，目前还处于沉睡的状态，过木和植物才刚开始从漫长冬眠状态中醒过来，在你身后的苹果树上有一根枯枝，需要修剪树木，并不介意这种修剪，因为这可以保持它们处于良好状态。 过去，当人类与大自然及自然精灵配合工作时，树木已经习惯了给人类照亮。 现在人类在能量方面极大的抛弃了他们，他们的状态已大不如前，能量流也不再有效率，比如流入枯枝的能量是一种浪费，而且这会在他们的能量流中形成蜗牛和涟漪译者。 注新时代幼稚宝瓶时代。西方神秘学认为，新世纪之初是一个转型期，正准备进入宝瓶座时代。 宝瓶座象征人道主义人类由追求社会的物质的科技层面的进步，将演进到注重心灵精神层面的探索，找到超越人种肤色民族国际以及宗教派别的人类心灵的共同点，认知人类的同源性和平等性，从而达成四海一家与和平的远景。
+在这段对话里，我与源实体谈到有关树的话题。我个人很喜欢树木，而且觉得它们与我们有一种特殊的连接。当我把精神集中在源实体上时，一瞬间便开始了我们的交谈。
 
 ME:I have a question on trees. 
 
-我：
+我：有关树木，我想问一个问题。
 
 SE:Fire away. 
 
-源实体：
+源实体：问吧。
 
 ME:Can you please tell me the importance of trees and why New Age people revere them? 
 
-我：
+我：你可否告诉我树的重要性？还有为何新时代的人们如此敬仰它？
 
 SE:You know that trees are energy fonts and that they grow on/follow the position of the ley lines. 
 
-源实体：
+源实体：你知道，树木是能量的源泉，而且顺着地脉生长。
 
 ME:No.I didn't think of them in those terms. 
 
-我：
+我：哦，我没有从这些角度看待过它们。
 
 SE:Well,they are.Let Me explain.Pictures of druids dancing or at prayer around a burning tree is generally an artist's impression of what the artist was told that a "sensitive" could see in terms of the energy flowing from a great tree,especially if the tree was at the end of an energy tap or divert.Also,as lower energetic beings,trees of the same type are all part of a dendro(tree)gestalt mind. For instance,elms are all of the same elm mind,and oaks are all the same oak mind. 
 
-源实体：
+源实体：它们是这样的。让我解释给你听。德鲁伊教士们在一棵燃烧的树木四周舞蹈或祈祷的图片只是艺术家们的一种想象，因为他们听说一个“敏感”者能看到能量从树中流出，特别是当这棵树是在能量出口或分流处。此外，作为低能量的生命，同类型的树木是同一种树木格式塔心智的一部分，比如榆树属于同一个榆树心智，橡树同属橡树心智。 
 
 One of the interesting things about trees is that if there is only one tree of its species left in a forest and some of its seeds are planted,then as they grow,the tree's mind expands. The individual trees are not individual trees with individual spirits.They are all part of one group spirit.So a lone tree species in a wood is still in contact with the other trees of the same species on the Earth,but it is an outpost until saplings grow.This is unlike the human race which as they reproduce,they reproduce individual thinking beings. 
 
+关于树木有一件事很有意思，那就是如果一座森林里的某个树种只剩一棵，而它的一些种子被种下，种子长大后，那棵树的心智便会跟着扩张。单独一棵树并非各有其单独的灵体，它们是一个集体灵体的部分，所以树林中一棵单独的树仍然与地球上其他同类树种保持连接，但在其他树苗长大前，它就像一个孤独的哨兵。人类这个物种则有所不同，当他们繁殖时，他们繁殖出独立思考的生命体。
+
 As trees covered the entire planet,at one point the wizened ancients used them to communicate with other wise ones.To achieve this,they connected with the tree's spirit (i.e.,a beech)and then sent a message to the tree spirit.A wise one in another location could then tap into the same tree spirit (i.e.,a beech)and recover the information sent. A message could be sent any distance using this system.Of course,there are also trees on other planets. Although some trees are vastly different to those on Earth,there are some that are similar.As a result the tree spirits on different planets can communicate with each other.Similar tree types allow communication to become easier as their spirits are linked.This means that a person who links with a particular tree spirit can receive images/communication from other trees of similar types on other planets.
+
+由于树木覆盖了整个星球，古代巫师们曾经一度使用它们来与其他巫师沟通。为了做到这点，他们与树林连接，比如一棵山毛榉，然后向树林送出信息，在另一方的智者可接入同一树林，比如一棵山毛榉来取得信息，信息可用这种方式在任何距离间传递。当然，在别的星球上也有树木，虽然有些树与地球上的树有很大的不同，但有些还是类似的，所以一些不同星球上的树林便可彼此沟通。类似的树木较容易沟通，因为它们的灵相互连接，这意味着当一个人与一种树林连接时，可以从另一些星球上的同样或类似树木那里接收到影像/资讯。
 
 ME:That's beautiful. 
 
-我：
+我：这画面真美。 
 
 SE:Isn't it?Let Me give you another example of how humanities disregard for trees affects energy.This part of the world is asleep(March 2003);the trees and plants are just starting to wake up from a long winter's slumber.The apple tree behind you needs to have a dead branch cut off.The trees don't mind this type of surgery as it keeps them in good condition.They used to be looked after by humans in the past when humans were working together with the energy of nature and the nature spirits.Now human beings have largely abandoned them energetically.They go out of condition,and their energy flow is no longer efficient.The energy going to the dead branch,for example,is wasted and causes eddies and ripples in their energy flow. 
 
-源实体：
+源实体：没错，让我举另一个例子，说明人类如何忽视树木影响能量的工作的。（现在是2003年3月）世界上的这个部分目前还处于沉睡的状态，树木和植物才刚开始从漫长冬眠状态中醒过来。在你身后的苹果树上有一根枯枝需要修剪，树木并不介意这种修剪，因为这可以保持它们处于良好状态。过去当人类与大自然及自然精灵配合工作时，树木已经习惯了给人类照料。现在人类在能量方面极大地抛弃了它们，它们的状态已大不如前，能量流也不再有效率。比如流入枯枝的能量是一种浪费，而且这会在它们的能量流中形成涡流和涟漪。
 
 #### Ley Lines,Standing Stones,and Earth Energies - The Partnership of Ley Lines and Trees 
 
@@ -10894,25 +10916,27 @@ SE:Isn't it?Let Me give you another example of how humanities disregard for tree
 
 For two years running during our New Year's Eve and New Year's Day sabbatical from civilization,my wife and I visited areas where ley lines and great standing stones were positioned.In doing so,we both felt lots of energy in and around the areas.Intrigued and thirsty for more knowledge,I decided to contact the Source Entity on this subject to gain a better understanding of their role on the Earth. 
 
-连续两年在除夕与新年休假期间，我和妻子远离现代文明，去参观了有地脉和巨石阵的一些区域，我们都感到这些区域的内部和四周有巨大的能量。 在好奇和求知若渴之心的驱动下，我决定联系源实体讨论这个话题，以便更深入了解他们在地球上所扮演的角色，有关地球上的地脉和巨石阵，你可以多说一些吗？ 地脉和巨石镇是地球的能量脉络以及重要的能量连接点一个鲜为人知的事实是，地脉通常以一棵大树作为标志，例如一棵橡树或榆树，因为它们与能量配合的很好，也因此很容易辨认。 如今地脉状况不佳，由于他们未完全发挥功能或年久失修，因为人类不再维护地脉网格，那么我们该如何去修复地脉？ 如果没有巨石要修复一条地脉或它的连接点。一个个人或一群人，可以将能量注入或引入大地，并种植一棵大树的树苗作为记号地脉，之所以年久失修，大部分是因为人类砍伐森林，而树木是地脉能量环路的一部分。 因此标示一个新的能量连接点就需要种植一棵大树。如果你的肉眼能看到地脉能量，它们看起来会像是一个足球表面上的缝合线，在地面上下进进出出。
+连续两年，在除夕与新年休假期间，我和妻子远离现代文明，去参观了有地脉和巨石阵的一些区域，我们都感到这些区域的内部和四周有巨大的能量。在好奇和求知若渴之心的驱动下，我决定联系源实体讨论这个话题，以便更深入了解它们在地球上所扮演的角色。
 
 ME:What can you tell me about the ley lines and standing stones that we have on the Earth?
 
-我：
+我：有关地球上的地脉和巨石阵，你可以多说一些吗？
 
 SE:Ley lines and standing stones are the planet's energy veins and major energy junctions.A little known fact is that ley lines are usually marked by the presence of a "great"tree, such as an oak or an elm because they work well with the energies.They can be easily located as a result.Today ley lines are in poor condition as they are either not fully functioning or in disrepair as humanity no longer services the ley line grid. 
 
-源实体：
+源实体：地脉和巨石阵是地球的能量脉络以及重要的能量连接点。一个鲜为人知的事实是，地脉通常以一棵大树作为标志，例如一棵橡树或榆树，因为它们与能量配合得很好，也因此很容易辨认。如今地脉状况不佳，由于它们未完全发挥功能或年久失修，因为人类不再维护地脉网格。
 
 ME:So how would we repair a ley line? 
 
-我：
+我：那么我们该如何去修复地脉？ 
 
 SE:To repair a ley line or a ley line junction(without a standing stone),a person or group of people can inject or channel energy into the earth and mark it by planting a great tree sapling.Ley lines have fallen into disrepair mostly because of man de-foresting the world,as the trees are part of the ley line energy circuit;therefore,this is the need to mark a new energy juncture by planting a great tree. 
 
-源实体：
+源实体：如果没有巨石，要修复一条地脉或它的连接点，一个人或一群人可以将能量注入或引入大地，并种植一棵大树的树苗作为记号。地脉之所以年久失修，大部分是因为人类砍伐森林，而树木是地脉能量环路的一部分。因此，标示一个新的能量连接点就需要种植一棵大树。
 
 If you could see the energy of the ley lines with your naked eye,they would look a bit like stitches holding the segments of a leather case football together as they dip in and out of the ground. 
+
+如果你的肉眼能看到地脉能量，它们看起来会像是一个足球表面上的缝合线，在地面上下进进出出。
 
 #### Using Ley Line Energy 
 
@@ -10920,21 +10944,23 @@ If you could see the energy of the ley lines with your naked eye,they would look
 
 ME:So how would we use the energy or separate it for use? 
 
-我：那么我们该如何去运用这个能量或分离这个能量，以便使用在能量流上放置一块岩石，便可从地脉的主能量里流分出一部分。 此举会改变能量的方向，让它分成两股能量流接着放置其他石块，可将能量流引回到原来的路线。 而被分离出来的能量，可用更多的石块来重新定向流入一个能量收集点。 这通常以一个石环或时阵为标志，有能力操控能量的人，可利用巨石阵来使用能量或给使用地球能量的物品如灯或疗愈石，充能领航员可能会有些兴趣的是，经线纬线以地脉及连接点是有一致性的地脉可用来导航。 因为它们具有磁性地脉和经纬度的位置吻合并非偶然。否则你想鸽子是如何导航的？ 那么是谁在使用这个能量，具有古老知识的人群及所谓巫师们，巫师的法杖是用于传导和集中能量的，由木头榆树贵金属和水晶制成，每种材料都可用于收紧与聚焦能量，并因此可强化所传导的能量。 有些巫师们能够汲取地脉或地球的能量方法，使用法杖敲击地脉所在的地面。 三次这种方法至今还被继续使用着。魔术师在表演当中也会使用，只是人们极大的误解了他的真实用途。
+我：那么，我们该如何去运用这个能量或分离这个能量以便使用？
 
 SE:The ley line energy could be separated from the main stream by placing a stone in the way of the energy flow.This changes the direction of the energy by splitting it into two.Subsequent stones can be used to put the flow back on its original course,and the "hived off"energy can be redirected with more stones to an energy collection point. This is usually signified by a ring of stones or stone circle where individuals who can manipulate energy could use it or "charge"items that run on Earth energy,for instance,lamps or healing stones. 
 
-源实体：
+源实体：在能量流上放置一块岩石，便可从地脉的主能量里流分出一部分。此举会改变能量的方向，让它分成两股能量流。接着放置其他石块，可将能量流引回到原来的路线。而被分离出来的能量，可用更多的石块来重新定向，流入一个能量收集点，这通常以一个石环或石阵为标志。有能力操控能量的人，可利用巨石阵来使用能量，或给使用地球能量的物品，如灯或疗愈石充能。
 
 Of some interest to navigators may be the knowledge that the lines of longitude and latitude correspond with ley lines and their junctions.A being can,therefore,use them to navigate,as they are magnetic.There is no coincidence that the ley lines and longitude and latitude are in the same position.How do you think pigeons navigate? 
 
+领航员可能会有些兴趣的是，经线、纬线与地脉及连接点是有一致性的。地脉可用来导航，因为它们具有磁性。地脉和经纬度的位置吻合并非偶然，否则你想鸽子是如何导航的？ 
+
 ME:So who used this energy? 
 
-我：
+我：那么是谁在使用这个能量？
 
 SE:The wizened ones,wizards.A wizard's staff was used to channel and focus energy.It was made of wood (elm),a precious metal,and a crystal.Each material is used to tighten the focus and,therefore,intensify the energy channeled.Some wizards were able to tap into the ley line or Earth energies by tapping their staffs on the ground three times where a ley line was found.This is still used,although greatly misunderstood,by magicians when they do their illusions today. 
 
-源实体：
+源实体：具有古老知识的人群，即所谓巫师们。巫师的法杖是用于传导和集中能量的，由木头（榆树）、贵金属和水晶制成。每种材料都可用于收紧与聚焦能量，并因此可强化所传导的能量。有些巫师们能够汲取地脉或地球的能量，方法是用法杖敲击地脉所在的地面三次。这种方法至今还被继续使用着，魔术师在表演当中也会使用，只是人们极大地误解了它的真实用途。
 
 #### The Functions of Stones 
 
@@ -10942,15 +10968,15 @@ SE:The wizened ones,wizards.A wizard's staff was used to channel and focus energ
 
 ME:So tell me more about the stones and their function.
 
-我：请告诉我更多有关巨石的事，还有它们的作用。巨石阵是用于捕捉和聚焦地脉或地球能量的，它们有磁性，并能传导能量，就像是欧洲核子研究组织粒子加速器里的一个大磁体。 例如你在基尔马亭参观时看到的石块，就是用来聚焦能量的，它们也是主要地脉的连接点。 这两条线会汇合于一个巨大的能量球处，并向与它们最初的方向成九十度的方向发送能量，形成一个十字路口巨大地脉焦点的一个极好粒子，就是埃夫伯里巨石阵，它是能量通道和连缩点。除此之外，巨石阵还有其他的作用。
+我：请告诉我更多有关巨石的事，还有它们的作用。
 
 SE:Stone circles were used to trap and focus ley line or Earth energies.They have magnetic qualities and direct energies rather like the large electromagnets in the CERN particle accelerator.For instance,the stones you visited at Kilmartin (Argyle)were used to focus energy;they were also the point of a major ley line junction.The two lines would mix in a big ball of energy and send energy in directions at 90 degrees from their origin,forming a crossroads.A good example of a large ley line focal point is the stones at Avebury which are a channel and compressor of energy. 
 
-源实体：
+源实体：巨石阵是用于捕捉和聚焦地脉或地球能量的。它们有磁性，并能传导能量，就像是欧洲核子研究组织粒子加速器（CERN）里的一个大磁体。例如，你在基尔马丁参观时看到的石块就是用来聚焦能量的，它们也是主要地脉的连接点。这两条线会汇合于一个巨大的能量球处，并向与它们最初的方向成90度的方向发送能量，形成一个十字路口。巨大地脉焦点的一个极好例子，就是埃夫伯里巨石阵，它是能量通道和压缩器。
 
 ME:So what else do stone circles do? 
 
-我：
+我：除此之外，巨石阵还有其他的作用吗？
 
 #### The Uses of Stone Circles 
 
@@ -10958,15 +10984,15 @@ ME:So what else do stone circles do?
 
 SE:A stone circle had two uses.First,the wizened ones could lie on a table in the center of the circle,and the energies that were gathered from the junction would travel around all the stones before being projected onto the table in the center.This would give the person on the table enough energy to project himself/herself into the astral worlds.Second,the stones would be carved with cups and circles.These cups and circles represent (although this has been dismissed by your researchers)the star configurations seen when an individual is lying on the table at the center of the circle.They represent certain points in the year and are,therefore,the "seasons"as they knew them then.The "seasons"were split up into periods of less than a month then and indicated when certain activities should be started or finished,not as they are now:winter,spring,summer,and autumn.Most stones in Avebury and Kilmartin transmit energy today. 
 
-源实体：巨石阵有两个用途。第一，巫石刻躺在石阵中心的平台上，从连接点汇集而来的能量会沿所有石头运行，然后被投射到中心的平台上，这将是平台上的人获得足够能量，将它投射到星光体世界。 第二，石块上会雕刻杯形与圆环。这些杯形和圆环虽然都被你们的研究专家们忽视了他们代表着躺在平台上的人所看到的星空布局。 他们代表的是一年中的某些点，因此也及他们所认知的季节，在当时季节又被分成几个时段，每段不到一个月，由此得出何时要开始或结束某些活动，不像现在的春夏秋冬四季，埃夫伯里和基尔马汀的大部分石头至今仍传送着能量。 我看到很多成对的石块，有的其中一块已经倒下了，倒下的石块都是没有得到维护的。 那些成堆的石块。你看到某些石块的其中一块耸立，而另一块倒下了，是被用来引导和压缩能量的缺乏维护的结果是能量被转移使用，但无法转向导回最初的能量流。 因为转向时已经倒下后毁坏无法完成任务。这是地球能量网格以太层或地脉系统功能失调的主要原因，也是地球频率下降的原因之一，还有砍伐森林。 事实上，地球频率的下降，是因为人类将地球能量作为私用对古老的能量转移，石块装置却没有任何维护。
+源实体：巨石阵有两个用途。第一，巫师可躺在石阵中心的平台上，从连接点汇集而来的能量会沿所有石头运行，然后被投射到中心的平台上，这将使平台上的人获得足够能量将他投射到星光体世界。第二，石块上会雕刻杯形与圆环（这些杯形和圆环虽然都被你们的研究专家们忽视了），它们代表着躺在平台上的人所看到的星空布局， 它们代表的是一年中的某些点，因此也即他们所认知的季节。在当时，季节又被分成几个时段，每段不到一个月，由此得出何时要开始或结束某些活动，不像现在的春、夏、秋、冬四季。埃夫伯里和基尔马丁的大部分石头至今仍传送着能量。 
 
 ME:I have seen many stones in pairs,some with one fallen. 
 
-我：
+我：我看到很多成对的石块，有的其中一块已经倒下了。
 
-SE:Stones that are no longer maintained are those that have fallen.Those that are in pairs —— you see many stones together with one standing and one fallen —— are used to guide and compress the energy.This lack of maintenance has resulted in the energy being diverted for use but not re-directed back to the original energy stream because the re- directing stone has fallen or been vandalized and is not doing its job.This is the major cause of dysfunction in the Earth's energy grid (etheric layer)or ley line system and is one of the reasons(along with deforestation)the Earth and its inhabitants fell down the frequencies.This reason for the Earth falling down the frequencies is,in fact,a result of humans using the Earth's energies for their own use and not maintaining the old "machinery"of energy-diverting stones. 
+SE:Stones that are no longer maintained are those that have fallen.Those that are in pairs —— you see many stones together with one standing and one fallen —— are used to guide and compress the energy.This lack of maintenance has resulted in the energy being diverted for use but not re-directed back to the original energy stream because the re-directing stone has fallen or been vandalized and is not doing its job.This is the major cause of dysfunction in the Earth's energy grid (etheric layer)or ley line system and is one of the reasons(along with deforestation)the Earth and its inhabitants fell down the frequencies.This reason for the Earth falling down the frequencies is,in fact,a result of humans using the Earth's energies for their own use and not maintaining the old "machinery"of energy-diverting stones. 
 
-源实体：
+源实体：倒下的石块都是没有得到维护的。那些成对的石块，你看到某些石块的其中一块耸立而另一块倒下了，是被用来引导和压缩能量的。缺乏维护的结果，使能量被转移使用，但无法转向导回最初的能量流，因为转向石已经倒下或毁坏，无法完成任务。这是地球能量网格（以太层）或地脉系统功能失调的主要原因，也是地球频率下降的原因之一，还有砍伐森林。事实上，地球频率的下降，是因为人类将地球能量作为私用，对古老的能量转移石块装置却没有任何维护。
 
 #### Earth Energies - Injecting Energy Back into Earth 
 
@@ -10974,17 +11000,23 @@ SE:Stones that are no longer maintained are those that have fallen.Those that ar
 
 ME:Tell me more about the Earth energies. 
 
-我：请告诉我更多地球能量的事。首先再说一点，如何将能量注入回地球的问题。 因为这是人类能为地球所做的一件重要的事，可补偿人类将地球频率拉低的行为，让我们从传递能量的姿势开始讲起，毕竟这会影响到传递的效率。 传递能量的一个很好的姿势是基督十字，它良好展示了如何能接收传导地球能量。 尽管结构最好包括XY和c三个平面。地球有七层辉光层地脉所在的位置，相当于人类辉光场中的以态层和能量层人类身体的以态层的网格线。 比方说那些连接主要和次要脉能之处，也即二十一条气条和四条能量线交汇的那些点，一些疗愈师将频率调到这一频率层及时能够看见这个结构，就类似地球周遭的网格地脉。 因此，当某人在修复地球的地脉时，就是在物质层面上修复地球。 当所有的地脉都被修复时，地球便能正常运作也将上升，回到正确的能量，一个存有可利用调频的方法进入辉光层或对应的频率来感应到各个不同的能量层。 面对初学者来说，可通过开启和旋转相应脉轮做到这一点。 比方说如果你想感知或看到以太层的能量，你可以打开海底轮。 如果你想看到情绪层的能量，你可以打开并以正确的方向来旋转。 第二，脉轮用同样的方式可感知或看到地球的能量。因为地球也有辉光层，所以一个人要感受地球的地脉，必须打开和旋转海底轮调频到对应的能量层，用感知或看到地球的情绪层能量，可打开并旋转。 第二，脉轮及情绪轮进而调频到那一层。我再一次强调，这是一个非常初步基本的方法。
+我：请告诉我更多地球能量的事。
 
 SE:First,a bit more on how to inject energy back into the Earth,as this is an important job that humanity can do for the Earth as payback for pulling it down the frequencies with them.Let's start with posture whilst delivering energy since this affects delivery efficiency. 
 
-源实体：
+源实体：首先，再说一点如何将能量注入回地球的问题，因为这是人类能为地球所做的一件重要的事，可补偿人类将地球频率拉低的行为。让我们从传递能量的姿势开始讲起，毕竟这会影响到传递的效率。
 
 A good example of the posture to achieve is the Christian cross as it is a good illustration of how to receive/channel Earth energies.Although the best configuration involves planes in X,Y &Z,the illustrations below show how one or more people can channel Earth energy.Those with the dots are the head of the channeler with the lines being the arms. 
 
+传递能量的一个很好的姿势是基督十字，它良好展示了如何能接收/传导地球能量。尽管结构最好包括X、Y、Z三个平面，下面的插图显示了一个或多个人如何引导地球能量。那些带点的是引导者的头部，线条是手臂。
+
 The Earth has seven auric layers.The ley lines exist on what would be the etheric level of the human aura and energy level.The grid lines on the human body at the etheric level,for instance,those linked to the major and minor chakras where 21,7 and 4 energy lines meet (and which some healers see when tuned into this level)are similar to the ley lines that are a grid around the Earth.Hence,someone repairing the Earth's ley lines is repairing the Earth on the physical level.When all ley lines are repaired,the Earth will function correctly and rise again back to its correct frequency. 
 
+地球有7层辉光层。地脉所在的位置相当于人类辉光场中的以太层和能量层。人类身体的以太层的网格线，比方说那些连接主要和次要脉轮之处，也即21条、7条、4条能量线交汇的那些点（一些疗愈师将频率调到这一频率层级时能够看见这个结构），就类似地球周围的网格地脉。因此，当某人在修复地球的地脉时，就是在物质层面上修复地球。当所有的地脉都被修复时，地球便能正常运作，也将上升回到正确的频率。
+
 A being can sense the different auric layers by "tuning"into the energy level or frequency associated to it.On a basic learner level,this is done by opening and spinning the relevant chakra.For instance,if you want to sense or see the energies on the etheric level,you open the base chakra.If you want to see the emotional level energies,you open and rotate(in the correct direction)chakra No.2.This works the same way for sensing or seeing the Earth's energies,for it also has auric layers.So to sense the Earth's ley lines,one must first tune into the energy level that is relative to that auric layer by opening and spinning the base chakra.The Earth's emotional level energies can be sensed or seen by tuning into that level by opening and spinning the second or emotional chakra.Again,this is a very basic and rudimentary way of achieving this. 
+
+一个存有可利用调频的方法进入辉光层或对应的频率来感应到各个不同的能量层。面对初学者来说，可通过开启和旋转相应脉轮做到这一点。比方说，如果你想感知或看到以太层的能量，你可以打开海底轮。如果你想看到情绪层的能量，你可以打开并以正确的方向来旋转第二脉轮。用同样的方式可感知或看到地球的能量，因为地球也有辉光层。所以一个人要感受地球的地脉，必须打开和旋转海底轮，调频到对应的能量层。要感知或看到地球的情绪层能量，可打开并旋转第二脉轮，即情绪轮，进而调频到那一层。我再一次强调，这是一个非常初步基本的方法。
 
 #### Earth's Auric Levels and Chakras 
 
@@ -10992,19 +11024,19 @@ A being can sense the different auric layers by "tuning"into the energy level or
 
 ME:So does the Earth also have auric layers? 
 
-我：所以地球也有各级灰光层。是的，如同先前所说的地球有一个辉光体系，一些灰光层对应地球的主要脉轮，地球的灰光层已被人类检测到，虽然未能得到真正的认识，他们被描述为与臭氧辐射磁性等有关的行星现象。 地球最主要的几个脉轮位于下列几个地方，从北极往下看，北极和南极地球中心，还有赤道上的北边和南边东边和西边某些脉轮的位置有重要古迹标识出来。 比如埃及金字塔群秘鲁的马丘比丘沉没于日本海岸外的古庙太阳神殿以及柬埔寨的吴哥窟古人之所以建造这些古迹，是为了接入这些能量连接点上的大量地球能象，这些能量被用于疗域星光体旅行物质操控，并引导能量到城市的另一处，甚至到达地球的另一地点，所有的地脉都交叉于这些点。 正如人类脉轮也是大部分能量线交叉的点一样，宇宙的能量又该如何去运用呢？ 例如和地球能量配合你所称的宇宙能量，可被做成管道来容纳，并引导地脉能量。 它也可用来弯曲物质。要这么做，需要用宇宙能量来提升被弯曲物质的频率，然后宇宙能量会被编排成所需的形状。 这就像用一组环箍包围，一条能量线在能量线外面加入越来越多的环通过改变环的摆放位置来改变中间那条能量线的方向。
+我：所以地球也有各级辉光层？
 
 SE:Yes,as stated above,the Earth has an aura system and a number of auric layers corresponding to the number of major chakras it has.The auric layers have been detected by man but not yet recognized for what they are although these rings have been described as some form of planetary phenomena relative to ozone,radiation, magnetism,etc.The major Earth chakras are positioned in each of the following places:North and South Poles,the center of the Earth,and along the equator in a north,south,east,and west configuration (as if looking down from the North Pole). Some chakra locations are marked by the location of old world major monuments, such as the pyramids in Egypt,Machu Picchu in Peru,the sunken temples(The Temple of the Sun)off the coast of Japan,and the temples of Angkor in Cambodia.These old world monuments were built there by the ancients to access the myriad Earth energies that were available at these energy junctions.They were used for healing, astral travel,matter manipulation,and for directing energy to other parts of the city or even other parts of the planet.All ley lines cross at these points and as with human chakras are the points where the most lines cross.
 
-源实体：
+源实体：是的，如同先前所说的，地球有一个辉光体系。一些辉光层对应地球的主要脉轮，地球的辉光层已被人类检测到，虽然未能得到真正的认识。它们被描述为与臭氧、辐射、磁性等有关的行星现象。地球最主要的几个脉轮位于下列几个地方：（从北极往下看）北极、南极、地球中心，还有赤道上的北边、南边、东边、西边。某些脉轮的位置有重要古迹标识出来，比如埃及金字塔群、秘鲁的马丘比丘、沉没于日本海岸外的古庙（太阳神殿）、柬埔寨的吴哥窟。古人之所以建造这些古迹，是为了接入这些能量连接点上的大量地球能量。这些能量被用于疗愈、星光体旅行、物质操控，并引导能量到城市的另一处，甚至到达地球的另一地点。所有的地脉都交叉于这些点，正如人类脉轮也是大部分能量线交叉的点一样。
 
 ME:How would cosmic energy,for instance,be used with Earth energies? 
 
-我：
+我：宇宙的能量又该如何去运用呢？例如和地球能量配合？
 
 SE:The energy you call cosmic can be made into a tube to contain and direct the ley line energy;it can also be used to bend matter.To do this the cosmic energy is used to increase the frequency of the matter to be bent and the cosmic energy is woven into the shape required.This is done similar to a hoop being cast around an energy line with more and more loops being added with their position changed to change the direction of the energy line. 
 
-源实体：
+源实体：你所称的宇宙能量，可被做成管道来容纳并引导地脉能量，它也可用来弯曲物质。要这么做，需要用宇宙能量来提升被弯曲物质的频率，然后宇宙能量会被编排成所需的形状。这就像用一组环形物包围一条能量线，在能量线外面加入越来越多的环，通过改变环的摆放位置来改变中间那条能量线的方向。
 
 #### Earth and the Universe 
 
@@ -11012,7 +11044,7 @@ SE:The energy you call cosmic can be made into a tube to contain and direct the 
 
 In past meditations I have noted that the Earth has a particular role to play in the advancement of the evolution of this universe.I have also noted a number of ways in which the universe works and how to traverse it when in the physical.I asked the Source Entity to clarify these subjects in order to help me understand the importance of our living on the Earth. 
 
-我在之前的冥想中注意到，地球在宇宙进化过程中扮演了一个特别的角色。 我也注意到宇宙运作的几种方式，以及如何在物质界层面理解宇宙，我要求源实体为我澄清这些主题，以便帮助我了解生活在地球上的重要性。
+我在之前的冥想中注意到，地球在宇宙进化过程中扮演了一个特别的角色。我也注意到宇宙运作的几种方式，以及如何在物质界层面理解宇宙，我要求源实体为我澄清这些主题，以便帮助我了解生活在地球上的重要性。
 
 #### Earth's Pivotal Role in the Progression of the Universe/s 
 
@@ -11020,19 +11052,19 @@ In past meditations I have noted that the Earth has a particular role to play in
 
 ME:In a past dialogue,you briefly commented on the importance of the role of Earth in the universe.Can you explain a bit more on this,please? 
 
-我：在之前的对话里，你简单说明了地球在宇宙中角色的重要性。 关于这点可否再多说一些。当然，地球在宇宙进化当中具有关键性，是因为它的智慧生命，即人类拥有独立的思考能力。 由此提升地球的振动层级至关紧，要许多其他智慧生命也在帮助地球提升它的频率。 稍后我会进一步说明地球就像是一台电脑里非常重要的一个电路组件，若电路或者说地脉不完整，电脑就无法正常运作。 其余的电路或者说其他恒星和行星的地脉或虫洞也相对无法发挥其功能。 由此，宇宙的其余部分也无法提升振动层级，除非地球的地脉获得修复，地球恢复正常运转，使地球提升频率，这对多为宇宙的功能也有正面的作用。 因为这个宇宇宙本身也是更大的多维宇宙里的一个组件，这对宇宙多维宇宙而言有什么意义？ 宏观上来看，如果地球上关于个体思想的实验成功了，最后地球能够继续生存，那么说明个体选择行得通，这将是集体整体。 目前，只有集体思想，也能从不同程度的独立个体的思想中受益，这对整体将是重大的贡献，加快整体在震动层级中的前进速度以及进化。
+我：在之前的对话里，你简单说明了地球在宇宙中角色的重要性。关于这点可否再多说一些。
 
 SE:Of course.The Earth is pivotal in the progression of the universe because of the ability of its intelligent life,humankind,to have independent thought.Hence,raising Earth's vibrational levels is of the utmost importance.In support of this,many other intelligences are also helping to increase the vibration levels.I will clarify further.The Earth can be considered as a piece of important circuitry in a computer.Without its circuits being complete (ley lines),it does not work properly and doesn't allow the rest of the circuit(the ley lines or wormholes to the other stars and planets)to function. Hence,the rest of the universe cannot move up the vibration levels until the Earth's ley lines are repaired,and the Earth starts to function properly,which will then allow it to increase in vibration level.This will also have a positive effect on the function of the multiverse as this universe is a component of the greater multiverse. 
 
-源实体：
+源实体：当然。地球在宇宙进化当中具有关键性，是因为它的智慧生命，即人类拥有独立的思考能力。因此，提升地球的振动层级至关紧，要许多其他智慧生命也在帮助地球提升它的频率，稍后我会进一步说明。地球就像是一台电脑里非常重要的一个电路组件，若电路或者说地脉不完整，电脑就无法正常运作，其余的电路或者说其他恒星和行星的地脉或虫洞也相对无法发挥其功能。因此，宇宙的其余部分也无法提升振动层级，除非地球的地脉获得修复，地球恢复正常运转，使地球提升频率。这对多维宇宙的功能也有正面的作用，因为这个宇宙本身也是更大的多维宇宙里的一个组件。
 
 ME:What will this mean to the universe/multiverse? 
 
-我：
+我：这对宇宙/多维宇宙而言有什么意义？
 
 SE:The big picture is that if the experiment in individual thought is successful and the Earth manages to survive as a result,then individual choice will work.This will allow the collective wholeness to also have the benefit of independent and individual thought at various levels (currently it has only collective thought).This will contribute significantly to the "whole"and accelerate the speed at which the "whole"progresses through the vibration levels and,therefore,evolves. 
 
-源实体：
+源实体：宏观上来看，如果地球上关于个体思想的实验成功了，最后地球能够继续生存，那么说明个体选择行得通。这将使集体整体（目前只有集体思想）也能从不同程度的独立个体的思想中受益，这对整体将是重大的贡献，加快整体在振动层级中的前进速度（进化）。
 
 #### Traveling Through the Multiverse/Universes
 
@@ -11040,11 +11072,11 @@ SE:The big picture is that if the experiment in individual thought is successful
 
 ME:I would also like some more details on how we as physical beings can travel throughout the universe. 
 
-我：作为物质生命，如何能在宇宙中旅行？我想在这方面了解更多看得出来，这是你最爱的话题之一。 在宇宙中旅行是从一个维度或震动层级移动到另一个。 如果你把多维宇宙视为一系列嵌套的维体，你其实是离开一个维度，进入另一个频率更高的维度。 在这个维度中游历，然后降回原先的维度穿越茫茫，无边星际所需的时间会大大减少，因为密度减少，相应的穿行于不同宇宙间的阻力也减少，密度的降低，也会使重力作用跟着减少。 所以在较高震动范围里，旅行所需的能量随之减少。 在某些情况下，飞船旋转到极高震动层面时，星际旅行几乎可以是瞬间的。 与之类似的例子，还有旅行到地球大气层以外，并让地球或在这个粒子中使宇宙在其下面旋转，然后向下回到预期的降落点。
+我：作为物质生命，如何能在宇宙中旅行？我想在这方面了解更多。
 
 SE:Mmm,I can see this is one of your pet subjects.Traveling in the universe is done by moving from one dimension or vibration level to another.If you consider that the multiverse is a series of spheres within spheres,you would travel out of one dimension to another of a higher vibration,travel the distance in that dimension, and then drop back into the dimension of origin.The amount of time needed to travel the vast distances of interstellar space is then massively reduced because of the lack of density and,therefore,resistance of the universe traveled through.The effects of gravity are also reduced because of the reduced levels of density;therefore, the amount of energy required to travel in a higher vibrational realm is reduced.In some cases,where the ship rotates to very high vibration levels,it can be almost instantaneous.This method has a similar profile to traveling outside the Earth's atmosphere and letting the Earth (or in this case,the universe)rotate beneath them and then dropping back down to the intended landing point. 
 
-源实体：
+源实体：看得出来这是你最爱的话题之一。在宇宙中旅行是从一个维度或振动层级移动到另一个。如果你把多维宇宙视为一系列嵌套的球体，你其实是离开一个维度，进入另一个频率更高的维度，在这个维度中游历，然后降回原先的维度。穿越茫茫无边星际所需的时间会大大减少，因为密度减少。相应的，穿行于不同宇宙间的阻力也减少，密度的降低也会使重力作用跟着减少，所以在较高振动范围里旅行所需的能量随之减少。在某些情况下，飞船旋转到极高振动层面时，星际旅行几乎可以是瞬间的。与之类似的例子还有旅行到地球大气层以外，并让地球（或在这个例子中是宇宙）在其下面旋转，然后向下回到预期的降落点。
 
 #### Teleportation 
 
@@ -11052,15 +11084,15 @@ SE:Mmm,I can see this is one of your pet subjects.Traveling in the universe is d
 
 Another form of transportation is teleportation.Teleportation can be performed by highly evolved beings and is done so on a regular basis. 
 
-另一种移动形式是瞬间移动进化较高的存油可进行瞬间移动。 而且他们经常这么做，这是怎么做到的？可以想象一下，我们是以能量形式同时存在于所有维度时间空间之中的。 知道这点的存油可对此加以利用，将它自己解体并重组，从而从宇宙或星系的一端移动到另一端。 如果你将我们看作是球体里的一粒尘埃。因此，我们现有的化身就像是球体内一处密度和注意力局部增加了的特定位置或小点。 因此，我们如果要改变位置，可以减少这个局部密度及注意力达到与球体中密度和注意力分配的总量一致。 这是我们作为整体一部分的真正状态，从着在球体内的另一个位置或点上重新聚焦我们的注意力和密度。 这样我们就可以瞬间移动自己自己及我们的注意力和密度，以及我们现有化身体内代表我们的注意力与密度，穿越星系地球宇宙或维度震动层起。
+另一种移动形式是瞬间移动。进化较高的存有可进行瞬间移动，而且他们经常这么做。
 
 Me:How is this done?
 
-我：
+我：这是怎么做到的？
 
 SE:Consider that we exist as energy in all dimensions in all times in all of space all at the same time.The being that knows this can take advantage of this condition and use it to transport himself/herself/itself from one side of the universe or galaxy to another by disassembling and reassembling himself/herself/itself.If you consider that we are like dust in a sphere,our current incarnation is,therefore,a localized increase in density and attention in a particular position or point within the sphere. We can,therefore,change our location by reducing this local increase in density (and attention)back to the normal distribution of density and attention that is spread throughout the total volume of the sphere (our real condition as part of the whole) and then refocus our attention and density into another position or point within the sphere.We will,therefore,have instantaneously transported ourselves (our attention and density and the attention and density that represents us in our current incarnation)across the galaxy or Earth or universe or dimension/vibration level. 
 
-源实体：
+源实体：可以想象一下，我们是以能量形式同时存在于所有维度、时间、空间之中的。知道这点的存有可对此加以利用，将它自己解体并重组，从而从宇宙或星系的一端移动到另一端。如果你将我们看作是球体里的一粒尘埃，这样我们现有的化身就像是球体内一处密度和注意力局部增加了的特定位置或小点。因此，我们如果要改变位置，可以减少这个局部密度（注意力），达到与球体中密度和注意力分配的总量一致，这是我们作为整体一部分的真正状态。接着在球体内的另一个位置或点上重新聚焦我们的注意力和密度，这样我们就可以瞬间移动自己（我们的注意力和密度，及我们现有化身体内代表我们的注意力与密度），穿越星系、地球、宇宙、维度/振动层级。
 
 #### Science and Nature Working Together 
 
@@ -11068,7 +11100,7 @@ SE:Consider that we exist as energy in all dimensions in all times in all of spa
 
 During January 2006,the subject of re-usable space flight was on a UK TV program called Horizon with the program offering a $10,000,000 prize for a private enterprise that could develop a re-usable system for leaving Earth's atmosphere and re-entering it twice within a 14-day time frame.The successful company would later be courted by Richard Branson to help him fulfill his dream of commercial spaceflight. 
 
-二零零六年一月，英国一家电视台一档叫地平线的电视节目播出了有关可重复使用的太空飞行的话题。 其中提到的计划是节目组将提供一千万美元给一个可以研发出一套可再重复使用系统的私企。 该系统要能在十四天里进出地球，大气层，两次能成功研发出。该系统的企业将有幸加入查德布兰森，帮助他实现商业太空飞行梦想的计划。 译者著理查德布兰森英国富商维珍集团董事长，他旗下的维珍银河公司意图提供商业性的亚轨道的飞行。
+2006年1月，英国一家电视台一档叫《地平线》的电视节目播出了有关可重复使用的太空飞行的话题。其中提到的计划是，节目组将提供1000万美元给一个可以研发出一套可再重复使用系统的私企。该系统要能在14天里进出地球大气层两次，能成功研发出该系统的企业将有幸加入理查德·布兰森（Richard Branson）帮助他实现商业太空飞行梦想的计划。 
 
 #### Burt Routan's Re-usable Space Craft Designed in Alignment with Nature
 
@@ -11076,53 +11108,55 @@ During January 2006,the subject of re-usable space flight was on a UK TV program
 
 The winning design of Burt Routan was small,manned,and used a unique tail plane assembly that was rotated through 90 degrees to create the drag necessary to slow the craft down to speed where heat buildup was not an issue in re-entry and,therefore,did not need special heat sinks.The takeoff speed was 2,150 mph,and the drag created by the tail plane was such that this slowed down to 500-600 mph on re-entry.The plane had a piggy back up to 9 miles and then detached to make the final journey into space.I was going over this program in my morning meditation when the Origin responded on the subject,resulting in the following dialogue. 
 
-获胜的设计来自伯特卢坦，它是一个小体积的载人太空船，其使用了一片特殊的水平。 尾翼部件该尾翼被旋转九十度，以便制造出必要的空气阻力，让太空船在重新进入大气层的过程中，减速至不会使热能积累的速度，并因此免去了安装太空船特殊散热系统的必要。 该太空船的升空速度是每小时两千一百五十英里，由尾翼制造的阻力，使其余重入大气层时的速度降到每小时五百到六百英里。 太空船有一个托运装备，直到上升至九英里，高空后才会被分离，以便让太空船进入最后的太空之旅。 在早晨的进行冥想时，我正想到这个节目起源便在这个问题上做了回答，结果就有了下列的对话。 一个小小的企业能够用这么短的时间，这么简单的方法，做到太不可思议了。 就连美国太空总署也得花上大把的钞票，大量的时间在那些巨大的机器上，而且到现在也还没有造出完全可重复使用的飞行器。 没错，伯特卢坦找到了一个大自然运作的正确方法。你的意思是他找到的可行方法，正是大自然的运作方式，别忘了大自然有一整套宇宙法则是你在所处的这个维度或频率里运作的时候，所必须遵守的。 就目前的例子来说是最低层的物质世界。如果你看卢坦的设计会发现太空船下降的方式和一片落叶没有两样落叶制造出他自己的阻力，让自己缓缓落下。 我还想到了蜘蛛落下来的画面是的，完全正确。那么遵循宇宙法则又是什么意思呢？ 
+获胜的设计来自伯特·鲁坦（Burt Routan），它是一个小体积的载人太空船，其使用了一片特殊的水平尾翼部件，该尾翼被旋转90度，以便制造出必要的空气阻力，让太空船在重新进入大气层的过程中减速至不会使热能积累的速度，并因此免去了安装太空船特殊散热系统的必要。该太空船的升空速度是2150英里/时，由尾翼制造的阻力使其余重入大气层时的速度降到500~600英里/时。太空船有一个托运装备，直到上升至9英里高空后才会被分离，以便让太空船进入最后的太空之旅。在早晨的静心冥想时，我正想到这个节目，起源便在这个问题上做了回答，结果就有了下列的对话。 
 
 ME:It's incredible that a small company can achieve this in such a small amount of time with such a simple solution when the whole of NASA has thrown mega bucks on huge machines over a long period of time and still not have the totally re-useable vehicle. 
 
-我：
+我：一个小小的企业能够用这么短的时间，这么简单的方法做到，太不可思议了。就连美国太空总署（NASA）也得花上大把的钞票，大量的时间在那些巨大的机器上，而且到现在也还没有造出完全可重复使用的飞行器。 
 
 O:Yes,Burt Routan has hit upon the correct way that nature works. 
 
-起源：
+起源：没错，伯特·鲁坦找到了一个大自然运作的正确方法。
 
 ME:How do you mean? 
 
-我：
+我：你的意思是？
 
 O:He has found a way that works the way nature works.Don't forget that nature has a set of universal laws that must be used when working within the dimension or frequency that you are manifested within-in this case,the lowest level of manifestation,the physical world.If you look at Routan's design,you will notice that the craft falls the same way as a leaf.A leaf creates its own drag and,therefore,slows itself down. 
 
-起源：
+起源：他找到的可行方法正是大自然的运作方式。别忘了。大自然有一整套宇宙法则，是你在所处的这个维度或频率里运作的时候所必须遵守的，就目前的例子来说是最低层的物质世界。如果你看鲁坦的设计，会发现太空船下降的方式和一片落叶没有两样。落叶制造出它自己的阻力，让自己缓缓落下。 
 
 ME:I also got the image of a spider falling.
 
-我：
+我：我还想到了蜘蛛落下来的画面。
 
 O:Yes,that's right. 
 
-起源：
+起源：是的，完全正确。
 
 ME:So what does that mean in terms of following universal law? 
 
-我：
+我：那么遵循宇宙法则又是什么意思呢？ 
 
 #### Failing to Follow the Universal Laws/the Laws of Nature 
 
-**未遵循宇宙法则/自然法则的美国太空总署**
+**未遵循宇宙法则/自然法则**
 
 O:It means that if you follow and work with universal laws,you don't need much work to achieve what you want.In the case of the NASA space program,they are fighting nature;therefore,the more they fight nature to achieve what they need,the more energy they have to generate to achieve what they want to achieve-hence,the huge machines needed to get into space versus the small machine that Routan designed. The greater the power used,the greater the resistance and the greater the power needed to go faster.This resistance is manifested as friction,resulting in heat in your dimension.This is also correct for movement through space at near light speeds. Your physicists have already noted that there is resistance incurred even in the near vacuum of space.This resistance results in a bow wave and an increase in mass in the ship that is associated by location of the ship to the bow wave.This results in more energy being required to accelerate from the current speed to that closer to and above the speed of light. 
 
-起源：这表示，如果你遵守并按照宇宙法则做事，你便可达到事半功倍的效果，以美国太空总署的太空计划为例，他们总是与大自然对抗，因此越是对抗自然以图达到他们所求，达到他们目的所消耗的能量也越多。 因此，相比如坦设计的小畸型，他们需要巨大的机器来进入太空中，所需动力越大，产生的阻力越大，就需要更大的动力来加速摩擦是阻力的表现在你们的维度导致摩擦升温，就接近光速，穿越太空的运动也是一样。 你们的物理学家也注意到，即便在几近真空的外太空也有阻力的产生阻力，会导致头波的产生，进而使太空船相对头波位置的船身质量增加，使得需要更多的能量，才能从当下的速度加到接近或超越光的速度，利用维度转换的方法进行远距离移动也是如此。 在物质界或亚物质界的许多其他物质或半物质实体位置介于一个维度和下个维度之间的层级。 他们运用的是协同作用来配合宇宙法则，因此不会因对抗大自然而导致能量损失。 我看到一幅画面就是一个人试图用错误的方式打开一扇门进去，他打不开。 然而当他以正确的方式打开门时，他就能搜的一下进去了。就是这样，这个开门的例子清楚的说明了要宇宙法则对抗的结果。 在你想象的画面中，他必须退回去开门，才能让他前进穿过门户，这正好是美国太空计划所发生的状况。 事实上，他们的方法类似用斧头打破一道门进去，这是一个很好的例子，显示了要克服自然宇宙法则需要大量能量，反之，配合自然法则去从事活动，用很小的能量就能做到。
+起源：这表示，如果你遵守并按照宇宙法则做事，你便可达到事半功倍的效果。以NASA的太空计划为例，他们总是与大自然对抗，因此越是对抗自然以图达到他们所求，达到他们目的所消耗的能量也越多。因此，相比鲁坦设计的小机型，他们需要巨大的机器来进入太空中，所需动力越大，产生的阻力越大，就需要更大的动力来加速。摩擦是阻力的表现，在你们的维度导致摩擦升温，以接近光速穿越太空的运动也是一样。你们的物理学家也注意到，即便在几近真空的外太空也有阻力的产生，阻力会导致头波的产生，进而使太空船相对头波位置的船身质量增加，使得需要更多的能量才能从当下的速度加到接近或超越光的速度。
 
 This is the same for moving large distances by using dimensional shift methods.A lot of the other physical or semi-physical entities in the physical and sub-physical universe(the level between this dimension and the next one up)use synergistic methods to work with the universal laws and,therefore,do not incur the energy penalties incurred by going against nature. 
 
+利用维度转换的方法进行远距离移动也是如此。在物质界或亚物质界的许多其他物质或半物质实体（位置介于一个维度和下个维度之间的层级），他们运用的是协同作用来配合宇宙法则，因此不会因对抗大自然而导致能量损失。 
+
 ME:I have just seen a picture of a man trying to open a door the wrong way to go through a doorway;he can't do it.However,when he opens it the correct way,he can slip through. 
 
-我：
+我：我看到一幅画面，就是一个人试图用错误的方式打开一扇门进去，他打不开。然而，当他以正确的方式打开门时，他就能嗖的一下进去了。
 
 O:Yes,that's right.The man with the door is a good description of fighting against the universal laws.In your image,he had to go backwards to open the door to allow him to go forwards through the doorway.This is exactly what has happened with the US space program.In fact,their methods are akin to using an axe to break down a door to allow passage through the doorway.This is a good example of the need to use vast amounts of energy to overcome the universal laws of nature as opposed to working with them and requiring very little energy.
 
-起源：
+起源：就是这样，这个开门的例子清楚的说明了跟宇宙法则对抗的结果。在你想象的画面中，他必须退回去开门，才能让他前进穿过门户，这正好是美国太空计划所发生的状况。事实上，他们的方法类似用斧头打破一道门进去。这是一个很好的例子，显示了要克服自然宇宙法则需要大量能量；反之，配合自然法则去从事活动，用很小的能量就能做到。
 
 ### Chapter 34 - Choice 
 
@@ -11240,7 +11274,7 @@ SE:What power?
 
 ME:Just our power. 
 
-我：就是我们的力量。知识本身就是力量，返回真正的知识与觉知就是力量。 因此回归灵体就是力量。当你处于最强能量状态灵体的状态时，你才真正拥有力量。 那时你能随意掌控所有的元素，即便是宇宙本身，但不要把这认为是有能力创造或摧毁星球，把它想成是回归到对自己的控制，回归自我，再度成为整体和宇宙成为一体。 当你在灵体状态时，你的知识库的扩容会远远超乎想象。因为你们已经有漫长的处于化身和能量之中的经验。 同样的我所创造的其他生命体有些选择比其他的生命体化身的更早，因此进化的更快。 除此之外，你还有所有受造实体，其他源实体及我的联合知识及你自身经验可供利用。 有了这些联合知识，你可以汲取他人状态，来注意自身的体验。 此处你真正的力量是指基于先前经验独立做决定的能力。 无论这个经验是否单独属于你个人，对于我们身处物质界来说，活在我们的力量中，究竟有什么用，它会带给你延续。 此前从未拥有过的信心。如果你对一项成果有信心，即便他并非你理想预期中的样子，也依然是成功的，主要目标是真正去体验一个事件，而不适于评判。 其结果认为某种方式是我想要的另一种方式可能不合心愿。 如果预设结果就是使一个事件的结果，南辕北辙使得个体无法全然体会他的体验大体上，你们在生理上越老会越有觉察，因此也变得更有力量。 唯一需要注意的是，你们要让自己有时间去体验这种转变。如果一听发生在你周遭的真相，因为这种时候真的非常激动人心。 你们正在为一个能量体所能做到的最困难的是之一，为了他的进化而下降到最低频率而获得回报。 回报就是在地球实现天堂及身处最低频率的同时，却拥有处于较高能量震动层级里的知识理解和经验。
+我：就是我们的力量。知识本身就是力量，返回真正的知识与觉知就是力量。 因此回归灵体就是力量。当你处于最强能量状态灵体的状态时，你才真正拥有力量。 那时你能随意掌控所有的元素，即便是宇宙本身，但不要把这认为是有能力创造或摧毁星球，把它想成是回归到对自己的控制，回归自我，再度成为整体和宇宙成为一体。 当你在灵体状态时，你的知识库的扩容会远远超乎想象。因为你们已经有漫长的处于化身和能量之中的经验。 同样的我所创造的其他生命体有些选择比其他的生命体化身的更早，因此进化的更快。 除此之外，你还有所有受造实体，其他源实体及我的联合知识及你自身经验可供利用。 有了这些联合知识，你可以汲取他人状态，来注意自身的体验。 此处你真正的力量是指基于先前经验独立做决定的能力。 无论这个经验是否单独属于你个人，对于我们身处物质界来说，活在我们的力量中，究竟有什么用，它会带给你延续。 此前从未拥有过的信心。如果你对一项成果有信心，即便他并非你理想预期中的样子，也依然是成功的，主要目标是真正去体验一个事件，而不适于评判。 其结果认为某种方式是我想要的另一种方式可能不合心愿。 如果预设结果就是使一个事件的结果，南辕北辙使得个体无法全然体会他的体验大体上，你们在生理上越老会越有觉察，因此也变得更有力量。 唯一需要注意的是，你们要让自己有时间去体验这种转变。如果一听发生在你周遭的真相，因为这种时候真的非常激动人心。 你们正在为一个能量体所能做到的最困难的是之一，为了他的进化而下降到最低频率而获得回报。 回报就是在地球实现天堂及身处最低频率的同时，却拥有处于较高能量振动层级里的知识理解和经验。
 
 SE:Knowledge is power,and the return to true knowledge and awareness is power. Therefore,the return to Spirit is power.You are only truly in your power when you are in your most energetic state,Spirit.Then you are in control of all of the elements at your disposal,even the universe itself,but don't think of it as being the ability to create and destroy planets.Think of it in terms of being back in control of yourself,of being back with yourself,being whole once again,being whole with the universe.Your knowledge base increases beyond your wildest dreams when you are in Spirit,for you have many millennia in which you have been incarnate and in energetic existence. So have all the others that I created,although some chose to incarnate well before others and have,therefore,evolved faster.On top of this,you have access to all of the combined knowledge of the created entities,the other Source Entities,and Me to draw upon,as well as your own experiences.With this combined knowledge you can draw strength from the experience of others to help you through your own experiences. Your true power here is the ability to make decisions in isolation based upon previous experience,whether it is solely yours or not. 
 
@@ -11624,7 +11658,7 @@ SE:Bigger than he expected,and he has gained a reputation that is not equivalent
 
 ME:Over the years I have been to many courses on spiritual matters.All of them referred to so- called "dark forces"or lower entities and said that we must protect ourselves from them. Can you advise on the realty of the situation? 
 
-我:过去这些年，我上了许多关于灵性内容的课程，所有的课程都提到所谓的黑暗力量或较低实体，并说我们必须保护自己，远离他们。 这可以告诉我实际的情形吗？在较初级的灵性休息者当中，这确实是一个争议点，但幸好它很容易解释，要知道这一点没有所谓的黑暗力量。 他有存在于较低星光层的实体，当能量震动较低的时候，他们才能存在。 他们害怕是源于当地球提升一个层级时，他们一切也都跟着提升所有较低震动层级的实体会因此消失。 为了阻止这种情况，将地球保持在地平中，他们影响那些受低层震动吸引的人们，让他们对抗那些会更大的利益工作的光之工作者们来自诸宇宙及各维度的大量灵体转世到地球上，体验物质生活，目的是加快自身进化速度，有些灵体沉迷于物质界的感官感受。 即便他们处于非物质状态，也不断回到地球，想要体验更多，他们会粘附于对他们开放的人，以便去体验宿主的经验和震动频率，他们越是沉迷频率，越是下滑，直到他们忘记了自己是谁是什么，以及怎么做才能记起这些，他们完全迷失了自己，不知何去何从，他们只是本能的，知道自己需要提升能量层级以及频率，这能让他们记起自己到底是谁并脱离下滑的漩涡。 这些实体游荡在地球上，事实上真的有一条你失灵魂之河环绕着地球寻找那些可以让他们年富以获取能量和经验的态也。 他们找到一个心甘情愿的宿主时，可怜的宿主们，大部分时间都不知道发生的事情，除非他极为敏感。 他们就会感到很快乐，但是当宿主或疗愈时，发现他们的存在在并试图让他们离开时，他们就会因为生气而与反击，直到他们被送到光之中。 事实上，他们只是迷失和恐惧，无无法了解自己，到底发生了什么事。 当他们得得到到想要的东西时，就会变愤怒怒，把他们送送光光中中，很简，你们只需需求求基督或神的意识或能量保护自己，接着给他们大量的爱，你提供他们所需需的能量去回到光中。 事实上，通过这样做，你们给了他们能量，将他们潜回到他们来的地方。
+我:过去这些年，我上了许多关于灵性内容的课程，所有的课程都提到所谓的黑暗力量或较低实体，并说我们必须保护自己，远离他们。 这可以告诉我实际的情形吗？在较初级的灵性休息者当中，这确实是一个争议点，但幸好它很容易解释，要知道这一点没有所谓的黑暗力量。 他有存在于较低星光层的实体，当能量振动较低的时候，他们才能存在。 他们害怕是源于当地球提升一个层级时，他们一切也都跟着提升所有较低振动层级的实体会因此消失。 为了阻止这种情况，将地球保持在地平中，他们影响那些受低层振动吸引的人们，让他们对抗那些会更大的利益工作的光之工作者们来自诸宇宙及各维度的大量灵体转世到地球上，体验物质生活，目的是加快自身进化速度，有些灵体沉迷于物质界的感官感受。 即便他们处于非物质状态，也不断回到地球，想要体验更多，他们会粘附于对他们开放的人，以便去体验宿主的经验和振动频率，他们越是沉迷频率，越是下滑，直到他们忘记了自己是谁是什么，以及怎么做才能记起这些，他们完全迷失了自己，不知何去何从，他们只是本能的，知道自己需要提升能量层级以及频率，这能让他们记起自己到底是谁并脱离下滑的漩涡。 这些实体游荡在地球上，事实上真的有一条你失灵魂之河环绕着地球寻找那些可以让他们年富以获取能量和经验的态也。 他们找到一个心甘情愿的宿主时，可怜的宿主们，大部分时间都不知道发生的事情，除非他极为敏感。 他们就会感到很快乐，但是当宿主或疗愈时，发现他们的存在在并试图让他们离开时，他们就会因为生气而与反击，直到他们被送到光之中。 事实上，他们只是迷失和恐惧，无无法了解自己，到底发生了什么事。 当他们得得到到想要的东西时，就会变愤怒怒，把他们送送光光中中，很简，你们只需需求求基督或神的意识或能量保护自己，接着给他们大量的爱，你提供他们所需需的能量去回到光中。 事实上，通过这样做，你们给了他们能量，将他们潜回到他们来的地方。
 
 SE:This is a real bone of contention amongst the lower grade spiritualists,but,fortunately, it can be easily explained.Know this:there is no such thing as a dark force.There are only entities that exist in the lower astral.They only exist whilst the energies are at that lower level of vibration.They are scared because when the Earth moves up a level, everything else does,so all the lower vibration level entities will cease to exist.To try to stop this,they are trying to keep the Earth's vibration levels low by influencing those people who naturally gravitate towards the lower vibration levels and make them antagonistic to people who operate for the good of the light work. 
 
@@ -11770,7 +11804,7 @@ SE:Because you have all been blinded to the greater reality by the need to confo
 
 SE:Let Me talk to you about being of service,for there is a lot of mystique and reverse snobbery about this statement.To be of service does not mean that you have to give up your whole life to be something for other people and work for nothing.It is much more than this simple statement.To be of service means to work for the betterment and evolution of the human race if and when you can in an acceptable way. 
 
-源实体：我要告诉你一些服务他人的事情。 因为关于这一点有太多神秘且反实理性的误解服务。 他人并不表示，你必须要放弃你的整个生命而为别人服务或是无偿的工作事实，要比这种说法来的深层为他人服务表示用你可以接受的情况和方式，为了人类的改善和进化而工作。 你看你不能把好意强加于人，他们不想要那种方式的人们倾向于在需要的时候，从可以信任的人身上得到帮助。 这并不一定代表他们想要的是开悟，更有可能的是他们寻求的只是对于在特定时间点的一个无法解决的特定问题的帮助。 在对方请求的时候，你提供帮助或同意去帮助，这是帮助他人的最好方式。 他们需要帮助的事情也许是很简单的，比如修理书桌上的一个台灯插座或帮孩子的自行车补车胎帮忙装饰，甚至是帮老奶奶提购物袋，也是一种帮助。 另一方面，你可能会发现有些人需要灵性上的帮助。他们正在寻求指引那些他们的朋友圈子同事或宗教劝导，都无法给予的协助。 这种情况下，他们开始质疑所见的周遭限予他们所寻求的答案，宗教无法给予。 因为宗教本来就是设计让人远离着答案的。因为所有的宗教都是设计来让少数渴望权利的人，控制大众的为他人服务，就是要当我们需要你时，随时为我和起源服务。 而且你知道我们什么时候需要你，因为你会产生一种欲望，他要做点什么帮助他人因有在你准备好，而且愿意提供帮助。 而且不会像江湖骗子一样，像真正需要帮助的人推销虚假希望的时候，我们才会向你发出请求服务。 他人不是说让你去寻找服务的机会。你们毕竟给过自己的生活。他真正的意思是，你应该在助人机会出现时把握住，同时在过程中不追求自我满足，你只要尽力去做即可。 因为这就是宇宙的自然方式。如果那些心存感激的人，希望用某种方式来回报你，那就顺其自然。 同样的，如果你帮助的一些人无法回报，你，那就不要要求回报一切，顺势而为。 即便当下没有获得任何回报，终有一天你还是会得到的，为他人服务也表示你应该去帮助那些你不太喜欢的人。 当你向他们提供帮助的时候，不应该是出于有服务他人的需要，而是应该记得他们是你的人类兄弟同胞也是化身身来。 地球上进化的。在对方需要的时候，帮助一个你不喜欢的人是一件美好的事。 人们本能的会知道，你并不喜欢他们，不仅仅因为你超越了自己的偏见而提升频率。 同时你也帮助他们提升，因为他们会以不同的眼光看待你，你的善意。 一个他们原本不指望的善意所带来的结果是对曾经以为的敌人，他们也将会有不同的感觉。 虽然初期只是在潜意识层面，所以你可以看到在机会到来时去帮助他们。 无论从当下还是长远，看来你都同时帮助了自己和别人。当偏见，消除帮助每个人，而不仅仅是你的朋友，这是每个人都是赢家，没有输家。 当耶稣说，狮子与羔羊同卧，他指的是曾经为敌或彼此不喜欢的人们，终有一天会共同合作，因为他们不再畏惧，对方是的，狮子也会害怕羔羊，就像羔羊羊会害怕狮子一样，羔羊可以有狮子所没有的力量。 他们有保护羊喂羊照顾羊的人类，而人是很有力量的。 虽然狮子本身强而有力，他对羔羊还是有几分戒心。因为羔羊虽然脆弱，温顺平和，且被人类宰杀作为食物，但羔羊仍然与人类共识，所以狮子认为脆弱温顺的羔羊在某些方面一定比他强大。 对于强大的人也是如此，那些身形壮硕或地位较高的人也会畏惧。 那些不如他们强大的人，因为后者数量众多，敌拳难敌。四手通过打破戒备，让强者与弱者共识，敌对双方互相合作服务他人就会真实有益，能让双方在合作中一起前进。 因此，服务他人对该实体来说，有两个不三个契机，一帮助需要的人。 二让助人者与被助者同时在灵性与进化上前进。三消除成见与猜疑，让同胞挚爱更加亲密。 这三个加起来，便能让人们在信任和谐与爱之中共同合作，使整个人类迈向更高的频率。 最终通过最开始少数人服务于他人的行为，最终能影响和帮助所有人。 所以服务他人其实是为了让人类回到他们所属的地方，也就是回到更高的频率里。 简而言之，是的，你帮助同胞以某种方式提升他们自己而做的任何事都会帮助整个人类回到正轨，但别忘记，这不只是帮助了人类，也帮助了由你们生存于其环境中的地球，你的意思是地球也会提升频率层级吗？ 那当然地球之所以会在目前的层级是因为人类的活动沉迷物质界导致你们口中的地球及周边频率整个下滑，所以他是和你们一起被拉了下去，所以也是一个生命体。 地球当然然是一个生命体，只是它目前处于最低的震动等级，它的活力也完全无法施展，哪怕它已经上移了一到两个等级。 所以我们在帮助别人增进他们灵性的同时，也可以帮助地球绝对可以。 不过，服务并非只是服务于人类，可以是服务于地球或存在于地球上或之中的生命体，这意味着是出于爱去从事生态方面的工作，而不是出于政治宣言。 因为那会抵消这份工作的初衷，会产生的高频能量，单纯进行生态行动，也是一种回报，颇丰的服务方式，不但人类受益。 所有在地球这个生物维度圈上面，里面周围的人类也跟着受益。 你们之中有人已经直接进行了能量方面的工作，所充地球也处于低频而损失的能量，而且地球也有了开始苏醒的回应。 所以你们才会历经巨大的气候变迁，这些是由于能量模式的变化，导致处于灵性与物质边界上的能量元素产生反应，风是其中之一，也是最为明显的元素。 你可能无法相信，如果地球可以扬升到它原本应有的等级。 地球上的生活会是多么难以置信的不同。它会提升几个等级，就可以让荒漠再度变得富饶，气候，也会跟着改变，以营造滋养土地的最佳环境，从而创造出最佳化的降雨量温度湿度和原量。 当地球某地需要防护时，就能随时屏蔽紫外线的辐射地球将会再次鲜活起来，而不再处于停滞状态。 它会拥抱它的居民，你们也能认清它的价值，而珍惜它。你们会意识到自己是他的一份子，以及你们集体为这个最神圣的生命体所做的一切。 再者，所有，因地铁而休眠的生命将会再度苏醒，并开始去照顾地球的需氧，让它成彻底恢复健康。 地球会因此而提升能量与频率，并拉动人类一起提升。 随着你们大家都提高频率，你们会从沉睡中再度醒来，开始使用你们真正的能力。 因为你们会认识到自己的神性以及化身为人的意义所在。接着你们会看清并理解地球上其他生命体的意义。 比如大地上的动物空中的鸟儿水中的鱼，他们存在与地球皆有其原因，他们都是生物灵性圈的一份子，都有各自的工作，你会很清楚这些再次拥有与他们沟通的能力。 然后为了整体利益，而与他们在真正的和谐中一起工作。如此一来，人类和地球表面里面及周围的伙伴们将共同扬升的更高，越来越接近起源，想象一个全然和谐的世界，其中万物各司其职也都落在其中。 想象一个万物互助的世界，他们所做的一切都是为了帮助彼此完美的完成工作，不会互相竞争，而是活在看到别人的进步所带来的喜讯和快乐中观想这样一个世界，你在其中因真正服务他人而帮助他人成就伟大。 想象这样一个世界，你可以看到帮助到触摸到体验到和享受到世界上所有生命体的内在和周围的能量。 在这个世界中，当你与这些生命体在爱与和谐中共事时，能体验到他们的体验。 可以看到他们如何回应与成长想象这样一个世界，你能看到和感受到这些表现，世界是如何回应？ 你怀着爱照顾他的需要，帮助他成长与进化而投入的工作与时间想象所带来的纯粹的无条件的爱，代表着贯穿整个宇宙的爱造物主的爱，他永远欣喜于其受造物所做的努力。 无论他们是什么，可以看到造物主永不批判，永不生气，一直拥你在爱中想象这样一个世界，你做回真正的自己，你是更大实体起源，那无所不能无所不知无所不在的一部分。 为了达到这个层级，而服务他人是一项高贵的工作，切实与你们目前的存在相比，何的回报是无限的，有这样一项奖赏，何乐而不为何不服务于更高的善与所有人的利益。 既然对更高的善或者神更有益。
+源实体：我要告诉你一些服务他人的事情。 因为关于这一点有太多神秘且反实理性的误解服务。 他人并不表示，你必须要放弃你的整个生命而为别人服务或是无偿的工作事实，要比这种说法来的深层为他人服务表示用你可以接受的情况和方式，为了人类的改善和进化而工作。 你看你不能把好意强加于人，他们不想要那种方式的人们倾向于在需要的时候，从可以信任的人身上得到帮助。 这并不一定代表他们想要的是开悟，更有可能的是他们寻求的只是对于在特定时间点的一个无法解决的特定问题的帮助。 在对方请求的时候，你提供帮助或同意去帮助，这是帮助他人的最好方式。 他们需要帮助的事情也许是很简单的，比如修理书桌上的一个台灯插座或帮孩子的自行车补车胎帮忙装饰，甚至是帮老奶奶提购物袋，也是一种帮助。 另一方面，你可能会发现有些人需要灵性上的帮助。他们正在寻求指引那些他们的朋友圈子同事或宗教劝导，都无法给予的协助。 这种情况下，他们开始质疑所见的周遭限予他们所寻求的答案，宗教无法给予。 因为宗教本来就是设计让人远离着答案的。因为所有的宗教都是设计来让少数渴望权利的人，控制大众的为他人服务，就是要当我们需要你时，随时为我和起源服务。 而且你知道我们什么时候需要你，因为你会产生一种欲望，他要做点什么帮助他人因有在你准备好，而且愿意提供帮助。 而且不会像江湖骗子一样，像真正需要帮助的人推销虚假希望的时候，我们才会向你发出请求服务。 他人不是说让你去寻找服务的机会。你们毕竟给过自己的生活。他真正的意思是，你应该在助人机会出现时把握住，同时在过程中不追求自我满足，你只要尽力去做即可。 因为这就是宇宙的自然方式。如果那些心存感激的人，希望用某种方式来回报你，那就顺其自然。 同样的，如果你帮助的一些人无法回报，你，那就不要要求回报一切，顺势而为。 即便当下没有获得任何回报，终有一天你还是会得到的，为他人服务也表示你应该去帮助那些你不太喜欢的人。 当你向他们提供帮助的时候，不应该是出于有服务他人的需要，而是应该记得他们是你的人类兄弟同胞也是化身身来。 地球上进化的。在对方需要的时候，帮助一个你不喜欢的人是一件美好的事。 人们本能的会知道，你并不喜欢他们，不仅仅因为你超越了自己的偏见而提升频率。 同时你也帮助他们提升，因为他们会以不同的眼光看待你，你的善意。 一个他们原本不指望的善意所带来的结果是对曾经以为的敌人，他们也将会有不同的感觉。 虽然初期只是在潜意识层面，所以你可以看到在机会到来时去帮助他们。 无论从当下还是长远，看来你都同时帮助了自己和别人。当偏见，消除帮助每个人，而不仅仅是你的朋友，这是每个人都是赢家，没有输家。 当耶稣说，狮子与羔羊同卧，他指的是曾经为敌或彼此不喜欢的人们，终有一天会共同合作，因为他们不再畏惧，对方是的，狮子也会害怕羔羊，就像羔羊羊会害怕狮子一样，羔羊可以有狮子所没有的力量。 他们有保护羊喂羊照顾羊的人类，而人是很有力量的。 虽然狮子本身强而有力，他对羔羊还是有几分戒心。因为羔羊虽然脆弱，温顺平和，且被人类宰杀作为食物，但羔羊仍然与人类共识，所以狮子认为脆弱温顺的羔羊在某些方面一定比他强大。 对于强大的人也是如此，那些身形壮硕或地位较高的人也会畏惧。 那些不如他们强大的人，因为后者数量众多，敌拳难敌。四手通过打破戒备，让强者与弱者共识，敌对双方互相合作服务他人就会真实有益，能让双方在合作中一起前进。 因此，服务他人对该实体来说，有两个不三个契机，一帮助需要的人。 二让助人者与被助者同时在灵性与进化上前进。三消除成见与猜疑，让同胞挚爱更加亲密。 这三个加起来，便能让人们在信任和谐与爱之中共同合作，使整个人类迈向更高的频率。 最终通过最开始少数人服务于他人的行为，最终能影响和帮助所有人。 所以服务他人其实是为了让人类回到他们所属的地方，也就是回到更高的频率里。 简而言之，是的，你帮助同胞以某种方式提升他们自己而做的任何事都会帮助整个人类回到正轨，但别忘记，这不只是帮助了人类，也帮助了由你们生存于其环境中的地球，你的意思是地球也会提升频率层级吗？ 那当然地球之所以会在目前的层级是因为人类的活动沉迷物质界导致你们口中的地球及周边频率整个下滑，所以他是和你们一起被拉了下去，所以也是一个生命体。 地球当然然是一个生命体，只是它目前处于最低的振动等级，它的活力也完全无法施展，哪怕它已经上移了一到两个等级。 所以我们在帮助别人增进他们灵性的同时，也可以帮助地球绝对可以。 不过，服务并非只是服务于人类，可以是服务于地球或存在于地球上或之中的生命体，这意味着是出于爱去从事生态方面的工作，而不是出于政治宣言。 因为那会抵消这份工作的初衷，会产生的高频能量，单纯进行生态行动，也是一种回报，颇丰的服务方式，不但人类受益。 所有在地球这个生物维度圈上面，里面周围的人类也跟着受益。 你们之中有人已经直接进行了能量方面的工作，所充地球也处于低频而损失的能量，而且地球也有了开始苏醒的回应。 所以你们才会历经巨大的气候变迁，这些是由于能量模式的变化，导致处于灵性与物质边界上的能量元素产生反应，风是其中之一，也是最为明显的元素。 你可能无法相信，如果地球可以扬升到它原本应有的等级。 地球上的生活会是多么难以置信的不同。它会提升几个等级，就可以让荒漠再度变得富饶，气候，也会跟着改变，以营造滋养土地的最佳环境，从而创造出最佳化的降雨量温度湿度和原量。 当地球某地需要防护时，就能随时屏蔽紫外线的辐射地球将会再次鲜活起来，而不再处于停滞状态。 它会拥抱它的居民，你们也能认清它的价值，而珍惜它。你们会意识到自己是他的一份子，以及你们集体为这个最神圣的生命体所做的一切。 再者，所有，因地铁而休眠的生命将会再度苏醒，并开始去照顾地球的需氧，让它成彻底恢复健康。 地球会因此而提升能量与频率，并拉动人类一起提升。 随着你们大家都提高频率，你们会从沉睡中再度醒来，开始使用你们真正的能力。 因为你们会认识到自己的神性以及化身为人的意义所在。接着你们会看清并理解地球上其他生命体的意义。 比如大地上的动物空中的鸟儿水中的鱼，他们存在与地球皆有其原因，他们都是生物灵性圈的一份子，都有各自的工作，你会很清楚这些再次拥有与他们沟通的能力。 然后为了整体利益，而与他们在真正的和谐中一起工作。如此一来，人类和地球表面里面及周围的伙伴们将共同扬升的更高，越来越接近起源，想象一个全然和谐的世界，其中万物各司其职也都落在其中。 想象一个万物互助的世界，他们所做的一切都是为了帮助彼此完美的完成工作，不会互相竞争，而是活在看到别人的进步所带来的喜讯和快乐中观想这样一个世界，你在其中因真正服务他人而帮助他人成就伟大。 想象这样一个世界，你可以看到帮助到触摸到体验到和享受到世界上所有生命体的内在和周围的能量。 在这个世界中，当你与这些生命体在爱与和谐中共事时，能体验到他们的体验。 可以看到他们如何回应与成长想象这样一个世界，你能看到和感受到这些表现，世界是如何回应？ 你怀着爱照顾他的需要，帮助他成长与进化而投入的工作与时间想象所带来的纯粹的无条件的爱，代表着贯穿整个宇宙的爱造物主的爱，他永远欣喜于其受造物所做的努力。 无论他们是什么，可以看到造物主永不批判，永不生气，一直拥你在爱中想象这样一个世界，你做回真正的自己，你是更大实体起源，那无所不能无所不知无所不在的一部分。 为了达到这个层级，而服务他人是一项高贵的工作，切实与你们目前的存在相比，何的回报是无限的，有这样一项奖赏，何乐而不为何不服务于更高的善与所有人的利益。 既然对更高的善或者神更有益。
 
 You see,you cannot force good will on people;they just don't want it that way.People tend to want help when they want it and from people they can trust to help them. This does not necessarily mean that they want enlightenment.More than likely,they require help with sorting out a particular problem that they find insurmountable at a particular point in time.Offering help or agreeing to help if asked is,therefore,the best way forward.The type of help they need may even be benign,like fixing a plug on a desk top lamp or a puncture on a child's push bike,helping with decorating,and,yes, even getting the shopping for dear old granny.On the other hand,you may find that some people ask for help spiritually and are looking for guidance that their particular group of friends,associates,or religious persuasion cannot give them.In this instance, they are questioning the fabric of the reality that they see around themselves and asking for answers to questions that religion fails to answer because it cannot answer questions that the religion itself is designed to keep you away from.For all religion is designed to control the masses by the few who want power over others. 
 
