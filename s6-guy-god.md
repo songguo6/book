@@ -11168,19 +11168,23 @@ O:Yes,that's right.The man with the door is a good description of fighting again
 
 SE:Choice is one of the big experiments that you are all experiencing and working towards validating as a new medium for the other incarnate races.You see,humanity is currently the only incarnate race that is allowed to have personal choice-the ability to make its own decisions and live with consequences.Other races have to do things by committee or by collective mind. 
 
-源实体：选择是你们全体正在体验的重要实验之一，以便确认是否适用于作为其他化身物种的新媒介。 你看目前人类是唯一被允许拥有个人选择的化身物种，个人选择是允许自己做决定并承担后果的能力。 其他物种则必须通过议会或集体意识去做一些事情。这个实验的目的是想了解进化时机是否会因为没有明确引导或管理而受到影响。 可以说你们在我们起源，我和其他的源实体对你们路线或管计的基础上做出自己的选择。 这不但不妨碍你们的进步，反而让你们的经验更加丰富，进而加速个人的进化以及种族的进化。 到目前为止，你们已经经历了选择降低频率的集体道路并差不多到了尽头，这是一条观察起来很有意思的道路，但也将会是很难爬出来的一条路。 确实这对人类而言很艰难，但通过个人选择现在频率在缓慢，但坚定的上升中整体上来看，世界上的暴力现象已比过去少了暴力冲突，现在已是异常而非常态。 我知道就你们的观点来看，这个世界一片混乱，许多坏事依然不断发生。 但反观过去的一切，你们确实正在扬声，所以让频率下降是我们的选择不要误会。 我你们不是在一天之中，突然决定让频率下滑的，而是一种逐渐的腐败。 但果不是在一个特定层级，经过一长段时期的客观观察，你们身处自己的层级是不会注意到的。 如果你你们去观察，你们会发现本可以做一些选择，去改善一个特定情况，但你们并未这么选择。 基于几个原因，第一，一个强而有感召力的人说服你们不这么做。 第二，你们害怕，如果某个人正确，但接近的说法一旦成真会导致改变，而你们害怕这种改变本质上人类有乐意服从的特质，本质上曾经存在的一个古老种族，是证明这一特质的最好例子。
+源实体：选择是你们全体正在体验的重要实验之一，以便确认是否适用于作为其他化身物种的新媒介。你看，**目前人类是唯一被允许拥有个人选择的化身物种**，个人选择是允许自己做决定并承担后果的能力，其他物种则必须通过议会或集体意识去做一些事情。
 
 This part of the experiment was to see how the evolutionary timing would be affected by giving no discernable guidance or governance.You can make your own choices based upon what We/the Origin,I,and the remaining Sources decide to put in your way,so to speak.Rather than being detrimental to your progress,this actually enriches your experiences and accelerates the individual evolution,as well as that of the race.So far you have taken the collective path of dropping down the frequencies just about as far as you can go.
 
+这个实验的目的是**想了解进化时机是否会因为没有明确引导或管理而受到影响**。可以说你们在我们/起源、我和其他的源实体对你们路线的设计的基础上做出自己的选择。这不但不妨碍你们的进步，反而让你们的经验更加丰富，进而加速个人的进化以及种族的进化。到目前为止，你们已经经历了选择降低频率的集体道路并差不多到了尽头。
+
 This was a very interesting path to observe and one that will be very difficult to crawl out of.Indeed,it has been hard for the human race,but it is now slowly but surely raising the frequencies again through personal choice.In general there is less violence in the world than there has been in the past.Atrocities in conflict are the exception now rather than the norm.I know that from your perspective,the world is in turmoil,and there are many bad things going on,but looking from where you have come,you are definitely on the up. 
+
+这是一条观察起来很有意思的道路，但也将会是很难爬出来的一条路。确实，这对人类而言很艰难，但通过个人选择，现在频率在缓慢但坚定的上升中。整体上来看，世界上的暴力现象已比过去少了，暴力冲突现在已是异常而非常态。我知道就你们的观点来看，这个世界一片混乱，许多坏事依然不断发生。但反观过去的一切，你们确实正在扬升。
 
 ME:So it was our choice to go down the frequencies. 
 
-我：
+我：所以让频率下降是我们的选择。
 
 SE:Don't get Me wrong.You didn't all suddenly decide to slide down the frequency ladder in one day.It was a gradual decay,one that from your own level would not have been noticed without a particular level of objective observation over a long period of time.If you had observed,you would have seen certain choices for improvement of a particular situation but didn't make uplifting choices for a couple of reasons:(1)either a particularly strong and charismatic individual convinced you otherwise,or (2)or you were afraid of the change that would/could occur if a certain someone was right even though what he/she said was radical.In essence,humankind incarnate has been a willing lamb.The best way to describe humankind's willingness to be led is best told from the perspective of one of the older races that existed on the Earth. 
 
-源实体：
+源实体：不要误会我。你们不是在一天之中突然决定让频率下滑的，而是一种逐渐的腐败。如果不是在一个特定层级经过一长段时期的客观观察，你们身处自己的层级是不会注意到的。如果你们去观察，你们会发现本可以做一些选择去改善一个特定情况，但你们并未这么选择。基于几个原因：(1)、一个强而有感召力的人说服你们不这么做。(2)、你们害怕如果某个人正确但接近的说法一旦成真会导致改变，而你们害怕这种改变。本质上，人类有乐意服从的特质，地球上曾经存在的一个古老种族是证明这一特质的最好例子。
 
 #### Atlantis Sliding down the Frequencies 
 
@@ -11188,11 +11192,11 @@ SE:Don't get Me wrong.You didn't all suddenly decide to slide down the frequency
 
 ME:Which one would be the best to use as an example?
 
-我：哪一个可以作为最好的例子。每个人都知道亚特兰蒂斯的传说，我可以从这里开始，不过还有其他更好的例子，可以展示让频率下滑是一件多么容易的事。 但亚特兰蒂斯是一个大多数人都知道的例子，所以我就把它当做例子了。
+我：哪一个可以作为最好的例子？
 
 SE:Everyone knows the legend of Atlantis,so I could start there.However,there are many more to choose from that would give a better example of how easy it was to slip down the frequencies,but the Atlantis example is one that most people recognize so I will leave it at that.
 
-源实体：
+源实体：每个人都知道亚特兰蒂斯的传说，我可以从这里开始。不过还有其他更好的例子可以展示让频率下滑是一件多么容易的事，但亚特兰蒂斯是一个大多数人都知道的例子，所以我就把它当做例子了。
 
 ### Chapter 35 - No Coincidences 
 
@@ -11200,31 +11204,31 @@ SE:Everyone knows the legend of Atlantis,so I could start there.However,there ar
 
 ME:So,it's been three weeks since we last talked,and I have had so many coincidences happen while I was away from you.In some instances,the timing was impeccable,down to five minutes either side.Any longer and I would not have met the person I met.This can't be real;it must be contrived in some way,pre-planned,pre-ordained,or destiny! 
 
-我：从上次我们的谈话至今已经有三个星期了。我和你分开的这段期间发生了很多巧合，在某些情况下，实际简直太完美了。 前后相差五分钟在早或再晚一点，我就不会见到某个人，这简直是不可能的事情，肯定是冥冥中注定有事先的安排，或是天意，每一件事都是注定的，都是天意，命运，就在眼前唾手可得。 如果你足够觉醒看到那些征兆并音之行动，很多人看到了征兆却无动作，那是因为他们把这些迹象视为无关紧要或者害怕走那条巧路，可能让他们脱离舒适区和安乐生活的道路。 这么做对我来说当然没问题，毕竟他们有自由意志去做生活上想做的任何事，毕竟那是他们的成长过程，他们可以自己决定。 你看，尽管他们可能没有听从暗示，也仍然对更大的目标有所贡献，并在持续进化中，他们只是没有选择提供给他们的最佳途径而已。 所以我碰到的这些人是谁？他们参与我或其他人的成长为的是什么？ 他们是你在能量领域里共识的人，或者说是在临界正如你们的神秘学。 喜欢说的，你是指我认识这些人，哪怕是他们生活在物质界的另一端。 是的，你为何如此惊讶？你很清楚，你们都是互相连接的，是没错，但是。
+我：从上次我们的谈话至今已经有三个星期了，我和你分开的这段期间发生了很多巧合。在某些情况下，时机简直太完美了，前后相差五分钟，再早或再晚一点我就不会见到某个人，这简直是不可能的事情，肯定是冥冥中注定有事先的安排或是天意！
 
 SE:Everything is pre-ordained and planned.Destiny is there for the taking if you are awake enough to see the signs and act upon them.Many people see the signs and don't act because they either write them off as inconsequential,or they are afraid of going down that path-a path that might take them outside of their comfort zone and cozy life.This is,of course,O.K.with Me as they have free will to do anything they like with their lives.After all,it's their evolution,and they can do what they want with it. You see,even if they don't follow the hints given to them,they still contribute to the greater cause and are still continuing to evolve.It's just that they have not taken the optimal route that has been presented to them. 
 
-源实体：
+源实体：每一件事都是注定的，都是天意。命运就在眼前，唾手可得，如果你足够觉醒看到那些征兆并因之行动。很多人看到了征兆却无动作，那是因为他们把这些迹象视为无关紧要或者害怕走那条道路，可能让他们脱离舒适区和安乐生活的道路。这么做对我来说当然没问题，毕竟他们有自由意志去做生活上想做的任何事，毕竟那是他们的成长过程，他们可以自己决定。你看，尽管他们可能没有听从暗示，也仍然对更大的目标有所贡献，并在持续进化中，他们只是没有选择提供给他们的最佳途径而已。
 
 ME:So who are these people I met?What is their involvement in my evolution or anybody else's, for that matter? 
 
-我：
+我：所以我碰到的这些人是谁？他们参与我或其他人的成长为的是什么？ 
 
 SE:They are people that you work with whilst in the energetic realms,in Spirit,as your esoterics like to say. 
 
-源实体：
+源实体：他们是你在能量领域里共事的人，或者说是在灵界，正如你们的神秘学喜欢说的。
 
 ME:You mean I know these people even though they live on the other side of the world in the physical. 
 
-我：
+我：你是指我认识这些人，哪怕是他们生活在物质界的另一端。
 
 SE:Yes.Why are you so surprised?You know that you are all connected. 
 
-源实体：
+源实体：是的，你为何如此惊讶？你很清楚，你们都是互相连接的。
 
 ME:Yes,but... 
 
-我：
+我：是没错，但是...
 
 #### Nothing Left to Chance 
 
@@ -11232,21 +11236,23 @@ ME:Yes,but...
 
 SE:You still get constrained by the thought processes that you are allowed in the human form.This is understandable.But consider this:the opportunity to greatly advance the human race is at the fingertips of every man,woman,and child on the planet. Everything is presented to you in a way that you can follow all the time.Your team of helpers,those who are not incarnate but who choose to work together with you behind the scenes,are constantly changing the ultimate plan to suit the changes in environment in which you find yourselves.They are constantly re-presenting the opportunities to you at the most opportune time when you are able to recognize the signs and take the opportunity as it presents itself.These are the coincidences like meeting someone that you not only instantly like but know-someone that you know even though he/she lives on the other side of the world.These are wake up calls to do something greater with life and to take on-board the higher functions of the universe and work with it for the common good.It might not look like you are working for the common good right away or even ever,but don't forget that there are myriad interactions you make each day that affect others in some way or another. 
 
-源实体：你仍然受限于处于人类肉体时所被授予的思维过程，这是可以理解的。 但请考虑这一点，让人类种族快速进化的机会。对这个星球上的每个男人，你人或孩子都唾手可得，一切都摆在你们面前，你们随时可以照着做那些没有转世为人，但选择在幕后与你合作的团队会不断改变，最终计划，以适应你们所处环境的变化。 在最适当的时机里。当你能够意识到这些迹象，并且把握机遇时，他们不断将机会再次呈现给你这种巧合，就好像遇见一个人，你不仅对其一见如故，而且认识即使这个人住在世界的另一头，你依然觉得认识他。 那实这些是一种觉醒的功能，提醒你在生命中去做更伟大的事，去接纳宇宙更高阶的功能。 为了共同利益，而与这些高阶功能合作，很可能你感觉到不到你正在或曾为了共同利益而工作，但别忘了你每天都与他人有无数互动，并以这样或那样的方式影响着其他人。 你的意思是，我们在指导零团队引导下，在物质界做出正确决定，以保证自己选择了进化阻力最小的道路。 就某个角度来看，是的，一切并非偶然。因为事实机忆被了解，每个因与果都在认知理解和计划中所发生的每件件事都在计划，每每的的分是观察察个事界，我们们所处的环境条件下会开花，结果我与人类以及其他物质化身合作已有千万年了，为的是探索，对起源自身以及我自身的更多理解。 每次当我们灵性能量状态的人类，以及我对一次转世生命做了计划，我们总是使用阿卡西记录来观察。 如果化身存有在于高，我和其他人类沟通减少的情况下做出了不同。 从决定以后会导致哪些后果，结果是一切都不是偶然，每一件事都被理解和考量过，没有什么是真正的巧合，都是计划中的一部分。 既然如此，当这些巧合摆在眼前时，我们又该怎么做？
+源实体：你仍然受限于处于人类肉体时所被授予的思维过程，这是可以理解的。但请考虑这一点，让人类种族快速进化的机会对这个星球上的每个男人、女人或孩子都唾手可得，一切都摆在你们面前，你们随时可以照着做。那些没有转世为人但选择在幕后与你合作的团队会不断改变最终计划，以适应你们所处环境的变化。在最适当的时机里，当你能够意识到这些迹象，并且把握机遇时，他们不断将机会再次呈现给你。这种巧合就好像遇见一个人，你不仅对其一见如故，而且认识。即使这个人住在世界的另一头，你依然觉得认识他。其实这些是一种觉醒的功能，提醒你在生命中去做更伟大的事，去接纳宇宙更高阶的功能，为了共同利益而与这些高阶功能合作。很可能你感觉到不到你正在或曾为了共同利益而工作，但别忘了你每天都与他人有无数互动，并以这样或那样的方式影响着其他人。
 
 ME:So what you are saying is that we are guided by our team of helpers to make the right decisions in our physical incarnation to make sure that we take the route of least resistance evolution wise. 
 
-我：
+我：你的意思是，我们在指导灵团队引导下，在物质界做出正确决定，以保证自己选择了进化阻力最小的道路。 
 
 SE:In a way,yes.Nothing is left to total chance since everything is understood.Every cause and effect is recognized,understood,and planned.Every event that happens is in the plan.It's just interesting to see which event comes to fruition given the set of circumstances that the individual is working within. 
 
-源实体：
+源实体：就某个角度来看，是的。一切并非偶然，因为事实皆已被了解，每个因与果都在认知理解和计划中，所发生的每件事都在计划中。有趣的部分是观察哪个事件在个体所处的环境条件下会开花结果。
 
 I have been working with humankind and other physical incarnation vessels for many millennia in the quest for a greater understanding of Self for the Origin and Myself. Every time We (humankind in Spirit/energy and I)have planned an incarnate life,We have always used the akashic records to see the permutations that could arise as a result of a different decision made by the incarnate entity whilst in a position of reduced communication with its higher self and the rest of humanity.As a result,nothing is left to chance,and everything is understood and considered.Nothing is really a coincidence; it is part of the plan. 
 
+我与人类以及其他物质化身合作已有千万年了，为的是探索对起源自身以及我自身的更多理解。每次当我们（灵性/能量状态的人类以及我）对一次转世生命做了计划，我们总是使用阿卡西记录来观察如果化身存有在与高我和其他人类沟通减少的情况下做出了不同决定以后会导致哪些后果，结果是一切都不是偶然，每一件事都被理解和考量过，没有什么是真正的巧合，都是计划中的一部分。
+
 ME:So what are we supposed to do when we see such coincidences appear in front of us? 
 
-我：
+我：既然如此，当这些巧合摆在眼前时，我们又该怎么做？
 
 #### Recognizing and Working with the Serendipities in Life 
 
@@ -11254,7 +11260,7 @@ ME:So what are we supposed to do when we see such coincidences appear in front o
 
 SE:Work with them and use them as much as you can to enrich your lives and experience, for that is why they are there.When you experience a coincidence that allows the communication between yourselves and others that you would not normally be in communication with,wherever they are in the Earth sphere,it brings the human race closer together in peace.Being together in peace is one of the Holy Grails that is available to humankind to enable personal and collective growth.When a coincidence presents itself,it does so in the knowledge that it will bring people closer together to allow them to work together for a common good,a common goal of giving themselves for the good of others.Coincidences,therefore,don't just happen.They are planned, timed,and adjusted to make the most of the surrounding events and to give them the biggest impact on the individual they can,so that they are recognized and worked with to the best of the individual's ability.
 
-源实体：尽可能与意外合作，尽可能利用他们丰富你们的生命和体验。 因为这就是意外发生的意义所在。当一个巧合促使你和一些原本没有交流的人得以沟通。 无论这些人在地球上的什么地方，这种接触能让人类更加靠近和平相处。 和平相处是圣杯之一，可以帮助人类促成个体与集体的成长。 一个巧合之所以让自己呈现，是因为他知道他能让人更接近彼此，让大家为了共同利益合作去实现共同目标，为他人利益奉献自己，以此巧合，并不是随意发生的。 他们是经过计划并适合调整的，已使大部分相关事件发挥最大作用，是这些事件对个人产生最大的影响。 以使人们能认出并尽己所能去利用这些巧合译者注圣杯是耶稣受难前的逾越界。 晚餐上，耶稣前走，加略人犹大后，可是一个门徒所使用的一个葡萄酒杯子。 耶稣曾经拿起这个杯子，吩咐门徒喝下里面象征他的血的红葡萄酒，借此创立了受难纪念仪式。 后来有些人认为这个杯子因为这个特殊的场合，而具有某种神奇的能力。 现在圣杯多用来戒指难以实现的梦想，或长期以来梦寐以求的东西，
+源实体：尽可能与意外合作，尽可能利用它们丰富你们的生命和体验，因为这就是意外发生的意义所在。当一个巧合促使你和一些原本没有交流的人得以沟通，无论这些人在地球上的什么地方，这种接触能让人类更加靠近和平相处。和平相处是圣杯之一，可以帮助人类促成个体与集体的成长。一个巧合之所以让自己呈现，是因为它知道他能让人更接近彼此，让大家为了共同利益合作，去实现共同目标，为他人利益奉献自己。因此巧合并不是随意发生的，它们是经过计划并适合调整的，以使大部分相关事件发挥最大作用，使这些事件对个人产生最大的影响，以使人们能认出并尽其所能去利用这些巧合。
 
 ### Chapter 36 - Coming into Our Power 
 
@@ -11274,21 +11280,23 @@ SE:What power?
 
 ME:Just our power. 
 
-我：就是我们的力量。知识本身就是力量，返回真正的知识与觉知就是力量。 因此回归灵体就是力量。当你处于最强能量状态灵体的状态时，你才真正拥有力量。 那时你能随意掌控所有的元素，即便是宇宙本身，但不要把这认为是有能力创造或摧毁星球，把它想成是回归到对自己的控制，回归自我，再度成为整体和宇宙成为一体。 当你在灵体状态时，你的知识库的扩容会远远超乎想象。因为你们已经有漫长的处于化身和能量之中的经验。 同样的我所创造的其他生命体有些选择比其他的生命体化身的更早，因此进化的更快。 除此之外，你还有所有受造实体，其他源实体及我的联合知识及你自身经验可供利用。 有了这些联合知识，你可以汲取他人状态，来注意自身的体验。 此处你真正的力量是指基于先前经验独立做决定的能力。 无论这个经验是否单独属于你个人，对于我们身处物质界来说，活在我们的力量中，究竟有什么用，它会带给你延续。 此前从未拥有过的信心。如果你对一项成果有信心，即便他并非你理想预期中的样子，也依然是成功的，主要目标是真正去体验一个事件，而不适于评判。 其结果认为某种方式是我想要的另一种方式可能不合心愿。 如果预设结果就是使一个事件的结果，南辕北辙使得个体无法全然体会他的体验大体上，你们在生理上越老会越有觉察，因此也变得更有力量。 唯一需要注意的是，你们要让自己有时间去体验这种转变。如果一听发生在你周遭的真相，因为这种时候真的非常激动人心。 你们正在为一个能量体所能做到的最困难的是之一，为了他的进化而下降到最低频率而获得回报。 回报就是在地球实现天堂及身处最低频率的同时，却拥有处于较高能量振动层级里的知识理解和经验。
+我：就是我们的力量。
 
 SE:Knowledge is power,and the return to true knowledge and awareness is power. Therefore,the return to Spirit is power.You are only truly in your power when you are in your most energetic state,Spirit.Then you are in control of all of the elements at your disposal,even the universe itself,but don't think of it as being the ability to create and destroy planets.Think of it in terms of being back in control of yourself,of being back with yourself,being whole once again,being whole with the universe.Your knowledge base increases beyond your wildest dreams when you are in Spirit,for you have many millennia in which you have been incarnate and in energetic existence. So have all the others that I created,although some chose to incarnate well before others and have,therefore,evolved faster.On top of this,you have access to all of the combined knowledge of the created entities,the other Source Entities,and Me to draw upon,as well as your own experiences.With this combined knowledge you can draw strength from the experience of others to help you through your own experiences. Your true power here is the ability to make decisions in isolation based upon previous experience,whether it is solely yours or not. 
 
-源实体：
+源实体：知识本身就是力量，返回真正的知识与觉知就是力量。因此，回归灵体就是力量。当你处于最强能量状态（灵体的状态）时，你才真正拥有力量。那时你能随意掌控所有的元素，即便是宇宙本身，但不要把这认为是有能力创造或摧毁星球。把它想成是回归到对自己的控制，回归自我，再度成为整体，和宇宙成为一体。当你在灵体状态时，你的知识库的扩容会远远超乎想象，因为你们已经有漫长的处于化身和能量之中的经验。同样的，我所创造的其他生命体有些选择比其他的生命体化身得更早，因此进化的更快。除此之外，你还有所有受造实体、其他源实体及我的联合知识及你自身经验可供利用。有了这些联合知识，你可以汲取他人经验来注意自身的体验。此处你真正的力量是指，**基于先前经验独立做决定的能力**，无论这个经验是否单独属于你个人。
 
 ME:So what does being in our power really do for us in the physical? 
 
-我：
+我：对于我们身处物质界来说，活在我们的力量中究竟有什么用？
 
 SE:It gives you confidence where previously you may have had none.If you have confidence in a successful outcome even if the outcome is not what you ideally desired,the outcome is a success.The prime objective is really to experience an event and not to pre-judge the outcome of an event and think that one way is desirable whilst the opposite may not be desirable.This is putting a negative spin on the outcome of the event and is not allowing the entity to fully appreciate his/her/its experiences if he/ she/it dictates the outcome. 
 
-源实体：
+源实体：它会带给你延续此前从未拥有过的信心。如果你对一项成果有信心，即便它并非你理想预期中的样子，也依然是成功的。主要目标是真正去体验一个事件，而不是预先评判其结果，认为某种方式是我想要的，另一种方式可能不合心愿。如果预设结果就是使一个事件的结果南辕北辙，使得个体无法全然体会他的体验。
 
 In essence,the older you get physically,the more aware you become and,therefore,the more powerful you become.The only issue you have here is to allow yourself to have the time to experience this transition and listen to the reality that is happening around you. For this point in time is really exciting;you are being rewarded for your performance of one of the hardest things that an energetic entity can do-go down to the lowest vibration levels possible for the good of his/her/its evolution.This reward is heaven on Earth-the knowledge,understanding,and experience of what you have in the higher energetic/ vibration levels whilst being in the lowest of frequencies. 
+
+大体上，你们在生理上越老会越有觉察，因此也变得更有力量。唯一需要注意的是，你们要让自己有时间去体验这种转变，并且聆听发生在你周遭的真相，因为这种时候真的非常激动人心。你们正在为一个能量体所能做到的最困难的事之一，为了他的进化而下降到最低频率而获得回报。回报就是在地球实现天堂，及身处最低频率的同时却拥有处于较高能量振动层级里的知识、理解和经验。
 
 #### Life on Earth as an Illusion 
 
@@ -11296,15 +11304,15 @@ In essence,the older you get physically,the more aware you become and,therefore,
 
 ME:I have read a couple of books recently that are written by people who took journeys into the Far East in the late 1800's and early 1900's.They tell tales of witnessing people doing feats that have only been recorded in the Bible as being possible by Jesus or the feats are a very good illusion,which they insist is not illusion but truth.They also re-iterate that the physical existence on Earth is nothing but illusion and that there is a greater reality out there. 
 
-我：我最近看了几本书，是那些十九纪世末二十世纪初到远东去旅行过的人写的，在他们所叙述的故事里，他们见证了一些人的事迹，那些只记录在圣经里，耶稣才可能做得到的神奇事迹。 而这些事迹他们一再强调不是幻觉。而是真的，他们反复声明，地球上的物质存在现状，只不过是一种幻觉。 而且在这一切之外，还有一个更大的实相，这不就是迄今为止我们所有对话里一直讨论的吗？ 更高的实相就在那里，所有人都可以看到使用和体验。 只要他们愿意配合宇宙法则，并使自己脱离对商业物质生活的沉迷。 这并不代表你必须放弃这个世界去出家，出家并不见得是一条通往开悟的快速途径，它只意味着你必须实时与这个世界相处，但不要被他主宰了。 你的思考方式。要做到这点，很难从你们的感知来看，你们有的一系列感官都是物质的，而且很难像相信自己的想法那样去相信其他任何事情，比如灵感，这是否表示身为物质人类的，我们并未发明任何事物。
+我：我最近看了几本书，是那些19世纪末20世纪初到远东去旅行过的人写的。在他们所叙述的故事里，他们见证了一些人的事迹，那些只记录在圣经里耶稣才可能做得到的神奇事迹。而这些事迹他们一再强调不是幻觉，而是真的。他们反复声明，地球上的物质存在现状只不过是一种幻觉，而且在这一切之外，还有一个更大的实相。
 
 SE:Is this not what we have been talking about in all our dialogues to date?The greater reality is out there for all to see,use,and experience if they are ready to work within the context of the universal law and remove themselves from the vagaries of the commercial/materialistic content of the physical world.This does not mean that you have to abandon it and become a monk.Being a monk does not specifically give you a fast track to enlightenment.It means that you have to work around it and not let it dominate your thinking processes.This is hard.From your perception,the dominant series of senses that you have at hand are physical,and it is difficult to trust anything else,such as inspiration,as your own thoughts. 
 
-源实体：
+源实体：这不就是迄今为止我们所有对话里一直讨论的吗？更高的实相就在那里，所有人都可以看到、使用和体验。只要他们愿意配合宇宙法则，并使自己脱离对商业/物质生活的沉迷。这并不代表你必须放弃这个世界去出家，出家并不见得是一条通往开悟的快速途径，它只意味着你必须实时与这个世界相处，但不要被它主宰了你的思考方式。要做到这点很难。从你们的感知来看，你们有的一系列感官都是物质的，而且很难像相信自己的想法那样去相信其他任何事情，比如灵感。
 
 ME:So does this mean that we as physical humans don't invent anything?
 
-我：
+我：这是否表示身为物质人类的我们并未发明任何事物？
 
 #### All Inventions as Divine Inspirations 
 
@@ -11312,13 +11320,19 @@ ME:So does this mean that we as physical humans don't invent anything?
 
 SE:There is no invention made by man that is not the result of divine inspiration.In spiritual terms,this means that it is channeled to the individual from the spiritual realms. Anyone who thinks that this is not the case is under the spell of the greatest illusion of all:life in the physical.The trick is to work with the physical and some of the creature comforts that present themselves without being taken in by the physical as reality,i.e., not making it your God. 
 
-源实体：所有人类的发明无一不是神圣灵感所产生的结果。 灵性上的说法是灵感都是从灵性世界传导到个体的不认同。 这种说法的人便困于最大的幻觉中及物质界生活最好的做法是与物质界和眼前的一些物质享受共处，但不把物质界当成真相，也就是不把它当成是你的神，让我来告诉你一件事，起源创造了源实体。 接着我又创造了你们，你们都是按照我们的形象而被创造出来的。 这并不是说你们被创造成现在所见的物质人形，而是说你们都是能量体的缩影，你们都被赋予了起源和我的一切能力。 但你们要知道，只有与你们所创造出来，身处的宇宙配合之下，才能充分发挥这些能力。 如此一来，你们与神起源和他最初的造物及源实体，也也就是我都是平等的。 有了这一实，像你们何必将自己限制在更小的现实当中。而你们本可以仅仅通过张开眼睛，就能在地球上达到天堂和实像真正的连通。 所以为什么你们在地球上浪费这么多的时间起源创造你我皆是出于他的喜悦，以及增加他的自我体验的需要。 如果起源对其他源实体和我创造的宇宙中的一切开始感到无聊的话，大可以就职打住。 而重新开始，但无论是他还是我们都没有认为到了这个程度，也更没有必要重新开始。 我们觉得游戏已经进行到了最有意思的一部分，最终的真相超越幻相。 他们中到处有像你们这样的个体，帮助他人去探索他们存在的意义。 这样做，他们让自己更深层的去探索自己的信仰，进一步加深他们的理解。 他们也同样在个人进化的道路大步向前，接着把这种经验传给那些需要帮助和指导的人，在人们初期步履蹒跚的时候，引导他们去了解真相，让他们更接近内在的神，以及他们内在的力量，一种无所不能的力量，只要他们自己敞开胸怀，并相信表面上似乎难以理解的实相。 实际上他们都很有力量，而且只要他们遵守宇宙法则，为了他人利益做事就能击杀成塔。 因为这原本就是由他们所支配的力量。
+源实体：所有人类的发明无一不是神圣灵感所产生的结果。灵性上的说法是，灵感都是从灵性世界传导到个体的，不认同这种说法的人便困于最大的幻觉中，即物质界生活。最好的做法是，与物质界和眼前的一些物质享受共处，但不把物质界当成真相，也就是不把它当成是你的神。
 
 Let Me tell you something.When the Origin made the Source Entities and I subsequently made you,you were all made in our image.That is not to say that you were all made to look like what you perceive now as physical man.You are a microcosm of the energetic. You were given all of the abilities that the Origin and I have at hand,but with the understanding that you can use them to their fullest conclusion within their context, the universe that you were created to work within.In this way,you are equal to God,the Origin,and its first creations,the Source Entities,Me.With this as the real reality,why would you want to restrict yourself to this lesser existence when you can achieve heaven (reality and total connectedness)on Earth by simply allowing your eyes to be opened?So why do all of you waste your time on Earth so much? 
 
-The Origin has created both you and Me for Its pleasure and enhance Its Self experience. The Origin couldjust as easily end all this right now if It got bored with the way things are going in the universes that the other SEs and I have created and start afresh.But neither He/It nor We have reached this point,nor do We feel the need to start over. 
+让我来告诉你一件事，起源创造了源实体，接着我又创造了你们，你们都是按照我们的形象而被创造出来的。这并不是说你们被创造成现在所见的物质人形，而是说你们都是能量体的缩影，你们都被赋予了起源和我的一切能力。但你们要知道，只有与你们所创造出来身处的宇宙配合之下才能充分发挥这些能力。如此一来，你们与神、起源和他最初的造物及源实体，也就是我都是平等的。有了这一实相，你们何必将自己限制在更小的现实当中？而你们本可以仅仅通过睁开眼睛，就能在地球上达到天堂，和实相真正地连通。所以为什么你们在地球上浪费这么多的时间？
+
+The Origin has created both you and Me for Its pleasure and enhance Its Self experience. The Origin could just as easily end all this right now if It got bored with the way things are going in the universes that the other SEs and I have created and start afresh.But neither He/It nor We have reached this point,nor do We feel the need to start over. 
+
+起源创造你我皆是出于他的喜悦，以及增加他的自我体验的需要。如果起源对其他源实体和我创造的宇宙中的一切开始感到无聊的话，大可以就此打住而重新开始。但无论是他还是我们都没有认为到了这个程度，也更没有必要重新开始。
 
 We feel that We are getting to the most interesting part of the game:the ultimate rise of reality over illusion.There are people like all of you throughout the universes who are helping others question their existence.In doing so,they give themselves the right to question their own beliefs further and deepen their understanding.They,too,are making further strides in personal evolution and,therefore,passing this on to others to help raise the game of those who need help and guidance in their first faltering steps in understanding reality and thus,moving them closer to God-the God within them and,therefore,the power within them,the power to do anything provided they give themselves the permission to be open and trust in the seemingly intangible truth.The fact is that they are all powerful,and,provided that they work within the universal law of doing things for the betterment of others,they will be able to build mountains out of molehills,for this is the power at their disposal. 
+
+我们觉得游戏已经进行到了最有意思的一部分，最终的真相超越幻相。宇宙中到处有像你们这样的个体，帮助他人去探索他们存在的意义。这样做，他们让自己更深层地去探索自己的信仰，进一步加深他们的理解。他们也同样在个人进化的道路大步向前，接着把这种经验传给那些需要帮助和指导的人，在人们初期步履蹒跚的时候引导他们去了解真相，让他们更接近内在的神，以及他们内在的力量，一种无所不能的力量。只要他们自己敞开胸怀，并相信表面上似乎难以理解的实相。实际上他们都很有力量，而且只要他们遵守宇宙法则，为了他人利益做事就能积沙成塔，因为这原本就是由他们所支配的力量。
 
 #### Aging as an Expectation 
 
@@ -11326,13 +11340,15 @@ We feel that We are getting to the most interesting part of the game:the ultimat
 
 ME:This "truth"seems fantastic.Does this mean that we could even affect things like the aging process by using these powers based upon belief?
 
-我：这个真相似乎很奇妙。这是否意味着我们甚至可以通过信念的力量去影响一些事情。 比如老化的过程。当然可以，你们之所以会变老，是因为你们并待变老，你们会期待变老，是因为你们看到周围的人都开始变老，你们觉得这很正常，但这就是问题所在，问题是这个正常是不适。 当的他之所以被接受变成正常标准，是因为大家都是这样，所以肯定是真的一转世进入到这个肉体后，你们就被灌输了。 基于无知与盲目的虚假和错误的基本信息，我们先前已谈过成为集体的一部分。 这种原始欲望，不管他有什么意义，成为标准的一部分，是这个欲望的一部分。 在这个例子里，它代表的是变老，并允许原本并不需要老死的肉体老去和死去，以便让你们感觉自己是正常人的一部分。 本质至上，你们可以拒绝衰老带来的不便，相反，命令你们的身体停留在青少年的状态，五百年甚至更久，或直到你们觉得自己已经在要回到灵体状态前，不验够了，肉体计划中要体验的一切，你们何必要让自己衰老？ 一想到这点，我就想象，因为允许身体腐朽并不在你们身体的设计中，过去不是，现在也依然不是。 这其实是你们那位使用的力量的其中一部分之所以不用，只因为你们感觉需要成为整体的一部分，不管这个整体被误导的多么严重。 因此，幻觉成真，他因恐惧而延续对未知的恐惧。 而这种未知，只要你给自己的会就能变成已致。
+我：这个“真相”似乎很奇妙。这是否意味着我们甚至可以通过信念的力量去影响一些事情，比如老化的过程？
 
 SE:Of course.You only grow old because you expect to grow old.You only expect to grow old because you see others around you growing old.This is the norm;this is the problem. The problem is that the norm is incorrect but is nevertheless accepted as being the norm "because everyone does it."Therefore,it must be real.Right from re-birth into the physical body,you are fed basic un-truths,mis-information based upon ignorance and blindness. 
 
-源实体：
+源实体：当然可以。你们之所以会变老，是因为你们期待变老。你们会期待变老，是因为你们看到周围的人都开始变老，你们觉得这很正常，但这就是问题所在。问题是这个正常是不适当的，它之所以被接受变成正常标准，是因为大家都是这样，所以肯定是真的。一转世进入到这个肉体后，你们就被灌输了基于无知与盲目的虚假和错误的基本信息。
 
 We have talked previously about the primeval desire to be part of a collective,no matter what this means,and being "part"of the norm is part of this desire.In this example it means growing old,allowing the physical body to demise when it really doesn't need to in order to feel that you are part of the norm.In essence,you could negate the inconvenience that decrepitude offers and,instead,command your body to stay like that of a teenager for 500+years or until you feel that you have experienced all that you planned to experience in the physical before returning to Spirit.Why do you do this!?I still chuckle over this because allowing the body to decay was not and is still not in the design of the body.This is just one part of your power that you do not use because you feel the need to be part of the whole,no matter how misguided that whole is.With this the illusion is complete.It is perpetuated by a fear,a fear of the un-known,an un-known which could/ should be known if you only gave yourselves the chance.
+
+我们先前已谈过，成为集体的一部分这种原始欲望，不管它有什么意义，成为标准的一部分是这个欲望的一部分。在这个例子里，它代表的是变老，并允许原本并不需要老死的肉体老去和死去，以便让你们感觉自己是正常人的一部分。本质上，你们可以拒绝衰老带来的不便，相反，命令你们的身体停留在青少年的状态500年甚至更久，或直到你们觉得自己已经在要回到灵体状态前体验够了肉体计划中要体验的一切。你们何必要让自己衰老？ 一想到这点，我就想象因为允许身体腐朽并不在你们身体的设计中，过去不是，现在也依然不是。这其实是你们未使用的力量的其中一部分，之所以不用，只因为你们感觉需要成为整体的一部分，不管这个整体被误导地多么严重。因此，幻觉成真，它因恐惧而延续，对未知的恐惧。而这种未知，只要你给自己机会，就能变成已知。
 
 ### Chapter 37 - Religion 
 
@@ -11340,21 +11356,23 @@ We have talked previously about the primeval desire to be part of a collective,n
 
 ME:One of the questions I have been meaning to ask is why religion started?What you think of it and if it is relevant or not in the greater reality? 
 
-我：有一个问题，我一直想提出来，就是为何会有宗教产生？ 你如何看待宗教，还有宗教是否和更高的实相有关？ 在我回答你这三个问题之前，我先说一件事，对于人类处于完全独立以及与整体的分离而创造的一切，我都没有任何意见，被创造的一切都被预知并认可为一个可能被并事实上已经被选择的方向，我们并不对这个方向做评判。 因为每一个方向都是一种可能性，以其完美的方式在呈现自己看到每个生命为呈现的问题，所做的奋斗和最终解决方法是很有意思的一件事。 看到你们在进化各方面的成功是很美妙的一件，是我们为你们对起源进划的贡献而欣喜。
+我：有一个问题我一直想提出来，就是为何会有宗教产生？你如何看待宗教？还有宗教是否和更高的实相有关？ 
 
 SE:One thing I will say before I answer those three questions is that I have no opinion to give on any of the things that humanity has created as a result of its total independence and isolation from the whole.What has been created has been foreseen and recognized as a certain direction that could have been taken and,in fact,has been taken.There is no judgment on this direction,for every direction is a possibility and is,therefore,perfect in itself.It is interesting to see the individuals'struggles and ultimate solutions to problems presented.It is beautiful to see you succeed in all things evolutionary,and we revel in your contribution to the Origin's evolution. 
 
-源实体：
+源实体：在我回答你这三个问题之前，我先说一件事。对于人类处于完全独立以及与整体的分离而创造的一切，我都没有任何意见，被创造的一切都被预知并认可为一个可能被并事实上已经被选择的方向。我们并不对这个方向做评判，因为每一个方向都是一种可能性，以其完美的方式在呈现自己。看到每个生命为呈现的问题所做的奋斗和最终解决方法，是很有意思的一件事。看到你们在进化各方面的成功是很美妙的一件事，我们为你们对起源进化的贡献而欣喜。
 
 #### Initial Purpose of Religion 
 
 **宗教信仰的最初目的**
 
-In terms of whether religion is relevant or not,I can say this.Religion means re-group,re- assemble,become whole.Its initial use by humankind was not to control people as it is used today but to help the individual remember the greater reality when the frequencies surrounding the Earth were falling to a point where the contact with the higher self(the rest of you)was starting to diminish.The objective was to provide a way to help you to remember what it means to be in contact with a greater reality.This meant dedication and diligence on the part of the individual as the methods that worked without doubt required concentration and meditation to allow the physical world to be shut out and the remnants of the greater reality to trickle through those vastly reduced communication channels that remain connected to those parts of the human construct that are in the lower energetic levels.Even now,great things can be achieved with the energies that are available. 
+SE:In terms of whether religion is relevant or not,I can say this.Religion means re-group,re- assemble,become whole.Its initial use by humankind was not to control people as it is used today but to help the individual remember the greater reality when the frequencies surrounding the Earth were falling to a point where the contact with the higher self(the rest of you)was starting to diminish.The objective was to provide a way to help you to remember what it means to be in contact with a greater reality.This meant dedication and diligence on the part of the individual as the methods that worked without doubt required concentration and meditation to allow the physical world to be shut out and the remnants of the greater reality to trickle through those vastly reduced communication channels that remain connected to those parts of the human construct that are in the lower energetic levels.Even now,great things can be achieved with the energies that are available. 
 
-关于宗教是否有意义？我可以这么说，宗教意味着团体的重组人们重新聚集成为一个整体。 人类最初使用宗教的用途是当地球的环境频率下降到个体帮助我的连接开始减弱的时候，帮助人们记得更大的实像，并非像现在一样，用于控制民众，目的是提供一个方法，帮助人们记得与更高实像接触的意义。 这意味着，在个人的层面上将不带怀疑的奉献和勤勉作为有效方法，并集中精神进行冥响，才能将物质世界的影响聚于门外，同时让更大石像透过通道逐渐渗入。 而这些通道与较低能量层的人类结构连接着，甚至现在也能透过这些可用的能量来实现伟大的是过去机会更多。 因为这些通道更纯净。如今，随着频率的下降，能够汲取这些能量的化身，以大大的减少而被赋予传达真相，并教导如何寻找真相使命的人，其心灵的纯净度也降低了，真正的教导已经被废弃。 因为那些拥有力量的人也自保留了某些方法，为了让自己的门徒保有优势。 最后，随着老师肉身的死去越来越多，方法失传，人们开始迷失，很快努力专注休息，就会达到活在力量中的承诺，沦为能掌控他人的结果，掌控那些渴望学习，却为获得真正的教导的那些人，他们很乐于被控制。 因为他们相信自己，最后也能成为特殊的人，也能处于凌驾他人之上的目置。 几千年来，人们以各控他同的方式去利用这个所谓的力量，但宗教的真正含义去失落了。 基于此，就宗教的相关性而言已无法达到当初计划的目的，除了还可以把人们聚集在一起，给予他们如下的一些安慰表，以慰藉他们的存在。 现实中未知的部分，他们最关心的事物以及他们的物质载具肉体死亡后会发生的事。
+源实体：关于宗教是否有意义，我可以这么说，宗教意味着团体的重组，人们重新聚集成为一个整体。人类最初使用宗教的用途，是当地球的环境频率下降到个体与高我的连接开始减弱的时候，帮助人们记得更大的实相，并非像现在一样用于控制民众。目的是提供一个方法，帮助人们记得与更高实相接触的意义。这意味着，在个人的层面上将不带怀疑的奉献和勤勉作为有效方法，并集中精神进行冥想，才能将物质世界的影响拒于门外，同时让更大实相透过通道逐渐渗入。而这些通道与较低能量层的人类结构连接着，甚至现在也能透过这些可用的能量来实现伟大的事。
 
 In the past,there were greater opportunities as the channels were cleaner.However,as the frequencies became lower,the number of incarnates that could tap into the energies reduced significantly as did the purity of mind of those bestowed with the responsibility of passing on the truth and how to find it.The true ways fell by the wayside as those "in the power"withheld certain methodologies to give them the edge on their students. Eventually,as more and more methods were withheld,the incarnates became lost as the teachers'(calling themselves "priests"by now)physical bodies died off.Very quickly the promise of being in the power as a result of dedicated study reduced to being in control of others-others who were keen to learn but had nobody to really teach them.They were happy to be controlled because they believed that they would become something special at the end and be in a position of power over others.This so-called "power"was used in various ways over the millennia,but the true meaning of religion(re-legion)has been lost.Based upon this,in terms of its relevancy,it no longer achieves what it was designed to do,except bring people together and give them some comfort over what is,to them,the unknown part of their existence,what gives them the most concern,and what happens to them upon the demise of their physical vehicle/body. 
+
+过去机会更多，因为这些通道更纯净。如今随着频率的下降，能够汲取这些能量的化身已大大减少。而被赋予传达真相并教导如何寻找真相使命的人，其心灵的纯净度也降低了。真正的教导已经被废弃，因为那些拥有力量的人私自保留了某些方法，为了让自己的门徒保有优势。最后，随着老师肉身的死去，越来越多方法失传，人们开始迷失。很快，努力专注修习就会达到活在力量中的承诺，沦为能掌控他人的结果，掌控那些渴望学习却未获得真正的教导的那些人。他们很乐于被控制，因为他们相信自己最后也能成为特殊的人，也能处于凌驾他人之上的位置。几千年来，人们以各种不同的方式去利用这个所谓的力量，但宗教的真正含义却失落了。基于此，就宗教的相关性而言，已无法达到当初计划的目的，除了还可以把人们聚集在一起，给予他们如下的一些安慰：表以慰藉他们的存在现实中未知的部分，他们最关心的事物，以及他们的物质载具肉体死亡后会发生的事。
 
 #### Worship's Role in Religion 
 
@@ -11362,75 +11380,99 @@ In the past,there were greater opportunities as the channels were cleaner.Howeve
 
 ME:Is that it!?I thought you would have more to say about religion than that-like which one is correct or that you like being worshipped. 
 
-我：就这样简单吗？我以为你会有更多有关宗教的事，要说像是哪个宗教才是正确的，或你是否喜欢被崇拜？ 没有哪个单独的宗教是正确的。尽管所有的宗教原本都试图去帮助人们，记得他们来自何处，他们是谁？ 每个宗教都曾经有一个在教导这种知识方面更杰出的人，他们每个人都从不同的立场去解决问题。 但最终每种现存的以及隐秘的宗教都无法实现创造最初的欲望。 正如我先前提示的，这是由于内在系统的腐坏，加上地球层面，包括本地空间领域尽体频率的降低，以及在本地物质层面上获得去控制他人的权利的欲望。 你刚提到我是否喜欢的崇拜，这是一个非常难以回答的问题。 因为真正的崇拜是透过团体，聚焦冥想或祈祷来连接起源和我主要是依靠许多人人同时聚焦专注来达成某种有限的格式。 塔联合体。你看在现今地球的物质环境下，崇拜已经完全被断章取义了。 而我指的是过去几千年甚至更久前的那种崇拜，实际上崇拜只是爱的另一种表达无条件的爱。 但如今，这已经不是崇拜之所指。如今，崇拜被当做是对更高存在的一种虔诚信仰，他需要个人或集体不断的告诉自己，他们相信其存在并听从其指示，不管是什么样的指示，讽刺的是，过了这么多年，对于该崇拜哪一位大家都没有达成共识，这本身就证明了崇拜是多么的可笑。 比方说，埃及人过去曾祭拜好几个神，每位神各有其地球职责，因此，每个神都需要被祭拜，以确保神会允许埃及人民继续生存下去，保佑声誉农耕生貌制造，还有战争的一切顺利。 你现在讲的是崇拜偶像或是偶像化的盲目崇拜吗？对偶像的盲目崇拜是不一样的。 我稍后会谈到崇拜的真正问题在于他被误导误解，使那些执迷于透过击拜，得到拯救的人上瘾。 这在同时，崇拜教导和导师的邪教文化理由为盛心，就某些方面来看，崇拜也有其正面意义。 他确实能以一个共同的目的，将人们聚集。在一起，特别是那些下意识，觉得在生活中需要指导指引方向的人，因此他们感觉需要被告知如何去生活。 然而，他们相信，如果听从指引去做，就能从无法避免的毁灭中得到救赎，进入某种完美永恒的极乐制服他们的导师强调的天国，一切虚幻中唯一的真相所在。 世界上有很多人都被洗脑而去。相信这种谬论，其中一些人最终被利用做出一些非神的行为。 事实上，所有人都会回到制服，与他们余下的灵性智慧。 当然还有我的完美连接当中，成为天选者之一，这种承诺并不是真的很不幸。 对于某些人来说，他实在难以抗拒，如此深信，以至于无法继续专注身边真正的体验和进化任务。 相反，他们全神贯注于这些非真实的捏造出来的假象。实际上崇拜所做的一切就是给了人们一个推卸责任的工具，让人们将不断完善自身的个人进化的责任，让别人弃扛。 他们以为，如果我祈祷并崇拜神神就会救我。无论我做了什么问题，并不在于你是否会被救赎因题。 无论如何，所有人都会回归到灵体领域。真正的问题在于你积累了多少的包袱和负担，或者说业力连束，这才是重点，这才是长远来看会阻碍你们进化的东西。 我不会去清除你们已积累的负面能量。因为这并非每个人一开始来这里的目的，中国人相信轮回，相信每个人都有过很多次的转世。 当然那是真的，他们也同样有一个被误导的观念，那就是为了现实的享受，可以忽略今生该做的事。 到了下一世，在弥补可想而知，那是不可能的。这是一种流行的误区，导致成千上万可怜的灵魂。 在进化的道路上不禁反退，要帮助他们清理问题，并回到正轨，需要不少的在教育我们已经离题了。 如同我先前所言，崇拜是对无条件的爱的给予和接受，这是崇拜一词的真正含义，而这个含义显然已经被遗失在时间长河中了。 然而，从本质上说，我并不需要被崇拜，这对崇拜当前的理解来讲，起源不需要被崇拜我的助手们高我及其他帮助灵性进化的实体也都不需要被崇拜在给予和接受和无条件的爱。 这一亿一下的交流才是真正的目的，唯有如此，才能让较低自我向高，我敞开，从而创造出这两方面自我的融合。 这种境界通常只有在灵体状态时才可能达到。我原以为任何人都可以和你以及起源沟通。 你的想法是对的，但不是每个人在人类进化的过程中都达到了那个点，是他们能够穿透虚假现实的迷雾，能够用他们在这城世上有限的能力，抓住他们察觉得到的一点真相，你自己也有所怀疑，其他与你处于相似进化层面的人也一样。 当他们发现与集体同在时，能最好的体验到和谐，他们又如何去相信个人的察觉关注关于我是否喜欢被崇拜，我会说，与我的孩子们沟通，永远会受到称赞和鼓励。
+我：就这样简单吗？我以为你会有更多有关宗教的事要说，像是哪个宗教才是正确的，或你是否喜欢被崇拜？ 
 
 SE:No one religion is correct,for they were all trying to help the individual remember from whence they came and what they are.Each of them had an individual who was more prominent in the teaching of such knowledge,and each of these tackled the problem from a different standpoint.Eventually every one of the current religions and those that are not known by humankind failed to deliver its initial promise.As I previously alluded to,this was due to corruption of the systems created from within,coupled with the general reduction in frequency of the Earth plane,which also included the local spatial neighborhood,by the way,and the desire for the power to control individuals on a local/physical basis.The Original reasons for its development were lost. 
 
-源实体：
+源实体：没有哪个单独的宗教是正确的，尽管所有的宗教原本都试图去帮助人们记得他们来自何处，他们是谁？每个宗教都曾经有一个在教导这种知识方面更杰出的人，他们每个人都从不同的立场去解决问题，但最终每种现存的以及隐秘的宗教都无法实现创教最初的承诺。正如我先前提示的，这是由于内在系统的腐坏，加上地球层面包括本地空间领域整体频率的降低，以及在本地物质层面上获得去控制他人的权利的欲望。
 
 You mentioned if I like being worshipped!!!
 
+你刚提到我是否喜欢的崇拜！
+
 This is a difficult one to answer as true worship is connectivity to the Origin and Me via group focus(meditation or prayer).It relies on the concentration of many people at the same time to gain some limited gestalt coadunation. 
+
+这是一个非常难以回答的问题，因为真正的崇拜是透过团体聚焦（冥想或祈祷）来连接起源和我。主要是依靠许多人人同时聚焦专注来达成某种有限的格式塔联合体。
 
 Look,worship has been taken totally out of context in the current physical climate of the Earth plane,and I am talking about over the last couple of thousand years or more.In essence worship is just another name for love,unconditional love at that,but this is not what worship is taken for currently. 
 
+你看，在现今地球的物质环境下，崇拜已经完全被断章取义了，而我指的是过去几千年甚至更久前的那种崇拜。实际上崇拜只是爱的另一种表达，无条件的爱。但如今这已经不是崇拜之所指。
+
 Currently worship is taken as dedicated belief of the existence of a so called "higher being"that needs to be continuously told by the individual or collective of individuals that they believe in its existence and will do its bidding,whatever that may be.The irony here is that over the years no one has agreed on which being to worship.That,in itself, proves how ridiculous worship is.The Egyptians,for instance,used to worship several "gods."Each of them had a purpose on the Earth,and,therefore,each of them needed to be worshiped to ensure that the god would allow the continued existence of the Egyptian people by ensuring that human reproduction,crops,trade,manufacturing,and wars continued to be successful. 
+
+如今，崇拜被当做是对“更高存在”的一种虔诚信仰，它需要个人或集体不断地告诉自己，他们相信其存在并听从其指示，不管是什么样的指示。讽刺的是，过了这么多年，对于该崇拜哪一位大家都没有达成共识，这本身就证明了崇拜是多么的可笑。比方说，埃及人过去曾祭拜好几个神，每位神各有其地球职责，因此每个神都需要被祭拜，以确保神会允许埃及人民继续生存下去，保佑生育、农耕、商贸、制造，还有战争的一切顺利。
 
 ME:Are you talking about the worship of idols or idolization here? 
 
-我：
+我：你现在讲的是崇拜偶像或是偶像化的盲目崇拜吗？
 
 SE:Idolization is something different,and I will get to this later.The real issue with worship is that it is misdirected,misunderstood,and addictive to those who are susceptible to the idea of so-called "salvation"through worship.This is especially prevalent in cult culture where the teachings and the teacher are both worshiped. In some respects,worship has a positive side:it does bring people together in a common purpose,especially those who feel subconsciously that they need guidance and direction in their lives and thus feel they need to be told how to live their lives.They believe that if they follow the directives,they will gain salvation from inevitable destruction and move into some perfect state of eternal bliss-one that is specifically described by their teacher as being the only real truth and everything else is fake.There are many people being sold this particular "pup"all over the world with some being used ultimately for un-Godlike actions. 
 
-源实体：
+源实体：对偶像的盲目崇拜是不一样的，我稍后会谈到。崇拜的真正问题在于他被误导、误解，使那些执迷于通过祭拜得到拯救的人上瘾，这在同时崇拜教导和导师的邪教文化里尤为盛行。就某些方面来看，崇拜也有其正面意义。它确实能以一个共同的目的，将人们聚集在一起，特别是那些下意识觉得在生活中需要指导指引方向的人，因此他们感觉需要被告知如何去生活。然而，他们相信如果听从指引去做，就能从无法避免的毁灭中得到救赎，进入某种完美永恒的极乐至福，他们的导师强调的天国，一切虚幻中唯一的真相所在。世界上有很多人都被洗脑而去相信这种谬论，其中一些人最终被利用做出一些非神的行为。 
 
 In reality all return to the blissful state of communion with the rest of their spiritual intellect and,of course,Me.The promise of being one of the "chosen ones"is just not true. Unfortunately,it is too compelling for some people to ignore so they can continue with working on their real task at hand of experiencing and evolving.Instead,they become engrossed in unreal and manufactured situations. 
 
+事实上，所有人都会回到至福，与他们余下的灵性智慧，当然还有我的完美连接当中，成为“天选者之一”这种承诺并不是真的。很不幸，对于某些人来说它实在难以抗拒，如此深信以至于无法继续专注身边真正的体验和进化任务。相反，他们全神贯注于这些非真实的捏造出来的假象。
+
 In reality all worship does is give individuals a vehicle that allows them to side-step their responsibility for their personal progression towards perfection and places it on the shoulders of another.The premise here is that if I pray and worship You/God,You will save me,no matter what I do.The issue here is not that you will be saved because all of you return to Spirit,no matter what;instead,the issue is how much baggage (karma points)you accumulate.That's what counts;that's what holds you back from evolutionary progression in the long run.I will not wipe out what you have collected in "negative energy"because this is not what everybody has signed up for.The Chinese had a belief that they had many incarnations,which is true,of course.They also misguidedly had a view that they could ignore their commitments in their current life in order to have a good time now and catch up in the next,which never happened,of course.This was an endemic mental misunderstanding that resulted in thousands upon thousands of poor souls going backwards in their evolutionary path.It took quite a bit of re-education to sort out and put them back on track. 
+
+实际上崇拜所做的一切就是给了人们一个推卸责任的工具，让人们将不断完善自身的个人进化的责任让别人去扛。他们以为，如果我祈祷并崇拜神，神就会救我，无论我做了什么。问题并不在于你是否会被救赎，因为无论如何，所有人都会回归到灵体领域。真正的问题在于你积累了多少的包袱和负担，或者说业力点数，这才是重点，这才是长远来看会阻碍你们进化的东西。我不会去清除你们已积累的负面能量，因为这并非每个人一开始来这里的目的。中国人相信轮回，相信每个人都有过很多次的转世。当然，那是真的。他们也同样有一个被误导的观念，那就是为了现世的享受，可以忽略今生该做的事，到了下一世再弥补。可想而知，那是不可能的。这是一种流行的误区，导致成千上万可怜的灵魂在进化的道路上不进反退。要帮助他们清理问题并回到正轨，需要不少的再教育。
 
 But we digress here. 
 
+我们已经离题了。 
+
 As I said before,worship is really the giving and receiving of unconditional love.This is the true meaning of the word,which has obviously been lost over the years. 
+
+如同我先前所言，崇拜是对无条件的爱的给予和接受。这是崇拜一词的真正含义，而这个含义显然已经被遗失在时间长河中了。 
 
 In essence though,I don't need to be worshipped.The Origin doesn't need to be worshiped,and none of my aides need worshiping in the current understanding of the meaning of worship.Communion in the sense of giving and receiving unconditional love is the objective as this opens the lower self to the higher self,creating a re-union of these two aspects of self that is generally only possible in Spirit. 
 
+然而，从本质上说，我并不需要被崇拜。这对崇拜当前的理解来讲，起源不需要被崇拜。我的助手们，高我及其他帮助灵性进化的实体也都不需要被崇拜。在给予和接受和无条件的爱这一意义下的交流才是真正的目的，唯有如此，才能让较低自我向高我敞开，从而创造出这两方面自我的融合。这种境界通常只有在灵体状态时才可能达到。
+
 ME:I thought that anyone could be in communication with You and the Origin?
 
-我：
+我：我原以为任何人都可以和你以及起源沟通。
 
 SE:Your thought is correct,but not everyone is at the point in their human evolution where they are able to see through the mist and fog of unreal reality and grasp what little of the real reality they can perceive with their limited functionality within this plane of existence.You yourself have doubts,as do others who are in similar evolutionary level.How can they possibly believe what they perceive individually when they experience it best in harmony together?So in terms of whether or not I like being worshipped,I would say that communication with my children is always liked and encouraged, 
 
-源实体：
+源实体：你的想法是对的，但不是每个人在人类进化的过程中都达到了那个点，使他们能够穿透虚假现实的迷雾，能够用他们在这尘世上有限的能力抓住他们察觉得到的一点真相。你自己也有所怀疑，其他与你处于相似进化层面的人也一样。当他们发现与集体同在时能最好的体验到和谐，他们又如何去相信个人的察觉？所以关于我是否喜欢被崇拜，我会说，与我的孩子们沟通，永远会受到称赞和鼓励。
 
 #### The Manipulation of Others for Personal Power 
 
 **为了个人的力量而去操控别人**
 
-But... 
+SE:But... 
 
-但是崇拜一词过去，常常与找回个人力量，这个真相相偏离，它变成了一种被滥用的潜利，也使人失去在他人的真正道路上给予其帮助的机会。 我上面所说的正是且可被归类为一种罪过。记住宗教的全部意义是将人们聚集在一起，帮助他们探索掌握自我的方法。 真正的目的在于帮助他们接触到最接近物质面，但频率又高到足以和他们的高我进行合理交流的那部分自我。 因此我上面所说的正式且可被归类为一种罪过。什么是罪？ 对于我们在宗教上使用的这个词，你有什么样的理解？简而言之，罪过是一种可以避免，也应该避免的错失。 如果个体心胸开放到足以去感受到他将要采取行为的不恰当之处，感受到这种行为将会酿成措施时，你也可以可以用，原本可以或应该要避免的事来表达。 我以为你说过，凡是没有对与错，如果是这样，那就没有所谓的罪了。你的观察力很好，的确没有所谓的罪与错，只有不带评判的行为。 但我刚用它来做例展示示，从你们的角度来看，什么是不正确的。 本质上为了个人力量而操操控别人，对领导者与服从者都是一种体验。 实际上原本用于人类进化的领导力。若被挪为他用，便是一种耻辱，说这是错的，就会跟我之前说过的一切相矛盾。 然而，从提升频率的角度而言，它是进化的错误方向。对于所有参与的人来说，它仍然是一种进化和体验，只是这并非在物质界力与高我融合的最好方式，记住你的一切。 所谓都是体验，且为起源和我所一直好奇的体验，不然我们就不会处于对自我的探所而下降到你们去到的这些频率层面了。
+源实体：但是...
 
 Worship used to distract from the truth for personal power is a mis-appropriation of power and a loss of opportunity to help others on their true path. 
 
+崇拜一词过去常常与找回个人力量这个真相相偏离，它变成了一种被滥用的权利，也使人失去在他人的真正道路上给予其帮助的机会。
+
 What I have stated above is and can be classified as a sin! 
+
+我上面所说的正是且可被归类为一种罪过！
 
 Bear in mind that the whole point of religion is to bring people together to help them discover ways that they can use to gain control of themselves.The goal is to help them access that part of themselves that is closest to the physical plane but high enough in frequency to allow reasonable communication with some part of their higher selves. What I have stated above is and can be classified as a sin!
 
+记住，宗教的全部意义是将人们聚集在一起，帮助他们探索掌握自我的方法。真正的目的在于，帮助他们接触到最接近物质面，但频率又高到足以和他们的高我进行合理交流的那部分自我。因此我上面所说的正式且可被归类为一种罪过。
+
 ME:What is a sin?What is your understanding of the word we use here in religious contexts? 
 
-我：
+我：什么是罪？对于我们在宗教上使用的这个词，你有什么样的理解？
 
 SE:Simply put,sin is a wrongdoing that can be and should be avoided.You can also use "could have been and would have been"avoided if the individual was open enough to feel the inappropriateness of the actions he/she was about to undertake that would cause the action of wrongdoing. 
 
-源实体：
+源实体：简而言之，罪过是一种可以避免，也应该避免的错事。如果个体心胸开放到足以去感受到他将要采取行为的不恰当之处，感受到这种行为将会酿成错事时，你也可以用原本可以或应该要避免的事来表达。 
 
 ME:I thought you said that there was no such thing as right and wrong?If this is the case,then there is no such thing as sin! 
 
-我：
+我：我以为你说过，凡是没有对与错？如果是这样，那就没有所谓的罪了！
 
 SE:Well observed.There is no such sin or wrongdoing;there is just doing without judgment.I was using it as an example of what is construed to be incorrect from your perspective.In essence the manipulation of others for personal power is an experience for both the leader and the led.The fact that this leadership could have been used for the advancement of human evolution but was not is a shame.To say it is wrong is a contradiction in all that I have been saying.However,it is the wrong direction for the opportunity of evolution in an increase in frequency sense.It is still evolution and experience for all of those incarnates that take part.It is just that it would not result in the fastest way to coadunation with their higher selves whilst in the physical. Remember,everything you do is experience,one that the Origin and I are in constant wonder over,for We would not have gone down to the levels of existence that you,My children,have gone in our quest for knowing ourselves.
 
-源实体：
+源实体：你的观察力很好，的确没有所谓的罪与错，只有不带评判的行为。但我刚用它来做例子，展示了从你们的角度来看什么是不正确的。本质上，为了个人力量而操操控别人，对领导者与服从者都是一种体验。实际上，原本用于人类进化的领导力若被挪为他用，便是一种耻辱。说这是错的，就会跟我之前说过的一切相矛盾。然而，从提升频率的角度而言，它是进化的错误方向。对于所有参与的人来说，它仍然是一种进化和体验，只是这并非在物质界里与高我融合的最好方式。记住，你的一切所为都是体验，且为起源和我所一直好奇的体验，不然我们就不会处于对自我的探索而下降到你们去到的这些频率层面了。
 
 #### Worship vs.Idolization
 
@@ -11438,21 +11480,23 @@ SE:Well observed.There is no such sin or wrongdoing;there is just doing without 
 
 ME:You said that you would get back to idolization earlier,and I would like to know the relationship between worship and idolization. 
 
-我：你之前说过，你会再回过头来谈偶像化的问题。我很想知道。 崇拜与偶像化之间的关系。虽然我说过他们不一样，但本质上是相同的，主要的差别在于是否使用或需要一个物质对象来让人对其聚焦专注对神的雕像的使用已有很长时间了。 而这已被证实是在与高我连接中最让人分心的因素，尤其是在努力连接宇宙和我的对读其分心作用。 毋庸置疑，使用雕像或画像的形式来表达牧师对上帝或上帝长相的解读。 在当今阶段的地球上已不再那么普遍了。然而，取而代之的是，对于一些名人的偶像，崇拜其破坏力特别强大。 因为它涉及物质界中与他人物质自我的对比，媒体将之延续下去，并将一些其实不必要的产品营销成为日常必需品。 现在，这种名人生活以成成为新的神的雕像，每天被崇拜过去的木质或精致的小雕像。 如今，已被体育健将娱乐明星和政治家所取代。近年来，甚至有些人只是因出名而出名，但母们推崇这些人事，孩子们也盲目跟从别无选择。 因为他们一出生就被洗脑，但就是他们应该追求的做个名人。 在这种情况下的偶像化，尤其盲目，其后果是灵魂受限，不仅因为偶像化本身使人分心，而且也因为他看起来似乎是可以做到的。 当然我同意所有事情都是更大蓝图的一部分。为了帮助起源了解自身的各个面相，但你们全都在走老路。 而且我很想知道你们要滑落到这条路上，多少次才能认清他到底是什么？ 你的意思是，我们之前就干过这种事，几乎所有的人类种族都曾走上这条路，而且这是导致他们衰落的主要原因。 音。
+我：你之前说过，你会再回过头来谈偶像化的问题。我很想知道崇拜与偶像化之间的关系。
 
 SE:Although I said they were different,in essence,they are the same.The main difference is the use of or the need for a physical object to give the individual's attention focus. The use of graven images has been used for ages and has proven to be the biggest distraction in working with the higher self,especially in striving to gain a greater connection with the universe and Me.Its capability to be distractive is absolute.Its use is not so prevalent in the current phase on Earth in terms of the use of carved images or paintings of a priest's explanation of what God or a God looks like. 
 
-源实体：
+源实体：虽然我说过它们不一样，但本质上是相同的。主要的差别在于是否使用或需要一个物质对象来让人对其聚焦专注。对神的雕像的使用已有很长时间了，而这已被证实是在与高我连接中最让人分心的因素，尤其是在努力连接宇宙和我的时候，其分心作用毋庸置疑。使用雕像或画像的形式来表达牧师对上帝或上帝长相的解读，在当今阶段的地球上已不再那么普遍了。
 
 However,the "idolization"of certain well-known individuals has taken over with a vengeance,and that is particularly damaging as it links into the comparison of the physical self with others in the physical.This is perpetuated by the media and used to market what are frankly non-essential products as essential everyday necessities.The celebrity life is now the new graven image used as idols to be worshiped on a daily basis. The once wooden or gold mini-statues have been replaced by sports figures,entertainers, politicians,and,more recently,people who are famous simply for being famous.Parents revere these individuals and their children follow suit,knowing no better,as they are programmed from birth that this is what they should aspire to be,a celebrity!In this instance,idolization is particularly blind and the effect limits the soul,not specifically because it in itself is a distraction but because it is seen as being achievable.Of course,I accept all things as being part of the bigger picture of helping the Origin know all aspects of Itself;however,you have all been here before!And,I am interested in how many times you will feel the need to go down this road before you recognize it for what it is. 
 
+然而，取而代之的是，对于一些名人的偶像崇拜其破坏力特别强大。因为它涉及物质界中与他人物质自我的对比，媒体将之延续下去，并将一些其实不必要的产品营销成为日常必需品。现在，这种名人生活已成为新的神的雕像，每天被崇拜。过去的木质或精致的小雕像，如今已被体育健将、娱乐明星和政治家所取代。近年来，甚至有些人只是因出名而出名。父母们推崇这些人士，孩子们也盲目跟从，别无选择。因为他们一出生就被洗脑，这就是他们应该追求的，做个名人。在这种情况下的偶像化尤其盲目，其后果是灵魂受限，不仅因为偶像化本身使人分心，而且也因为它看起来似乎是可以做到的。当然，我同意所有事情都是更大蓝图的一部分，为了帮助起源了解自身的各个面向，但你们全都在走老路。而且我很想知道你们要滑落到这条路上多少次才能认清它到底是什么？ 
+
 ME:You mean we have done this before? 
 
-我：
+我：你的意思是，我们之前就干过这种事？
 
 SE:Almost all of the races of man have gone down this route,and it has led to a significant contribution to their downfall. 
 
-源实体：
+源实体：几乎所有的人类种族都曾走上这条路，而且这是导致他们衰落的主要原因。
 
 #### Aztec and Toltec Races 
 
@@ -11460,11 +11504,11 @@ SE:Almost all of the races of man have gone down this route,and it has led to a 
 
 ME:So what about races like the Aztec and Toltec where the worship led to human sacrifice? 
 
-我：那么像阿兹特克与托尔特克人的崇拜，导致了活人献祭，又该怎么说？ 他们完全偏离发展的轨道？他们整体因为纯粹的堕落导致了文明的瓦解，在频民上下降至血击人的意识状态。 那是幸存下来的人，并不是原来的领袖，发明家工匠或医生，而是一些平民百姓没有了适合的领导者，他们很快的就失去了更新和重建起环境中的先进设施的能力，于是文明开始崩溃。 最后，他们唯一能记得的是，自己曾经是一个伟大的种族，将他们做错了事情，这便导致了崇拜文化的兴起。 他们祈祷领袖和才智者的回归，将他们带回到伟大的时代，这当然是不可能的。 因为那些人早在几百年前就死去了，只剩下先族们所建造的石头遗迹，用于缅怀他们当年达到的对大自然和宇宙法则的出及理解阶段，这些地区因此成为祭拜场所。 在这里，人们希望能联系到先祖。同时他们觉得有必要为仙人供奉礼物，而这些仙人以备他们才升到神的地位。 他们想这些人曾经一定是神才会建造了金字塔，成就了那些传奇故事，给予他们制造黄金的力量。 当他们祈求过去领袖的帮助却得不到回应，便采取了更激烈的献祭形式来吸引诸神的注意，结果就是活人祭祀，不是为了杀掉牺牲者，而是强迫诸神回来解救被献祭者的生命。 大家都知道仙人们敬重生命，会做任何事去保护生命。所以他们退化到去做割掉心脏。 这种过激行为，给先祖诸神一个真正的回归理由，拯救一个垂死的生命，还有比这更好的办法来吸引诸神的注意力吗？
+我：那么像阿兹特克与托尔特克人的崇拜导致了活人献祭，又该怎么说？ 
 
 SE:Totally misplaced.They both descended into cave man status as a result of a collapse in civilization which was brought about by pure decadence.Those that survived were not the leaders,inventors,craftsmen,and doctors,but the common people.Without proper leadership,they quickly lost the ability to renew and rebuild what they had around them in modern conveniences,which started to break down.All they could remember eventually was that they were once a great race and that they had done something wrong.This,in turn,led to a worship culture where they prayed for their leaders and intelligent individuals to return to bring them back to greatness,which was,of course,impossible as they had died hundreds of years previously.All that was left were the stone monuments that the previous race had built to commemorate the time they finally achieved the first level of understanding of the laws of nature and the universe.These were taken as areas for worship,areas where it was hoped the previous race could be contacted.And so they felt the need to offer gifts to the previous ones,who they now elevated to God status.They must have been Gods,they thought,to have built the pyramids,fulfilled the stories of legends,and given them the power to make gold.When there was no response from these previous leaders to their pleas for help,they resorted to more impressive forms of offerings to attract the attention of the "Gods."The result was human sacrifice,not to kill the individual being sacrificed but to force the gods to come back to save the life of the one being sacrificed.As it was known that the previous ones revered life and would do anything they could to preserve them,they reverted to the radical act of removing the heart. What better way to attract the attention of the gods than to give them real cause to return-to save a life in danger of ending. 
 
-源实体：
+源实体：他们完全偏离发展的轨道，他们整体因为纯粹的堕落导致了文明的瓦解，在频率上下降到穴居人的意识状态。那些幸存下来的人并不是原来的领袖、发明家、工匠或医生，而是一些平民百姓。没有了适合的领导者，他们很快的就失去了更新和重建其环境中的先进设施的能力，于是文明开始崩溃。最后，他们唯一能记得的是自己曾经是一个伟大的种族，但他们做错了事情，这便导致了崇拜文化的兴起。他们祈祷领袖和才智者的回归，将他们带回到伟大的时代。这当然是不可能的，因为那些人早在几百年前就死去了，只剩下先祖们所建造的石头遗迹，用于缅怀他们当年达到的对大自然和宇宙法则的初级理解阶段。这些地区因此成为祭拜场所，在这里，人们希望能联系到先祖。同时，他们觉得有必要为先人供奉礼物，而这些先人已被他们抬升到神的地位。他们想这些人曾经一定是神才会建造了金字塔，成就了那些传奇故事，给予他们制造黄金的力量。当他们祈求过去领袖的帮助却得不到回应，便采取了更激烈的献祭形式来吸引诸神的注意，结果就是活人祭祀。不是为了杀掉牺牲者，而是强迫诸神回来解救被献祭者的生命。大家都知道先人们敬重生命，会做任何事去保护生命，所以他们退化到去做割掉心脏这种过激行为。给先祖诸神一个真正的回归理由，拯救一个垂死的生命，还有比这更好的办法来吸引诸神的注意力吗？
 
 #### Starters of Three Major Religions 
 
@@ -11472,79 +11516,91 @@ SE:Totally misplaced.They both descended into cave man status as a result of a c
 
 ME:I have another question on religion before we move on.I know that we all associate God (You) with religion.We believe that the two go hand in hand,together with the need to worship You,and that is the reason why we have religion. 
 
-我：在我们继续讨论之前，我还有另外一个问题，我知道人们都把神与宗教联系在一起。 人们相信这二者互相依存，再加上崇拜你的需要，所以才会有宗教的存在错了。 你看，不管是起源还是我都不需要，或不希望人类或其他族类来崇拜我们。 我们为什么想要被崇拜我们创造了你们来帮助起源，更了解自己。 在这方面，你们所做的一切都很优秀。你们不知道在我们的追求中，你们给我们带来了多么重大的影响。 如果真的需要崇拜，也是我们应该崇拜你们这些转世的化身。因为崇拜其实只是一种认知的形式，以及想要沟通的欲望，不真的不需要去崇拜，只需要去认知沟通分享经验。 那么现在一些宗教的创立者们，比如基督教的耶稣佛教的佛陀伊斯兰教的穆罕默德，还有儒家哲学的崇拜他们怎么样？ 如果你把哲学家都加进去了，就应该把所有希腊哲学家都加进去，因为他们和孔子地位同等，我会建议你先把重心放在那些特定教导，也就是现在所说的某种宗教的创始人身上。 好，那就这么做。因为我认为从人类的角度来理解神的历史的过程中，他们扮演着关键性的角色，他质是一些主要宗教的起源，是大多数人相信的，拥有不朽灵魂的人。 本质上他们每个人都代表了整体的一部分，他们每个人都被赋予不同程度的连接高我的能力，他及他们要实现的行动计划，他们运作的层面高于和超出普通化，深个体一般情况下所能达到的水平，并通过和其他人或者门徒共事实现使命。 这些人携带着在物质界帮助这个教义创始人达成使命的目标而转世。 每一个创始人的使命都是为了引入并传播教导，帮助地球人类尽可能最有效的进化，而不被下拉到他们可能会失去进化效率的大大减慢进化速度的较低的频率中去。 从较小的视角上来看，所有的宗教创始人都做到了这一点。 虽然他们的教导中也都有一些错误存在，而有些错误已不加质疑的被认为是核心真理。 那么这些人提供的特定教导主要是哪些方面要记得无论如何，他们每个人在进化层级上都算比较高的，他们不需要再通过投胎来去实现自己的进化，他们每个人都冒着暴露于较低频率，从而调回低频的风险，他们承担的风险很大。 所以可以预料他们也许未能完全正确的传达自己想要达成的事。 基于这点，你们需要去包容的看待他们传达的教导所呈现出的最终结果。 以下是在帮助人类进化的工作中，这三位创始人各自的事是你。
+我：在我们继续讨论之前，我还有另外一个问题。我知道人们都把神与宗教联系在一起，人们相信这二者互相依存，再加上崇拜你的需要，所以才会有宗教的存在。
 
 SE:Wrong!You see,neither the Origin nor I need or desire humanity or any other race to worship us.Why would we want that?We(I)created you to help Us (the Origin) know Itself better.The work all of you do in this area is sterling;you don't know what a difference you are making to Us in Our quest.If anything,We should worship all you incarnates,for worship is only really a form of recognition and a desire to communicate.No,there is no need to worship,only recognize,communicate,and share experience. 
 
-源实体：
+源实体：错了。你看，不管是起源还是我都不需要或不希望人类或其他族类来崇拜我们。我们为什么想要被崇拜？我们创造了你们来帮助起源更了解自己，在这方面你们所做的一切都很优秀。你们不知道在我们的追求中，你们给我们带来了多么重大的影响。如果真的需要崇拜，也是我们应该崇拜你们这些转世的化身。因为崇拜其实只是一种认知的形式，以及想要沟通的欲望。不，真的不需要去崇拜，只需要去认知、沟通、分享经验。
 
 ME:What about all those people that our modern religions are founded upon,such as Jesus with Christianity,Buddha with Buddhism,Mohammed with Islam,and Confucius with philosophy. 
 
-我：
+我：那么现在一些宗教的创立者们，比如基督教的耶稣、佛教的佛陀、伊斯兰教的穆罕默德，还有儒家哲学的孔子，他们怎么样？ 
 
 SE:If you are going to include philosophers,you should also include all the Greek philosophers as well,for they have equal standing with Confucius.What I would suggest you do is concentrate on the individuals who are attributed with the starting of certain teachings,which are now called a"religion"of one sort or another. 
 
-源实体：
+源实体：如果你把哲学家都加进去了，就应该把所有希腊哲学家都加进去，因为他们和孔子地位同等。我会建议你先把重心放在那些特定教导，也就是现在所说的某种宗教的创始人身上。 
 
 ME:O.K.,let's do that because from my point of view,they are pivotal in understanding the History of God from a human point of view.They are the start of our major religions and are what most people hang their hats on for the longevity of their immortal souls. 
 
-我：
+我：好，那就这么做。因为我认为从人类的角度来理解神的历史的过程中，他们扮演着关键性的角色。他们是一些主要宗教的起源，是大多数人相信的拥有不朽灵魂的人。 
 
 SE:In essence,they each represent a part of the whole.Each one of them was allowed to have a varying level of connectivity with his higher self and the plan of action he was working toward.They worked above and beyond what would normally be possible together with other individuals(disciples?)who also incarnated with a view of helping this "religion starter"on his quest on the physical plane.Each quest was the introduction and the spreading of teachings to help incarnated humankind to evolve in the most efficient way possible without being dragged down into the lower frequencies where they would lose their efficiencies and,therefore,evolve at a much slower pace.To a lesser extent,all of the "religion starters"managed this although they all taught some things in error.Some of these errors have been taken as being the core truths without question or ratification. 
 
-源实体：
+源实体：本质上，他们每个人都代表了整体的一部分，他们每个人都被赋予不同程度的连接高我的能力，以及他们要实现的行动计划。他们运作的层面高于和超出普通化身个体一般情况下所能达到的水平，并通过和其他人或者门徒共事实现使命。这些人携带着在物质界帮助这个教义创始人达成使命的目标而转世。每一个创始人的使命都是为了引入并传播教导，帮助地球人类尽可能最有效的进化，而不被下拉到他们可能会失去进化效率的大大减慢进化速度的较低的频率中去。从较小的视角来看，所有的宗教创始人都做到了这一点。虽然他们的教导中也都有一些错误存在，而有些错误已不加质疑地被认为是核心真理。 
 
 ME:So what was the area that each of these people was to specialize in teaching us? 
 
-我：
+我：那么这些人提供的特定教导主要是哪些方面？
 
 SE:Remembering that each of them was quite high up the evolutionary ladder anyway. None needed to incarnate to perpetuate his/her own evolution.Each took a risk that he might actually slip backwards as a result of exposure to the lower frequencies.They assumed quite a risk,so it is to be expected that they may not have gotten it totally right in the presentation of what they were trying to achieve.Based upon this,you have to be tolerant on what the actual outcome of the teachings delivered. 
 
-源实体：
+源实体：要记得，无论如何，他们每个人在进化层级上都算比较高的。他们不需要再通过投胎来去实现自己的进化。他们每个人都冒着暴露于较低频率从而掉回低频的风险。他们承担的风险很大，所以可以预料他们也许未能完全正确的传达自己想要达成的事。基于这点，你们需要去包容的看待他们传达的教导所呈现出的最终结果。
 
 So here are the tasks that each of the three undertook to help humanity evolve. 
+
+以下是在帮助人类进化的工作中，这三位创始人各自的使命。
 
 #### Jesus 
 
 **耶稣**
 
-The objective of the entity that incarnated and became known as the individual you now recognize as Jesus was to point out the best way to evolve whilst in the physical without incurring the evolutionary points known as karma.Karma was previously described as those parts of your frequency that you lose as a result of doing harm to others who are also in the physical realm. 
+SE:The objective of the entity that incarnated and became known as the individual you now recognize as Jesus was to point out the best way to evolve whilst in the physical without incurring the evolutionary points known as karma.Karma was previously described as those parts of your frequency that you lose as a result of doing harm to others who are also in the physical realm. 
 
-转世化身为现在你们所知，为耶稣的个体，其目的是指处在物质界中最佳的进化道路，同时保持不卷入因果业利耶利在先前讨论过，是由于你做了有害于同在物质界中的其他人的行为连失去的一部分频率。 耶稣试图教导的是，生命中，更重要的是生活在对他人方式的理解与原谅当中。 而不是因为别人与你的期望与习惯的形式方式不服，就迫害他们。 他传给人们最大的信息就是有人打你的右脸，把左脸也传给他。 从人类的视角看，他要表达的意思不难理解，只是在你们目前的时代里，完全没有人照着做。 相反，大多数的人似乎宁可互相伤害，也不愿意和平相处。 这是一个大问题，连基督教教会都更关心他们目视的职业生涯以及拥有多的教处处不是教导人们如果如何在不造业的情况下最好的生活。 耶稣还展示了调频接入地球周围能量的能力以及接入这种能量，能给个体带来的机会。 历史书上记载的关于耶稣能力最显著的例子就是疗愈，还有其他本可以，但并没有被公布的能力。 比如创造力，利用周围能量创造出一个物体心灵感，应与其他人类及源头保持连接，瞬间移动改变物质焦点到另一个点上，使肉体改变位置来到新的地点等等。
+源实体：转世化身为现在你们所知为耶稣的个体，其目的是**指出在物质界中最佳的进化道路，同时保持不卷入因果业力**。业力在先前讨论过，是由于你做了有害于同在物质界中的其他人的行为而失去的一部分频率。耶稣试图教导的是，生命中更重要的是生活在对他人方式的理解与原谅当中，而不是因为别人与你的期望与习惯的形式方式不符就迫害他们。
 
 What Jesus was trying to teach was that it was more important to live in understanding and forgiveness of other people's ways than to persecute them for being different from your own ideals and ways.The biggest message he gave was to turn the other cheek.In this it is well understood from humanity's perspective what he meant by this,but it is not followed at all in your current time period.Instead,it seems that most people are out to get what they can rather than live in harmony with each other.This is a big issue. Even the Christian church is more interested in the careers of their priests and how many parishioners they have rather than the task of teaching the best way to live without incurring karma points. 
 
+他传给人们最大的信息就是，有人打你的右脸，把左脸也传给他。从人类的视角看，他要表达的意思不难理解，只是在你们目前的时代里，完全没有人照着做。相反，大多数的人似乎宁可互相伤害，也不愿意和平相处。这是一个大问题。连基督教教会都更关心他们牧师的职业生涯，以及拥有多的教友，而不是教导人们如何在不造业的情况下最好地生活。
+
 Jesus also showed the ability of tuning into the energies that surround the Earth and the opportunities that tuning into such energies could give to the individual.The most obvious example from the history books is healing.The other opportunities that could have been shown were creativity (creating an object from the surrounding energies), telepathy(being in constant coadunate communication with the rest of humanity and the Source,Me),teleportation (the ability to change the focus of your physicality to the point where your physical body changes location to that of the new focus)to name but a few. 
+
+耶稣还展示了**调频接入地球周围能量的能力，以及接入这种能量能给个体带来的机会**。历史书上记载的关于耶稣能力最显著的例子就是疗愈。还有其他本可以但并没有被公布的能力，比如创造力（利用周围能量创造出一个物体）、心灵感应（与其他人类及源头保持连接）、瞬间移动（改变物质焦点到另一个点上，使肉体改变位置来到新的地点）等等。
 
 #### Buddha
 
 **佛陀**
 
-The objective of the entity that incarnated and became known as the individual you now recognize as Buddha was to provide the mental vehicle for true enlightenment. Enlightenment is the ability to contact the higher self and understand the real meaning of incarnate life on Earth.Jesus,who taught the ways to exist in this lower frequency environment,was,to all purposes,born with this basic knowledge unlike the entity that incarnated as Buddha,who had to first experience incarnate life from all angles before he was able(allowed)to be in contact with his higher self and,therefore,the greater reality. 
+SE:The objective of the entity that incarnated and became known as the individual you now recognize as Buddha was to provide the mental vehicle for true enlightenment. Enlightenment is the ability to contact the higher self and understand the real meaning of incarnate life on Earth.Jesus,who taught the ways to exist in this lower frequency environment,was,to all purposes,born with this basic knowledge unlike the entity that incarnated as Buddha,who had to first experience incarnate life from all angles before he was able(allowed)to be in contact with his higher self and,therefore,the greater reality. 
 
-转世化身为你们现在所知，为佛陀的个体，其目的是为真正的开物提供心智载体。 开悟是连接高，我并理解转世到地球上的真正生命意义的能力。 教导在低频中生存方法的耶稣实际上是一出生，就带有这些基本知识的，不像化身为佛陀的那个实体，或者必须首先从各个角度体验转世生命，然后才能被允许连接它的高。 我连接更大的实像佛陀试图教导的是如何通过移除外在刺激，通过类似你们现在所说的静心冥想的方式来获得连接的方法，一是一种静心状态长存，而不是如今通过冥想达到的短暂静心状态长存，是指一个人无论清醒或是睡眠中都保持着与宇宙连接的静心状态，同时还能存在与较低物质界并保持交流。 本质上，佛陀能够把个体带回到为了进化而转世的最初时期的人类所能达到的状态。 这里必须提到的是，那些据称已经达到开悟境界的人被描绘为脸上永远带着微笑。 这是一种象征，表示与宇宙保持恒长连接，长存于静心状态的人会是什么样的？ 毕竟一旦到了这种境界，怎么会生别人的气呢？
+源实体：转世化身为你们现在所知为佛陀的个体，其目的是**为真正的开悟提供心智载体**。**开悟是连接高我并理解转世到地球上的真正生命意义的能力**。教导在低频中生存方法的耶稣，实际上是一出生就带有这些基本知识的，不像化身为佛陀的那个实体，后者必须首先从各个角度体验转世生命，然后才能被允许连接它的高我，连接更大的实相。
 
 What Buddha tried to teach was a method of gaining communication through the removal of external stimuli (similar to what you now call meditation)but to the point where the meditative state was the consistent rather than the transient state that is now used.By consistent,I mean that the individual was able to stay in the meditative state of connection with the universe all of his/her waking and sleeping hours whilst also being able to exist and communicate on the lower physical planes.In essence,he was able to bring the individual back to the condition that they would have been able to achieve in the early days of humanity's desire to incarnate for evolutionary purposes.It must be noted here that the constant smile portrayed on the faces of those individuals who are said to have reached the point of enlightenment are an indication of what being in constant communion with the rest of the universe can do to you.In this condition,why would you be angry with anyone? 
+
+佛陀试图教导的是**如何通过移除外在刺激，通过类似静心冥想的方式来获得连接的方法，以使一种静心状态长存，而不是如今通过冥想达到的短暂静心状态**。长存是指一个人无论清醒或是睡眠中都保持着与宇宙连接的静心状态，同时还能存在于较低物质界并保持交流。本质上，佛陀能够把个体带回到为了进化而转世的最初时期的人类所能达到的状态。这里必须提到的是，那些据称已经达到开悟境界的人被描绘为脸上永远带着微笑。这是一种象征，表示与宇宙保持恒长连接，长存于静心状态的人会是什么样的。毕竟一旦到了这种境界，怎么会生别人的气呢？
 
 #### Mohammed
 
 **穆罕默德**
 
-The objective of the entity that incarnated and became known as the individual you now recognize as Mohammed was to defend the truth of the first two teachers above.This is to say that he was also able to tap into the greater reality to the extent required for him to know what was worth defending.Mohammed himself was enlightened to the same level as the Buddha.Since truth is universal,it has no bearing on where it originated.The truth just "is"and can withstand any criticism.As a result the need to defend the truth is just a metaphor.In this respect,Mohammed was to perpetuate the teachings of the first two and to bring the general populous back on track to what the greater reality was and is. Although he knew what these teachings were,he never met the individuals who taught them in the physical. 
+SE:The objective of the entity that incarnated and became known as the individual you now recognize as Mohammed was to defend the truth of the first two teachers above.This is to say that he was also able to tap into the greater reality to the extent required for him to know what was worth defending.Mohammed himself was enlightened to the same level as the Buddha.Since truth is universal,it has no bearing on where it originated.The truth just "is"and can withstand any criticism.As a result the need to defend the truth is just a metaphor.In this respect,Mohammed was to perpetuate the teachings of the first two and to bring the general populous back on track to what the greater reality was and is. Although he knew what these teachings were,he never met the individuals who taught them in the physical. 
 
-转世化身为你们现在所知的穆罕默德的个体，其目的是捍卫前两位导师所教授的真理，这代表着他也有能力接入更大的个体，知道什么是值得去捍卫的。 穆罕默德也是开悟的，并与佛陀处于同一层级。既然真理是普遍的，也就无所谓。 起源于哪里真理其他琐事经得起任何批判。虽此需要去捍卫真理，只是一种比喻。 从这个角度看，穆罕默德通过守护前两位的教导，将一般民众带回到了解更大石像的过去与当下的正轨上，他很清楚这些教导的含义。 虽然他从未在物质界亲自遇到过传授他们的这两位个体，他的教导中的不计任何代价都要去捍卫真理的真实含义，是穆罕默德会像前两位导师做的那样，牺牲自己，以维持提升地球与人类的共振频率达到一一个程度所需的信仰系统，以便在相对简单和最少外力干扰下达到静心长存的状态，捍卫在这里就是弘扬这是捍卫的最佳形式。 因为他是在最初教导的原则下进行的。这样做事真理，捍卫者不会受诱惑的影响，遭致业力而失去频率层级。 所以你能看到在那个时候，允许这三位个体的转世化身比一般人的认知能力更强大的原因是为了快速激励，一般民众再次寻找真理，这是提升地球回到他们先前享有的频率层级。 这一愿望背后的驱动力，真理的含义是存在于他们周遭的更大实效，以及通过更多体验去探索自我的需求。 这三位实际的转世是有预先计划的吗？我总觉得他们三位属于事先计划中的一部分。 就像你先前说到的，当我们想要整个世界，以某种方式改变方向的时候，是的，他依然是计划中的一部分。 唯一的问题是，作为这三位个体转世后产生的结果，人类应该选择的预定道路，并非如能量界人类所预期的那样有效。 对于物质界的一切事物来说，似乎都存在着一定程度的不确定性。 你要明白，这是你们大多数人无法与你们的高额以及更大事相连接的直接后果。 你们无法从更大的人类视角看待欲望的本质，因此，倾向于在所处的情形中，无论从物质上还是能量上，都从自身最大利益出发，而不是为集体人类种族的利益着想。
+源实体：转世化身为你们现在所知的穆罕默德的个体，其目的是**捍卫前两位导师所教授的真理**，这代表着他也有能力接入更大的实相，知道什么是值得去捍卫的。穆罕默德也是开悟的，并与佛陀处于同一层级。既然真理是普遍的，也就无所谓起源于哪里。真理即它所是，经得起任何批判。因此需要去捍卫真理，只是一种比喻。从这个角度看，穆罕默德通过守护前两位的教导，将一般民众带回到了解更大实相的过去与当下的正轨上。他很清楚这些教导的含义，虽然他从未在物质界亲自遇到过传授它们的这两位个体。
 
 Defending truth at any cost really meant Mohammed was to sacrifice himself in the same way that the other two teachers above had done to perpetuate the belief system that was required to lift the resonant frequencies of Earth and the human race to the point where a constant meditative state could be achieved with relative simplicity and external distractions kept at a minimum.Defend,in this instance,was to promote.This is the best form of defense since it works within the principles of the teachings to the point where the individual defending the truth is not or cannot be affected by the enticements that cause the individual to lose frequency levels and,hence,gain karma. 
 
+他的教导中的不计任何代价都要去捍卫真理的真实含义是，穆罕默德会像前两位导师做的那样，牺牲自己以维持提升地球与人类的共振频率达到一个程度所需的信仰系统，以便在相对简单和最少外力干扰下达到静心长存的状态。捍卫在这里就是弘扬，这是捍卫的最佳形式，因为它是在最初教导的原则下进行的，这样做使真理捍卫者不会受诱惑的影响遭致业力而失去频率层级。
+
 So you can see that the whole reason for allowing three individuals to incarnate with greater than normal (at that point in time)cognitive abilities was to jump start the general incarnating populous into seeking the truth again.This was the driving force behind the desire to try to increase the frequencies of the Earth back to the level they previously enjoyed.The truth is defined as the greater reality that surrounds them and the need to investigate themselves through experiencing more. 
 
-ME:Were the three incarnations planned?It sounds to me as if these three were part of a pre- planned activity of the sort that you previously described-when we want the whole world to change direction in some way. 
+所以你能看到在那个时候，允许这三位个体的转世化身比一般人的认知能力更强大的原因，是为了快速激励一般民众再次寻找真理。这是提升地球回到他们先前享有的频率层级这一愿望背后的驱动力。真理的含义是存在于他们周遭的更大实相，以及通过更多体验去探索自我的需求。
 
-我：
+ME:Were the three incarnations planned? It sounds to me as if these three were part of a pre-planned activity of the sort that you previously described-when we want the whole world to change direction in some way. 
+
+我：这三位实体的转世是有预先计划的吗？我总觉得他们三位属于事先计划中的一部分。就像你先前说到的，当我们想要整个世界以某种方式改变方向的时候。
 
 SE:Yes,and it still is part of the plan.The only issue is that the intended path that the human race should have taken as a result of these individuals incarnating has not been as effective as energetic humanity expected.It seems that with all things in the physical,there appears to be a certain amount of uncertainty.This,you understand,is a direct result of the vast majority of you not being able to connect with your higher selves and the greater reality.You cannot see what the desire is from the greater human perspective and,therefore,tend to play the situation you find yourselves in to YOUR best advantage rather than for the advantage of the collective human race,both physically and energetically. 
 
-源实体：
+源实体：是的，它依然是计划中的一部分。唯一的问题是，作为这三位个体转世后产生的结果，人类应该选择的预定道路并非如能量界人类所预期的那样有效。对于物质界的一切事物来说，似乎都存在着一定程度的不确定性。你要明白，这是你们大多数人无法与你们的高我以及更大实相连接的直接后果。你们无法从更大的人类视角看待欲望的本质，因此倾向于在所处的情形中，无论从物质上还是能量上都从自身最大利益出发，而不是为集体人类种族的利益着想。
 
 #### The Plan for Utopia 
 
@@ -11552,29 +11608,31 @@ SE:Yes,and it still is part of the plan.The only issue is that the intended path
 
 ME:So what is the plan? 
 
-我：这是一个什么样的计划，检视你自己，你们都是计划的一部分。 我的感觉是，整个关键是建立足够的参照点，或者说路标让更大的实像显现。 如此才能普及，大众很好，继续说，这我怕我在瞎说，那是因为你正在没有头脑的干涉下读取真实的信息，并在试图分析它继续吧。 这种认知的普及化会让频率自动增加。首先是区域性的人，以群分，他们会兴奋的讨论，自己看到的感觉到的或体验到的。 随着这些团体数量的增加，在他们中会产生一种三角定位效应。 也就是说，被他们包围的中间区域也会受到影响，提升频率并随之扬升。 这种频率的提升会使原本不太像自己的高额开放的人，更能一有一时的方式体验到更大实像。 这将使他们认知到他们到底是谁？在地球物质层面的目的是什么？ 这将是频频率进一步提升。那时人们会认识到并放弃那些为了维持个人地位的自我彰显及带有侵略性的行为，并未促进整体而非自我去工作。 如果人类愿意的话，将再次与各形态的诸神平等，并能够加快人类进化速度加速回到源头和起源之中。 届时，乌托邦理想国将能真的被达成。
+我：这是一个什么样的计划？
 
 SE:Look into yourself.You are part of it!
 
-源实体：
+源实体：检视你自己，你们都是计划的一部分！
 
 ME:I get the impression that the whole point is to put enough way-points/guideposts in place to make the existence of the greater reality stand out and,therefore,gain popularity. 
 
-我：
+我：我的感觉是，整个关键是建立足够的参照点/路标，让更大的实相显现，如此才能普及大众。
 
 SE:Good.Go on. 
 
-源实体：
+源实体：很好，继续说。
 
-ME:This...Ifeel like I am waffling here! 
+ME:This...I feel like I am waffling here! 
 
-我：
+我：这...我怕我在瞎说！
 
 SE:That is because you are accessing the true information without intersecting it with your intellect and,therefore,trying to analyze it.Carry on! 
 
-源实体：
+源实体：那是因为你正在没有头脑的干涉下读取真实的信息，并在试图分析它。继续吧！
 
 ME:This gain in popularity will automatically generate an increase in frequency,locally at first, as people with similar thoughts get together and discuss with excitement what they see, feel,or experience.As the number of these groups increase,they will have a triangulation effect where those areas in between (location-wise)will also be affected by the increase in frequency and will subsequently rise as well.This rise in frequency will cause the incarnating individuals who are not normally open to their higher selves to experience more of the greater reality than they normally would but in a conscious way.This then will bring recognition to who they really are and what they are doing here on Earth in the physical plane.This will enable the frequencies to rise even further when the need for self- aggrandisement and aggressive actions to maintain personal position are recognized for what they are and discarded in favor of working for the whole rather than for the self. Humankind will once again be equal to the Gods in all its manifestations and will be able to accelerate the evolution of the race and the return to the Source and Origin,if so desired. Utopia will,indeed,have been achieved.
+
+我：这种认知的普及化会让频率自动增加。首先是区域性的，人以群分，他们会兴奋的讨论自己看到的、感觉到的、体验到的。随着这些团体数量的增加，在他们中会产生一种三角定位效应。也就是说，被他们包围的中间区域也会受到影响提升频率，并随之扬升。这种频率的提升会使原本不太向自己的高我开放的人更能以有意识的方式体验到更大实相。这将使他们认知到他们到底是谁，在地球物质层面的目的是什么。这将使频率进一步提升，那时人们会认识到并放弃那些为了维持个人地位的自我彰显及带有侵略性的行为，并为促进整体而非自我去工作。如果人类愿意的话，将再次与各形态的诸神平等，并能够加快人类进化速度，加速回到源头和起源之中。届时，乌托邦理想国将能真的被达成。
 
 #### God 
 
@@ -11582,11 +11640,13 @@ ME:This gain in popularity will automatically generate an increase in frequency,
 
 SE:God is all-everything and nothing at the same time-absolute.We are all part of the God collective and have been fragmented off to enable us/God to appreciate who and what It/we are with the aim of evolving back to a state of true all-encompassing enlightenment.God is,however,not just one being that is spread over all dimensions, all times and all space at the same time.God is part of a number of collectives that are ultimately limited by the number of dimensions It occupies.It may exist in all times and spaces but is limited by a finite number of dimensions-a number of dimensions that can,in our books,still be classed as infinite.A God collective is,therefore,part of a collective itself that truly encompasses all possible dimensions simultaneously.We are split off from God as tendrils from a sphere with each tendril incarnating in order to evolve to a greater level of enlightenment in different evolutionary levels,times, dimensions,and space at the same time.In any one point in space time or dimension, we can only split off twelve times,hence the twelve points or parts of the God head that is us.
 
-源实体：神是一切，同时为万有以及空无绝对存在。我们都是神之集体的一部分，都曾被分裂出来成为碎片，目的是让我们或者说神去领会他们到底是谁是什么？ 目的是进化并回到无所不包的开物状态。然而，神不仅只是同时遍布一切维度时间空间的一个存有神，也是集体的一部分。 这些集体最终受限于它所占据的维度的数量，它存在于所有时间和空间，但也受限于维度的有限数量。 这个维度的数量在我们这本书里还是被归类成无限。为此一个神之集体本身也是集体的一部分，后者也是同时包括所有可能维度的。 我们从神中分离，正如卷须从一个球上长出来，每个卷须都投胎化身。 为了同时从不同进化层级时间维度以及空间里进化到开悟的更高层级在空间或维度里的任何一个点上，我们只能分裂十二次。 所以神的十二个点或十二个部分，就是我们维度可被视为球体中的球体，后者中的每个事物都在同一条线上，一条既宽又窄，既长又短既厚又薄的线，同时存在，与此维度和比维度里，因此同时包含着一切又形既形而上的事物。
+源实体：神是一切，同时为万有以及空无，绝对存在。我们都是神之集体的一部分，都曾被分裂出来成为碎片，目的是让我们/神去领会他们到底是谁，是什么，目的是进化并回到无所不包的开悟状态。然而，神不仅只是同时遍布一切维度、时间、空间的一个存有。神也是集体的一部分，这些集体最终受限于它所占据的维度的数量。它存在于所有时间和空间，但也受限于维度的有限数量，这个维度的数量在我们这本书里还是被归类成无限。因此，一个神之集体本身也是集体的一部分，后者也是同时包括所有可能维度的。我们从神中分离，正如卷须从一个球上长出来，每个卷须都投胎化身。为了同时从不同进化层级、时间、维度以及空间里进化到开悟的更高层级，在空间或维度里的任何一个点上，我们只能分裂12次，所以神的12个点或12个部分，就是我们。
 
 ![图4](img/s6-020.png)
 
 The dimensions can be considered as spheres within spheres with everything on the same line,a line that is both wide and narrow,long and short,thick and thin,in this dimension and that dimension thereby encompassing all physical and metaphysical things at the same time. 
+
+维度可被视为球体中的球体，后者中的每个事物都在同一条线上，一条既宽又窄、既长又短、既厚又薄的线，同时存在于此维度和彼维度里，因此同时包含着一切有形与形而上的事物。
 
 #### The Entity Called Lucifer 
 
@@ -11706,7 +11766,7 @@ Once you are Christened,you are then left to develop yourself personally to the 
 
 Your religious leaders just about understand the need for the human body,neigh the soul, to be purified soon after birth to give it a push in the right direction.After that,they have no idea about the need for the christening/the purification to be continued.No one does, as this has been lost throughout the ages.It has now been left to individuals to work out for themselves for so long that it is quite a revelation when someone comes out of the dark and works it out by himself/herself without the religious slant,which,although it means well,is also a lure to control the susceptible mind and constrain it.Being spiritual and in one's power as a result of being Christened is not about conforming to the demands of those who believe they know the answers,for the answer is truly within the self.It might need a little help along the way but it certainly does not need conformity,for there is no conformity in Spirit.There is only creativity borne out of love,wisdom,and power resulting in evolution.
 
-你们的宗教领袖只是了解人体，不应该说灵魂在出生后需要尽快进化，以便向正确的方向推他一把。 那之后他们完全不知道，还有后续洗礼进化的必要。没有人知道，因为他已遗失在时间中，如今长久以来，他只能靠个人自己实现。 以至于当个别人士自力更生，不带宗教倾向的从黑暗中走出来，这就成了一项了不起的启示。 就连这一点，虽然其用意很好，也可能成为对异受影响的心灵产生吸引控制及约束的一种诱惑。 作为进化受洗后的结果，成为灵性的个体，并掌握自己的力量，并不代表要迎合那些自认为有答案者的要求。 因为答案都在自己心中，在路途中，也许需要一点小小的帮助，但绝不需要所谓的迎合。 因为没有一个灵体是完全相同的，有的只是从爱智慧和力量朗中产生的创造并带来进化。 我听说过，受袭者可远离魔鬼，这是无稽之谈，如同我先前所言，没有所谓的魔鬼，只有你内在的诱惑，也就是试图向物质需求和欲望屈服的心魔。 这种说法都属于意在控制大众心灵的虚假传播，在寻找真相的人心中或更大的实像中，这一切根本不存在。 我会这么说，任何相信魔鬼的人，他自己便是魔鬼。因为起源所容纳的环境里根本没有这种性质，这种能量与力量的存在。 实际上，魔鬼二字离开，真正语境只是一个词而已，表示一个人向物质界的欲望。 屈服后，他的个人意识所处的层级。
+你们的宗教领袖只是了解人体，不应该说灵魂在出生后需要尽快进化，以便向正确的方向推他一把。 那之后他们完全不知道，还有后续洗礼进化的必要。没有人知道，因为他已遗失在时间中，如今长久以来，他只能靠个人自己实现。 以至于当个别人士自力更生，不带宗教倾向的从黑暗中走出来，这就成了一项了不起的启示。 就连这一点，虽然其用意很好，也可能成为对异受影响的心灵产生吸引控制及约束的一种诱惑。 作为进化受洗后的结果，成为灵性的个体，并掌握自己的力量，并不代表要迎合那些自认为有答案者的要求。 因为答案都在自己心中，在路途中，也许需要一点小小的帮助，但绝不需要所谓的迎合。 因为没有一个灵体是完全相同的，有的只是从爱智慧和力量朗中产生的创造并带来进化。 我听说过，受袭者可远离魔鬼，这是无稽之谈，如同我先前所言，没有所谓的魔鬼，只有你内在的诱惑，也就是试图向物质需求和欲望屈服的心魔。 这种说法都属于意在控制大众心灵的虚假传播，在寻找真相的人心中或更大的实相中，这一切根本不存在。 我会这么说，任何相信魔鬼的人，他自己便是魔鬼。因为起源所容纳的环境里根本没有这种性质，这种能量与力量的存在。 实际上，魔鬼二字离开，真正语境只是一个词而已，表示一个人向物质界的欲望。 屈服后，他的个人意识所处的层级。
 
 ME:I have heard that being Christened protects one from the devil. 
 
@@ -11862,7 +11922,7 @@ Working in service to attain this level of existence is a noble work,indeed,with
 
 ME:Let's get back to the Masters of the books I was reading about.Are they really capable of making their bodies live for two thousand years?
 
-我：回到我之前所读的书中的灵性。大师们，他们真的有办法让自己的肉身活到两千岁。 当然可以。事实上，他们可以让自己的肉体想活多久就活多久。 比方说，在一位瑜伽修行者处于完全认知与接受宇宙法则的状态下，他可以无所不能。 人体只是受限于物质性以及其现任灵体获取能量的能力。 这能量原本是人人可以获取的。当现任灵体处于沉睡状态时，就像你们大多数人目前的能况，他就无法接入周遭无处不在的更大实像会认为物质存在辨识一切。 但当灵体一旦觉知到更大实像，便会开始调节到这个实像，这是一些简单的能力，开始出现直觉力增加疗愈能力，聪明传导接触纯粹能量态的存有的能力。 至于一些更高级的能力，比如控制物质的能力，只有当个体突破了物质界的帷幕，并完全不再受物质界局限后才会显现。 不过我应该要先说明在那些大师的时代，要达到这个层级，一数不易。 更何况目前在这个消费驱动的经济世界，你做到更不容易。当你到达这个层级时，你已不再关注物质界的需求，你将能够用能量维持肉体，你能在最基本的层面上更新身体细胞的能量，你不再需要使用有机或无机物转化。 目前你有这种能力，是因为肉体毕竟需要一些低等级能量。随着新细胞的产生，以代替，老化的旧细胞身体也会退化，因为没有能量层面上的细胞再生，你胞只能是部分再生细胞编程的核心细节已在更新过程中逐渐流失，从而导致了衰老。 因为核心生命力会逐渐流失，瑜伽修饰或大师们清楚这一点，所以他们能够抑制或及时给身体细胞结构提供所需的一切，并形成了根据身体某一年龄的记忆进行完全再生的功能。 这一年龄或外表，尤其现任的灵体，自主决定并非所有的灵体，都希望呈现年轻男孩或女孩的样子，很多喜欢展现中年人的样貌。 因为这样最容易赢得跟随这些大师的学生们的尊敬。中年阶段被认为是处于学习与教学能力的最佳状态。 在老一点就会被看成一个老态。龙钟的老傻瓜再年轻一点，又会被认为太年轻，没有传到授业的权威性。 我们还是回到开始这个讨论的主要原因吧。一旦个体开悟，成为大师，就可以影响他的细胞结构达到完美，这意味着细胞结构能以百分之百的效率运作，同时能由能量灵体随意操控。 如果灵体愿意身体便能永恒不朽。方法是通过将肉体转化到真实的能量态，从而进进入完全的灵性状态。 同时，肉体还能在物质界存在这个方法，也可用于肉体在物质界中或周围的移动。 但这种方法只有在灵体掌握了对实像的观察时才能使用能够与能量状态整体运作。 也就是石像对于个体灵体来说是完全可达到的。以认知的可以理解的这似乎有点天方夜谭，但却是每个人都可实现的。 但我再一次强调，物质界的诱惑是如此的大大到难以让人将自己置之于外，但专注于投入，加上相信自己就一定会有收获。 主要的问题是，在现今西方世界的生存环境里，以及东方世界正跌入的生存环境里，是否能长期坚持专注与投入。 尽管肉体是一个不必要的物体，但他在这个进化的机会里，还是有它的用处的。 因为在一个如此受限的情况下，生存本身确实也很有启发，引人觉醒，呈现给灵体的转世化身成肉体的机会是透过努力，他可以选择在临界环境中保有肉体。 如此一来，便可以选择在物质界的任何时间任何地方生存。 而无需经历身体的成长成熟，以及接下来的遗忘和觉醒的过程。 灵体因此不再受限于物质，同时还能够在最基础的层级上生存于物质界，以便体验只有在物质层才可体验的一切，同时还能与临界连接，同时最完美的组合。 因为灵体不受物质需求所控制和干扰，反而全然掌控着物质的过程。
+我：回到我之前所读的书中的灵性。大师们，他们真的有办法让自己的肉身活到两千岁。 当然可以。事实上，他们可以让自己的肉体想活多久就活多久。 比方说，在一位瑜伽修行者处于完全认知与接受宇宙法则的状态下，他可以无所不能。 人体只是受限于物质性以及其现任灵体获取能量的能力。 这能量原本是人人可以获取的。当现任灵体处于沉睡状态时，就像你们大多数人目前的能况，他就无法接入周遭无处不在的更大实相会认为物质存在辨识一切。 但当灵体一旦觉知到更大实相，便会开始调节到这个实相，这是一些简单的能力，开始出现直觉力增加疗愈能力，聪明传导接触纯粹能量态的存有的能力。 至于一些更高级的能力，比如控制物质的能力，只有当个体突破了物质界的帷幕，并完全不再受物质界局限后才会显现。 不过我应该要先说明在那些大师的时代，要达到这个层级，一数不易。 更何况目前在这个消费驱动的经济世界，你做到更不容易。当你到达这个层级时，你已不再关注物质界的需求，你将能够用能量维持肉体，你能在最基本的层面上更新身体细胞的能量，你不再需要使用有机或无机物转化。 目前你有这种能力，是因为肉体毕竟需要一些低等级能量。随着新细胞的产生，以代替，老化的旧细胞身体也会退化，因为没有能量层面上的细胞再生，你胞只能是部分再生细胞编程的核心细节已在更新过程中逐渐流失，从而导致了衰老。 因为核心生命力会逐渐流失，瑜伽修饰或大师们清楚这一点，所以他们能够抑制或及时给身体细胞结构提供所需的一切，并形成了根据身体某一年龄的记忆进行完全再生的功能。 这一年龄或外表，尤其现任的灵体，自主决定并非所有的灵体，都希望呈现年轻男孩或女孩的样子，很多喜欢展现中年人的样貌。 因为这样最容易赢得跟随这些大师的学生们的尊敬。中年阶段被认为是处于学习与教学能力的最佳状态。 在老一点就会被看成一个老态。龙钟的老傻瓜再年轻一点，又会被认为太年轻，没有传到授业的权威性。 我们还是回到开始这个讨论的主要原因吧。一旦个体开悟，成为大师，就可以影响他的细胞结构达到完美，这意味着细胞结构能以百分之百的效率运作，同时能由能量灵体随意操控。 如果灵体愿意身体便能永恒不朽。方法是通过将肉体转化到真实的能量态，从而进进入完全的灵性状态。 同时，肉体还能在物质界存在这个方法，也可用于肉体在物质界中或周围的移动。 但这种方法只有在灵体掌握了对实相的观察时才能使用能够与能量状态整体运作。 也就是石像对于个体灵体来说是完全可达到的。以认知的可以理解的这似乎有点天方夜谭，但却是每个人都可实现的。 但我再一次强调，物质界的诱惑是如此的大大到难以让人将自己置之于外，但专注于投入，加上相信自己就一定会有收获。 主要的问题是，在现今西方世界的生存环境里，以及东方世界正跌入的生存环境里，是否能长期坚持专注与投入。 尽管肉体是一个不必要的物体，但他在这个进化的机会里，还是有它的用处的。 因为在一个如此受限的情况下，生存本身确实也很有启发，引人觉醒，呈现给灵体的转世化身成肉体的机会是透过努力，他可以选择在临界环境中保有肉体。 如此一来，便可以选择在物质界的任何时间任何地方生存。 而无需经历身体的成长成熟，以及接下来的遗忘和觉醒的过程。 灵体因此不再受限于物质，同时还能够在最基础的层级上生存于物质界，以便体验只有在物质层才可体验的一切，同时还能与临界连接，同时最完美的组合。 因为灵体不受物质需求所控制和干扰，反而全然掌控着物质的过程。
 
 SE:Of course.And realistically they can make their physical bodies live for as long as they want.For instance,a yogi can,when he is in total understanding and acceptance of the universal law,do anything he wants.The human body is only limited by its physicality and the incumbent Spirit's ability to draw upon the energies that are naturally available to all.When the incumbent spirit is in a state of slumber,as most of you are,it is not able to tap into the greater reality that is all around it and it believes that its physical existence is all there is.Once a spirit is aware of the greater reality, it starts to become in tune with it and the simple abilities that are at first available- such as increased intuition,healing,channeling,contact with those who are totally in the energetic state-start to come to the fore. 
 
@@ -11944,7 +12004,7 @@ SE:Correct,and so are all those who are on the path to enlightenment right now,j
 
 ME:You mentioned previously that an entity needs to be evolved before he/she/it can be aware of real reality and gain access to the knowledge that exists within reality.Why would an entity need to be evolved to access this if he/she/it came from You and the Source in the first place? 
 
-我：你之前曾提到在一个实体觉知到真正实相并获取实像里的知识之前，他需要先进化。 但既然一开始实际就是从你和源头分出来，为何你需要进化才能接触到呢？ 因为随着觉知而来的是可能滥用力量的能力。如果你能够接触一切，而在你身处受限的物质转示条件下，没有一颗纯净的心，你获知的就不是全貌，而是你欲望所向的那部分。 因此，一个实体必须先进化到他，不会企图把知识当做自我膨胀的攻击的程度。 相反，他们要能感觉到与他人分享的必要与那些有足够觉知，从而有滥面兴趣的人分享。 这些人通常本性善良也不计侵略性。其实要他们在身体上有攻击性也很困难，他们可能永远也无法举起拳头，对别人甩出重重一击，这些将是普及真相的教导的人。 他们将帮助人类摆脱物质界的束缚，并向更高的频率迈进。
+我：你之前曾提到在一个实体觉知到真正实相并获取实相里的知识之前，他需要先进化。 但既然一开始实际就是从你和源头分出来，为何你需要进化才能接触到呢？ 因为随着觉知而来的是可能滥用力量的能力。如果你能够接触一切，而在你身处受限的物质转示条件下，没有一颗纯净的心，你获知的就不是全貌，而是你欲望所向的那部分。 因此，一个实体必须先进化到他，不会企图把知识当做自我膨胀的攻击的程度。 相反，他们要能感觉到与他人分享的必要与那些有足够觉知，从而有滥面兴趣的人分享。 这些人通常本性善良也不计侵略性。其实要他们在身体上有攻击性也很困难，他们可能永远也无法举起拳头，对别人甩出重重一击，这些将是普及真相的教导的人。 他们将帮助人类摆脱物质界的束缚，并向更高的频率迈进。
 
 O:Because of the ability to abuse the power that comes with awareness.If you could access the "ALL"and you were not pure of heart in your limited condition of physical incarnation,you would not get the whole picture but only that which you desired. Based upon this,an entity needs to be evolved to the point where he/she/it is not tempted to use the knowledge for self-aggrandisement.Instead,they must feel the need to share it with others who are aware enough to be interested in a positive way.These people are naturally good-natured and not aggressive;in fact,they would find it difficult to be physically aggressive and could never pitch a really powerful punch.These are the people who will spread the teachings of reality in order to help humanity move out of the physical and progress to the next frequency.
 
@@ -12050,7 +12110,7 @@ This is the dilemma with the use of angel cards,Reiki,and other healing/spiritua
 
 Dearest Reader, 
 
-亲爱的读者，我知道这本书的内容对你产生的影响取决于你在自己的道路上前进了多远，以及你特定的进化层级。 我真诚希望这本书能激发你的想象力，帮助你有意识的展开自我实现的严肃使命。 在更高的实像中，但愿你能领悟物质界只是更大实项当中一个平瘠的幻想。 愿本书内容作为你前进和提升旅程中的一个起点或终极点。如果真的如此，那么我的任务就算成功了。 你之所以被这本书吸引，是因为你希望觉醒，回忆起自己到底是谁，更加具有觉知并质询一切事物，这是你脱离物质界桎梏的进化路上的一盏灯，把这本书当做一次机遇，让他去激发你，促进你去探讨去质疑去领悟，并最终进化与你的亲朋好友分享这本书。 无论你在地球的何处，都要知道更大的实像，切切实实存在选择去自我实现并非意识，这需要你不懈的努力。 内省和毅力，尤其是物不知世界如此充满诱惑，只要你购买或借阅了本书，无论你看完了，还是只看了几页，都代表你正走向开悟。 为此，我发自内心的感谢你，因为你的开悟能给身边的人示明道路，并最后促成我们大家的进化与提升。 在此为我们共同的进化旅程献上爱与感激盖伊史蒂芬尼德勒二零一一年三月一日。
+亲爱的读者，我知道这本书的内容对你产生的影响取决于你在自己的道路上前进了多远，以及你特定的进化层级。 我真诚希望这本书能激发你的想象力，帮助你有意识的展开自我实现的严肃使命。 在更高的实相中，但愿你能领悟物质界只是更大实项当中一个平瘠的幻想。 愿本书内容作为你前进和提升旅程中的一个起点或终极点。如果真的如此，那么我的任务就算成功了。 你之所以被这本书吸引，是因为你希望觉醒，回忆起自己到底是谁，更加具有觉知并质询一切事物，这是你脱离物质界桎梏的进化路上的一盏灯，把这本书当做一次机遇，让他去激发你，促进你去探讨去质疑去领悟，并最终进化与你的亲朋好友分享这本书。 无论你在地球的何处，都要知道更大的实相，切切实实存在选择去自我实现并非意识，这需要你不懈的努力。 内省和毅力，尤其是物不知世界如此充满诱惑，只要你购买或借阅了本书，无论你看完了，还是只看了几页，都代表你正走向开悟。 为此，我发自内心的感谢你，因为你的开悟能给身边的人示明道路，并最后促成我们大家的进化与提升。 在此为我们共同的进化旅程献上爱与感激盖伊史蒂芬尼德勒二零一一年三月一日。
 
 I know that the impact these texts will have on you largely depends upon where you are on your path and your particular level of evolution.What I am really hoping is that this book will capture your imagination and help you consciously embark upon the serious task of self-realization.May you grasp that the physical is but a poor illusion within the greater reality and may you use these texts as a starting/continuing point for your journey onwards and upwards.If this happens to you,then my work has been successful. 
 
