@@ -2807,7 +2807,7 @@ O:Yes,all energy is spherical in physical appearance and energetic cohesion.This
 
 I then saw more.They were literally playing with Themselves on all frequencies on all dimensions.One of Them was squashing Itself really flat and thin whilst another was extending parts of Itself into nodules with very,very thin links to them from Its main body.This reminded me of the description of what happens when we squeeze ourselves into our physical bodies,and the link is just the so-called "silver cord."This link is so small that we have very,very limited access to ourselves,so much so that we can't access our higher selves even with our extreme concentration.I then got a quick thought from the SE that I was correct,and that It was a very good comparison. 
 
-接着，我看到了更多。他们实际上是在所有维度中的所有频率上与自己玩耍。其中一个把自己压的扁平而薄，而另一个则是将自身的一部分延伸成许多结节，其间有非常非常细的链接连到主体。这让我想起了当我们挤进我们的肉体时所发生的事情，而这个链接就是所谓的“灵带”。这种连接非常细，以至于我们对本我的接触非常有限，导致即使我们极度专注也无法接通高我。我很快就从源实体得到了确认，说这是一个很好的类比。
+接着，我看到了更多。他们实际上是在所有维度中的所有频率上与自己玩耍。其中一个把自己压的扁平而薄，而另一个则是将自身的一部分延伸成许多结节，其间有非常非常细的连接连到主体。这让我想起了当我们挤进我们的肉体时所发生的事情，而这个连接就是所谓的“灵带”。这种连接非常细，以至于我们对本我的接触非常有限，导致即使我们极度专注也无法接通高我。我很快就从源实体得到了确认，说这是一个很好的类比。
 
 The images of what I saw in my mind's eye are illustrated below:
 
@@ -5244,7 +5244,7 @@ ME:So we are going to talk about how we as human beings were developed.
 
 SE:Yes.When all of you discovered that you couldn't reproduce robustly by the cell division/ separation method and the link with Spirit maintained at those levels caused energy disharmonies that spread to other spirits,you decided to try to keep any energy-based issues local to the incarnating spirit.Two major changes were made:(1)to make the human reproduction system work in a way that removed as many reproducing errors as possible;and (2)to remove the link to the rest of Spirit whilst incarnate. 
 
-源实体：是的，当你们发现无法稳定地通过细胞直接复制分裂的方法来繁殖，并且复制过程中与相应层级上与灵体的链接还会导致能量紊乱，并扩散到其他灵体的时候，你们决定让任何出现的能量问题都只局限于转世中的特定灵体中。主要发生了两个变化：(1)、人类的繁殖方式需要能够尽量消除复制产生的错误，(2)、移除在转世期间灵体与其剩余部分之间的联系。
+源实体：是的，当你们发现无法稳定地通过细胞直接复制分裂的方法来繁殖，并且复制过程中与相应层级上与灵体的连接还会导致能量紊乱，并扩散到其他灵体的时候，你们决定让任何出现的能量问题都只局限于转世中的特定灵体中。主要发生了两个变化：(1)、人类的繁殖方式需要能够尽量消除复制产生的错误，(2)、移除在转世期间灵体与其剩余部分之间的联系。
 
 ME:But I thought that we are always linked to Spirit/the universe. 
 
@@ -5252,7 +5252,7 @@ ME:But I thought that we are always linked to Spirit/the universe.
 
 SE:Indeed you are,so the best way for this link to be severed without actually removing the link is to make the spirit who is about to incarnate "lose its memory"of what reality is.In this way,it would come into the physical world with a clean sheet,with the exception of one or two rules set in place.These rules are the prompts that are set in place to help you achieve the experiences you want whilst in the physical levels.They are the driving force for your achievements whilst you are incarnate.They are your desire to be a doctor or a businessman,nurse or an architect,to live in a certain way, to succeed in a certain way,etc.With some of you,it is discovering who you really are whilst in the physical.A few of you even re-establish contact with your higher selves and some part of the rest of spirit.Interestingly enough,the forgetting rules are much easier to put in place because the lower levels of frequency are natural inhibitors to communication with that part of you that is connected to the whole because of the greatly reduced communication lines.This is,of course,what the Origin and the other Source Entities discovered in the early days of awareness.
 
-源实体：确实如此，因此，在并非真正切断链接的情况下，最好方法是让即将转世的灵体遗忘真实情况。这样它就会像一张白纸般进入物质世界，并且只被植入一个或两个规则，这些规则是为了帮助你在在物质世界中实现想要的体验而设置的一种提示。转世期间，它们是你取得成就的原动力，它们是你想成为医生、商人、护士、建筑师或以某种方式生活取得某种成功的渴望等。对于你们中的一些人来说，就是在物质世界中发现你们真正是谁。你们中的一些人，甚至会重新和高我以及灵体的其他部分建立联系。有趣的是，由于沟通大量减少，较低频率会自然抑制与整体自我的交流，因此遗忘的法则相对更容易实现。当然，这是起源与其他源实体在觉知早期就发现的。
+源实体：确实如此，因此，在并非真正切断连接的情况下，最好方法是让即将转世的灵体遗忘真实情况。这样它就会像一张白纸般进入物质世界，并且只被植入一个或两个规则，这些规则是为了帮助你在在物质世界中实现想要的体验而设置的一种提示。转世期间，它们是你取得成就的原动力，它们是你想成为医生、商人、护士、建筑师或以某种方式生活取得某种成功的渴望等。对于你们中的一些人来说，就是在物质世界中发现你们真正是谁。你们中的一些人，甚至会重新和高我以及灵体的其他部分建立联系。有趣的是，由于沟通大量减少，较低频率会自然抑制与整体自我的交流，因此遗忘的法则相对更容易实现。当然，这是起源与其他源实体在觉知早期就发现的。
 
 ME:So how did/do we create the forgetting? 
 
@@ -5260,7 +5260,7 @@ ME:So how did/do we create the forgetting?
 
 SE:It is done slowly during the initialization with the physical body,rather like your Alzheimer's but without the trauma.This is done when the fetus is growing in the womb;the link to the physical body is more "pliable"at this stage,allowing the spirit to come and go until the association is complete.The forgetting,although done in stages,is done in such a way so that residual memories don't come to the surface to give the spirit concern by thinking it has forgotten something but can't quite work out what.This is the trauma experienced by Alzheimer's sufferers.The forgetting is only current whilst the spirit is associated with a host body,so when the incarnation is complete,the forgetting is slowly removed.It is completed at a faster rate than the initial forgetting,again to stop any trauma associated with being suddenly bombarded with lots of communication data from all the different senses,including all the memories from past incarnations and experiences when fully connected to Spirit while in spirit.You would be in quite a spin if it happened instantaneously. 
 
-源实体：它是在肉体初始化的过程中缓慢进行的。就像阿尔茨海默症（老年痴呆），但是无创伤的，是胎儿在子宫中生长过程中完成的。在这个阶段，灵体与肉体的联系更加柔软，这种柔软的连接让灵体在与灵肉的关联完成之前，在肉体中来去自由。这种遗忘虽然是分阶段完成的，但它是在不会引起残留记忆浮上意识层面，而使灵体觉得他忘了什么，但又始终无法记起来的情况下完成的。而上述情况便是阿尔茨海默中患者体验到的创伤，这种遗忘只存续在灵体与他的肉体载具关联的时候，因此一旦转世周期完结，也就是肉体死亡，遗忘就会被渐渐移除。遗忘的移除比最初遗忘形成的速度要更快，这仍然是为了避免灵体突然间被来自各种感官的沟通信息轰炸而产生创伤。这些信息包括经历的前世的所有记忆，以及完全与灵体世界链接时出现的体验。如果这些是瞬间发生的，你就会兴奋地晕过去的。
+源实体：它是在肉体初始化的过程中缓慢进行的。就像阿尔茨海默症（老年痴呆），但是无创伤的，是胎儿在子宫中生长过程中完成的。在这个阶段，灵体与肉体的联系更加柔软，这种柔软的连接让灵体在与灵肉的关联完成之前，在肉体中来去自由。这种遗忘虽然是分阶段完成的，但它是在不会引起残留记忆浮上意识层面，而使灵体觉得他忘了什么，但又始终无法记起来的情况下完成的。而上述情况便是阿尔茨海默中患者体验到的创伤，这种遗忘只存续在灵体与他的肉体载具关联的时候，因此一旦转世周期完结，也就是肉体死亡，遗忘就会被渐渐移除。遗忘的移除比最初遗忘形成的速度要更快，这仍然是为了避免灵体突然间被来自各种感官的沟通信息轰炸而产生创伤。这些信息包括经历的前世的所有记忆，以及完全与灵体世界连接时出现的体验。如果这些是瞬间发生的，你就会兴奋地晕过去的。
 
 ME:So what about reproduction of the human body?How did we get to the process we have today? 
 
@@ -11652,83 +11652,101 @@ The dimensions can be considered as spheres within spheres with everything on th
 
 **被称为路西法的实体**
 
-ME:O.K.,so we have talked a bit about many things,but I can't help feeling that we are not being told the whole story.For instance,where did the story of Lucifer come from in our religious texts?Why have you not mentioned him in our dialogues about religion?Did he exist?Does he exist?If he does exist,what is his angle?What is his input into the Origin's quest for self- knowledge? 
+ME:O.K.,so we have talked a bit about many things,but I can't help feeling that we are not being told the whole story.For instance,where did the story of Lucifer come from in our religious texts?Why have you not mentioned him in our dialogues about religion?Did he exist?Does he exist?If he does exist,what is his angle? What is his input into the Origin's quest for self-knowledge? 
 
-我：好的，所以许多事情我们都已经稍有涉及了，但我总觉得你还没有把整个故事告诉我们，比方说我们宗教书上提到的路，西法的故事到底是从何而来？ 在我们有关宗教的对话里，你为什么没有提到他他是否存在过，现在呢？ 如果他真的存在，他的立场又是什么？在起源的自我认知的探索中，他带来了什么路西法，是西方宗教神话中的第一位背叛上帝的堕落大天使。 在某些传说中也是恶魔撒旦的原型，这个你不想要知道的太详细吧。 我不这样认为我很想了解，好吧，我会告诉你有关所谓路西法的事。 首先我会一直称这位实体为路西法，因为这是你们知道的名字，这个这不是他在能量或者灵性领域里的名字。 这一点对于他在存在期间的成就来说，真是一项巨大的遗憾。 路西法是第一个介入物质人类计划的事实体存有并对人类在物质界以及最靠近物质界的被称为较低或较高星光界中拥有完全的自由意志。 这一含有的荣幸直接负责等等。既然它有助于让我们达到现在的层级，为何还被归类为邪恶人物？ 它被归为负面或邪恶纯粹是因为人类的形状身处于最低的维度和频率已经低到，不能再低了。 你看当能谅解人类开启这个计划时，你们都还处于非常高的频率中。 更甚者，你们当时的物质形态是你们可以称为半透明或非固态的形体，有点类似气体，而非肉体。 虽然类似气体并不是一个很正确的形体，但也足以让你了解这个意思。 所以我们贝卡在这个层级上要归咎于路西法不？你们所有人都有责任路，西法只是提供了方法，让你们能够在机会呈现时通过做出正确选择，从而在为维度与频率中展翅高飞，在没有其他更高的意识，集体意志的影响下，是你们自己决定要走上哪条路啊，我们又回到了有关自由意志与集体意志的话题不尽然。 你看，即便你们可以自由的做出自己的选择，你们仍然是集体的一部分，也就是集体性质的一部分。 路西法只不过是建议并极力争辩。要让人类自主，以便最大化人类的进化机会加速进化过程。 路西法的观点被参与物质界人类项目的其他关键工作者误解并视为不但没有必要，而且很危险。 他们认为的危险在于个体或实体投射到物质界的那部分存有，即转世到物质界的那一部分。 他与自己的奇遇部分或人类集体失去连接。当时他获得了一些存有的支持，他们使用阿卡西记录运行了一个假设情景的模拟剧本，发现进化的机会增加了，而且体验非常丰富。 因此，这个观点应该被考虑，但另一方面跌落更低维度的可能性也同样存在。 但从统计概率上看，成为事实的可能性并不是那么大。 由于这个剧本是建立在有较高成功几率的基础上的，因而，路西法赢得了与其他主导该项目的实体的辩论，于是赋予人类自由意志被认定是让进化机会最大化的正确之路。 最大的问题在于路西法决定不宣扬，若选择了这条路，人类会沉沦到最低层的这一可能性，即便沉沦了人类也可借由脱离最低层的努力，达到最大的进步。 他将这一点视为别人可能否决他的借口，他认为他们会说此举风险太大，所以他决定隐瞒来自阿卡西的这些信息。 由于隐瞒信息，他犯下了一个罪过。当然，犯这个罪过是他的自由，但让事情变得更复杂的是，人类化身确实走上了这条沉沦的道路。 从其他人的观点来看，他们认为他为人类选择了最坏的一条路。 他们认为，如果当初他们看到了全部阿卡西信息，一定会做出不同的决定。 这个结果使得路西法被污蔑为邪恶的实体，不属于整体的一份子。 结果是他被要求离开，开发了人类物质化身的督导委员会群体。 如果你想这么称呼他的话，你们的雕刻或绘画将路西法描绘为一个堕落天使的形象让我澄清一下吧。 路西法不是堕落天使，他只是改变了他目前的工作类型而已，他不在意当初的同等的能力，摄入人类的工作。 但无论如何，路西法现在仍然在做着重要的贡献，尤其是他目前也隐匿于人类的频率层激励，帮助着人类理解呈现在他们面前的暗示与机会，对毕竟这是路西法最有经验的领域。 如果没有他对这些层级的认知，他当初就没有能力去做出隐瞒那些信息的决定。 这里我要重申一下路西法自己拥有的知识，损害了他自己的主张，但那却是一个重要的主张，赋予人类独自行驶的自由意志，独立于更大实相独自行事，并只为自己的行为负责，真正的在孤立环境中去体验自我。 哇，他对人类还真的造成了一个巨大的影响，不是吗？比他预期的还要大，而且他得到的坏名声其实跟他所犯的错误是不成正比的。 无论如何，如今人类已经走上了当年阿卡西预测过的，在人类个体或者集体做出选择后，将要踏上的更大进化的道路。 那前路西法正在为他的过错付出代价，那是没有完全对他的同僚公开信息而付出的代价，哪怕他现在仍然做的很好，且对那些有争议性的信息已经相当公开透明。
+我：好的，所以许多事情我们都已经稍有涉及了，但我总觉得你还没有把整个故事告诉我们。比方说我们宗教书上提到的路西法的故事到底是从何而来？在我们有关宗教的对话里，你为什么没有提到他？他是否存在过？现在呢？如果他真的存在，他的立场又是什么？在起源的自我认知的探索中，他带来了什么？（路西法是西方宗教神话中的第一位背叛上帝的堕落大天使，在某些传说中也是恶魔撒旦的原型）
 
 SE:You don't want too much,do you? 
 
-源实体：
+源实体：这个，你不想要知道的太详细吧？
 
 ME:I don't think so.No. 
 
-我：
+我：我不这样认为，我很想了解。
 
 SE:O.K.,I will give you the reality about the entity you recognize as Lucifer. 
 
-源实体：
+源实体：好吧，我会告诉你有关所谓路西法的事。 
 
 First,I will continue to call this entity Lucifer as that is the name that you recognize although this is not the name that it is recognized by in the energetic/spiritual realms, which is a great shame for this entity has accomplished much in its existence. 
 
-Lucifer was one of the first entities to get involved in the physical human being project and is directly responsible for allowing humanity to have the rare pleasure of having total free will when in the physical realms and those levels closest to the physical called the lower and upper astral. 
+首先我会一直称这位实体为路西法，因为这是你们知道的名字，虽然这不是他在能量/灵性领域里的名字，这一点对于他在存在期间的成就来说，真是一项巨大的遗憾。 
+
+Lucifer was one of the first entities to get involved in the physical human being project and is directly responsible for allowing humanity to have the rare pleasure of having total free will when in the physical realms and those levels closest to the physical called the lower and upper astral.
+
+路西法是第一个介入物质人类计划的实体存有，并对人类在物质界以及最靠近物质界的被称为较低或较高星光界中拥有完全的自由意志这一罕有的荣幸直接负责。
 
 ME:Hold on.So why is this Lucifer classified as an evil character if he was instrumental in getting us to where we are now? 
 
-我：
+我：等等。既然路西法有助于让我们达到现在的层级，为何还被归类为邪恶人物？ 
 
 SE:He was classified as bad or evil purely because humanity is where it is now-in the lowest dimensions and frequencies possible.You see,when energetic humankind started this project,you were all existing in very high frequencies.Even your physical projection was what you would call translucent or not solid,more gas-like in substance than physical.Although "gas-like"is not a correct description,it will suffice. 
 
-源实体：
+源实体：它被归为负面或邪恶，纯粹是因为人类的现状，身处于最低的维度和频率，已经低到不能再低了。你看，当能量界人类开启这个计划时，你们都还处于非常高的频率中。更甚者，你们当时的物质形态是你们可以称为半透明或非固态的形体，有点类似气体而非肉体。虽然类似气体并不是一个很正确的形容，但也足以让你了解这个意思。 
 
 ME:So Lucifer is responsible for us being stuck here at this level. 
 
-我：
+我：所以我们被卡在这个层级上，要归咎于路西法。
 
 SE:No,all of you are.Lucifer simply gave you the means to soar high in the dimensions and frequencies by making the right choices as they were presented to you.You made the decision on which way to jump without the influence of other higher/collective minds. 
 
-源实体：
+源实体：不，你们所有人都有责任。路西法只是提供了方法，让你们能够在机会呈现时通过做出正确选择，从而在为维度与频率中展翅高飞，在没有其他更高的意识/集体意志的影响下，是你们自己决定要走上哪条路。
 
 ME:Ah,we are back to the conversation about free will versus collective minds.
 
-我：
+我：啊，我们又回到了有关自由意志与集体意志的话题。
 
 SE:No,not quite,you see,even though you are free to make your own decisions,you are still part of a collective entity and,therefore,a collective mind.Lucifer merely suggested and debated hard for the incarnate human entity to have autonomy in order to maximize the evolutionary opportunity and accelerate the evolution process. His idea was maligned by the other key workers on the physical humanity project as being both unnecessary and dangerous.They felt it was dangerous insomuch as the individual entity or that part of the entity that was projected into the physical, that was incarnated,would lose communication with the rest of itself or humanity. He gained some support from some entities that ran a "what if"scenario,using the Akashic and established that the opportunities for evolutionary expansion and experience were enormous and should,therefore,be considered.On the other side, the opportunities for dropping down the dimensions were also there,but they were not too high statistically in terms of becoming a reality.It was based upon the higher probability of success that allowed Lucifer to win the debate with the others leading the project.It was decided that giving free will was the correct way to go to maximize the opportunity. 
 
-源实体：
+源实体：不尽然。你看，即便你们可以自由地做出自己的选择，你们仍然是集体的一部分，也就是集体心智的一部分。路西法只不过是建议并极力争辩要让人类自主，以便最大化人类的进化机会，加速进化过程。路西法的观点被参与物质界人类项目的其他关键工作者误解，并视为不但没有必要而且很危险。他们认为的危险在于，个体或实体投射到物质界的那部分存有，即转世到物质界的那一部分，会与自己的其余部分或人类集体失去连接。当时，他获得了一些存有的支持，他们使用阿卡西记录运行了一个假设情景的模拟剧本，发现进化的机会增加了，而且体验非常丰富，因此这个观点应该被考虑。但另一方面，跌落更低维度的可能性也同样存在，但从统计概率上看，成为事实的可能性并不是那么大。由于这个剧本是建立在有较高成功几率的基础上的，因而路西法赢得了与其他主导该项目的实体的辩论。于是赋予人类自由意志被认定是让进化机会最大化的正确之路。 
 
 The big issue was that Lucifer decided not to advertise the possibility that humanity could actually drop down to the lowest levels as well by choosing this route-even though in doing so,humanity would make its greatest advance in pulling out of the lowest of levels.He saw this as the excuse the others needed to veto his idea.He said they would say that the risk would be too great,so he decided to withhold all of the information that came from the Akashic.In withholding this information,he committed a crime-which he was free to do-but that was compounded by the fact that humanity incarnate actually managed to go along this path.From their point of view,the others believed that they chose the worst path for humankind.They believed that if they had been given the complete picture from the Akashic,they would have decided differently.This resulted in Lucifer being maligned as an evil entity,"one that is not of the whole."As a result of this he was asked to leave the group of individuals that had both developed the physical body for humanity incarnate and been the "steering committee,"if you want to call it that. 
 
+最大的问题在于路西法决定不宣扬若选择了这条路人类会沉沦到最低层的这一可能性。即便沉沦了，人类也可借由脱离最低层的努力，达到最大的进步。他将这一点视为别人可能否决他的借口，他认为他们会说此举风险太大，所以他决定隐瞒来自阿卡西的这些信息。由于隐瞒信息，他犯下了一个罪过。当然，犯这个罪过是他的自由，但让事情变得更复杂的是人类化身确实走上了这条沉沦的道路。从其他人的观点来看，他们认为他为人类选择了最坏的一条路。他们认为，如果当初他们看到了全部阿卡西信息，一定会做出不同的决定。这个结果使得路西法被污蔑为邪恶的实体，不属于整体的一份子。结果是，他被要求离开开发了人类物质化身的督导委员会群体，如果你想这么称呼他的话。
+
 You have carvings and images that show Lucifer as a fallen angel.Let Me say this, Lucifer is not a fallen angel.He has just changed the type of work that he is doing now. Agreed,it (he)is not involved with humanity within the same capacity that it was.But Lucifer is,nevertheless,making significant contributions,especially in understanding the implications and opportunities presented to humanity whilst it is currently residing in this level of frequency,as this is where Lucifer was most experienced.Without knowledge of these levels,he would not have been able to make a decision to withhold this information. 
+
+你们的雕刻或绘画将路西法描绘为一个堕落天使的形象。让我澄清一下吧，路西法不是堕落天使，他只是改变了他目前的工作类型而已，他不再以当初同等的能力摄入人类的工作。但无论如何，路西法现在仍然在做着重要的贡献，尤其是他目前也隐匿于人类的频率层级里，帮助着人类理解呈现在他们面前的暗示与机会，毕竟这是路西法最有经验的领域。如果没有他对这些层级的认知，他当初就没有能力去做出隐瞒那些信息的决定。
 
 I will say it again. 
 
+这里我要重申一下。
+
 His own knowledge was damaging to his own arguments to give humanity the free will to work in isolation,in independence of the greater reality,to work alone and be responsible only for oneself,and to truly experience the self in isolation. 
+
+路西法自己拥有的知识，损害了他自己的主张，但那却是一个重要的主张，赋予人类独自行使的自由意志，独立于更大实相，独自行事并只为自己的行为负责，真正的在孤立环境中去体验自我。 
 
 ME:Wow,he really has made a big impact on humanity,hasn't he?
 
-我：
+我：哇，他对人类还真的造成了一个巨大的影响，不是吗？
 
 SE:Bigger than he expected,and he has gained a reputation that is not equivalent to his mistake.Nevertheless,to date,humanity is following the path that was predicted if it individually(collectively)made the decision to go this way,which it did.Now Lucifer is paying the price,the price of not being totally open to his peers even though he is still doing a good job and is now very open with his information,even if it is controversial. 
 
-源实体：
+源实体：比他预期的还要大，而且他得到的坏名声其实跟他所犯的错误是不成正比的。无论如何，如今人类已经走上了当年阿卡西预测过的，在人类个体或者集体做出选择后将要踏上的更大进化的道路。目前路西法正在为他的过错付出代价，那是没有完全对他的同僚公开信息而付出的代价。哪怕他现在仍然做的很好，且对那些有争议性的信息已经相当公开透明。
 
 #### Dark Forces and Lower Entities 
 
 **黑暗力量和低等实体**
 
-ME:Over the years I have been to many courses on spiritual matters.All of them referred to so- called "dark forces"or lower entities and said that we must protect ourselves from them. Can you advise on the realty of the situation? 
+ME:Over the years I have been to many courses on spiritual matters.All of them referred to so-called "dark forces"or lower entities and said that we must protect ourselves from them. Can you advise on the realty of the situation? 
 
-我:过去这些年，我上了许多关于灵性内容的课程，所有的课程都提到所谓的黑暗力量或较低实体，并说我们必须保护自己，远离他们。 这可以告诉我实际的情形吗？在较初级的灵性休息者当中，这确实是一个争议点，但幸好它很容易解释，要知道这一点没有所谓的黑暗力量。 他有存在于较低星光层的实体，当能量振动较低的时候，他们才能存在。 他们害怕是源于当地球提升一个层级时，他们一切也都跟着提升所有较低振动层级的实体会因此消失。 为了阻止这种情况，将地球保持在地平中，他们影响那些受低层振动吸引的人们，让他们对抗那些会更大的利益工作的光之工作者们来自诸宇宙及各维度的大量灵体转世到地球上，体验物质生活，目的是加快自身进化速度，有些灵体沉迷于物质界的感官感受。 即便他们处于非物质状态，也不断回到地球，想要体验更多，他们会粘附于对他们开放的人，以便去体验宿主的经验和振动频率，他们越是沉迷频率，越是下滑，直到他们忘记了自己是谁是什么，以及怎么做才能记起这些，他们完全迷失了自己，不知何去何从，他们只是本能的，知道自己需要提升能量层级以及频率，这能让他们记起自己到底是谁并脱离下滑的漩涡。 这些实体游荡在地球上，事实上真的有一条你失灵魂之河环绕着地球寻找那些可以让他们年富以获取能量和经验的态也。 他们找到一个心甘情愿的宿主时，可怜的宿主们，大部分时间都不知道发生的事情，除非他极为敏感。 他们就会感到很快乐，但是当宿主或疗愈时，发现他们的存在在并试图让他们离开时，他们就会因为生气而与反击，直到他们被送到光之中。 事实上，他们只是迷失和恐惧，无无法了解自己，到底发生了什么事。 当他们得得到到想要的东西时，就会变愤怒怒，把他们送送光光中中，很简，你们只需需求求基督或神的意识或能量保护自己，接着给他们大量的爱，你提供他们所需需的能量去回到光中。 事实上，通过这样做，你们给了他们能量，将他们潜回到他们来的地方。
+我：过去这些年，我上了许多关于灵性内容的课程。所有的课程都提到所谓的黑暗力量或较低实体，并说我们必须保护自己，远离他们。你可以告诉我实际的情形吗？
 
 SE:This is a real bone of contention amongst the lower grade spiritualists,but,fortunately, it can be easily explained.Know this:there is no such thing as a dark force.There are only entities that exist in the lower astral.They only exist whilst the energies are at that lower level of vibration.They are scared because when the Earth moves up a level, everything else does,so all the lower vibration level entities will cease to exist.To try to stop this,they are trying to keep the Earth's vibration levels low by influencing those people who naturally gravitate towards the lower vibration levels and make them antagonistic to people who operate for the good of the light work. 
 
-源实体：
+源实体：在较初级的灵性修习者当中，这确实是一个争议点，但幸好它很容易解释。要知道这一点：**没有所谓的黑暗力量**。只有存在于较低星光层的实体，当能量振动较低的时候，他们才能存在。他们害怕是源于当地球提升一个层级时，其他一切也都跟着提升，所有较低振动层级的实体会因此消失。为了阻止这种情况，将地球保持在低频中，他们影响那些受低层振动吸引的人们，让他们对抗那些为更大的利益工作的光之工作者们。
 
 Many spirits from all parts of the universe/s and dimension/s come to Earth to incarnate and experience being in the physical with a view toward accelerating their personal evolution.Some of these spirits get addicted to the sensations that they feel in the physical and keep coming back for more,even when they are disincarnate.They do this by attaching themselves to people who are open to them in order to experience their surrogate host's experiences and vibrational frequencies.As they get more and more addicted,they start to slip down the frequencies until they get to a point where they forget who and what they are,and what they need to do to remember.They are effectively lost,have nowhere to go,and don't know what to do. 
 
+来自诸宇宙及各维度的大量灵体转世到地球上体验物质生活，目的是加快自身进化速度。有些灵体沉迷于物质界的感官感受，即便他们处于非物质状态，也不断回到地球想要体验更多。他们会粘附于对他们开放的人，以便去体验宿主的经验和振动频率。他们越是沉迷，频率越是下滑，直到他们忘记了自己是谁是什么，以及怎么做才能记起这些。他们完全迷失了自己，不知何去何从。
+
 They only have the instinct that they need to increase their energy levels and,therefore, their frequencies and that this will allow them to remember who they are and break out of the downward spiral.These entities roam the Earth (there is literally a river of lost souls surrounding the Earth)looking for people whom they can latch onto for energy and experiences.When they find a willing host(the poor host doesn't know this is happening most of the time unless he/she is a sensitive),they are happy.But when the host or a healer recognizes their presence and tries to remove them,they get very angry and fight back until they are sent into the Light.In actuality they are just lost and afraid and can't understand what is happening to them,but when they don't get what they want,this turns to anger. 
 
+他们只是本能地知道自己需要提升能量层级以及频率，这能让他们记起自己到底是谁，并脱离下滑的漩涡。这些实体游荡在地球上（事实上真的有一条迷失灵魂之河环绕着地球）寻找那些可以让他们黏附以获取能量和经验的人。当他们找到一个心甘情愿的宿主时（可怜的宿主们大部分时间都不知道发生的事情，除非他极为敏感），他们就会感到很快乐。但是当宿主或疗愈师发现他们的存在，并试图让他们离开时，他们就会因为生气而予以反击，直到他们被送到光之中。事实上，他们只是迷失和恐惧，无法了解自己到底发生了什么。当他们得不到想要的东西时，就会变得愤怒。
+
 To send them into the Light,all you have to do is invoke the Christ or God consciousness or energy to protect yourself.Then give them lots of love and send them back to the Light by giving them the energy to do so.You,in effect,give them the energy to propel them back to where they came from.
+
+要把他们送到光之中很简单，你们只需祈求基督或神的意识或能量保护自己，接着给他们大量的爱，以提供他们所需的能量去回到光中。事实上，通过这样做，你们给了他们能量，将他们遣回到他们来的地方。
 
 ### Chapter 38 - Christ Consciousness 
 
@@ -11736,7 +11754,7 @@ To send them into the Light,all you have to do is invoke the Christ or God consc
 
 Me:We talk a lot in spiritual circles about the Christ consciousness,and we call Jesus "Christ"in separation to this,at least the religious circles do.What is the actual connection between the two? 
 
-我：我们在灵性的圈子中会讨论很多关于基督意识的话题。 而且我们称耶稣为基督意识区别，至少在宗教圈子里是这么称呼的，这两者到底有什么关系？
+我：我们在灵性的圈子中会讨论很多关于基督意识的话题。而且我们称耶稣为“基督”以示区别，至少在宗教圈子里是这么称呼的。这两者到底有什么关系？
 
 #### Interpretations of the Meaning of the Word "Christ" 
 
@@ -11744,83 +11762,95 @@ Me:We talk a lot in spiritual circles about the Christ consciousness,and we call
 
 SE:Basically,understand that the word "Christ"was used to describe an individual that had been christened or baptized,meaning cleansed or purified.This is part of the process required to allow the purity of thought to be aloof of the desires of the physical levels and work with the spiritual whilst on the Earth plane.Therefore,he who is cleansed and prepared for this level of work is christened and is called Christ for short.Thus it is that Jesus would be called Jesus the Christened one or Jesus Christ for short. Your readers should note here that the temporal "order"in the use of the word "Christ" will always be a bone of contention.The purification process now symbolically used in churches around the world under the guise of baptism came before the currently recognized use of the word-a word currently used to describe Jesus and the religion that stemmed from his teachings.Suffice to say,the christening process of purification was in existence a long time before the entity known as Jesus was incarnate upon the Earth. It was a process used to open the individual's higher channels of communication and remove the desire and the urge to use the knowledge given for personal gain. 
 
-源实体：基本上基督这个词通常用于形容一个以受洗的生命体意思是以进化或纯化的这是所需程序的一部分。 这个程序的目的是进化耶想即纯净的思想脱离物质界的欲望，以使其能在地球上从事灵性的宗教，因此被进化并准备在这个层级工作的人就会被受洗，简称为基督。 如此一来，耶稣便可被称为受洗者，耶稣或简称为耶稣基督。 你的读者应该要注意的是，所使用字词的时间顺序，基督义词永远是一个争义点。 现在世界各地的教堂假借象征性的洗礼之名所进行的进化过程，其实早于对这个词的使用这个词。 目前用于描述耶稣基源于其教导的宗教，可以说在耶稣转世到地球上之前，进化，受洗过程就早已存在这个过程。 在过去用于开启个体的更高沟通管道，并且将所获知识用于私立的欲望。 基督一词纯粹是人类需要一个重磅字眼来解释灵魂进化的过程。 在这里，人类将它指定给了耶稣这位实体。因为他集中体现了他之所事及进化。 因此人类把这个词放在被进化者名字。耶稣的后面其实他是许多形容进化过程的词汇之一。 本质上，耶稣应该被称为以进化者。耶稣，因为这种表述更有意义。 灵修者会附加说明基督义词，也用于形容一些纯净能量或力量，唯有内心纯净的化身实体，才能使用这些能量。 地球上当然还是有这些实体的化身只是为数不多。所以说如果我已被进化到，可以超脱物质界欲望，我就可以被称为盖基督了。 是的，但听起来没有像耶稣基督那么好听不是吗？但这背后还有更身的原因，因为你问了一个有关基督意识的问题。 比方说，一旦你受洗了，你就开始独自发展，直到你内在达到基督人格，以及你不再被物质界的任何要求或欲望所诱惑，因为你很清楚，物质界只是更大实效。 宇宙及所有宇宙和层级频率的一小部分，这并不容易。因为物质界的诱惑很大，且已深入你化身在肉体里的那一部分。 你当中了，你必须要照顾你的肉体，保证你在最基本的物质环境中能正常工作，这是你们大多数的困惑所在。 一旦进化受洗，却因受到物质界的污染而成了非基督的。 要放弃物质界的欲望很难，因为他们是如此的具有诱惑力，看起来如此的真实。
+源实体：基本上，基督这个词通常用于，形容一个已受洗的生命体，意思是已净化或纯化的。这是所需程序的一部分，这个程序的目的是净化思想，让纯净的思想脱离物质界的欲望，以使其能在地球上从事灵性的工作。因此，被净化并准备在这个层级工作的人就会被受洗，简称为基督。如此一来，耶稣便可被称为受洗者耶稣，或简称为耶稣基督。你的读者应该要注意的是所使用字词的时间顺序，基督一词永远是一个争议点。现在世界各地的教堂假借象征性的洗礼之名所进行的净化过程，其实早于对这个词的使用。这个词目前用于描述耶稣，即源于其教导的宗教。可以说在耶稣转世到地球上之前，净化受洗过程就早已存在，这个过程在过去用于开启个体的更高沟通管道，并且将所获知识用于私人的欲望。 
 
 The word Christ is purely a function of humankind's need for a "punchy"word to explain the purification of the soul.In this function,humankind has assigned it to the Jesus entity as it personified what he was,purified.Hence,humankind put the word after the name of the purified one,Jesus.It is,however,one of many words that have been used to describe the purification process.In essence,Jesus should really be called "Jesus the Purified One,"as this is a more meaningful description. 
 
+基督一词纯粹是人类需要一个重磅字眼来解释灵魂净化的过程。在这里，人类将它指定给了耶稣这位实体，因为他集中体现了他之所是，即净化。因此，人类把这个词放在被净化者名字，耶稣的后面。其实，它是许多形容净化过程的词汇之一。本质上，耶稣应该被称为“已净化者耶稣”，因为这种表述更有意义。
+
 Spiritualists will additionally comment that the word Christ is also used to describe certain "pure"energies or forces.These are energies that are only available to those incarnate entities that are pure of heart.Of these,there are but a handful currently incarnate on the Earth. 
+
+灵修者会附加说明，基督一词也用于形容一些纯净能量或力量。唯有内心纯净的化身实体才能使用这些能量。地球上当然还是有这些实体的化身，只是为数不多。
 
 ME:So if I was purified to the level that allowed me to be aloof of the desires of the physical,then I would be called Guy Christ. 
 
-我：
+我：所以说，如果我已被净化到可以超脱物质界欲望，我就可以被称为盖基督了。 
 
 SE:Yes,but it doesn't sound as good as Jesus Christ,does it?There is,however,much more to this than meets the eye,for you have asked a question about the Christ consciousness. 
 
-源实体：
+源实体：是的，但听起来没有像耶稣基督那么好听，不是吗？但这背后还有更深的原因，因为你问了一个有关基督意识的问题。
 
 Once you are Christened,you are then left to develop yourself personally to the point where this Christ state is personified within you,i.e.,you are not tempted by any of the demands or desires of the physical world because you are aware that the physical world is but a minor proportion of the greater reality,the universe and all its levels and frequencies.This is not easy as the temptations of the physical are great and go deep within that part of you that is in-carnate,in the meat.You have to look after your flesh body to enable you to work fully within the physical environment at its most basic level. This is where the confusion sets in and the vast majority of you,once christened,become un-christened due to the contamination of the physical world.It is hard to give up the desires of the physical when they are so alluring and so apparently real. 
+
+比方说，一旦你受洗了，你就开始独自发展直到你内在达到基督人格，以及你不再被物质界的任何要求或欲望所诱惑，因为你很清楚物质界只是更大实相，宇宙及所有宇宙和层级频率的一小部分。这并不容易，因为物质界的诱惑很大，且已深入你化身在肉体里的那一部分你当中了。你必须要照顾你的肉体，保证你在最基本的物质环境中能正常工作，这是你们大多数的困惑所在。一旦净化受洗，却因受到物质界的污染而成了非基督的。要放弃物质界的欲望很难，因为它们是如此的具有诱惑力，看起来如此的真实。
 
 #### The Need to Continue Christening/Purification 
 
 **继续受洗/净化的需要**
 
-Your religious leaders just about understand the need for the human body,neigh the soul, to be purified soon after birth to give it a push in the right direction.After that,they have no idea about the need for the christening/the purification to be continued.No one does, as this has been lost throughout the ages.It has now been left to individuals to work out for themselves for so long that it is quite a revelation when someone comes out of the dark and works it out by himself/herself without the religious slant,which,although it means well,is also a lure to control the susceptible mind and constrain it.Being spiritual and in one's power as a result of being Christened is not about conforming to the demands of those who believe they know the answers,for the answer is truly within the self.It might need a little help along the way but it certainly does not need conformity,for there is no conformity in Spirit.There is only creativity borne out of love,wisdom,and power resulting in evolution.
+SE:Your religious leaders just about understand the need for the human body,neigh the soul, to be purified soon after birth to give it a push in the right direction.After that,they have no idea about the need for the christening/the purification to be continued.No one does, as this has been lost throughout the ages.It has now been left to individuals to work out for themselves for so long that it is quite a revelation when someone comes out of the dark and works it out by himself/herself without the religious slant,which,although it means well,is also a lure to control the susceptible mind and constrain it.Being spiritual and in one's power as a result of being Christened is not about conforming to the demands of those who believe they know the answers,for the answer is truly within the self.It might need a little help along the way but it certainly does not need conformity,for there is no conformity in Spirit.There is only creativity borne out of love,wisdom,and power resulting in evolution.
 
-你们的宗教领袖只是了解人体，不应该说灵魂在出生后需要尽快进化，以便向正确的方向推他一把。 那之后他们完全不知道，还有后续洗礼进化的必要。没有人知道，因为他已遗失在时间中，如今长久以来，他只能靠个人自己实现。 以至于当个别人士自力更生，不带宗教倾向的从黑暗中走出来，这就成了一项了不起的启示。 就连这一点，虽然其用意很好，也可能成为对异受影响的心灵产生吸引控制及约束的一种诱惑。 作为进化受洗后的结果，成为灵性的个体，并掌握自己的力量，并不代表要迎合那些自认为有答案者的要求。 因为答案都在自己心中，在路途中，也许需要一点小小的帮助，但绝不需要所谓的迎合。 因为没有一个灵体是完全相同的，有的只是从爱智慧和力量朗中产生的创造并带来进化。 我听说过，受袭者可远离魔鬼，这是无稽之谈，如同我先前所言，没有所谓的魔鬼，只有你内在的诱惑，也就是试图向物质需求和欲望屈服的心魔。 这种说法都属于意在控制大众心灵的虚假传播，在寻找真相的人心中或更大的实相中，这一切根本不存在。 我会这么说，任何相信魔鬼的人，他自己便是魔鬼。因为起源所容纳的环境里根本没有这种性质，这种能量与力量的存在。 实际上，魔鬼二字离开，真正语境只是一个词而已，表示一个人向物质界的欲望。 屈服后，他的个人意识所处的层级。
+源实体：你们的宗教领袖只是了解人体，不应该说灵魂在出生后需要尽快净化，以便向正确的方向推他一把。那之后，他们完全不知道还有后续洗礼净化的必要。没有人知道，因为它已遗失在时间中。如今，长久以来它只能靠个人自己实现，以至于当个别人士自力更生不带宗教倾向地从黑暗中走出来，这就成了一项了不起的启示。就连这一点，虽然其用意很好，也可能成为对异受影响的心灵产生吸引控制及约束的一种诱惑。作为净化受洗后的结果，成为灵性的个体并掌握自己的力量，并不代表要迎合那些自认为有答案者的要求，因为答案都在自己心中。在路途中，也许需要一点小小的帮助，但绝不需要所谓的迎合，因为没有一个灵体是完全相同的，有的只是从爱、智慧和力量中产生的创造并带来进化。 
 
 ME:I have heard that being Christened protects one from the devil. 
 
-我：
+我：我听说过，受洗者可远离魔鬼。
 
 SE:Rubbish,for as I have stated before,there is no devil except that which is the temptation within you,the devil within with its temptations to succumb to the demands and desires of physical existence.All this is part of the perpetration of un-truths to control the minds of the masses.It has no part in the minds of the seekers of the truth or in the greater reality. I will say this.Anyone who believes in the devil is himself/herself the devil,for there is no such character,energy,or force in the environment contained by the Origin.The word "devil"is in reality just a word,taken out of true context,for the resulting level of personal consciousness reached by succumbing to the desires of the physical. 
 
-源实体：
+源实体：这是无稽之谈，如同我先前所言，**没有所谓的魔鬼，只有你内在的诱惑**，也就是试图向物质需求和欲望屈服的心魔。这种说法都属于意在控制大众心灵的虚假传播，在寻找真相的人心中或更大的实相中，这一切根本不存在。我会这么说，任何相信魔鬼的人，他自己便是魔鬼，因为起源所容纳的环境里根本没有这种性质、能量与力量的存在。实际上，魔鬼二字离开真正语境只是一个词而已，表示一个人向物质界的欲望屈服后他的个人意识所处的层级。
 
 #### Level of Consciousness of the Fully Christened/Purified 
 
 **彻底受洗/净化后的意识层次**
 
-But moving back to the Christ consciousness.. 
+SE:But moving back to the Christ consciousness... 
 
-让我们再回到基督意识的话题。当你完全受洗净化后，可以达到的意识层级是你已经可以跟你的高额以及宇宙的其他部分完全连接的层级。 因此，所有的意愿和行动都是纯净的，都源于帮助其他人类在朝向源头或以及起源的道路上达到同一成就层级的意愿。 这是你们所有人一直想要达到的境界，而洗礼只是达到这一完美路途中的一座里程碑。 因为达成，它就是完美愿望及进化愿望的完美解决方案。在基督意识里，你有了解自己身处的宇宙如何运作的能力，你能掌控周遭能量，甚至用这些能量做到通常被形容为奇迹的世界。 这些奇迹之中有许多即使在目前欲望主导的物质环境里也还是可以实现。 虽然一百年前开悟进化的个体在较少物质主义的地区展示过大量这类奇迹。
+源实体：让我们再回到基督意识的话题...
 
 The level of consciousness that can be achieved when fully Christened/pure is such that you have full communication with your higher self and the rest of the universe.All intentions and actions are pure as a result and all are made with the view to help the rest of humanity reach the same level of personal attainment towards the Source,Me,and then the Origin.This is all you ever really wanted and to be christened is but a milestone along the way to achieving this perfection."For achieving it is the perfect solution to the perfect desire,the desire to evolve. Within the Christ consciousness,there is the ability to understand the workings of the universe in your local area and to be able to manipulate the surrounding energies to the point where feats that would be described as miracles can be achieved.A great many of these can still be achieved even in today's "desire-led"physical environment although up to a hundred years ago they were performed in great numbers by enlightened "Christened"individuals in less materialistic parts of the world. 
+
+当你完全受洗净化后可以达到的意识层级，是你已经可以跟你的高我以及宇宙的其他部分完全连接的层级。因此，所有的意愿和行动都是纯净的，都源于帮助其他人类在朝向源头，我，以及起源的道路上达到同一成就层级的意愿。这是你们所有人一直想要达到的境界，而洗礼只是达到这一完美路途中的一座里程碑。因为达成它就是完美愿望及进化愿望的完美解决方案。在基督意识里，你有了解自己身处的宇宙如何运作的能力，你能掌控周遭能量，甚至用这些能量做到通常被形容为奇迹的事迹。这些奇迹之中，有许多即使在目前欲望主导的物质环境里也还是可以实现，虽然一百年前，开悟进化的个体在较少物质主义的地区展示过大量这类奇迹。
 
 #### The Lure of Materialism vs.the Wealth of Christ Consciousness 
 
 **物质主义的诱惑与基督意识的财富**
 
-If there were to be anything that could be described as the devil,it is the massive increase in the need for material wealth.This,in itself,is a real distraction.The need to feel "comfortable"physically is now including the ownership of many things or products that are not really necessary in your everyday life.Moreover,the more you have,the more you want,and the material "hole"to be filled grows bigger.Within this time period,it is then both more difficult and more important to reach the Christened and Christ consciousness state,for the personal goal posts of owning just another product keep getting wider, leading to the condition where you are never satisfied.
+SE:If there were to be anything that could be described as the devil,it is the massive increase in the need for material wealth.This,in itself,is a real distraction.The need to feel "comfortable"physically is now including the ownership of many things or products that are not really necessary in your everyday life.Moreover,the more you have,the more you want,and the material "hole"to be filled grows bigger.Within this time period,it is then both more difficult and more important to reach the Christened and Christ consciousness state,for the personal goal posts of owning just another product keep getting wider, leading to the condition where you are never satisfied.
 
-如果还有什么可以被形容为魔鬼的话，那就是对物质财富追求的剧增，这确实是一个让人分心的事。 人们追求物质上的舒适感，使今你包含拥有许多日常生活中不必要的东西或产品。 不但如此，你拥有的越多，你就想要的更多，而且需要填补这个物质空洞也越来越大。 在这段期间里，达到净化和基督意识的境界更艰难也更重要。 因为个体想要不断拥有并一样，产品的球门会越来越宽，使得你永远不会感到满足。 我这么说好了，如果你们每个人只用百分之二的生命来投入进化工作，洞察基督意识是什么？ 出于基督意识的纯净思想，纯净生命，在纯净认知中是什么样的感觉，还有你能实现什么样的结果，你瞬间就会愿意放弃物质上的财富。 如今你根本不需要它，你会拥有宇宙中的一切能量，随你取用，以及随之而来的更多更多做梦都想不到的财富。 所以物质上的财富是不重要的，或者说非物质的没错，他什么都不是物质财富不仅是一种短暂的便利，也可能是灵性成长的巨大干扰。 他彻底吸引了你们千年来一直都是如此，但你们真的并不需要它。 当你与宇宙以及他的能量调谐时，你就能够创造一切你需要的支持你的事物，包括用以交换物质所需的任何一种金钱。 你是说我们可以创造金钱是的，但更重要的是你们可以创造食物水衣服和住所，你们甚至可以创造具有药物治疗功效的能量。 那么如果生活这么容易，你可以创造任何所需。既然如此，人们怎么还会被物质所吸引？ 在我看来，物质界的事情比灵性上的工作更难。我经常会问我自己，你这一模一样的问题。 现今的你们怎么全抓不到重点。但我认识到解决这个问题是每个人自己的功课，这也就是你们化身为人的原因。
+源实体：如果还有什么可以被形容为魔鬼的话，那就是对物质财富追求的剧增，这确实是一个让人分心的事。人们追求物质上的舒适感，使今你包含拥有许多日常生活中不必要的东西或产品。不但如此，你拥有的越多，你就想要的更多，而且需要填补这个物质空洞也越来越大。在这段期间里，达到净化和基督意识的境界更艰难也更重要。因为个体想要不断拥有，另一样产品的球门会越来越宽，使得你永远不会感到满足。 
 
 Let Me tell you this.
 
+我这么说好了。
+
 Your entire life would change if you would all take just 2 of your lives to dedicate to Christening/purification and insight into what the Christ consciousness is and how it feels to be in the Christ Consciousness of purity of thought,life,and understanding.Oh, the things you could achieve as a result!You would willingly give up material wealth in an instant,for you would not need it.You would have much,much more wealth than you could ever dream of,the wealth that comes with having all the energies within the universe at your command. 
+
+如果你们每个人只用2%的生命来投入净化工作，洞察基督意识是什么，出于基督意识的纯净思想、纯净生命在纯净认知中是什么样的感觉，还有你能实现什么样的结果，你瞬间就会愿意放弃物质上的财富，因为你根本不需要它。你会拥有宇宙中的一切能量随你取用，以及随之而来的更多更多做梦都想不到的财富。 
 
 ME:So material wealth is...immaterial? 
 
-我：
+我：所以物质上的财富是...不重要的，或者说非物质的？
 
 SE:Yes.It means nothing.Material wealth is not only a passing convenience but a massive distraction to spiritual growth.It seduces you entirely and has done so for millennia. You really don't need it in the slightest.When you are in tune with the universe and its energies,you are able to create everything that you need to support you,including any currency that is needed to barter for physical requirements. 
 
-源实体：
+源实体：没错。它什么都不是。物质财富不仅是一种短暂的便利，也可能是灵性成长的巨大干扰。它彻底吸引了你们，千年来一直都是如此，但你们真的并不需要它。当你与宇宙以及它的能量调谐时，你就能够创造一切你需要的支持你的事物，包括用以交换物质所需的任何一种金钱。 
 
 ME:Are you saying that we can create money? 
 
-我：
+我：你是说我们可以创造金钱？
 
 SE:Yes,but more importantly you can create food,water,clothing,and shelter.You can even create energies that provide the same effects as medicine(healing). 
 
-源实体：
+源实体：是的，但更重要的是你们可以创造食物、水、衣服和住所，你们甚至可以创造具有药物治疗功效的能量。 
 
 ME:So if it's this easy to live,i.e.,you can create everything that you want,then why do people get seduced by the physicality of it all?As it seems to me,it is much harder to do the physical than it is to work with the spiritual.
 
-我：
+我：那么如果生活这么容易，你可以创造任何所需。既然如此，人们怎么还会被物质所吸引？在我看来，物质界的事情比灵性上的工作更难。
 
 SE:I ask Myself the very same question on a regular basis.Why are all of you missing the point these days?But I recognize that it is up to the individual to work this out for himself/herself,and this is what your incarnate life is all about. 
 
-源实体：
+源实体：我经常会问我自己这一模一样的问题。现今的你们怎么全抓不到重点？但我认识到解决这个问题是每个人自己的功课，这也就是你们化身为人的原因。
 
 #### The Crux of Christ Consciousness 
 
@@ -11828,17 +11858,19 @@ SE:I ask Myself the very same question on a regular basis.Why are all of you mis
 
 ME:So getting back to the crux of the Christ consciousness,what is the whole point of it? 
 
-我：让我们回到基督意识的关键这个话题，它的全部意义在哪里？ 回归源头，我接着回到起源，我想我必须说的更清楚一点。 当你们回到源头或起源时，你们不会失去自己的个体性，这不是赋予你们个体独特性的要点。 我之前说过很多次，重点在于让你们去体验许多事并回馈给起源。 最后的结果是，个体进化到不需要再返回更低层级。一旦进化到这个层级代表已经进化到与神合而为一，也可以说与神同等。 虽然你们不可能真的与神平等，因为神是起源，而你们是我创造出来的是神的一小部分，要达到这个境界，就要去过简单的生活，不是到堕落的程度，只需要生活舒适。 只要有一点多余的时间就可以去做点什么来利益他人，而且不求回报，这是我能给你们的最好的建议。 因为许多人把做义工当做一种手段，通常有钱人为了在社会上赢得更高的地位，赢得群众的赞赏或更高的赞誉，会去帮助弱势群体。 然而他们真正想要的是那些勋章，比如歧视勋章，借此巩固自己的地位，而不是因为他们真的想要帮助有需要的人，要帮助他人或在最高层级做这些善举，一个人必须要带着真爱去行事，带着爱去帮助，表示你为某人做某事，是因为你真的想做，不是因为这么做，对你有好处，而是因为你觉得这个人或这些人真的能从你的形式中获益，这才是带给你快乐的东西。 当你在基督意识中做事时，每一件事都在爱中进行的，这是你需要记住的最重要的一件事。 因为只要心中有恶意，或为了一己之力，就无法成就任何事一些在基督意识这种无比愉悦的意识状态中，行事的人是不会这么做的的，为什么呢？
+我：让我们回到基督意识的关键，这个话题它的全部意义在哪里？
 
 SE:To return to the Source,Me,and then the Origin.I must make this one point plain though.Once you return to the Source or the Origin,you do not lose the basis of who you are.This is not the point of giving you individuality.As I have stated many times, the point is for you to experience many things and feed this back to the Origin.The end result is evolution of the individual to the point of having no need to return to the lower levels.Evolution at this level is to be evolved to the point of being one with God, so to speak,to the point of being equal.Although you can never really be equal,as God is the Origin and you are a small part of God through being created by Me. 
 
-源实体：
+源实体：回归源头，我，接着回到起源。我想我必须说的更清楚一点，当你们回到源头或起源时，你们不会失去自己的个体性。这不是赋予你们个体独特性的要点。我之前说过很多次，重点在于让你们去体验许多事并回馈给起源。最后的结果是，个体进化到不需要再返回更低层级。一旦进化到这个层级，代表已经进化到与神合而为一，也可以说与神同等。虽然你们不可能真的与神平等，因为神是起源，而你们是我创造出来的，是神的一小部分。
 
 The way to get there is to live the life of simplicity,not to the point of depravity but to the point where you are comfortable in your circumstance and any additional time that you have can be used for the betterment of others without benefit to self.This is the most important piece of advice I can give you,for there are many who use the working in the volunteer sector route as a means to an end.This is usually done by people of wealth to gain higher standing in society and gain public or higher acclaim by helping people who are less privileged than themselves.However,all they really want are the medals, such as knighthoods to further their status,not because they feel the real need to help others in need.To work for the benefit of others/to volunteer at the highest level must be done with the feeling of true love behind it.To help with love as the basis means that you do something for someone because you want to do it,not because you think it will do you some good but because you feel that the individual or individuals involved will really benefit from your actions,and that is what brings you pleasure.Everything is done in love when you are working within the Christ Consciousness.This is the most important thing to remember,for nothing can be done with malice or with the benefit of the individual in mind,for this is not the way of those who operate in this euphoric state of consciousness. 
 
+要达到这个境界，就要去过简单的生活，不是到堕落的程度，只需要生活舒适。只要有一点多余的时间，就可以去做点什么来利益他人，而且不求回报。这是我能给你们的最好的建议。 因为许多人把做义工当做一种手段。通常有钱人为了在社会上赢得更高的地位、赢得群众的赞赏或更高的赞誉，会去帮助弱势群体。然而他们真正想要的是那些勋章，比如骑士勋章，借此巩固自己的地位，而不是因为他们真的想要帮助有需要的人。要帮助他人或在最高层级做这些善举，一个人必须要带着真爱去行事，带着爱去帮助表示你为某人做某事是因为你真的想做，不是因为这么做对你有好处，而是因为你觉得这个人或这些人真的能从你的行事中获益，这才是带给你快乐的东西。 当你在基督意识中做事时，每一件事都是在爱中进行的。这是你需要记住的最重要的一件事，因为只要心中有恶意或为了一己之利，就无法成就任何事。那些在基督意识这种无比愉悦的意识状态中行事的人是不会这么做的。
+
 ME:Why is this? 
 
-我：
+我：为什么呢？
 
 #### Being at One with the Universe and All Within It 
 
@@ -11846,17 +11878,19 @@ ME:Why is this?
 
 SE:Because when you are in the Christ consciousness,you are at one with the universe and all that exists with it.You do,of course,have a greater focus on the here and now of the Earth plane and will gladly operate within the confines of its environment.Even if you are one with the Christ consciousness,this you cannot avoid,for this is why you are here now on this planet and in this dimension and frequency-to work with the planet as it is now and those inhabitants who need your help to progress themselves, or just need your help.
 
-源实体：因为当你在基督意识中，你与宇宙及其一切存在一体共存。 当然你们会更专注于此时，此地所在的地球层面，也乐于遵守地球环境的限制。 即使你与基督意识本为一体，这也是你无法避免的。因为这就是你当下身在这个星球这个维度与频率中的目的，给予当前的这个星球一起工作，与地球上需要你的帮助。 从而让自己进步，或只是需要你帮助的居民一起工作，临在于这个意识层集中，这是一件了不起的事情，哪怕你只体验他一分钟的时间，你也能明白他在说什作，事实上你会愿意尽一切力量做任何事来回到这个存在层级。 因为这就是你们投身到物质界样体验的想象一下，你可以跟地球上所有的动物沟通，分享他们的经验，他们的生活，他们的快乐想象，你可以控制自己的身体，让自己停止衰老，甚至可以恢复青春，能疗愈自己和他人的病痛，任何现代医学无能为力的疾病都能治好想象。 你不需演练地球上的金属和矿物，就可以直接运用想象。 你只需要命令他们离开目前位置变成你想要的状态，想象，你能控制土风水活等的基本元素。 而且可以改变天气，让天气有利于你的作物生长想象。 你可以把粮食从最初始的基本要素变成需要的食物，而不需要经过烹煮想象，你可以操控周遭的时空结构，连汽车或火车飞机船只都不需要就能飞跃到地球的任何一个角落，处于基督意识中就能做到这些。 所以为何你们所有人都甘愿接受一个低等的生存模式，我也不知道为什么呢？ 因为你们为了顺应物质法式，对于更大的石像视而不见，通向基督意识的道路，需要一定程度的投入。 可能需要长时间辛勤的付出，而只有微薄的回报。因为你们期待的是物质上的回报，但那并不是隧道的终点。 就像我解释过的，在隧道终点有更多远远多过物质回报的奖励。 因为你们将受邀如兄弟般雨神，或者说起源，平起平坐
+源实体：因为当你在基督意识中，你与宇宙及其一切存在一体共存。当然，你们会更专注于此时此地所在的地球层面，也乐于遵守地球环境的限制。即使你与基督意识本为一体，这也是你无法避免的，因为这就是你当下身在这个星球、这个维度与频率中的目的，即与当前的这个星球一起工作，与地球上需要你的帮助从而让自己进步，或只是需要你帮助的居民一起工作。
 
 To be with this level of consciousness is something to behold,truly,for if you could only experience it for a minute,you would understand what I am talking about.In fact,you would do everything in your power to return to this level of existence,for it is what you are all born to experience in the physical.Imagine being able to be in contact with all the animals on the planet,to share with them their experiences,their lives,their joys. Imagine being in control of your body to the point where you do not age,where you can actually rejuvenate yourself,heal yourself and others of any ailment,no matter how difficult or impossible it is to cure with modern medicine.Imagine being able to work the metals and minerals that are found in the earth without the need to smelt them. Imagine just asking them to depart from their current location and to become what you want them to become.Imagine being able to work with and control the basic elements of earth,wind,water,and fire and being able to change the weather to that which is needed to help your crops.Imagine being able to create the food that you need from out of their very basic elements without the need to cook and bake.Imagine being able to manipulate the very space time fabric around you to the point where you don't need cars or trains or planes or boats to traverse the Earth.This is what it is like to be in the Christ consciousness.So why do all of you accept a lesser existence? 
 
+临在于这个意识层级中这是一件了不起的事，哪怕你只体验它一分钟的时间，你也能明白他在说什么。事实上，你会愿意尽一切力量做任何事来回到这个存在层级，因为这就是你们投身到物质界要体验的。想象一下，你可以跟地球上所有的动物沟通，分享它们的经验，它们的生活，它们的快乐。想象你可以控制自己的身体，让自己停止衰老，甚至可以恢复青春，能疗愈自己和他人的病痛，任何现代医学无能为力的疾病都能治好。想象你不需冶炼地球上的金属和矿物就可以直接运用。想象你只需要命令它们离开目前位置变成你想要的状态。想象你能控制土、风、水、火等基本元素，而且可以改变天气，让天气有利于你的作物生长。想象你可以把粮食从最初始的基本要素变成需要的食物，而不需要经过烹煮。想象你可以操控周遭的时空结构，连汽车或火车、飞机、船只都不需要就能飞跃到地球的任何一个角落。处于基督意识中就能做到这些。所以，为何你们所有人都甘愿接受一个低等的生存模式？
+
 ME:I don't know.Why do we? 
 
-我：
+我：我也不知道。为什么呢？
 
 SE:Because you have all been blinded to the greater reality by the need to conform to the rules of the physical.The way to the Christ consciousness requires some level of dedication to the point where you can work long and hard for little reward,for you expect physical reward and this is not what's at the end of the tunnel.As I have just explained,what is at the end of the tunnel is much,much more than physical reward, for you are invited to sit at the table of God (the Origin)as a brother.
 
-源实体：
+源实体：因为你们为了顺应物质法则，对于更大的实相视而不见。通向基督意识的道路需要一定程度的投入，可能需要长时间辛勤的付出，而只有微薄的回报。因为你们期待的是物质上的回报，但那并不是隧道的终点。就像我解释过的，在隧道终点有更多远远多过物质回报的奖励。因为你们将受邀如兄弟般与神（起源）平起平坐。
 
 ### Chapter 39 - To Be of Service 
 
@@ -11864,57 +11898,79 @@ SE:Because you have all been blinded to the greater reality by the need to confo
 
 SE:Let Me talk to you about being of service,for there is a lot of mystique and reverse snobbery about this statement.To be of service does not mean that you have to give up your whole life to be something for other people and work for nothing.It is much more than this simple statement.To be of service means to work for the betterment and evolution of the human race if and when you can in an acceptable way. 
 
-源实体：我要告诉你一些服务他人的事情。 因为关于这一点有太多神秘且反实理性的误解服务。 他人并不表示，你必须要放弃你的整个生命而为别人服务或是无偿的工作事实，要比这种说法来的深层为他人服务表示用你可以接受的情况和方式，为了人类的改善和进化而工作。 你看你不能把好意强加于人，他们不想要那种方式的人们倾向于在需要的时候，从可以信任的人身上得到帮助。 这并不一定代表他们想要的是开悟，更有可能的是他们寻求的只是对于在特定时间点的一个无法解决的特定问题的帮助。 在对方请求的时候，你提供帮助或同意去帮助，这是帮助他人的最好方式。 他们需要帮助的事情也许是很简单的，比如修理书桌上的一个台灯插座或帮孩子的自行车补车胎帮忙装饰，甚至是帮老奶奶提购物袋，也是一种帮助。 另一方面，你可能会发现有些人需要灵性上的帮助。他们正在寻求指引那些他们的朋友圈子同事或宗教劝导，都无法给予的协助。 这种情况下，他们开始质疑所见的周遭限予他们所寻求的答案，宗教无法给予。 因为宗教本来就是设计让人远离着答案的。因为所有的宗教都是设计来让少数渴望权利的人，控制大众的为他人服务，就是要当我们需要你时，随时为我和起源服务。 而且你知道我们什么时候需要你，因为你会产生一种欲望，他要做点什么帮助他人因有在你准备好，而且愿意提供帮助。 而且不会像江湖骗子一样，像真正需要帮助的人推销虚假希望的时候，我们才会向你发出请求服务。 他人不是说让你去寻找服务的机会。你们毕竟给过自己的生活。他真正的意思是，你应该在助人机会出现时把握住，同时在过程中不追求自我满足，你只要尽力去做即可。 因为这就是宇宙的自然方式。如果那些心存感激的人，希望用某种方式来回报你，那就顺其自然。 同样的，如果你帮助的一些人无法回报，你，那就不要要求回报一切，顺势而为。 即便当下没有获得任何回报，终有一天你还是会得到的，为他人服务也表示你应该去帮助那些你不太喜欢的人。 当你向他们提供帮助的时候，不应该是出于有服务他人的需要，而是应该记得他们是你的人类兄弟同胞也是化身身来。 地球上进化的。在对方需要的时候，帮助一个你不喜欢的人是一件美好的事。 人们本能的会知道，你并不喜欢他们，不仅仅因为你超越了自己的偏见而提升频率。 同时你也帮助他们提升，因为他们会以不同的眼光看待你，你的善意。 一个他们原本不指望的善意所带来的结果是对曾经以为的敌人，他们也将会有不同的感觉。 虽然初期只是在潜意识层面，所以你可以看到在机会到来时去帮助他们。 无论从当下还是长远，看来你都同时帮助了自己和别人。当偏见，消除帮助每个人，而不仅仅是你的朋友，这是每个人都是赢家，没有输家。 当耶稣说，狮子与羔羊同卧，他指的是曾经为敌或彼此不喜欢的人们，终有一天会共同合作，因为他们不再畏惧，对方是的，狮子也会害怕羔羊，就像羔羊羊会害怕狮子一样，羔羊可以有狮子所没有的力量。 他们有保护羊喂羊照顾羊的人类，而人是很有力量的。 虽然狮子本身强而有力，他对羔羊还是有几分戒心。因为羔羊虽然脆弱，温顺平和，且被人类宰杀作为食物，但羔羊仍然与人类共识，所以狮子认为脆弱温顺的羔羊在某些方面一定比他强大。 对于强大的人也是如此，那些身形壮硕或地位较高的人也会畏惧。 那些不如他们强大的人，因为后者数量众多，敌拳难敌。四手通过打破戒备，让强者与弱者共识，敌对双方互相合作服务他人就会真实有益，能让双方在合作中一起前进。 因此，服务他人对该实体来说，有两个不三个契机，一帮助需要的人。 二让助人者与被助者同时在灵性与进化上前进。三消除成见与猜疑，让同胞挚爱更加亲密。 这三个加起来，便能让人们在信任和谐与爱之中共同合作，使整个人类迈向更高的频率。 最终通过最开始少数人服务于他人的行为，最终能影响和帮助所有人。 所以服务他人其实是为了让人类回到他们所属的地方，也就是回到更高的频率里。 简而言之，是的，你帮助同胞以某种方式提升他们自己而做的任何事都会帮助整个人类回到正轨，但别忘记，这不只是帮助了人类，也帮助了由你们生存于其环境中的地球，你的意思是地球也会提升频率层级吗？ 那当然地球之所以会在目前的层级是因为人类的活动沉迷物质界导致你们口中的地球及周边频率整个下滑，所以他是和你们一起被拉了下去，所以也是一个生命体。 地球当然然是一个生命体，只是它目前处于最低的振动等级，它的活力也完全无法施展，哪怕它已经上移了一到两个等级。 所以我们在帮助别人增进他们灵性的同时，也可以帮助地球绝对可以。 不过，服务并非只是服务于人类，可以是服务于地球或存在于地球上或之中的生命体，这意味着是出于爱去从事生态方面的工作，而不是出于政治宣言。 因为那会抵消这份工作的初衷，会产生的高频能量，单纯进行生态行动，也是一种回报，颇丰的服务方式，不但人类受益。 所有在地球这个生物维度圈上面，里面周围的人类也跟着受益。 你们之中有人已经直接进行了能量方面的工作，所充地球也处于低频而损失的能量，而且地球也有了开始苏醒的回应。 所以你们才会历经巨大的气候变迁，这些是由于能量模式的变化，导致处于灵性与物质边界上的能量元素产生反应，风是其中之一，也是最为明显的元素。 你可能无法相信，如果地球可以扬升到它原本应有的等级。 地球上的生活会是多么难以置信的不同。它会提升几个等级，就可以让荒漠再度变得富饶，气候，也会跟着改变，以营造滋养土地的最佳环境，从而创造出最佳化的降雨量温度湿度和原量。 当地球某地需要防护时，就能随时屏蔽紫外线的辐射地球将会再次鲜活起来，而不再处于停滞状态。 它会拥抱它的居民，你们也能认清它的价值，而珍惜它。你们会意识到自己是他的一份子，以及你们集体为这个最神圣的生命体所做的一切。 再者，所有，因地铁而休眠的生命将会再度苏醒，并开始去照顾地球的需氧，让它成彻底恢复健康。 地球会因此而提升能量与频率，并拉动人类一起提升。 随着你们大家都提高频率，你们会从沉睡中再度醒来，开始使用你们真正的能力。 因为你们会认识到自己的神性以及化身为人的意义所在。接着你们会看清并理解地球上其他生命体的意义。 比如大地上的动物空中的鸟儿水中的鱼，他们存在与地球皆有其原因，他们都是生物灵性圈的一份子，都有各自的工作，你会很清楚这些再次拥有与他们沟通的能力。 然后为了整体利益，而与他们在真正的和谐中一起工作。如此一来，人类和地球表面里面及周围的伙伴们将共同扬升的更高，越来越接近起源，想象一个全然和谐的世界，其中万物各司其职也都落在其中。 想象一个万物互助的世界，他们所做的一切都是为了帮助彼此完美的完成工作，不会互相竞争，而是活在看到别人的进步所带来的喜讯和快乐中观想这样一个世界，你在其中因真正服务他人而帮助他人成就伟大。 想象这样一个世界，你可以看到帮助到触摸到体验到和享受到世界上所有生命体的内在和周围的能量。 在这个世界中，当你与这些生命体在爱与和谐中共事时，能体验到他们的体验。 可以看到他们如何回应与成长想象这样一个世界，你能看到和感受到这些表现，世界是如何回应？ 你怀着爱照顾他的需要，帮助他成长与进化而投入的工作与时间想象所带来的纯粹的无条件的爱，代表着贯穿整个宇宙的爱造物主的爱，他永远欣喜于其受造物所做的努力。 无论他们是什么，可以看到造物主永不批判，永不生气，一直拥你在爱中想象这样一个世界，你做回真正的自己，你是更大实体起源，那无所不能无所不知无所不在的一部分。 为了达到这个层级，而服务他人是一项高贵的工作，切实与你们目前的存在相比，何的回报是无限的，有这样一项奖赏，何乐而不为何不服务于更高的善与所有人的利益。 既然对更高的善或者神更有益。
+源实体：我要告诉你一些服务他人的事情，因为关于这一点有太多神秘且反势利性的误解。服务他人并不表示，你必须要放弃你的整个生命而为别人服务，或是无偿工作。事实要比这种说法来的深层，为他人服务表示用你可以接受的情况和方式，为了人类的改善和进化而工作。
 
 You see,you cannot force good will on people;they just don't want it that way.People tend to want help when they want it and from people they can trust to help them. This does not necessarily mean that they want enlightenment.More than likely,they require help with sorting out a particular problem that they find insurmountable at a particular point in time.Offering help or agreeing to help if asked is,therefore,the best way forward.The type of help they need may even be benign,like fixing a plug on a desk top lamp or a puncture on a child's push bike,helping with decorating,and,yes, even getting the shopping for dear old granny.On the other hand,you may find that some people ask for help spiritually and are looking for guidance that their particular group of friends,associates,or religious persuasion cannot give them.In this instance, they are questioning the fabric of the reality that they see around themselves and asking for answers to questions that religion fails to answer because it cannot answer questions that the religion itself is designed to keep you away from.For all religion is designed to control the masses by the few who want power over others. 
 
+你看，你不能把好意强加于人，他们不想要那种方式的。人们倾向于在需要的时候，从可以信任的人身上得到帮助。这并不一定代表他们想要的是开悟，更有可能的是，他们寻求的只是对于在特定时间点的一个无法解决的特定问题的帮助。**在对方请求的时候**，你提供帮助或同意去帮助，这是帮助他人的最好方式。他们需要帮助的事情也许是很简单的，比如修理书桌上的一个台灯插座，或帮孩子的自行车补车胎，帮忙装饰，甚至是帮老奶奶提购物袋也是一种帮助。另一方面，你可能会发现有些人需要灵性上的帮助，他们正在寻求指引，那些他们的朋友圈子、同事或宗教劝导都无法给予的协助。这种情况下，他们开始质疑所见的周遭现实。他们所寻求的答案宗教无法给予，因为宗教本来就是设计让人远离这答案的，因为所有的宗教都是设计来让少数渴望权利的人控制大众的。
+
 Being of service is to be available to Me and the Origin when We need you,and you know when We need you because you will get drawn into the desire to do a certain thing that can help others.You will only be asked if you are ready and willing to help and are not taken in by the multitude of charlatans that are giving false hope to those who need real help. 
+
+为他人服务，就是要当我们需要你时，随时为我和起源服务。而且你知道我们什么时候需要你，因为你会产生一种欲望，想要做点什么帮助他人。只有在你准备好而且愿意提供帮助，而且不会像江湖骗子一样向真正需要帮助的人推销虚假希望的时候，我们才会向你发出请求。
 
 Being of service does not mean that you hunt for service opportunities,for you have to live your own life.It does mean that you should take the opportunities to help others as they present themselves whilst asking for no self-gratification in the process.Be content with doing what you can to the best of your ability,for this is the natural way of the universe.If those who are grateful wish to reward you in some way,then so be it.Equally, if there are those that you help who can't reward you,then don't ask for a reward.Go with the flow,for the rewards are there even if none are received at the point in time of giving. 
 
+为他人服务，不是说让你去寻找服务的机会，你们毕竟得过自己的生活。它真正的意思是，你应该在助人机会出现时把握住，同时在过程中不追求自我满足，你只要尽力去做即可，因为这就是宇宙的自然方式。如果那些心存感激的人希望用某种方式来回报你，那就顺其自然。同样的，如果你帮助的一些人无法回报你，那就不要要求回报。一切顺势而为，即便当下没有获得任何回报，终有一天你还是会得到的。
+
 Being of service also means that you should help people even though you do not particularly like them.You should not help them out of the NEED to be of service,but you should remember that they are fellow brothers of the human race and are incarnate to evolve as well.Showing kindness to someone that you don't like by helping him/her out in his/her hour of need (and people instinctively know that you do not like them) is a wonderful thing to do.Not only do you help yourselves rise in the frequencies by overcoming your own prejudices,but you also help them to rise,for they will see you in a different light.As a result of your kindness(a kindness that they did not expect),they will feel differently about those they think are their enemies,albeit on a subconscious level at first.So you can see that by being of service when the opportunity truly arises for helping others,you can help both yourselves and them in the short and the longer term.Everyone is a winner,and no one loses when prejudice is removed and help is given to all,not just your friends.When Jesus said,the Lion will lie down with the lamb,he meant that people who were once enemies or had a dislike for each other will work together because they no longer have a fear of each other. 
+
+为他人服务，也表示你应该去帮助那些你不太喜欢的人。当你向他们提供帮助的时候，不应该是出于有服务他人的需要，而是应该记得他们是你的人类兄弟同胞，也是化身来地球上进化的。在对方需要的时候，帮助一个你不喜欢的人是一件美好的事。人们本能地会知道，你并不喜欢他们，不仅仅因为你超越了自己的偏见而提升频率，同时你也帮助他们提升，因为他们会以不同的眼光看待你。你的善意，一个他们原本不指望的善意，所带来的结果是对曾经以为的敌人，他们也将会有不同的感觉，虽然初期只是在潜意识层面。所以你可以看到，在机会到来时去帮助他人，无论从当下还是长远看来，你都同时帮助了自己和别人。当偏见消除，帮助每个人而不仅仅是你的朋友，这时每个人都是赢家，没有输家。当耶稣说，狮子与羔羊同卧，他指的是曾经为敌或彼此不喜欢的人们终有一天会共同合作，因为他们不再畏惧对方。
 
 Oh yes,the lion can be fearful of the lamb,as well as the lamb can be fearful of the lion. The lamb can have power that the lion does not have:man to protect it,to feed it,to look after it,and man is powerful.Although the lion is powerful in its own right,it is suspicious of the lamb for although it is weak,meek,mild,and is slaughtered by man for food,the lamb still works with man.So the lion thinks that the meek and mild lamb must be powerful in some way that he is not.This is the same for powerful people.Those that are powerful in stature or position fear those not so strong as them,for they are many and they are few.Being of service can truly help by crossing the boundaries of suspicion, making the strong work with the weak,the enemy work with the enemy,and for them both to move forward together by working together.
 
+是的，狮子也会害怕羔羊，就像羔羊羊会害怕狮子一样。羔羊可以有狮子所没有的力量，他们有保护羊、喂羊、照顾羊的人类，而人是很有力量的。虽然狮子本身强而有力，它对羔羊还是有几分戒心。因为羔羊虽然脆弱、温顺、平和且被人类宰杀作为食物，但羔羊仍然与人类共事，所以狮子认为脆弱温顺的羔羊在某些方面一定比他强大。对于强大的人也是如此，那些身形壮硕或地位较高的人也会畏惧那些不如他们强大的人，因为后者数量众多，双拳难敌四手。通过打破戒备，让强者与弱者共事，敌对双方互相合作，服务他人就会真实有益，能让双方在合作中一起前进。 
+
 Being of service is,therefore,a two,no three-fold opportunity for the entity:(1)to help others in need;(2)to allow both the helper and the helped to progress spiritually and evolutionarily;and (3)for the removal of prejudice and suspicion which promotes kinship and love of fellow man.These three together result in the increase in people working together in trust,harmony,and love,which results in the movement of the whole of humanity upwards through the frequencies.So in the end,a few people being of service helps everyone. 
+
+因此，服务他人对该实体来说有两个，不，三个契机：(1)、帮助需要的人；(2)、让助人者与被助者同时在灵性与进化上前进；(3)、消除成见与猜疑，让同胞挚爱更加亲密。这三个加起来，便能让人们在信任、和谐与爱之中共同合作，使整个人类迈向更高的频率。通过最开始少数人服务于他人的行为，最终能影响和帮助所有人。 
 
 ME:So being of service is really all about working to get humanity back where it belongs,in the higher frequencies. 
 
+我：所以，服务他人其实是为了让人类回到他们所属的地方，也就是回到更高的频率里。 
+
 SE:In a nutshell,yes.Anything that you do to help your fellow man elevate himself in some way helps to bring the whole of humanity back on course.But don't forget that this is not just humanity that this helps,for the planet whose environment that you exist within also benefits. 
 
-源实体：
+源实体：简而言之，是的。你帮助同胞以某种方式提升他们自己而做的任何事都会帮助整个人类回到正轨。但别忘记，这不只是帮助了人类，也帮助了你们生存于其环境中的地球。
 
-ME:How do you mean?Does it also rise up through the frequencies? 
+ME:How do you mean? Does it also rise up through the frequencies? 
 
-我：
+我：你的意思是？地球也会提升频率层级吗？
 
 SE:Yes,of course.The only reason why it is at its current level is because of human activity. The fascination with the physical caused a general reduction in the frequencies in and around the space/dimensions that the entity called by you "The Earth"exists within; therefore,it was pulled down with you. 
 
-源实体：
+源实体：那当然。地球之所以会在目前的层级，是因为人类的活动。沉迷物质界导致你们口中的地球及周边频率整个下滑，所以它是和你们一起被拉了下去。
 
 ME:The Earth is a living entity as well?
 
-我：
+我：地球也是一个生命体？
 
 SE:Of course it is.It is just at its lowest vibratory level at the moment-nowhere nearly as vibrant as it could be,even if it was shifted up one or two levels. 
 
-源实体：
+源实体：地球当然然是一个生命体。只是它目前处于最低的振动等级，它的活力也完全无法施展，哪怕它已经上移了一到两个等级。
 
 ME:So we can be of service to the Earth as well by helping others to better themselves spiritually. 
 
-我：
+我：所以我们在帮助别人增进他们灵性的同时，也可以帮助地球。
 
 SE:Most certainly.Being of service,however,does not just mean being of service to the human entity.It can be just as relevant to be of service to the Earth and the other entities that exist on or in the bio-dimensional sphere.This means that working on ecological work for the love of the work,not for political statement because that nullifies the higher frequency energies resulting from the reason for doing the work. Simply completing ecological actions can also be a very rewarding way of being of service,a way that benefits not only humankind but all of "spiritkind"on,in,and around the Earth's bio-dimensional sphere.Some of you are already working directly with energies to supplement the Earth's loss of energy due to being at a lower frequency,and it is starting to respond by waking up,hence the dramatic weather changes you have been experiencing.These are due to shifts in the energy patterns that result in elemental responses from energies that are on the border of the spiritual and the physical.Wind is one of those and is the most noticeable. 
 
-源实体：
+源实体：绝对可以。不过，服务并非只是服务于人类，可以是服务于地球或存在于地球上或之中的生命体。这意味着是出于爱去从事生态方面的工作，而不是出于政治宣言，因为那会抵消这份工作的初衷会产生的高频能量。单纯进行生态行动，也是一种回报颇丰的服务方式，不但人类受益，所有在地球这个生物维度圈上面、里面、周围的“灵类”也跟着受益。你们之中有人已经直接进行了能量方面的工作，补充地球因处于低频而损失的能量，而且地球也有了开始苏醒的回应，所以你们才会历经巨大的气候变迁。这些是由于能量模式的变化，导致处于灵性与物质边界上的能量元素产生反应。风是其中之一，也是最为明显的元素。
 
 You cannot believe how fantastically different life on Earth would be if it were to be lifted back to the level it is supposed to exist on.Just a couple of levels would mean that the areas that are currently desert would start to become fertile again.The weather would change to reflect the most ideal conditions to nourish the land and would create optimal levels of precipitation,temperature,humidity,and cloud coverage to make the most of and then shield the Earth when and where it needed shielding from ultraviolet radiation. 
 
+你可能无法相信，如果地球可以扬升到它原本应有的等级，地球上的生活会是多么难以置信的不同。只要提升几个等级，就可以让荒漠再度变得富饶，气候也会跟着改变，以营造滋养土地的最佳环境，从而创造出最佳化的降雨量、温度、湿度和云量，当地球某地需要防护时，就能随时屏蔽紫外线的辐射。
+
 The Earth would start to live again rather than being inert.It would cherish its inhabitants,and you would recognize the Earth for what it is and cherish it as well.You would realize what you are part of and what you collectively have done to this most divine of beings.Furthermore,beings of all kinds that are currently hibernating because of the low frequencies would re-awaken and start to work with and attend to the needs of the Earth to nurse it back to full health.In doing so,the Earth would increase in energy and frequency and pull up humanity with it.As all of you move up through the frequencies,you would all start to re-awaken from your slumbers and start to use your true abilities as you recognized your own divinity and the reasons for incarnate life.You would then start to see and understand the real reasons for the other entities on the Earth,such as the animals on the land,the birds in the air,and the fish in the sea.They all have reasons for being here,they are all part of the bio-spiritual sphere,and they all have jobs to do.You would know these,regain your ability to communicate with them, and in turn work in true harmony with them for the good of the whole.In doing so,the totality of humanity and its companions on,in,and around this larger entity will rise even higher,closer to the Origin. 
+
+地球将会再次鲜活起来，而不再处于停滞状态。它会拥抱它的居民，你们也能认清它的价值而珍惜它。你们会意识到自己是它的一份子，以及你们集体为这个最神圣的生命体所做的一切。再者，所有因低频而休眠的生命将会再度苏醒，并开始去照顾地球的需要，让它成彻底恢复健康。地球会因此而提升能量与频率，并拉动人类一起提升。随着你们大家都提高频率，你们会从沉睡中再度醒来，开始使用你们真正的能力。因为你们会认识到自己的神性，以及化身为人的意义所在。接着你们会看清并理解地球上其他生命体的意义，比如大地上的动物，空中的鸟儿，水中的鱼，它们存在与地球皆有其原因。它们都是生物/灵性圈的一份子，都有各自的工作，你会很清楚这些，再次拥有与它们沟通的能力，然后为了整体利益，而与它们在真正的和谐中一起工作。如此一来，人类和地球表面、里面及周围的伙伴们将共同扬升得更高，越来越接近起源。
 
 Imagine a world where all is in total harmony,one where everything has a job to do and is content with doing that job.Envision a world where all are helping others to reach perfection in what they do,not in competition with each other but in glad tidings and joy brought about by the sheer delight in seeing another entity attain further greatness. Visualize a world where you were instrumental in others attaining greatness due to your being of true service.Picture a world where you can see,feel,touch,experience and enjoy all the energies in and around the beings that exist on that world-one where you can experience what they experience when you work with them in true love and harmony and see how they respond and grow.Imagining a world where you could see and feel this represents how the world itself responds to the work and time you lovingly give to attending to its needs and helping it also grow and evolve.Imagine the resulting energies being that of pure unconditional love with this love representative of the love that is throughout the universe-the love of a creator that is always pleased with its creation's efforts,no matter what they are.See a creator would never judges,never gets angry,and always holds you in love.Imagine a world where you are your true selves,omnipotent, omniscient,omnipresent parts of the greater entity,the Origin. 
 
+想象一个全然和谐的世界，其中万物各司其职，也都乐在其中。想象一个万物互助的世界，他们所做的一切都是为了帮助彼此完美地完成工作，不会互相竞争，而是活在看到别人的进步所带来的喜讯和快乐中。观想这样一个世界，你在其中因真正服务他人而帮助他人成就伟大。想象这样一个世界，你可以看到、感觉到、触摸到、体验到和享受到世界上所有生命体的内在和周围的能量。在这个世界中，当你与这些生命体在爱与和谐中共事时，能体验到他们的体验，可以看到他们如何回应与成长。想象这样一个世界，你能看到和感受到这些表现，世界是如何回应你。怀着爱，照顾他的需要，帮助他成长与进化而投入的工作与时间。想象所带来的纯粹的无条件的爱，代表着贯穿整个宇宙的爱，造物主的爱，它永远欣喜于其受造物所做的努力，无论他们是什么。可以看到，造物主永不批判，永不生气，一直拥你在爱中。想象这样一个世界，你做回真正的自己，你是更大实体，起源那无所不能、无所不知、无所不在的一部分。
+
 Working in service to attain this level of existence is a noble work,indeed,with the rewards being unlimited in comparison to your current existence.So with this as the carrot,why wouldn't you do it?Why wouldn't you be of service for the greater good and for everyone's benefits when the greater good(greater God!)benefits? 
+
+为了达到这个层级而服务他人是一项高贵的工作。确实，与你们目前的存在相比，它的回报是无限的。有这样一项奖赏，何乐而不为？既然对更高的善（神）更有益，何不服务于更高的善与所有人的利益？
 
 #### The Ways of the Masters 
 
@@ -11922,23 +11978,35 @@ Working in service to attain this level of existence is a noble work,indeed,with
 
 ME:Let's get back to the Masters of the books I was reading about.Are they really capable of making their bodies live for two thousand years?
 
-我：回到我之前所读的书中的灵性。大师们，他们真的有办法让自己的肉身活到两千岁。 当然可以。事实上，他们可以让自己的肉体想活多久就活多久。 比方说，在一位瑜伽修行者处于完全认知与接受宇宙法则的状态下，他可以无所不能。 人体只是受限于物质性以及其现任灵体获取能量的能力。 这能量原本是人人可以获取的。当现任灵体处于沉睡状态时，就像你们大多数人目前的能况，他就无法接入周遭无处不在的更大实相会认为物质存在辨识一切。 但当灵体一旦觉知到更大实相，便会开始调节到这个实相，这是一些简单的能力，开始出现直觉力增加疗愈能力，聪明传导接触纯粹能量态的存有的能力。 至于一些更高级的能力，比如控制物质的能力，只有当个体突破了物质界的帷幕，并完全不再受物质界局限后才会显现。 不过我应该要先说明在那些大师的时代，要达到这个层级，一数不易。 更何况目前在这个消费驱动的经济世界，你做到更不容易。当你到达这个层级时，你已不再关注物质界的需求，你将能够用能量维持肉体，你能在最基本的层面上更新身体细胞的能量，你不再需要使用有机或无机物转化。 目前你有这种能力，是因为肉体毕竟需要一些低等级能量。随着新细胞的产生，以代替，老化的旧细胞身体也会退化，因为没有能量层面上的细胞再生，你胞只能是部分再生细胞编程的核心细节已在更新过程中逐渐流失，从而导致了衰老。 因为核心生命力会逐渐流失，瑜伽修饰或大师们清楚这一点，所以他们能够抑制或及时给身体细胞结构提供所需的一切，并形成了根据身体某一年龄的记忆进行完全再生的功能。 这一年龄或外表，尤其现任的灵体，自主决定并非所有的灵体，都希望呈现年轻男孩或女孩的样子，很多喜欢展现中年人的样貌。 因为这样最容易赢得跟随这些大师的学生们的尊敬。中年阶段被认为是处于学习与教学能力的最佳状态。 在老一点就会被看成一个老态。龙钟的老傻瓜再年轻一点，又会被认为太年轻，没有传到授业的权威性。 我们还是回到开始这个讨论的主要原因吧。一旦个体开悟，成为大师，就可以影响他的细胞结构达到完美，这意味着细胞结构能以百分之百的效率运作，同时能由能量灵体随意操控。 如果灵体愿意身体便能永恒不朽。方法是通过将肉体转化到真实的能量态，从而进进入完全的灵性状态。 同时，肉体还能在物质界存在这个方法，也可用于肉体在物质界中或周围的移动。 但这种方法只有在灵体掌握了对实相的观察时才能使用能够与能量状态整体运作。 也就是石像对于个体灵体来说是完全可达到的。以认知的可以理解的这似乎有点天方夜谭，但却是每个人都可实现的。 但我再一次强调，物质界的诱惑是如此的大大到难以让人将自己置之于外，但专注于投入，加上相信自己就一定会有收获。 主要的问题是，在现今西方世界的生存环境里，以及东方世界正跌入的生存环境里，是否能长期坚持专注与投入。 尽管肉体是一个不必要的物体，但他在这个进化的机会里，还是有它的用处的。 因为在一个如此受限的情况下，生存本身确实也很有启发，引人觉醒，呈现给灵体的转世化身成肉体的机会是透过努力，他可以选择在临界环境中保有肉体。 如此一来，便可以选择在物质界的任何时间任何地方生存。 而无需经历身体的成长成熟，以及接下来的遗忘和觉醒的过程。 灵体因此不再受限于物质，同时还能够在最基础的层级上生存于物质界，以便体验只有在物质层才可体验的一切，同时还能与临界连接，同时最完美的组合。 因为灵体不受物质需求所控制和干扰，反而全然掌控着物质的过程。
+我：回到我之前所读的书中的灵性大师们，他们真的有办法让自己的肉身活到两千岁？
 
-SE:Of course.And realistically they can make their physical bodies live for as long as they want.For instance,a yogi can,when he is in total understanding and acceptance of the universal law,do anything he wants.The human body is only limited by its physicality and the incumbent Spirit's ability to draw upon the energies that are naturally available to all.When the incumbent spirit is in a state of slumber,as most of you are,it is not able to tap into the greater reality that is all around it and it believes that its physical existence is all there is.Once a spirit is aware of the greater reality, it starts to become in tune with it and the simple abilities that are at first available- such as increased intuition,healing,channeling,contact with those who are totally in the energetic state-start to come to the fore. 
+SE:Of course.And realistically they can make their physical bodies live for as long as they want.For instance,a yogi can,when he is in total understanding and acceptance of the universal law,do anything he wants.The human body is only limited by its physicality and the incumbent Spirit's ability to draw upon the energies that are naturally available to all.When the incumbent spirit is in a state of slumber,as most of you are,it is not able to tap into the greater reality that is all around it and it believes that its physical existence is all there is.Once a spirit is aware of the greater reality, it starts to become in tune with it and the simple abilities that are at first available-such as increased intuition,healing,channeling,contact with those who are totally in the energetic state-start to come to the fore. 
 
-源实体：
+源实体：当然可以。事实上，他们可以让自己的肉体想活多久就活多久。比方说，在一位瑜伽修行者处于完全认知与接受宇宙法则的状态下，他可以无所不能。人体只是受限于物质性以及其现任灵体获取能量的能力，这能量原本是人人可以获取的。当现任灵体处于沉睡状态时，就像你们大多数人目前的能况，他就无法接入周遭无处不在的更大实相，会认为物质存在便是一切。但当灵体一旦觉知到更大实相，便会开始调谐到这个实相，这时一些简单的能力开始出现：直觉力增加、疗愈能力、通灵传导、接触纯粹能量态的存有的能力。 
 
 The greater abilities,such as being able to control the physical only come when the individual has broken through the veil of the physical and is,therefore,not contained by it in any way.When you have achieved this level,which I might add was not easy in those Masters'times and is even harder in the current consumer-driven economies of the world,you are not concerned by the needs of the physical.You are able to feed the body with the energetic,renewing the energies of the cellular structure of the body at its most basic level.You do not need to use the conversion of organic or in-organic materials, which is at best poor but necessary since the physical body does need some low grade energy. 
 
+至于一些更高级的能力，比如控制物质的能力，只有当个体突破了物质界的帷幕，并完全不再受物质界局限后才会显现。不过我应该要先说明，在那些大师的时代，要达到这个层级已数不易，更何况目前在这个消费驱动的经济世界，要做到更不容易。当你到达这个层级时，你已不再关注物质界的需求，你将能够用能量维持肉体，你能在最基本的层面上更新身体细胞的能量，你不再需要使用有机或无机物转化，目前你有这种能力是因为肉体毕竟需要一些低等级能量。
+
 The body degrades as a result of the need to reproduce new cells to replace those that are worn out,for without the regeneration of the cell at the energetic level,the cells are only partially reproduced.The essential details of the cell's programming are lost over a period of replacements and results in decrepitude,as the essential vitality is lost over time.The yogi or master knows this and is able to give the cellular structure of the body all it needs all of the time or at certain points in time,which then affects a complete regeneration or rejuvenation based upon the memory of the body at a certain age-that age or physical appearance being at the discretion of the incumbent spirit.Not all spirits want to be presented as young boys or girls.Many prefer to present themselves in middle age,for that is an age where there is most respect from the students that follow such masters. When you are in your middle aged years,you are considered to be at the peak of your learning and teaching abilities.Any older and you are considered to be a doddering old fool,any younger and you are considered to be too young to teach with authority. 
+
+随着新细胞的产生以代替老化的旧细胞，身体也会退化，因为没有能量层面上的细胞再生，细胞只能是部分再生，细胞编程的核心细节已在更新过程中逐渐流失，从而导致了衰老，因为核心生命力会逐渐流失。瑜伽修士或大师们清楚这一点，所以他们能够抑制或及时给身体细胞结构提供所需的一切，并形成了根据身体某一年龄的记忆进行完全再生的功能。这一年龄或外表由其现任的灵体自主决定，并非所有的灵体都希望呈现年轻男孩或女孩的样子，很多喜欢展现中年人的样貌，因为这样最容易赢得跟随这些大师的学生们的尊敬。中年阶段被认为是处于学习与教学能力的最佳状态，再老一点就会被看成一个老态龙钟的老傻瓜；再年轻一点又会被认为太年轻，没有传道授业的权威性。
 
 Getting back to the prime reason for this discussion though... 
 
+我们还是回到开始这个讨论的主要原因吧...
+
 An individual,once enlightened to the point of mastery can affect change of his/her cellular structure to the point of perfection.This means that it is able to operate at 100% efficiency and be manipulated at will by the energetic spirit.If the Spirit wishes, the body can be perpetuated for eternity by translating it into the fully spiritual by converting it into its true energetic state whilst allowing it to be present in the physical. This method can also be used for the transportation of the physical body in and around the physical environment.But it can only be used in this way once the spirit is in control of the observation of the real reality and is,therefore,able to work with the whole of its existing energetic state,.i.e.,when all of it is accessible,recognized,and understood by the individual spirit. 
+
+一旦个体开悟成为大师，就可以影响他的细胞结构达到完美。这意味着细胞结构能以100%的效率运作，同时能由能量灵体随意操控。如果灵体愿意，身体便能永恒不朽。方法是通过将肉体转化到真实的能量态，从而进入完全的灵性状态，同时肉体还能在物质界存在，这个方法也可用于肉体在物质界中或周围的移动。但这种方法只有在灵体掌握了对实相的观察时才能使用，能够与能量状态整体运作，也就是实相对于个体灵体来说是完全可达到的、已认知的、可以理解的。
 
 It may seem a little far out,but this is attainable by all.But again the distractions of the physical are such that it is difficult to move oneself outside them,but dedication and commitment to the cause,coupled with belief in the self,will ultimately bear fruit. The issue here is the continuation of the work over a long period of time in the current existence of the western world and the one that the eastern world is running into head long. 
 
+这似乎有点天方夜谭，但却是每个人都可实现的。但我再一次强调，物质界的诱惑是如此的大，大到难以让人将自己置之于外但专注于投入，加上相信自己就一定会有收获。主要的问题是，在现今西方世界的生存环境里，以及东方世界正跌入的生存环境里，是否能长期坚持专注与投入。
+
 The physical body is an un-necessary object but is nevertheless useful in the evolutionary opportunities it presents,for existence in such a cramped and limited condition is, indeed,enlightening in its own right.The opportunity presented to the Spirit that allows itself to be incarnate (in the meat!)is that through hard work it can retain the physical body in the spiritual environment if it so chooses.This allows it to exist in the physical whenever or wherever it chooses without the need to go through the lengthy process of growing the body to a state of maturity and going through the resulting forgetting and awakening process that follows.The Spirit is,therefore,free from the confines of the physical whilst still being able to exist in the physical at its most basic level,thereby experiencing what it can at the physical level whilst also being able to relate to the spiritual.This is the perfect combination as the Spirit is not under the control of physical demands and distractions but is in control of the physical in every sense.
+
+尽管肉体是一个不必要的物体，但它在这个进化的机会里还是有它的用处的。 因为在一个如此受限的情况下生存，本身确实也很有启发，引人觉醒。呈现给灵体的转世化身成肉体的机会是，透过努力它可以选择在灵界环境中保有肉体。如此一来，便可以选择在物质界的任何时间、任何地方生存，而无需经历身体的成长成熟，以及接下来的遗忘和觉醒的过程。灵体因此不再受限于物质，同时还能够在最基础的层级上生存于物质界，以便体验只有在物质层才可体验的一切，同时还能与灵界连接。这是最完美的组合，因为灵体不受物质需求所控制和干扰，反而全然掌控着物质的一切。
 
 ### Chapter 40 - Accelerated Spiritual Awareness 
 
@@ -11946,29 +12014,31 @@ The physical body is an un-necessary object but is nevertheless useful in the ev
 
 ME:I have noticed that in a number of things in life you work hard for something and as a consequence work out shortcuts whilst maintaining the same quality of what you do.If you pass the shortcuts on to other people,they get to the same position you are without having to know the long-winded process you had to use in the first place.Essentially,they leap frog you in the learning process. 
 
-我：我发现生命中有些事你为之付出努力，结果你找到了捷径，同时还能维持相同的做事品质。 如果你把这个捷径传授给他人，他们便能达到和你相同的位置，而不用跟你一样。 在初期走许多弯路，本质上在学习过程中，他们站在了你的肩膀上，你说的完全正确。 如果你能够把心得传授他们，让他们的起点更高，你就是极大的服务了。 他们事实上这就是经验的整个作用，你体验自己的经历，并学到东西之后，你能把所学教给其他人。 他们就能进步的更快更深入。他们不但能了解如何达到今日成就的整个历程，而且不需要花向老师当时所花的那么多时间就能做到这是宇宙的自然方式，也是播撒进化机会的最佳方式，还是提升宇宙和其物质及能量居民的基本频率层级的最好方式。 这样说来给他人展示你的捷径是一件极大的好事，这是服务他人的最基本方法之一。 你的艰苦减轻了他人的痛苦。你将最个人的东西，你的学习所获提供给他人展示如何前进。 你应该还记得我们之前的一段对话，我曾经提到宇宙中所有生命体的整个学习过程都保存在阿卡西记录里。 换句话说，一切你所体验所学和进化所得都被记录和保存，以供他人使用。 这样他人就可以参考获取自身没有的知识和体验。在类似的转世与体验中得到帮助。 有了这些知识，他们就能从较高的起点开始，而无需从零开始。 这可以让他们推进学习与进化的机会，找到自己的捷径，再传授给跟随他们的人如此便完成了一个闭环。 因为他们也从别人的知识与艰苦中受益。我用艰苦这个词是因为转世化身到物质界时，所有学习和进化中都会经历一定的痛苦，物质界里的生命体承受痛苦并学到东西，然后将此知识与他人分享，让他们能继续传递进化的接力，进而去帮助他人加速学习。 本质上，当转世灵体分享所学会创造一个螺旋，并不断向前和向上演进。 我听说要达到灵性的开悟，你必须遵守严格的方法，并专注于进行影响。 但在现今的西方社会里，再比如一有电子邮件就被期待要马上回复的节奏中，怎么才能做到呢？ 我们永远没有足够的独处时间做这些事，让自己真正变得灵性。 我们甚至无法在居无定所中各处流浪与传授，并受到陌生人的招待，就像耶稣那样，没有人会期待你这么做，这就是那螺旋向上旋转的美妙之处。 随着追求灵性成长的人们层级的提高，世界宇宙的基本频率也因而提高。 这表示达到你现在的这个水平，你并不需要像以前一样做那么多，因为前人已经做了足够的工作，让你可以从一个更高的起点开始。 所以相比当初他们所处的时代要进入灵性领域已经更加容易了。
+我：我发现生命中有些事你为之付出努力，结果你找到了捷径，同时还能维持相同的做事品质。如果你把这个捷径传授给他人，他们便能达到和你相同的位置，而不用跟你一样在初期走许多弯路。本质上，在学习过程中，他们站在了你的肩膀上。
 
 SE:This is totally true and if you are able to pass your learning onto them so that they have a higher start point than you had,you have then given them a great service.In fact, this is the whole point of"experience."You experience what you experience and learn as a result.You can then pass on what you have learnt to others which allows them to progress at a faster and more in-depth rate.They will both know the history of how to get to where they are and,therefore,progress forward whilst not needing to spend the time required by the teacher to get to there.This is the natural way of the universe and is the best way to spread evolutionary opportunities and raise the base level of the frequency of the universe and its inhabitants,physical or energetic.
 
-源实体：
+源实体：你说的完全正确。如果你能够把心得传授给他们，让他们的起点更高，你就是极大地服务了他们。事实上，这就是经验的整个作用。你体验自己的经历并学到东西之后，你能把所学教给其他人，他们就能进步地更快、更深入。他们不但能了解如何达到今日成就的整个历程，而且不需要花像老师当时所花的那么多时间就能做到。这是宇宙的自然方式，也是播撒进化机会的最佳方式，还是提升宇宙和其物质及能量居民的基本频率层级的最好方式。 
 
 ME:So it is a good thing to do,to show your shortcuts to others. 
 
-我：
+我：这样说来，给他人展示你的捷径是一件极大的好事。
 
 SE:It is one of the primary ways to be to service.Through your pain do you relieve the suffering of others.You show how to move forward by offering that which is most personal to you:your learning.If you remember in one of our previous dialogues,I mentioned that the total learning of all the beings in this universe is recorded in the Akashic records.That means that everything that you experience,learn,and evolve is recorded and stored for the use of others.This is there for reference so that others can gain the knowledge and experience of others that they have not received themselves in order to help them in incarnations or experiences that are of a similar nature.With this inherent knowledge,they are able to start at a higher level than they would have if they had started from scratch.This allows them to move learning and evolutionary opportunities forward to the point where they find a shortcut and pass this on to others who will follow them. 
 
-源实体：
+源实体：这是服务他人的最基本方法之一。你的艰苦减轻了他人的痛苦。你将最个人的东西，你的学习所获提供给他人，展示如何前进。你应该还记得我们之前的一段对话，我曾经提到宇宙中所有生命体的整个学习过程都保存在阿卡西记录里。换句话说，一切你所体验、所学和进化所得，都被记录和保存以供他人使用。这样他人就可以参考获取自身没有的知识和体验，在类似的转世与体验中得到帮助。有了这些知识，他们就能从较高的起点开始，而无需从零开始。这可以让他们推进学习与进化的机会，找到自己的捷径，再传授给跟随他们的人。
 
 Hence,the circle is closed because they have benefited from the knowledge and suffering of others.I used the word "suffering"here because all learning and evolution has a level of suffering involved in it whilst one is incarnate in the physical.Entities in the physical that have suffered and learned and then share that knowledge with others to enable them to continue the evolutionary cycle,help accelerate the learning of others.In essence,they create a spiral as incarnate spirits give as they learn,and the cycle continues onward and upward.
 
+如此便完成了一个闭环，因为他们也从别人的知识与艰苦中受益。我用艰苦这个词是因为转世化身到物质界时，所有学习和进化中都会经历一定的痛苦，物质界里的生命体承受痛苦并学到东西，然后将此知识与他人分享，让他们能继续传递进化的接力，进而去帮助他人加速学习。本质上，当转世灵体分享所学会创造一个螺旋，并不断向前和向上演进。
+
 ME:I have heard that to achieve spiritual enlightenment,you need to follow strict pathways and meditate with dedication.How can this be possible in today's western society where we are required to react to email in an instant?We are never left alone enough to spend this sort of time to get really spiritual.We aren't able to wander around and teach with no fixed abode and be taken in by strangers like Jesus did. 
 
-我：
+我：我听说要达到灵性的开悟，你必须遵守严格的方法，并专注于静心冥想。但在现今的西方社会里，再比如一有电子邮件就被期待要马上回复的节奏中，怎么才能做到呢？我们永远没有足够的独处时间做这些事，让自己真正变得灵性。我们甚至无法在居无定所中各处流浪与传授，并受到陌生人的招待，就像耶稣那样。
 
-SE:And no one is expecting you to.This is the beauty of the upward spiral.As the level of people trying to be spiritual increases,so does the base frequency of the world/ universe.This means that you don't have to do as much to be at the level you are now because others before you have done enough work to give you a higher starting position.As a result,access to the spiritual realms is just that bit easier than it was for them. 
+SE:And no one is expecting you to.This is the beauty of the upward spiral.As the level of people trying to be spiritual increases,so does the base frequency of the world/universe.This means that you don't have to do as much to be at the level you are now because others before you have done enough work to give you a higher starting position.As a result,access to the spiritual realms is just that bit easier than it was for them. 
 
-源实体：
+源实体：没有人会期待你这么做，这就是那螺旋向上旋转的美妙之处。随着追求灵性成长的人们层级的提高，世界/宇宙的基本频率也因而提高。这表示达到你现在的这个水平，你并不需要像以前一样做那么多，因为前人已经做了足够的工作，让你可以从一个更高的起点开始。所以，相比当初他们所处的时代，要进入灵性领域已经更加容易了。
 
 #### Spirituality over 2000 Years of Human Incarnation 
 
@@ -11976,27 +12046,27 @@ SE:And no one is expecting you to.This is the beauty of the upward spiral.As the
 
 ME:So what is the difference between us and them?What is the difference over 2,000 years of human incarnation? 
 
-我：那么我们和他们之间有什么差别？ 人类这两千多年以来的转世有什么差别？差别在于大体上，你们的心智更开放，更愿意了解真相。 你们之中也有更多的人不断提出许多根本的问题，也就是生命一定布置这些，这就是一个跳板，是通向觉醒开悟之路的第一步，当耶稣还在世化身为人的年代，世界上的人口比现在少得多，这反映出只有一小群人有意识的走在灵性道路上，提升地球频率的机会也相对较少。 如果你明白，如今人口基数的增加导致了有意识走上灵性进化，道路上的人也随之增多。 这就能理解地球和本地宇宙的基本频率。为什么已经比耶稣时代高出很多了，唯一的差别是每天每小时，总有事情不断轰炸着你们的意识分散你们的心，让你们无法连接自己的其余部分，也就就真正的自己化身在耶稣的年代的人们没有有类干扰扰，他们们需需要更更低频频率斗争后才能能达灵灵性领领域，他们得花大半辈子去学习，而且他们的寿命也不比现在，所以提升频率到达开悟的过程中，就有不同于你们的挑战。 那么为什么耶稣在那么年轻时就已经开悟了。你又为什么在那么年轻时对心灵这方面就已经感兴趣了，是不是因为他出生时就处在比较高的频率中。 答，对了，那些正走通通往路道路上的人们也是一样，就像是你注意，这并不会让你比没有走这条路路的人，好好是至少给了你机会为他们打头阵。 这也就是你们在这里的原因，帮助那些不像你们如此幸运斗争，帮助他们在你们所选择的这条朝向，真正开悟的路上前进。
+我：那么我们和他们之间有什么差别？人类这2000多年以来的转世有什么差别？
 
 SE:The difference is that,in general,your minds are more open to understanding the truth. There are many more of you now that are asking the most fundamental of questions, There must be something else to this life.This is the springboard;this is the first step on the road to enlightenment.When Jesus was alive/incarnate,there were significantly fewer people in the world than there are now.This reflected a smaller number of people on a conscious spiritual path and a reduced opportunity to increase the Earth's frequency levels.If you realize that the increase in today's population has also resulted in a significant increase in the population of people who are consciously on an evolutionary spiritual path,then you can see why the base frequency of Earth and the local universe is much higher than in Jesus'time.The only difference here is the level of things bombarding your consciousness on an hourly/daily basis that distract you from contacting that which is the rest of you,the real you.Those incarnate in Jesus' time did not have these distractions,but they had a much lower level of frequency to battle through first to get to the spiritual realms.They needed to study for most of their lives and their life expectation was different so they had their challenges moving upward through the frequencies to enlightenment. 
 
-源实体：
+源实体：差别在于，大体上，你们的心智更开放，更愿意了解真相。你们之中也有更多的人不断提出许多根本的问题，也就是生命一定不止这些。这就是一个跳板，是通向觉醒/开悟之路的第一步。当耶稣还在世化身为人的年代，世界上的人口比现在少得多，这反映出只有一小群人有意识的走在灵性道路上，提升地球频率的机会也相对较少。如果你明白，如今人口基数的增加导致了有意识走上灵性进化道路上的人也随之增多，你就能理解地球和本地宇宙的基本频率为什么已经比耶稣时代高出很多了。唯一的差别是，每天、每小时总有事情不断轰炸着你们的意识，分散你们的心思，让你们无法连接自己的其余部分，也就是真正的自己。化身在耶稣的年代的人们没有类干扰，但他们需要与更低的频率斗争，然后才能达到灵性的领域。他们得花大半辈子去学习，而且他们的寿命也不比现在，所以提升频率到达开悟的过程中就有不同于你们的挑战。 
 
 ME:So how come Jesus was enlightened at so young an age? 
 
-我：
+我：那么为什么耶稣在那么年轻时就已经开悟了？
 
 SE:How come you were interested in the psychic at so young an age? 
 
-源实体：
+源实体：你又为什么在那么年轻时对心灵这方面就已经感兴趣了？
 
 ME:Because he was born surrounded in a higher frequency? 
 
-我：
+我：是不是因为他出生时就处在比较高的频率中？
 
 SE:Correct,and so are all those who are on the path to enlightenment right now,just like you.This does not make you any better than those who are not on this path,but it does give you the opportunity to "Kick Start"them along this path.This is what you are all here for.To help those not as fortunate as yourselves to progress along the path that you have chosen,the way to true enlightenment.
 
-源实体：
+源实体：答对了，那些正走在通往开悟道路上的人们也是一样，就像是你。注意，这并不会让你比没有走这条路的人更好，但至少给了你机会为他们打头阵。这也就是你们在这里的原因，去帮助那些不像你们如此幸运的人，帮助他们在你们所选择的这条朝向真正开悟的路上前进。
 
 #### Awareness-A Comment from the Origin 
 
@@ -12004,9 +12074,11 @@ SE:Correct,and so are all those who are on the path to enlightenment right now,j
 
 ME:You mentioned previously that an entity needs to be evolved before he/she/it can be aware of real reality and gain access to the knowledge that exists within reality.Why would an entity need to be evolved to access this if he/she/it came from You and the Source in the first place? 
 
-我：你之前曾提到在一个实体觉知到真正实相并获取实相里的知识之前，他需要先进化。 但既然一开始实际就是从你和源头分出来，为何你需要进化才能接触到呢？ 因为随着觉知而来的是可能滥用力量的能力。如果你能够接触一切，而在你身处受限的物质转示条件下，没有一颗纯净的心，你获知的就不是全貌，而是你欲望所向的那部分。 因此，一个实体必须先进化到他，不会企图把知识当做自我膨胀的攻击的程度。 相反，他们要能感觉到与他人分享的必要与那些有足够觉知，从而有滥面兴趣的人分享。 这些人通常本性善良也不计侵略性。其实要他们在身体上有攻击性也很困难，他们可能永远也无法举起拳头，对别人甩出重重一击，这些将是普及真相的教导的人。 他们将帮助人类摆脱物质界的束缚，并向更高的频率迈进。
+我：你之前曾提到，在一个实体觉知到真正实相并获取实相里的知识之前，他需要先进化。但既然一开始实体就是从你和源头分出来，为何还需要进化才能接触到呢？ 
 
 O:Because of the ability to abuse the power that comes with awareness.If you could access the "ALL"and you were not pure of heart in your limited condition of physical incarnation,you would not get the whole picture but only that which you desired. Based upon this,an entity needs to be evolved to the point where he/she/it is not tempted to use the knowledge for self-aggrandisement.Instead,they must feel the need to share it with others who are aware enough to be interested in a positive way.These people are naturally good-natured and not aggressive;in fact,they would find it difficult to be physically aggressive and could never pitch a really powerful punch.These are the people who will spread the teachings of reality in order to help humanity move out of the physical and progress to the next frequency.
+
+起源：因为随着觉知而来的是可能滥用力量的能力。如果你能够接触一切，而在你身处受限的物质转世条件下没有一颗纯净的心，你获知的就不是全貌，而是你欲望所向的那部分。因此一个实体必须先进化到他不会企图把知识当做自我膨胀的工具的程度。相反，他们要能感觉到与他人分享的必要，与那些有足够觉知从而有正面兴趣的人分享。这些人通常本性善良，也不具侵略性。其实要他们在身体上有攻击性也很困难，他们可能永远也无法举起拳头对别人甩出重重一击。这些将是普及真相的教导的人，他们将帮助人类摆脱物质界的束缚，并向更高的频率迈进。
 
 ### Chapter 41 - Forgiveness as a Rule for Life in the Physical 
 
@@ -12014,27 +12086,27 @@ O:Because of the ability to abuse the power that comes with awareness.If you cou
 
 SE:Forgiveness is one of the main foundation stones of maintaining your spirituality and increasing your vibrations to the point where you can progress to the next level.When incarnate,Jesus was quoted to have said,"Forgive them father,for they know not what they do."These are wise words,indeed,for the understanding to the point of ultimate feeling and ultimate knowing is based upon ultimate forgiveness of all wrongdoings. No matter how big or small that wrongdoing is and no matter how personal it may seem,learn to forgive in the fullest sense and be free of the thoughts of petty revenge that result from dwelling on wrongdoing.Rise above such needs and behold the truth, the truth that everyone deserves to be forgiven of their minor misdemeanors,no matter how personal they may seem to the individual. 
 
-源实体：宽恕是维持你的灵性的主要基石之一，也会增加你的频率，直到你可以进化到下一个层级耶稣转世到这个世界上的时候，别人曾引述他说过的话，富啊宽恕他们吧。 因为他们不知道自己在做什么，这些话确确实实充满了智慧，能抵达终极感受以及终极知晓的领悟，需要建立在原谅一切过错的终极宽恕之上。 无论这个过错有多大或多小。无论他看起来是多么私人的问题，学习去彻底的宽恕，并脱离执着过失所引起的报复思想，让自己超越这些情绪并抓住真相。 真相是每个人每个微不足道的微小罪行都值得被宽恕。哪怕这些过失在个人看来是多么的私人宽恕，看似简单，为什么我们却常常做不到宽恕，能让这个世界美好的多。 是的，不但如此宽恕，还可以解决世界上许多的问题，就算不是所有的问题。 但关键是人们嘴上说他们原谅，实际上他们并没有完全宽恕，这是因为他们并未完全了解他们宽恕的是什么，或到底什么才是宽恕或真的宽恕。 一个人你必须真正去了解他们那些行为动机的语境。只有了解之后，你才能够换位思考，感受到行为相关的情绪。 当你激活了属于你真实自我的同理心功能之后，才能做到这一点。 当然，任何时间，只要你给自己时间去聆听你的高，我都可以做到有同理心，只要对一切有无条件的爱，就会有及时且毫无保留的宽恕。 但这项能力只是通向及时无条件宽恕的道道路上的一步，源于对万物无条件的爱。 因为要达到这种宽恕，需要一个过程。因为当你向宇宙以及它呈现给你的进化机会敞开，并与之成为一体时，你会将他人行为看作是提供给他们和你自己的进化机会，而非是针对你的刁难，你会立刻认识到并了解这一点，这是宽恕将会是及时的无条件的。 所以宽恕是一个你能随时取用的有利工具。宽恕不是一个工具，它是物质建立生活中的另一个法则，确保你不会降低自己的频率。 如此，你才不会与高，我也就是起源深处的其他部分失去联系。 事实上，宽恕是在转世生命力生存的一个根本的需求。如果你去数数，不管通过什么方式过程或形式一天当中有多少次别人冤枉了你，你可能会忽略他或你自己这么觉得，有些人会让事情慢慢埋藏，这是便有无数的潜在可能性。 一个是你抗拒去宽恕这件事，以至于降低频率，另一个是你原谅对方并提升频率，进而继续前行，或往上提升明智的人。 面对这种情况，不需要多想，就会很乐意的去接受这个进化的机会。 但你身边的一些人可能会暗示你，你被别人占了便宜，被人无情践踏了，这又该怎么办呢？
+源实体：宽恕是维持你的灵性的主要基石之一，也会增加你的频率，直到你可以进化到下一个层级。耶稣转世到这个世界上的时候，别人曾引述他说过的话，“父啊，宽恕他们吧，因为他们不知道自己在做什么”，这些话确确实实充满了智慧。能抵达终极感受以及终极知晓的领悟，需要建立在原谅一切过错的终极宽恕之上。无论这个过错有多大或多小，无论他看起来是多么私人的问题，学习去彻底宽恕，并脱离执着过失所引起的报复思想，让自己超越这些情绪并抓住真相。真相是每个人每个微不足道的微小罪行都值得被宽恕，哪怕这些过失在个人看来是多么的私人。
 
 ME:Forgiveness seems so simple.Why don't we use it more often?It would make the world a much better place. 
 
-我：
+我：宽恕看似简单，为什么我们却常常做不到？宽恕能让这个世界美好得多。 
 
 SE:Yes,it would and what's more it would solve a lot of the world's problems,if not all of them.The problem is that people say they forgive,but they don't fully forgive.This is because they do not fully understand what they are forgiving or what forgiveness really is.To truly forgive someone,you have to really understand the circumstances surrounding the reason for their actions.Then and only then are you able to put yourself in their position and feel the emotions that went with the action.This is only available when you invoke the empathic function of your true selves,which,of course, is available at any time if you only give yourselves the time to listen to your higher selves.This ability is only a step along the way to instantaneous and unconditional forgiveness that is born out of unconditional love for all because it requires a process to work through to achieve forgiveness.When you are open to and at one with the universe and the opportunities it presents for your evolution,you will see the actions of others not as a rub against you but as an opportunity for them to evolve,as well as yourself.This will be instantly recognized and understood;forgiveness will be instantaneous and unconditional. 
 
-源实体：
+源实体：是的，不但如此，宽恕还可以解决世界上许多的问题，就算不是所有的问题。但关键是，人们嘴上说他们原谅，实际上他们并没有完全宽恕，这是因为他们并未完全了解他们宽恕的是什么，或到底什么才是宽恕。要真的宽恕一个人，你必须真正去了解他们那些行为动机的语境。只有了解之后，你才能够换位思考，感受到行为相关的情绪。当你激活了属于你真实自我的同理心功能之后，才能做到这一点。当然，任何时间只要你给自己时间去聆听你的高我，都可以做到有同理心。只要对一切有无条件的爱，就会有及时且毫无保留的宽恕。但这项能力只是通向及时无条件宽恕的道路上的一步，源于对万物无条件的爱。因为要达到这种宽恕，需要一个过程。因为当你向宇宙以及它呈现给你的进化机会敞开，并与之成为一体时，你会将他人行为看作是提供给他们和你自己的进化机会，而非是针对你的刁难。你会立刻认识到并了解这一点，这时宽恕将会是及时的，无条件的。 
 
 ME:So forgiveness is a powerful tool to have in your back pocket. 
 
-我：
+我：所以宽恕是一个你能随时取用的有利工具。
 
 SE:It's not a tool.It is another of the rules for life in the physical,a way to ensure that you don't pick up opportunities to lower your vibrations and,therefore,lose your contact with the higher self,that remaining part of you that is within Spirit.In actual fact,it is a fundamental need for existence in incarnate life.If you consider the number of times per day that someone may have wronged you in some way,shape,or form,but you ignore it or so you think,(as some people let things simmer in the background), then you have a tremendous potential for either decreasing your vibrations by taking exception to the events experienced or increasing your vibrations by forgiving those who provided the events and move onwards and upwards.The wise person sees this without further need for thought on the matter and accepts the opportunity for evolutionary progression with joy. 
 
-源实体：
+源实体：宽恕不是一个工具。它是物质界里生活中的另一个法则，确保你不会降低自己的频率，如此你才不会与高我，也就是起源深处的其他部分失去联系。事实上，宽恕是在转世生命里生存的一个根本的需求。如果你去数数，不管通过什么方式、过程或形式，一天当中有多少次别人冤枉了你，你可能会忽略它，或你自己这么觉得，有些人会让事情慢慢埋藏。这时便有无数的潜在可能性，一个是你抗拒去宽恕这件事，以至于降低频率；另一个是你原谅对方并提升频率，进而继续前行或往上提升。明智的人面对这种情况，不需要多想就会很乐意的去接受这个进化的机会。 
 
 ME:But what about those around you who may suggest that you are being taken advantage of or being ridden over rough-shod? 
 
-我：
+我：但你身边的一些人可能会暗示你，你被别人占了便宜，被人无情践踏了，这又该怎么办呢？
 
 #### Showing Others the Thought Process of Forgiveness 
 
@@ -12042,7 +12114,7 @@ ME:But what about those around you who may suggest that you are being taken adva
 
 SE:Then it is your place to help them get over their preconceptions and show them the thought process that you have and why you have it.In doing so,you achieve two things:(1)you help them to stop taking on-board someone else's problems and thereby lessening their vibration level due to unnecessary personal interaction/ intervention;and (2)you give them an opportunity to review their own opportunities for forgiveness when they arise by identifying the greater picture with regard to loss of frequency due to loss of forgiveness.There is also an additional opportunity for releasing the energetic tie between you and the person needing to be forgiven,for this energetic link is also part of karmic law. 
 
-源实体：这是你需要帮助他们除去偏见，同时让他们知道你的思维方式，以及为何你会有这种想法，这样做你会有两个收获。 第一，你帮助他们去停止干涉别人的问题，避免他们因不必要的个人互动干涉，而导致自身频率下降。 第二，你给了他们去解释自身宽恕的机会。当他们领悟到无法宽恕会带来频率的下降时，这种领悟会带领他们认知到更大的前景。 这里同样有一个附加机会能释放你与需要被原谅的人之间的能量牵绊。 因为这个能量链接也属于自身法则的一部分。
+源实体：这时你需要帮助他们除去偏见，同时让他们知道你的思维方式，以及为何你会有这种想法。这样做你会有两个收获：(1)、你帮助他们去停止干涉别人的问题，避免他们因不必要的个人互动/干涉而导致自身频率下降；(2)、你给了他们去解释自身宽恕的机会。当他们领悟到无法宽恕会带来频率下降时，这种领悟会带领他们认知到更大的前景。这里同样有一个附加机会能释放你与需要被原谅的人之间的能量牵绊，因为这个能量连接也属于业力法则的一部分。
 
 #### Karmic Link Between Doer and Receiver of Perceived Offenses 
 
@@ -12050,41 +12122,43 @@ SE:Then it is your place to help them get over their preconceptions and show the
 
 ME:Link?What's this link?I thought that if you did something that caused a lowering of vibrational level,then that was karma enough. 
 
-我：这个链接是什么？我原先以为如果你做了某件事，结果导致频率的等级下降，这就足以成为业力了。 在造业者与受业者之间永远有一个业力链接，这链接将两个个体永远绑在一起。 如果发生一下两件事中的其一，第一是他们毫无保留的原谅对方，这是一方能给另一方最好的礼物，因为他会永远切断两个个体间特定行为的业力联系。 第二是造业者，从受业者那里接收到了类似行为，哇，简直是一个烂摊子。 没错，你可想象宇宙里这些转世化身们彼此之间的连接，确实称得上是一团乱麻。 再果。受业者在被侵犯的当下，就能原谅造业的一方。那么就会很容易不救。 再者，想象一下，如果每个人在发生坏事的当下，就原谅了彼此，那么地球和所有转世灵魂的频率，就会比现在高得多，这甚至能提升个人的觉知获得能提前认出犯错可能的机会，进而让个体在转世中提升到宇宙意识的门槛，这是更大的前景将会被认知，而人们也自然会找到方法主动与之合作。 这么说来，宽恕就是前进的一种方式，宽恕不是唯一的方式，但在个体进化道路上，可采取的方法里，它是很重要的一个。
+我：这个连接是什么？我原先以为如果你做了某件事，结果导致频率的等级下降，这就足以成为业力了。 
 
 SE:There is always a karmic link between the doer and receiver of wrongdoing.This link ties the two entities together for eternity until one of the following two things happens: (1)they forgive unconditionally-this is one of the greatest gifts an entity can give another entity,for it severs the karmic link for that particular action between the two entities for eternity;or (2)the entity who gave the initial wrongdoing will receive a similar action from the same entity that previously received the wrongdoing. 
 
-源实体：
+源实体：在造业者与受业者之间永远有一个业力连接，这连接将两个个体永远绑在一起。除非发生一下两件事中的其一：(1)、他们毫无保留的原谅对方，这是一方能给另一方最好的礼物，因为它会永远切断两个个体间特定行为的业力联系；(2)、造业者从受业者那里接收到了类似行为。
 
 ME:Wow,this route seems very messy. 
 
-我：
+我：哇，简直是一个烂摊子。 
 
 SE:It is.You can imagine all the links between entities that there are in the incarnate part of the universe.It is a real "buggers'muddle"and one that would be easily remedied if the entities receiving the wrongdoing forgave those giving the wrongdoing at the point of reception.Furthermore,imagine this,if everyone forgave each other at the point of reception of an action,then Earth and its entire population of incarnate souls would be at a significantly higher vibratory level than they are now.This would even raise the individual level of awareness to the point of recognition of the opportunity for committing wrongdoing,thereby lifting the individual to the threshold of universal consciousness whilst incarnate.At this point the bigger picture is recognized and a way to work with it willingly compiled. 
 
-源实体：
+源实体：没错。你可想象宇宙里这些转世化身们彼此之间的连接，确实称得上是一团乱麻。如果受业者在被侵犯的当下就能原谅造业的一方，那么就会很容易补救。再者，想象一下，如果每个人在发生坏事的当下就原谅了彼此，那么地球和所有转世灵魂的频率就会比现在高得多。这甚至能提升个人的觉知，获得能提前认出犯错可能的机会，进而让个体在转世中提升到宇宙意识的门槛，这时更大的前景将会被认知，而人们也自然会找到方法主动与之合作。 
 
 ME:So forgiveness is the way forward.
 
-我：
+我：这么说来，宽恕就是前进的一种方式。
 
 SE:It's not the only way forward,but it is a big player in the methods available to individuals to move forward on their evolutionary paths.
 
-源实体：
+源实体：宽恕不是唯一的方式，但在个体进化道路上可采取的方法里，它是很重要的一个。
 
 ### Chapter 42 - More on Communication with Our Higher Selves 
 
 **第42章：深入与高我交流的话题**
 
-ME:Do you have another example of why it is hard for that part of us that is squeezed into this very small vessel on the Earth plane to be in contact with our higher selves?I ask this because I have tried to explain this to some of my friends and acquaintances by using both the consciousness in a bottle example and the 5 senses vs.5,000,000 senses examples,and it seems to have a very limited effect in their understanding. 
+ME:Do you have another example of why it is hard for that part of us that is squeezed into this very small vessel on the Earth plane to be in contact with our higher selves? I ask this because I have tried to explain this to some of my friends and acquaintances by using both the consciousness in a bottle example and the 5 senses vs.5,000,000 senses examples,and it seems to have a very limited effect in their understanding. 
 
-我：你有没有另一个例子，可以说明为什么压缩到地球层面的小趣可理的这一部分，我们如此难以与我们的高我沟通。 我会这么问，是因为我曾经试着跟一些朋友和熟人解释时，使用装在一个瓶子里的意识，作为比喻，还有五种感官对比五百万种感官当例子，但这些在帮助他们理解上似乎效果有限。 那么我就用一个大多数人能理解的例子来说明吧，特别是那些年轻人，因为这与电脑有关，想想带宽和从网络上下载东西。 如果你把自己当成一台家用电脑，而你真实的自己，你的高。 我是整个全球互联网里的所有知识，这是你也许就能看出问题所在了。 即使用宽带，无论下载或数据流量都需要时间，尤其是当后台还有其他信息在交换的时候，如果你同时还去下载或浏览一个以上的网址速度就会更慢。 正与你现有的宽带管径或同时能接收多少数据，以及你计算机的处理能力都有关系，缓慢的速度会让你倍感挫折。 在任何时候获取资讯的能力也大为受限。现在想象，你试着一次性下载整个网络上的所有资讯，你的电脑肯定会死机，因为它没有处理这些数据所需要的处理能力，你的网络供应商也没有这么庞大的带宽。 当人类试着与他们的高额接触，试着接入宇宙记忆内存。阿卡西中的知识时也是一样的情形。 所以你们只能受限于处理能力范围内的少量资息，这些充其量会被当做直觉或心灵力量。 正如有些人人有更大的带宽，更好更快的电脑。那样有些人接触高我的能力更强。 这纯粹是因为他们有能力调频到带宽更大处理数据更快的那部分。 自我这需要给自己时间去静静坐下来，不带任何期望成见或理性评判，带着纯粹的接纳去聆听自己和宇宙。
+我：你有没有另一个例子可以说明，为什么压缩到地球层面的小躯壳里的这一部分我们如此难以与我们的高我沟通？我会这么问，是因为我曾经试着跟一些朋友和熟人解释时，使用装在一个瓶子里的意识作为比喻，还有5种感官对比5000000种感官当例子，但这些在帮助他们理解上似乎效果有限。 
 
 SE:Let Me give you an example that most people should relate to,especially the younger ones,since it relates to computers.Consider the problem of band width and downloading information from the Internet.If you think of yourself as your home computer and your real self/your higher self as the whole of the knowledge in the World Wide Web,you may see the problem.It takes time to download or stream data even via your broadband link,especially when other communications are happening in the background for a single operation.This is made even slower when you try to download or surf more than one web site at the same time.This is to do with the available bandwidth,the pipe size,or how much data can be received at the same time together with the processing power available in your computer.This slowness gives you frustration and a very limited ability to gain information at any one moment in time. 
 
-源实体：
+源实体：那么我就用一个大多数人能理解的例子来说明吧，特别是那些年轻人，因为这与电脑有关。想想带宽和从网络上下载东西，如果你把自己当成一台家用电脑，而你真实的自己，你的高我是整个全球互联网里的所有知识，这时你也许就能看出问题所在了。使用宽带，无论下载或数据流量都需要时间，尤其是当后台还有其他信息在交换的时候。如果你同时还去下载或浏览一个以上的网址，速度就会更慢。这与你现有的宽带管径或同时能接收多少数据，以及你计算机的处理能力都有关系。缓慢的速度会让你倍感挫折，在任何时候获取资讯的能力也大为受限。
 
 Now consider trying to download all the information in the whole Internet at once.Your computer would crash as it can't cope with the processing power required to process this information;neither has your service provider got the bandwidth to cope with it.This is exactly the same for humanity trying to communicate with their higher selves and the knowledge deposited in the universal memory,the Akashic.So you are limited to the small amount of communication that you can manage,which is put down to intuition or psychic powers at best.As some people have access to greater band width and better and faster computers,so do some humans have a greater capacity to communicate with their higher selves.This is purely due to their ability to tune into that part of themselves that has the greater bandwidth and the faster processing power.It involves giving yourself time-time to sit in silence and listen to yourselves and the universe without expectation,preconception,or intellectual judgment,just with acceptance.
+
+现在想象，你试着一次性下载整个网络上的所有资讯，你的电脑肯定会死机，因为它没有处理这些数据所需要的处理能力，你的网络供应商也没有这么庞大的带宽。当人类试着与他们的高我接触，试着接入宇宙记忆内存（阿卡西）中的知识时也是一样的情形。所以你们只能受限于处理能力范围内的少量信息，这些充其量会被当做直觉或心灵力量。正如有些人有更大的带宽、更好更快的电脑那样，有些人接触高我的能力更强。这纯粹是因为他们有能力调频到带宽更大、处理数据更快的那部分自我。这需要给自己时间，去静静坐下来，不带任何期望、成见或理性评判，带着纯粹的接纳去聆听自己和宇宙。
 
 ### Chapter 43 - Angels,Oranges,and Apples 
 
@@ -12092,39 +12166,61 @@ Now consider trying to download all the information in the whole Internet at onc
 
 ME:I have also had a bit of doubt about the prolific use recently of angels and orbs in spirituality, specifically the use of angels,spirit guides,spirit animals,Reiki,demons and archangels as authorities to access Spirit and the universe.Even my old healing instructor is suggesting that her old graduates take a year's course to incorporate this into their healing techniques!It's almost like a backward step to me. 
 
-我：对于最近灵性圈子里对天使和光球之类的大量引入和使用。 我多少有点存疑，特别是那些天使指导灵灵兽灵气恶魔，还有天使长之类的。 他们被当做接通灵性领域和宇宙的权威。连我以前那位疗愈老师都建议已经毕业的学生要他们学习一年的课程，但他这些加入他们的疗愈技术中，在我看来几乎是一种倒退。 本质上来说，这确实是一种倒退，特别是对于像你这类已经很接近开悟的人，但他却有其作用，尤其是对那些站在兴趣边缘，刚开始有机会追求真理的人来说还是有用的。 要记得人们在不确定或自信有限的情况下，需要一个权威或许可来变的灵性。 因此，教会的团体活动灵气疗愈，还有塔罗牌和天使解读等，都能起到类似作用。 这些就像柱行的拐杖，或者更好的解释是焦点，人们借质接入宇宙能量或高。 我就像你曾经用数数的方法来连接，我是一样的。本质。 上天使们印度指导灵灵兽或神魔之类的，都只是一些标签，代表了某种特定能量或能量实体，我们可以接触他们来取的信息或经验知识问题是，既然可以接触到所有信息，为什么还要将自己局限于一个媒介呢？ 还有为什么将一个类型的信息归于一种能量。我再说的详细一点，如果一个孩子正在写数数，我们让他数苹果橘子合理。 由于这个孩子没有经验，会把他们分别数。还果在孩子的心里是五个苹果，加一个橘子，加两个梨，等于五个苹果，加一个橘子，加两个梨。 如果他加上三个梨，他就会得出五个苹果，一个橘子，五个梨，觉得唯一加上的只是梨而已。 这个孩子并没想到水果的例数已经从八个变成十一个，因为他还给水果贴上苹果橘子和梨的标签，他并未把他们当做一个集体的名称或水果。 这个标签，如果你把标签拿走，就像更高的理解层级敞开自己。 因为你不再限制的知识的获取，不再将他与受限于其自身的例子或解释的事物关联在一起。 另一个关于局限思维的例子是证明了费马大定理的数学家。 他当时只用一种数学模式来开始证明，然后用另一种模式来完成证明。 所以一开始他以为他做到了问题是他没有办法证明他从第一种到第二种的计算可以成立。 直到一位年轻的日本数学家发明了另一种数学城市。费马才发现，这个新的数学城市可以将他之前使用的模式们结合在一起，最后成功证明。 费马大定理可以成立。从一开始，他了解到需要将这两个模式用某种方式结合运用。 到最后，他发现日本数学家的模式，正是两者之间的连接，前后共花了他十年的时间。 他之所以受限，是因为他使用了标识。如果他从更大的数学角度去思考他面前的数学问题，全都是数学问题，他就不会在一开始就局限自己，而且可在当时就使用那个年轻科学家同样的方法去解决费马大定理及接入宇宙通用的知识，这就是使用天使卡灵气和其他疗愈灵性媒介的困境所在，他们通过需求或提供一个外来的权威才能被使用，这会限制个体接入宇宙中一切可用信息的能力。 相反，他只约允许人们接入带有特定标签的特定能量。
+我：对于最近灵性圈子里对天使和光球之类的大量引入和使用，我多少有点存疑。特别是那些天使、指导灵、灵兽、灵气、恶魔，还有天使长之类的，他们被当做接通灵性领域和宇宙的权威，连我以前那位疗愈老师都建议已经毕业的学生，要他们学习一年的课程，来把这些加入他们的疗愈技术中。在我看来几乎是一种倒退。 
 
 SE:Well,in real terms,it is a backward step,especially for someone like you who is somewhere near being awake,but it does have its uses,specifically with those who are on the border of interest and are,therefore,at the start of their opportunity to become enlightened. 
 
-源实体：
+源实体：本质上来说，这确实是一种倒退，特别是对于像你这类已经很接近开悟的人。但它却有其作用，尤其是对那些站在兴趣边缘刚开始有机会追求真理的人来说，还是有用的。
 
 Remember that people who are unsure or limited in confidence need a level of authority or permission to be spiritual,hence the use of churches for group work,attunements in Reiki,and the use of cards in tarot and angel readings.All are crutches or a better explanation would be focal points that the individual uses to log into the universal energies or their higher selves.You used to use your counting method to get to Me.This is the same.In essence,angels,Indian spirit guides,animal guides,or demons are just labels for one specific type of energy or energy-based entity that can be accessed for information or experiential knowledge. 
 
-The issue is why would you want to limit yourself to just one information medium when you can access them all?Also,why attribute one type of information with one type of energy?Let Me explain further.If a child is learning to count,we let him count in apples, oranges and pears.The child in his lack of experience labels them separately;therefore,in the child's mind 5 apples,1 orange,and 2 pears equals 5 apples 1 orange and 2 pears.If he adds 3 pears,he has 5 apples 1 orange and 5 pears,the addition being to the pears only. The child has not thought about the fact that the total amount of "fruit"has changed from 8 pieces of fruit to 11 pieces of fruit,for he still has them labeled in his mind as apples,oranges,and pears and does not consider them as the collective name or label of“fruit.”
+要记得，人们在不确定或自信有限的情况下，需要一个权威或许可来变得灵性。因此，教会的团体活动、灵气疗愈，还有塔罗牌和天使解读等，都能起到类似作用。这些就像助行的拐杖，或者更好的解释是焦点，人们借之接入宇宙能量或高我，就像你曾经用数数的方法来连接我是一样的。本质上，天使们、印度指导灵、灵兽或神魔之类的，都只是一些标签，代表了某种特定能量或能量实体，我们可以接触他们来取的信息或经验知识。
+
+The issue is why would you want to limit yourself to just one information medium when you can access them all?Also,why attribute one type of information with one type of energy?Let Me explain further.If a child is learning to count,we let him count in apples, oranges and pears.The child in his lack of experience labels them separately;therefore,in the child's mind 5 apples,1 orange,and 2 pears equals 5 apples 1 orange and 2 pears.If he adds 3 pears,he has 5 apples 1 orange and 5 pears,the addition being to the pears only. The child has not thought about the fact that the total amount of "fruit"has changed from 8 pieces of fruit to 11 pieces of fruit,for he still has them labeled in his mind as apples,oranges,and pears and does not consider them as the collective name or label of “fruit.”
+
+问题是，既然可以接触到所有信息，为什么还要将自己局限于一个媒介呢？还有，为什么将一个类型的信息归于一种能量？我再说的详细一点，如果一个孩子正在学数数，我们让他数苹果、橘子和梨。由于这个孩子没有经验，会把他们分别数，结果在孩子的心里是5个苹果、1个橘子、2个梨，等于5个苹果、1个橘子、2个梨。如果他加上3个梨，他就会得出5个苹果、1个橘子、5个梨，觉得唯一加上的只是梨而已。这个孩子并没想到水果的整数已经从8个变成11个，因为他还给水果贴上苹果、橘子和梨的标签，他并未把他们当做一个集体的名称或“水果”这个标签。
 
 If you remove the labels,you open yourself to greater levels of understanding because you are not restricting your access to knowledge or associating it with something that is limited in its example or explanation.A further example of limited thinking is the mathematician who proved Fermat's Theorem.He was limited to using one type of mathematics to start the proof and another to finalize the proof,which at first,he thought he had.The problem was that he had no proof of the calculation that took him from the first type of mathematics to the second.It was not until a young Japanese mathematician invented another form of mathematics that Fermat realized that this new form of mathematics linked the mathematic models he was using together and thus furnished the final proof that Fermat's Theorem worked.This took the mathematician ten years to work out from his initial understanding that he needed to link the two models he had used together in some way to the point where he realized that the Japanese model was the link between them.His limitation was the use of labels.If he had considered the bigger mathematical picture that it is all mathematics,then he would not have limited himself in the first place and would have solved Fermat's Theorem in the same way that Fermat did,by tapping into the universal knowledge. 
 
+如果你把标签拿走，就向更高的理解层级敞开自己。因为你不再限制的知识的获取，不再将它与受限于其自身的例子或解释的事物关联在一起。另一个关于局限思维的例子是证明了费马大定理的数学家，他当时只用一种数学模式来开始证明，然后用另一种模式来完成证明，所以一开始他以为他做到了。问题是他没有办法证明他从第一种到第二种的计算可以成立，直到一位年轻的日本数学家发明了另一种数学程式，费马才发现这个新的数学程式可以将他之前使用的模式们结合在一起，最后成功证明费马大定理可以成立。从一开始他了解到，需要将这两个模式用某种方式结合运用，到最后他发现日本数学家的模式正是两者之间的连接，前后共花了他10年的时间。他之所以受限，是因为他使用了标签。如果他从更大的数学角度去思考，他面前的数学问题全都是数学问题，他就不会在一开始就局限自己，而且可在当时就使用那个年轻科学家同样的方法去解决费马大定理及接入宇宙通用的知识。
+
 This is the dilemma with the use of angel cards,Reiki,and other healing/spiritual mediums that require or give external authority to use them.This limits individuals' ability to tap into the "all"that is available to them in the universe.Instead,it only allows them to tap into the specific energy that is aligned with a particular label.
+
+这就是使用天使卡、灵气和其他疗愈/灵性媒介的困境所在，他们通过需求或提供一个外来的权威才能被使用，这会限制个体接入宇宙中一切可用信息的能力。相反，他只允许人们接入带有特定标签的特定能量。
 
 ## Letter to the Reader 
 
 Dearest Reader, 
 
-亲爱的读者，我知道这本书的内容对你产生的影响取决于你在自己的道路上前进了多远，以及你特定的进化层级。 我真诚希望这本书能激发你的想象力，帮助你有意识的展开自我实现的严肃使命。 在更高的实相中，但愿你能领悟物质界只是更大实项当中一个平瘠的幻想。 愿本书内容作为你前进和提升旅程中的一个起点或终极点。如果真的如此，那么我的任务就算成功了。 你之所以被这本书吸引，是因为你希望觉醒，回忆起自己到底是谁，更加具有觉知并质询一切事物，这是你脱离物质界桎梏的进化路上的一盏灯，把这本书当做一次机遇，让他去激发你，促进你去探讨去质疑去领悟，并最终进化与你的亲朋好友分享这本书。 无论你在地球的何处，都要知道更大的实相，切切实实存在选择去自我实现并非意识，这需要你不懈的努力。 内省和毅力，尤其是物不知世界如此充满诱惑，只要你购买或借阅了本书，无论你看完了，还是只看了几页，都代表你正走向开悟。 为此，我发自内心的感谢你，因为你的开悟能给身边的人示明道路，并最后促成我们大家的进化与提升。 在此为我们共同的进化旅程献上爱与感激盖伊史蒂芬尼德勒二零一一年三月一日。
+亲爱的读者，
 
 I know that the impact these texts will have on you largely depends upon where you are on your path and your particular level of evolution.What I am really hoping is that this book will capture your imagination and help you consciously embark upon the serious task of self-realization.May you grasp that the physical is but a poor illusion within the greater reality and may you use these texts as a starting/continuing point for your journey onwards and upwards.If this happens to you,then my work has been successful. 
 
+我知道这本书的内容对你产生的影响，取决于你在自己的道路上前进了多远，以及你特定的进化层级。我真诚希望这本书能激发你的想象力，帮助你有意识地展开自我实现的严肃使命。在更高的实相中，但愿你能领悟物质界只是更大实相当中一个贫瘠的幻相。愿本书内容作为你前进和提升旅程中的一个起点或终极点。如果真的如此，那么我的任务就算成功了。
+
 You are drawn to this work because you wish to awaken,to remember who you are,to become more aware,and to question everything.This is a light on your route to evolution from the shackles of the physical.
+
+你之所以被这本书吸引，是因为你希望觉醒，回忆起自己到底是谁，更加具有觉知，并质询一切事物。这是你脱离物质界桎梏的进化路上的一盏灯。
 
 Use this book as an opportunity to inspire and to promote discussion,questioning, realization,and eventual evolution.Share it with your friends and acquaintances.Wherever you are on the Earth plane,know that THERE REALLY IS A GREATER REALITY. 
 
+把这本书当做一次机遇，让它去激发你，促进你去探讨，去质疑，去领悟，并最终进化。与你的亲朋好友分享这本书，无论你在地球的何处，都要知道更大的实相切切实实存在。
+
 Choosing to become self-realized is not an easy task.Doing so requires your consistent dedication,introspection,and stamina,specifically when the material world is so compelling.The mere fact that you have either bought or borrowed this book,read all the text or a few choice pages means that you are on your way towards enlightenment.For this, I thank you from the bottom of my heart,for your enlightenment shows the way to those around you and will ultimately result in our evolution and ascension. 
+
+选择去自我实现并非易事，这需要你不懈的努力、内省和毅力，尤其是物质世界如此充满诱惑。只要你购买或借阅了本书，无论你看完了还是只看了几页，都代表你正走向开悟。为此，我发自内心的感谢你，因为你的开悟能给身边的人示明道路，并最后促成我们大家的进化与提升。
 
 With loving gratitude for our evolutionary journey together, 
 
+在此为我们共同的进化旅程献上爱与感激，
+
 Guy Steven Needler 
 
+盖伊·史蒂芬·尼德勒
+
 1st March 2011
+
+2011年3月1日
 
 ## Appendix 
 
@@ -12132,7 +12228,7 @@ Guy Steven Needler
 
 The following is derived from instructions I received by my energy healing teacher,Helen Stott,who was a direct student of the Barbara Brennan School of HealingTM. 
 
-以下的资料来自于我的能量疗愈老师海伦斯托特的教导内容。他曾是芭芭拉布兰能疗愈学校的直属学生。
+以下的资料来自于我的能量疗愈老师海伦·斯托特的教导内容，他曾是芭芭拉·布兰能疗愈学校的直属学生。
 
 #### How to Perform Core Star Meditation
 
@@ -12140,9 +12236,11 @@ The following is derived from instructions I received by my energy healing teach
 
 The core star is the essence of who you are.It is described as the source of your physical body's energy.It is the location of your soul and contains the energetic content of the "spirituo-physical,"as well as the individual resonant signature of the incarnate energy that houses the essential objective of your incarnation.Without the soul,your physical body would not function,and your energetic self would not be able to experience the physical realms.Meditating on the light of the Core Star can be used for protection,healing,and understanding your soul's purpose.Please allow up to one hour in a quiet place with no disturbances. 
 
-星核是真实的，你的本质，它被描述为你肉体能量的源泉，它是你灵魂的所在之处，而且包含灵性和物质的能量，以及个体化身能量的频率应气，其中包含了你转时的主要目的。 没有灵魂，你的肉体就无法运作。你的能量，自我也将无法体验物质界的一切冥想。 星核之光可用于保护疗愈，以及了解你的灵魂使命，请空出长达一个小时的时间，在一个安静不受干扰的地方进行一采取站姿，膝盖微曲，两脚与肩膀同宽，两臂与手，自然下垂，在身体双侧。 二将注意力集中。在当前它在肚脐下一点五英寸，也就是三点八厘米左右，位于身体中线，用心去感受它，那是一种类似闭合的感受，维持这种状态，直到你感觉到它的热能以及与大地共振的和谐感出现。 如果你暂时还感受不到，只需要用意念的力量去做。三继续下去，直到你感受到上半身处喉咙下方约二点五英寸，也就是六点三五厘米的区域，也就是中单前的位置。 在哈拉层面，中丹前有时也被称为零座，这里是灵体的渴望与生命蓝图所具之处，请勿把它与旁边最靠近的脉轮星轮相混淆，星轮位于它下方数英寸，一英寸为二点五四厘米。 当你连接到中端前时，有时胸腔内会有一种充满感。如果你完全没有感觉，也没有关系，只需要相信它，就在那里用你的意念与它连接，它呈球体状，且外观纯净。 四现在开始去寻找感受一条细线，它从零座中端前往下来，到下丹前，进入地球中心，调整自己，进入你人生使命。 蓝图连接上，它会产生一股力量，让自己辨识出这股力量。五挺直你的脊柱昂起头来继续让你的觉知来到头顶上方想象一条细线投射穿过你的头顶上方，即顶轮的位置，使用你的内在视觉沿线往上移去，找到一个漩涡，以及它四分之一英寸，也就是零点六厘米左右的开口。 它在你头顶上方大约三英尺，也就是九十厘米的位置去聆听那个高音调的声音，现在让你的细线进入漩涡开口。 如果你的超听觉已经开启在准确连接的那一刻，你会听到类似啪的一声。 在一次声明。如果你没有超听觉，你也许不会听到任何声音，这是只需要用你的意念的连接，并观想自己正在这么做。 六确定能量线已经与你的身体中部对齐，看着它从地球到下丹田到零座中，丹田接着来到漩涡的位置，你可能感觉到意识的扩张。 七穿过漩涡遨游会把你带进更高的石像，也就是源实体神的石像，与你上胸腔内的灵体之歌以及丹田内的创造力调线。 与此同时，去感受这条线，一路往下来，到地球核心去吸收这个能量，这是校准你的生命的课体。 现在你已经在天与地之间建立了一个连接，也一并校准了你的哈拉线，将你的人生目标扩展到所属团体的目标中。 现在伸展开来，去接触与你关系密切的人们的哈拉线，这能够让你的人生目标与你所属团体的目标以及团体的哈拉线同步。 一旦你达到这个层级，你就与你共识的团体连接并同步了。然后你可以跟更大的群体同步，此举能使你连接上城市国家和世界，你可以用这个方法去连接一个交互体系的集体力量。 八将注意力重新集中在你的星核以及你的真我本质上，你在时间空间愿望痛苦和欲望之外，你是一名创造者去创造一个蓝图。 作为创造者，你来到哈拉线，带着创造性的能量，你的蓝图，这是你的神圣使命。 现在把这股能量带到辉光层创造物质的模板，这样你就把能量带到了物质身体。 现在创造性能量。从源头从星核经过头部来到零座，再来到丹田到达哈拉层，再从灰光层进入物质层。 九，一旦完成了一个创造蓝图，你可继续前进。从你真正的本质与使命发出光芒，让你的星核与这个使命一起发光，让你的本质穿透你的辉光场中，然后回来根据意愿创造更多的蓝图计划。 十让你的生命本质之光，穿透肉体星核灵座丹田，然后进入哈拉线与灰光场，让它穿透你身体的每一个细胞，让它随之创造你在物质界中的健康喜悦快乐与你有关的每一件事都会是你神性本质的一种表达体验。 你内在的源头下面的练习，可以让你的三位一体及星核零座和丹田与你的直接与肉体联系在一起的七层灰光层合二为一，你将体验到内在的源头，十一用你的意识眼去观察体内所有细胞，每个细胞就像星核，所以疗愈过程很简单，就会与你真正的生命本质连接。 无论何时，当你生病痛苦生气或害怕猜疑或贪心或忘记了你的目标使命时，专注在你的星核上，把你身体的每个细胞带进星核之光中，这是你的本质，你内在的神疗愈，就是与你真实所示的能量记忆的精准连接，你重新创造这一连接或者个人的创造性，你会继行你的人生使命，让这个结合人生使命的创造力放射出来，照亮你照亮你是谁的记忆，以及你物质生活的道路，记得你是谁是你的首要指令，让你的星核为你指出方向。 十二现在回到你当下的尘世方法是慢慢移动，回到肉体里，将能量线从漩涡与地球收回，将线卷回星核。 十三坐下来喝大量水并休息。你会有一段时间处于高度兴奋状态。
+星核是真实的你的本质，它被描述为你肉体能量的源泉。它是你灵魂的所在之处，而且包含灵性和物质的能量以及个体化身能量的频率印记，其中包含了你转世的主要目的。没有灵魂，你的肉体就无法运作，你的能量自我也将无法体验物质界的一切。冥想星核之光可用于保护、疗愈，以及了解你的灵魂使命。请空出长达一个小时的时间，在一个安静不受干扰的地方进行。
 
 1.Stand with your knees slightly bent,feet shoulder width apart,arms and hands by your side. 
+
+1、采取站姿，膝盖微曲，两脚与肩膀同宽，两臂与手，自然下垂在身体双侧。 二将注意力集中。在当前它在肚脐下一点五英寸，也就是三点八厘米左右，位于身体中线，用心去感受它，那是一种类似闭合的感受，维持这种状态，直到你感觉到它的热能以及与大地共振的和谐感出现。 如果你暂时还感受不到，只需要用意念的力量去做。三继续下去，直到你感受到上半身处喉咙下方约二点五英寸，也就是六点三五厘米的区域，也就是中单前的位置。 在哈拉层面，中丹前有时也被称为零座，这里是灵体的渴望与生命蓝图所具之处，请勿把它与旁边最靠近的脉轮星轮相混淆，星轮位于它下方数英寸，一英寸为二点五四厘米。 当你连接到中端前时，有时胸腔内会有一种充满感。如果你完全没有感觉，也没有关系，只需要相信它，就在那里用你的意念与它连接，它呈球体状，且外观纯净。 四现在开始去寻找感受一条细线，它从零座中端前往下来，到下丹前，进入地球中心，调整自己，进入你人生使命。 蓝图连接上，它会产生一股力量，让自己辨识出这股力量。五挺直你的脊柱昂起头来继续让你的觉知来到头顶上方想象一条细线投射穿过你的头顶上方，即顶轮的位置，使用你的内在视觉沿线往上移去，找到一个漩涡，以及它四分之一英寸，也就是零点六厘米左右的开口。 它在你头顶上方大约三英尺，也就是九十厘米的位置去聆听那个高音调的声音，现在让你的细线进入漩涡开口。 如果你的超听觉已经开启在准确连接的那一刻，你会听到类似啪的一声。 在一次声明。如果你没有超听觉，你也许不会听到任何声音，这是只需要用你的意念的连接，并观想自己正在这么做。 六确定能量线已经与你的身体中部对齐，看着它从地球到下丹田到零座中，丹田接着来到漩涡的位置，你可能感觉到意识的扩张。 七穿过漩涡遨游会把你带进更高的石像，也就是源实体神的石像，与你上胸腔内的灵体之歌以及丹田内的创造力调线。 与此同时，去感受这条线，一路往下来，到地球核心去吸收这个能量，这是校准你的生命的课体。 现在你已经在天与地之间建立了一个连接，也一并校准了你的哈拉线，将你的人生目标扩展到所属团体的目标中。 现在伸展开来，去接触与你关系密切的人们的哈拉线，这能够让你的人生目标与你所属团体的目标以及团体的哈拉线同步。 一旦你达到这个层级，你就与你共识的团体连接并同步了。然后你可以跟更大的群体同步，此举能使你连接上城市国家和世界，你可以用这个方法去连接一个交互体系的集体力量。 八将注意力重新集中在你的星核以及你的真我本质上，你在时间空间愿望痛苦和欲望之外，你是一名创造者去创造一个蓝图。 作为创造者，你来到哈拉线，带着创造性的能量，你的蓝图，这是你的神圣使命。 现在把这股能量带到辉光层创造物质的模板，这样你就把能量带到了物质身体。 现在创造性能量。从源头从星核经过头部来到零座，再来到丹田到达哈拉层，再从灰光层进入物质层。 九，一旦完成了一个创造蓝图，你可继续前进。从你真正的本质与使命发出光芒，让你的星核与这个使命一起发光，让你的本质穿透你的辉光场中，然后回来根据意愿创造更多的蓝图计划。 十让你的生命本质之光，穿透肉体星核灵座丹田，然后进入哈拉线与灰光场，让它穿透你身体的每一个细胞，让它随之创造你在物质界中的健康喜悦快乐与你有关的每一件事都会是你神性本质的一种表达体验。 你内在的源头下面的练习，可以让你的三位一体及星核零座和丹田与你的直接与肉体联系在一起的七层灰光层合二为一，你将体验到内在的源头，十一用你的意识眼去观察体内所有细胞，每个细胞就像星核，所以疗愈过程很简单，就会与你真正的生命本质连接。 无论何时，当你生病痛苦生气或害怕猜疑或贪心或忘记了你的目标使命时，专注在你的星核上，把你身体的每个细胞带进星核之光中，这是你的本质，你内在的神疗愈，就是与你真实所示的能量记忆的精准连接，你重新创造这一连接或者个人的创造性，你会继行你的人生使命，让这个结合人生使命的创造力放射出来，照亮你照亮你是谁的记忆，以及你物质生活的道路，记得你是谁是你的首要指令，让你的星核为你指出方向。 十二现在回到你当下的尘世方法是慢慢移动，回到肉体里，将能量线从漩涡与地球收回，将线卷回星核。 十三坐下来喝大量水并休息。你会有一段时间处于高度兴奋状态。
 
 2.Focus on your tan tien,which is 1 1/2 inches below your belly button and in the center line of the body.Tune into how it feels.The feeling should be similar to the earth's core.Remain in tune until you feel its heat and harmonization with the resonance of the earth.[If you can't actually feel this,simply use the power of intention to do so.] 
 
