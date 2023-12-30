@@ -12240,43 +12240,79 @@ The core star is the essence of who you are.It is described as the source of you
 
 1.Stand with your knees slightly bent,feet shoulder width apart,arms and hands by your side. 
 
-1、采取站姿，膝盖微曲，两脚与肩膀同宽，两臂与手，自然下垂在身体双侧。 二将注意力集中。在当前它在肚脐下一点五英寸，也就是三点八厘米左右，位于身体中线，用心去感受它，那是一种类似闭合的感受，维持这种状态，直到你感觉到它的热能以及与大地共振的和谐感出现。 如果你暂时还感受不到，只需要用意念的力量去做。三继续下去，直到你感受到上半身处喉咙下方约二点五英寸，也就是六点三五厘米的区域，也就是中单前的位置。 在哈拉层面，中丹前有时也被称为零座，这里是灵体的渴望与生命蓝图所具之处，请勿把它与旁边最靠近的脉轮星轮相混淆，星轮位于它下方数英寸，一英寸为二点五四厘米。 当你连接到中端前时，有时胸腔内会有一种充满感。如果你完全没有感觉，也没有关系，只需要相信它，就在那里用你的意念与它连接，它呈球体状，且外观纯净。 四现在开始去寻找感受一条细线，它从零座中端前往下来，到下丹前，进入地球中心，调整自己，进入你人生使命。 蓝图连接上，它会产生一股力量，让自己辨识出这股力量。五挺直你的脊柱昂起头来继续让你的觉知来到头顶上方想象一条细线投射穿过你的头顶上方，即顶轮的位置，使用你的内在视觉沿线往上移去，找到一个漩涡，以及它四分之一英寸，也就是零点六厘米左右的开口。 它在你头顶上方大约三英尺，也就是九十厘米的位置去聆听那个高音调的声音，现在让你的细线进入漩涡开口。 如果你的超听觉已经开启在准确连接的那一刻，你会听到类似啪的一声。 在一次声明。如果你没有超听觉，你也许不会听到任何声音，这是只需要用你的意念的连接，并观想自己正在这么做。 六确定能量线已经与你的身体中部对齐，看着它从地球到下丹田到零座中，丹田接着来到漩涡的位置，你可能感觉到意识的扩张。 七穿过漩涡遨游会把你带进更高的石像，也就是源实体神的石像，与你上胸腔内的灵体之歌以及丹田内的创造力调线。 与此同时，去感受这条线，一路往下来，到地球核心去吸收这个能量，这是校准你的生命的课体。 现在你已经在天与地之间建立了一个连接，也一并校准了你的哈拉线，将你的人生目标扩展到所属团体的目标中。 现在伸展开来，去接触与你关系密切的人们的哈拉线，这能够让你的人生目标与你所属团体的目标以及团体的哈拉线同步。 一旦你达到这个层级，你就与你共识的团体连接并同步了。然后你可以跟更大的群体同步，此举能使你连接上城市国家和世界，你可以用这个方法去连接一个交互体系的集体力量。 八将注意力重新集中在你的星核以及你的真我本质上，你在时间空间愿望痛苦和欲望之外，你是一名创造者去创造一个蓝图。 作为创造者，你来到哈拉线，带着创造性的能量，你的蓝图，这是你的神圣使命。 现在把这股能量带到辉光层创造物质的模板，这样你就把能量带到了物质身体。 现在创造性能量。从源头从星核经过头部来到零座，再来到丹田到达哈拉层，再从灰光层进入物质层。 九，一旦完成了一个创造蓝图，你可继续前进。从你真正的本质与使命发出光芒，让你的星核与这个使命一起发光，让你的本质穿透你的辉光场中，然后回来根据意愿创造更多的蓝图计划。 十让你的生命本质之光，穿透肉体星核灵座丹田，然后进入哈拉线与灰光场，让它穿透你身体的每一个细胞，让它随之创造你在物质界中的健康喜悦快乐与你有关的每一件事都会是你神性本质的一种表达体验。 你内在的源头下面的练习，可以让你的三位一体及星核零座和丹田与你的直接与肉体联系在一起的七层灰光层合二为一，你将体验到内在的源头，十一用你的意识眼去观察体内所有细胞，每个细胞就像星核，所以疗愈过程很简单，就会与你真正的生命本质连接。 无论何时，当你生病痛苦生气或害怕猜疑或贪心或忘记了你的目标使命时，专注在你的星核上，把你身体的每个细胞带进星核之光中，这是你的本质，你内在的神疗愈，就是与你真实所示的能量记忆的精准连接，你重新创造这一连接或者个人的创造性，你会继行你的人生使命，让这个结合人生使命的创造力放射出来，照亮你照亮你是谁的记忆，以及你物质生活的道路，记得你是谁是你的首要指令，让你的星核为你指出方向。 十二现在回到你当下的尘世方法是慢慢移动，回到肉体里，将能量线从漩涡与地球收回，将线卷回星核。 十三坐下来喝大量水并休息。你会有一段时间处于高度兴奋状态。
+1、采取站姿，膝盖微曲，两脚与肩膀同宽，两臂与手自然下垂在身体双侧。 
 
 2.Focus on your tan tien,which is 1 1/2 inches below your belly button and in the center line of the body.Tune into how it feels.The feeling should be similar to the earth's core.Remain in tune until you feel its heat and harmonization with the resonance of the earth.[If you can't actually feel this,simply use the power of intention to do so.] 
 
+2、将注意力集中在**下丹田**，它在肚脐下1.5英寸（3.8厘米），位于身体中线，用心去感受它，那是一种类似闭合的感受。维持这种状态，直到你感觉到它的热能，以及与大地共振的和谐感出现。（如果你暂时还感受不到，只需要用意念的力量去做）
+
 3.Continue by becoming aware of the area in the upper body approximately 2.5 inches below your throat.This is called the middle tan tien.On the haric level,the middle tan tien is sometimes called the "soul seat."This is where the soul's longing and life plan reside. Don't confuse this with the nearest chakra,the heart chakra,which is a few inches below this.When you connect to your middle tan tien,it sometimes feels like a"full feeling"inside your chest.[If you don't feel anything,that is fine,too.Simply trust that it is there and your intention is to tap into it.] It is spherical and clear in appearance. 
+
+3、继续下去，直到你感受到上半身喉咙下方约2.5英寸（6.35厘米）的区域，也就是**中丹田**的位置。在哈拉层面，中丹田有时也被称为**灵座**，这里是灵体的渴望与生命蓝图所居之处，请勿把它与旁边最靠近的脉轮（心轮）相混淆，心轮位于它下方数英寸（1英寸=2.54厘米）。当你连接到中丹田时，有时胸腔内会有一种充满感。它呈球体状，且外观纯净。（如果你完全没有感觉也没有关系，只需要相信它就在那里，用你的意念与它连接） 
 
 4.Now search for and feel the thin line that travels from your soul seat/middle tan tien down to the tan tien and into the center of the earth.Tune into your individual life's purpose/plan.Recognize the strength that comes from being connected to it. 
 
+4、现在开始去寻找感受一条细线，它从灵座/中丹田往下，来到下丹田，进入地球中心。调整自己进入你人生使命/蓝图。连接上它会产生一股力量，让自己辨识出这股力量。
+
 5.Straighten your spine.With your head erect,continue by changing your awareness to a point above your head.Imagine a fine line projecting through the crown chakra at the top of your head.Using your inner eye,move up the line to find the connecting vortex with its 1/4 inch opening.This will be around three feet above your head.Listen for the high-pitched sound.Now locate your thin line into the opening.You should hear a sound like a "pop"if your clairaudience is functioning when the correct connection is made.[Again,if you do not have clairaudience,you might not be able to hear anything.Simply make it your intention to make the connection and visualize yourself doing so.]
+
+5、挺直你的脊柱，昂起头来，继续让你的觉知来到头顶上方。想象一条细线投射穿过你的头顶上方，即**顶轮**的位置。使用你的内在视觉沿线往上移去，找到一个漩涡以及它1/4英寸（0.6厘米）的开口，它在你头顶上方大约3英尺（90厘米）的位置，去聆听那个高音调的声音。现在，让你的细线进入漩涡开口。如果你的超听觉已经开启，在准确连接的那一刻，你会听到类似“啪”的一声。（在一次声明，如果你没有超听觉，你也许不会听到任何声音，这时只需要用你的意念去连接，并观想自己正在这么做）
 
 6.Make sure the line is in alignment within your body.See it running from the earth to the tan tien to the soul seat/middle tan tien and to the vortex.You may experience a feeling of expanded consciousness. 
 
+6、确定能量线已经与你的身体中部对齐，看着它从地球到下丹田，到灵座/中丹田，接着来到漩涡的位置，你可能感觉到意识的扩张。 
+
 7.Traveling through the vortex will put you into the greater reality of the Source Entity/God. Tune into your soul's"song"in your upper chest,as well as the creativity in your tan tien.At the same time feel the line as it travels down to the earth's core.Absorb the power.This is the alignment for your life's work. 
+
+7、穿过漩涡遨游，会把你带进更高的实相，也就是源实体/神的实相。与你胸腔内的灵体之歌以及丹田内的创造力调谐。与此同时，去感受这条线一路往下来到地球核心，去吸收这个能量，这是校准你的生命的课题。
 
 You have now created a link between heaven and earth and aligned your hara line. 
 
-##### Expanding Your Life Purpose to Your "Group"Purpose 
+现在，你已经在天与地之间建立了一个连接，也一并校准了你的哈拉线。
+
+##### Expanding Your Life Purpose to Your "Group" Purpose 
+
+**将你的人生目标扩展到所属团体的目标中**
 
 Now reach out and detect the hara lines of people that are close to you.This allows you to synchronize your life's purpose with your "group"purpose and the group hara lines.Once you are on this level,you are connected and synchronized with the group with whom you are working.Then you can synchronize with the greater community which,in turn,allows you to connect to the city,country,and world.In this way you can connect to a collective power of an iterative system. 
 
+现在伸展开来，去接触与你关系密切的人们的哈拉线，这能够让你的人生目标与你所属团体的目标以及团体的哈拉线同步。一旦你达到这个层级，你就与你共事的团体连接并同步了。然后你可以跟更大的群体同步，此举能使你连接上城市、国家和世界。你可以用这个方法去连接一个交互体系的集体力量。
+
 8.Return your focus to your core star,the essence of who you are.You are outside time, space,longing,pain and desire.You "are"a creator.Create a plan.As a creator,move to the hara line bringing creative energy (your plan)with you.This is your divine task.Now take this energy to the auric level and create your template for the physical.With this you will bring energy into the physical body.Now the creative energy from the source travels from the core star through the head to the soul seat to the tan tien to the haric level and through the auric layers into the physical. 
+
+8、将注意力重新集中在你的星核以及你的真我本质上，你在时间、空间、愿望、痛苦和欲望之外。你是一名创造者，去创造一个蓝图。作为创造者，你来到哈拉线，带着创造性的能量（你的蓝图），这是你的神圣使命。现在把这股能量带到辉光层创造物质的模板，这样你就把能量带到了物质身体。现在创造性能量从源头从星核经过头部来到灵座，再来到丹田，到达哈拉层，再从辉光层进入物质层。
 
 9.With one creative plan completed,you can go forward,shining with your true essence and purpose.Allow your core star to shine with this purpose and your essence to permeate through your aura.Return and create more plans as desired. 
 
+9、一旦完成了一个创造蓝图，你可继续前进，从你真正的本质与使命发出光芒，让你的星核与这个使命一起发光，让你的本质穿透你的辉光场中，然后回来根据意愿创造更多的蓝图计划。 
+
 10.Allow this essence of your being to shine through the levels of human physical self,core star,soul seat,tan tien and then onto the hara and the aura.Allow it to permeate through every cell of your body as it creates health,joy,and pleasure while you are in the physical. Everything about you will be an expression of your divine essence. 
+
+10、让你的生命本质之光穿透肉体、星核、灵座、丹田，然后进入哈拉线与辉光场。让它穿透你身体的每一个细胞，让它随之创造你在物质界中的健康、喜悦、快乐，与你有关的每一件事都会是你神性本质的一种表达。
 
 ##### Experiencing the Source Within You 
 
-With this exercise,your "trinity"of the core star,soul seat,and tan tien become one with your seven auric levels that are associated directly with the physical.You will experience the "Source”within you. 
+**体验你内在的源头**
+
+With this exercise,your "trinity"of the core star,soul seat,and tan tien become one with your seven auric levels that are associated directly with the physical.You will experience the "Source” within you. 
+
+下面的练习，可以让你的三位一体（星核、灵座、丹田）与你的直接与肉体联系在一起的七层辉光层合二为一。你将体验到内在的源头。
 
 11.With your mind's eye observe each cell of your body.Each cell is like the core star. Therefore,the healing process is the simple task of connecting with the truth of your being.
 
+11、用你的意识眼去观察体内所有细胞。每个细胞就像星核。所以疗愈过程很简单，就是与你真正的生命本质连接。
+
 Whenever you have illness,pain,anger or fear,suspicion or greed,or forget your purpose, focus on your core star.Bring every cell of your body within the light of the core star.This is your essence,your "god"within.Healing is a just connecting with your energetic memory of who you are.You re-create the link or individual creativity.You remember your life task. Allow the creativity associated with your life task to come through to illuminate you,the memory of who you are,and your path in this physical life.Remembering who you are is your prime directive;allow your core star to show you the way. 
+
+无论何时，当你生病、痛苦、生气、害怕、猜疑、贪心，或忘记了你的目标使命时，专注在你的星核上，把你身体的每个细胞带进星核之光中。这是你的本质，你内在的神。疗愈就是与你真实所是的能量记忆的精准连接。你重新创造这一连接或者个人的创造性，你会记起你的人生使命，让这个结合人生使命的创造力放射出来，照亮你。照亮你是谁的记忆，以及你物质生活的道路。记得你是谁是你的首要指令，让你的星核为你指出方向。 
 
 12.Now return to your earthly condition by slowly moving back into the physical,retracting the line from the vortex and the earth,"reeling it in"to the core star. 
 
+12、现在回到你当下的尘世。方法是慢慢移动回到肉体里，将能量线从漩涡与地球收回，将线卷回星核。 
+
 13.Sit down.Drink plenty of water and rest.You will be in a state of euphoria for a while. 
+
+13、坐下来，喝大量水并休息。你会有一段时间处于高度兴奋状态。
 
 #### How To Create an Effective Energy Shield/Filter 
 
@@ -12284,29 +12320,51 @@ Whenever you have illness,pain,anger or fear,suspicion or greed,or forget your p
 
 Each chakra is associated with an auric layer.Chakra 1,the base chakra,is linked to the first layer of the aura,the etheric.Chakra 2,sacral chakra,is linked to layer 2,the emotional, etc.,up to chakra 7,crown chakra,which is linked to auric layer 7,the ketheric template. Also note that each chakra is present,in part,on each of the frequencies represented by the auric layers,which I will now call levels.So you will see all seven chakras(A,front/anterior B,back/posterior)relative to the human form every time you experience each of the auric levels separately.
 
-每个脉轮都对应灰光场的一层，第一脉轮是海底轮连接灰光场的第一层以太层，第二脉轮是奇轮连接。 第二层情绪层以此类推，直到第七脉轮顶轮，它连接的是第七层，灰光层，也就是因果模板层。 同时要注意的是，每个脉轮都在当下，某种程度上存在于灰光场的每一级频率当中。 我现在叫他们层。所以每当你分别体验不同的灰光层时，你都会看出人体的七个脉轮a正面或前面b背面或后面，实际上一共有十四层与物质层相对应，十层对应人体一至三为肉体层，四至七为灵性，物质层八至十为灵性层。 不过这一点并未得到普遍认知。虽然有些灵修人士，你开始认出第八和第九层有七层对应与与总体物质相关，一至七的四层灰光场有三层与灵性有关。 第四层对应的是星轮是总体物质与灵性和物质之间的纽带。 可以说它横跨两个领域。至于较高的七个辉光层，四肢时，也同样与灵性和物质以及灵性相关，但却是真我与化身自我之间的纽带。 正是因为这种个人连接，我们才得以利用这些较高的层级与较低层级结合作为可编写的滤网。 你在我的书里也得知了有十一级以上的层级存在，但那些都是纯能量的层级。 一采取站姿，膝盖微弯，两脚与肩膀同宽，两臂与手自然下垂，在身体双侧去注受第一层以光场去感受。 第一层以态层去感受认同它的在在将它连接底底连，因为它们彼此接接此己，能让你接地想象它是你连接大地的纽带。 当你与此层网上的六层协作时，你会需要它直到你习惯为止，它就像一根避雷针，在能量沉重到你无法应付的时候，你可以通过它把能量导入地面注注意有人在他他们灰光场的不同层面，会有一些较厚的区域或空洞，在最低的灵性物质层，星光层可能会有能量碎片实体粘附，这是能量失衡肉体疾病所致。 在这个练习里，可想象，你的灰光层像一个洁净明亮，完好无损的蛋性。 三忽略它的颜色。因为在这个练系里，颜色并不重要。想象你在一个位于第一层，第一脉轮的电梯里，这一层有它特定的频率。 二想象你乘坐电梯来到第二层，这里的频率较高，也更轻微，将第二脉轮与灰光场。 第二层连上感觉它的存在和它的整体性，接着将第一层与第二层连接在一起做法是想象能量流填满两个蛋之间的空隙，这能量让你所希望的事物进出其中。 但不包括你正在体验的问题，对应能量和频率，你不需要完全了解这问题相关的结构频率和对应的能量。 振幅。重要的是你的意念，这是封锁能量的滤网。三当你乘坐心灵电梯上升，同时用在第一和第二层的方法继续行进到第三四五六七层去感受并观想每一层的形状和结构，将脉轮分别连接到对应的辉光层，并用封锁能量来填满灰光层里，各层之间的空隙，也就是二至三三至四四至五五至六和六至七层之间的空隙，你升的越高频率就变得越轻微。 检查你的接地状态。四当你完成了这些步骤，而且结构的完整性也令你满意时，你可继续来到下一个练习。 如果你对架构的完整性，还有任何疑惑，你需要从出现疑惑的那一层重新开始。 此时的你处在一个很高的层级里，对大多数人而言，所以不要着急，慢慢来。 五重新检查你的接地状态，分别去想象，接下来的六层八九十十一十二十三利用电梯法来到每一层，并再次去感受每一层留意你在每一层的不同感受，并且去感觉觉每一层对应的能量。 由于这几层里没有使用脉轮，所以会稍微容易一些。六一旦你来到了十四层，你可能会体验到觉知的提升，不要在意任何奇怪或令人困扰的影像。 他们很可能源于你对处于这么高的恐惧，这一情形可能会发生在任何到达十四层的个体身上，以及任何其他较高层级当中，将注意力集中在你当前的任务上，把所有层级全放在一起。 像三明治般一个一个叠上去，将第七层与第八层的空隙，只用封锁能量去填满想象较高的这七层是一个复合层，或者说三明治在其中只允许你想要的能量进入。 如果你有所怀疑，你可以阻止所有能量，只留下你需要用来运作的基本必要的能量。 而不仅仅是造成问题的能量，想象它坚不可摧，感受这种安全感。 七赋予欲网一个寿命长度，几天几周几个月几年，甚至你在物质界的寿命，它会因此自动运别担心，你随时可以手动关闭，它只需要按先前创造它时的，相反，操作将它拆除即可。 八检查你的接地状态，在练习的这个阶段里，你会很容易飘走，利用心灵电梯一层层的慢慢下来就深吸一口气喝大量的水这么做能帮助你落地。 如果你感觉头晕，请立刻躺下再多喝一点水，这是一种自然反应。如果你没有晕眩的情形，可到外面走，一会儿呼吸新鲜的空气之后，小试一下，你肯定会感觉很累的。 包括第二天你做的很好，你刚创造了包罗一切完全整合矩阵结构的能量，防护罩滤网。
+每个脉轮都对应辉光场的一层。第一脉轮是海底轮，连接辉光场的第一层以太层。第二脉轮是腹轮，连接第二层情绪层。以此类推，直到第七脉轮，顶轮，它连接的是第七层辉光场，也就是因果模板层。同时要注意的是，每个脉轮都在当下某种程度上存在于辉光场的每一级频率当中，我现在叫它们层。所以每当你分别体验不同的辉光层时，你都会看出人体的七个脉轮。（A：正面或前面，B：背面或后面）
 
-In reality,there are 14 levels associated with the physical (ten associated with the human body,1-3 physical,4-7 spirituo-physical,8-10 spiritual).This is not widely recognized though (although some spiritualists are now beginning to recognize the eighth and the ninth).Seven levels (1-7)are relative to the four auric levels that are associated with the gross physical,and three are associated with the spirituo-physical.The 4th level is associated with the heart chakra and is the link between the gross physical and the spirituo- physical.It has a foot in both worlds,so to speak.The seven higher auric levels(4-10)are also associated with the spirituo-physical and spiritual,but are the link between the real self and that which is incarnate.It is because of this personal link that we can use these higher levels in conjunction with the lower levels,as programmable filters.There are more levels as you have gleaned from my book from eleven upwards,but these are purely energetic. 
+In reality,there are 14 levels associated with the physical (ten associated with the human body,1-3 physical,4-7 spirituo-physical,8-10 spiritual).This is not widely recognized though (although some spiritualists are now beginning to recognize the eighth and the ninth).Seven levels (1-7)are relative to the four auric levels that are associated with the gross physical,and three are associated with the spirituo-physical.The 4th level is associated with the heart chakra and is the link between the gross physical and the spirituo-physical.It has a foot in both worlds,so to speak.The seven higher auric levels(4-10)are also associated with the spirituo-physical and spiritual,but are the link between the real self and that which is incarnate.It is because of this personal link that we can use these higher levels in conjunction with the lower levels,as programmable filters.There are more levels as you have gleaned from my book from eleven upwards,but these are purely energetic. 
 
-1.Stand with your knees slightly bent,feet shoulder width apart,arms and hands by your side.Concentrate on your aura.Feel the first level,the etheric;feel and acknowledge its presence and assign it to your base chakra,for they are linked.This will be your grounding. Imagine this to be your tie to the earth.You will need it while working with the six higher levels until you get used to it.It will be your lightening rod for shorting heavy energies to the ground if they are more than you can cope with.Note:some people have thicker areas or holes in their various auric levels,and in the lowest spirituophysical level,the astral, they might have debris/entities attached due to energetic dysfunction/physical disease.For this exercise,assume a clean,clear,whole un-infested egg shape for your auric level.Ignore colors since they are not important in this exercise.Image you are in an elevator on the first floor/first chakra and that this first floor has a frequency attached to it.
+实际上，一共有14层与物质层相对应（10层对应人体，1至3为肉体层，4至7为灵性-物质层，8至10为灵性层）。不过这一点并未得到普遍认知（虽然有些灵修人士已开始认出第8和第9层）。1-7层有4层与总体物质有关，有3层与灵性-物质有关。第4层对应的是心轮，是总体物质与灵性-物质之间的纽带，可以说它横跨两个领域。至于较高的7个辉光层（4-10），也同样与灵性-物质和灵性有关，但却是真我与化身自我之间的纽带。正是因为这种个人连接，我们才得以利用这些较高的层级与较低层级结合，作为可编程的滤网。你在我的书里也得知了有11级以上的层级存在，但那些都是纯能量的层级。
+
+1.Stand with your knees slightly bent,feet shoulder width apart,arms and hands by your side.Concentrate on your aura.Feel the first level,the etheric;feel and acknowledge its presence and assign it to your base chakra,for they are linked.This will be your grounding. Imagine this to be your tie to the earth.You will need it while working with the six higher levels until you get used to it.It will be your lightening rod for shorting heavy energies to the ground if they are more than you can cope with. Note:some people have thicker areas or holes in their various auric levels,and in the lowest spirituo-physical level,the astral, they might have debris/entities attached due to energetic dysfunction/physical disease.For this exercise,assume a clean,clear,whole un-infested egg shape for your auric level.Ignore colors since they are not important in this exercise.Image you are in an elevator on the first floor/first chakra and that this first floor has a frequency attached to it.
+
+1、采取站姿，膝盖微弯，两脚与肩膀同宽，两臂与手自然下垂在身体双侧。专注于你的辉光场，去感受第1层，以太层。去感受，认同它的存在，将它指定给海底轮，因为它们彼此连接，此举能让你接地，想象它是你连接大地的纽带。当你与此层往上的6层协作时，你会需要它，直到你习惯为止。它就像一根避雷针，在能量沉重到你无法应付的时候，你可以通过它把能量导入地面。注意，有些人在他们辉光场的不同层面会有一些较厚的区域或空洞。在最低的灵性-物质层，星光层，可能会有能量碎片/实体粘附，这是能量失衡/肉体疾病所致。在这个练习里，可想象你的辉光层像一个洁净、明亮、完好无损的蛋形。先忽略它的颜色，因为在这个练习里，颜色并不重要。想象你在一个位于第1层/第1脉轮的电梯里，这一层有它特定的频率。 
 
 2.Imagine going up a level in an elevator to the next level,the 2nd;the frequency is higher and finer.Link the 2nd chakra to the 2nd auric level.Feel its presence and its wholeness. Then link the 1st and 2nd together by flooding the gap in between the two "eggs"with an energy that lets everything you want in and out,except the energies and frequencies associated with the issues you are experiencing.It is not necessary to fully understand the structure,frequency,and amplitude of the energy associated with the issues as it's the intention that counts. This is the filter "blocking"energy. 
 
+2、想象你乘坐电梯来到第2层，这里的频率较高也更精微。将第2脉轮与辉光场第2层连上，感觉它的存在和它的整体性。接着将第1层与第2层连接在一起，做法是想象能量流填满两个蛋之间的空隙。这能量让你所希望的事物进出其中，但不包括你正在体验的问题对应的能量和频率。你不需要完全了解这问题相关的结构、频率和对应的能量振幅，重要的是你的意念。这是“封锁”能量的滤网。
+
 3.Continue the process used in levels 1 2 with 3,4,5,6 7 as you go up each level in the mental elevator,feeling and visualizing the shape and structure of the level,linking the chakras to the auric levels and flooding the gaps between the auric levels with the blocking energy in between levels 2 3,levels 3 &4,levels 4 5,levels 5 6 and levels 6 7.The frequencies become finer and finer as you go higher.Check your grounding. 
+
+3、当你乘坐心灵电梯上升，同时用在第1和第2层的方法，继续行进到第3、4、5、6、7层，去感受并观想每一层的形状和结构，将脉轮分别连接到对应的辉光层，并用封锁能量来填满辉光层里各层之间的空隙，也就是2至3、3至4、4至5、5至6、6至7层之间的空隙。你升的越高，频率就变得越精微。检查你的接地状态。
 
 4.When you have achieved this and are satisfied with the integrity of the structure,you can move on to the next task.If you have any doubts about the integrity of the structure,you will need to start again at the level where the doubt exists.At this point you are at a high level(for most people),so take your time. 
 
+4、当你完成了这些步骤，而且结构的完整性也令你满意时，你可继续来到下一个练习。如果你对架构的完整性还有任何疑惑，你需要从出现疑惑的那一层重新开始。此时的你处在一个很高的层级里（对大多数人而言），所以不要着急，慢慢来。 
+
 5.Re-check your grounding.Imagine the next six levels(8,9,10,11,12,13)individually.Use the elevator method to get to each level and again feel each level.Notice how each level feels different from the others and feel the energies associated with these levels.No chakras are present in these levels so this bit is easier.
+
+5、重新检查你的接地状态。分别去想象接下来的六层：8、9、10、11、12、13，利用电梯法来到每一层，并再次去感受每一层。留意你在每一层的不同感受，并且去感觉觉每一层对应的能量。由于这几层里没有使用脉轮，所以会稍微容易一些。
 
 6.Once you have arrived at the 14th level,you may well experience a heightened level of awareness.Ignore any "strange"or disturbing images that might appear based on your fear of being too high.This sometimes happens with individuals at this level and could occur in any of the higher levels.Concentrate on the task at hand.Bring all of the levels together, one on top of each other so that they sandwich each other.Flood the gap between level 7 and level 8 only with the blocking energy.Imagine these seven higher levels to be a laminate (sandwich)that also ONLY allows the energies you want in.If you are in doubt,block out all but essential and necessary energies you need to function and not just those causing the issue.Image it is fully impregnable.Feel the safety. 
 
+6、一旦你来到了14层，你可能会体验到觉知的提升。不要在意任何奇怪或令人困扰的影像，它们很可能源于你对处于这么高的恐惧，这一情形可能会发生在任何到达14层的个体身上，以及任何其他较高层级当中。将注意力集中在你当前的任务上，把所有层级全放在一起，像三明治般一个一个叠上去。将第7层与第8层的空隙只用封锁能量去填满，想象较高的这7层是一个复合层（三明治），在其中只允许你想要的能量进入。如果你有所怀疑，你可以阻止所有能量，只留下你需要用来运作的基本必要的能量，而不仅仅是造成问题的能量。想象它坚不可摧，感受这种安全感。 
+
 7.Give the filter a life span in days,weeks,months,years or as long as you are in the physical. This gives it an automatic function.Don't worry;you can always turn it off manually by disassembling it in the reverse of the method you used to create it. 
+
+7、赋予欲网一个寿命长度，几天、几周、几个月、几年，甚至你在物质界的寿命。它会因此自动运行，别担心，你随时可以手动关闭它，只需要按先前创造它时的相反操作将它拆除即可。 
 
 8.Check your grounding.It is easy to fly off at this point in the exercise.Come down the levels slowly one by one using the mental elevator. 
 
+8、检查你的接地状态。在练习的这个阶段里，你会很容易飘走，利用心灵电梯一层层地慢慢下来。
+
 9.Take a deep breath and drink plenty of water,which will also help ground you.If you feel dizzy,lie down immediately.Drink more water.This is a natural response.If you don't feel dizzy,go outside for a few minutes and take in the fresh air.Then take a nap.You WILL be tired (including the next day). 
 
+9、深吸一口气，喝大量的水，这么做能帮助你落地。如果你感觉头晕，请立刻躺下，再多喝一点水，这是一种自然反应。如果你没有晕眩的情形，可到外面走一会儿，呼吸新鲜的空气。之后小睡一下，你肯定会感觉很累的（包括第二天）。
+
 Well done!You have just created an all-inclusive,fully integrated,matrix-based shield/filter.
+
+你做的很好，你刚创造了包罗一切、完全整合、矩阵结构的能量防护罩/滤网。
 
 #### The Names of the Chakras 
 
@@ -12318,18 +12376,28 @@ Well done!You have just created an all-inclusive,fully integrated,matrix-based s
 - Fourth Chakra-Color:Green-called the Heart Chakra or Anahata Chakra-Anatomical Association- Thymus:Heart,Blood,Vegas Nerve,Circulatory System 
 - Fifth Chakra -Color:Blue-called the Throat Chakra or Vishuddha Chakra-Anatomical Association Thyroid:Bronchial and Vocal System,Lungs,Alimentary Canal 
 - Sixth Chakra -Color:Indigo -called the Third Eye Chakra or Ajna Chakra -Anatomical Association Pituitary:Lower Brain,Left Eye,Ears,Nose,Nervous System 
-- Seventh Chakra-Color:Violet-called the Crown Chakra or Sahasrara Chakra-Anatomical Association Pineal:Upper Brain,Right Eye 
-- Chakras situated in the front of the human body (so called A chakras)are associated to our intentions 
-- Chakras situated in the rear of the human body(so called B chakras)are associated to our actions 
+- Seventh Chakra-Color:Violet-called the Crown Chakra or Sahasrara Chakra-Anatomical Association Pineal:Upper Brain,Right Eye
 
-第一，脉轮颜色红色名为海底轮根轮解剖学上对应肾上腺脊柱双肾。 第二，脉轮颜色橙色名为鳍轮解剖学上对应生殖腺性腺生殖系统。 第三，脉轮颜色黄色名为太阳轮解剖学上对应胰腺肺肝胆神经系统。 第四，脉轮颜色绿色名为心轮解剖学上对应胸腺心脏血液交感神经循环系统。 第六，脉轮颜色紫色名为喉轮解剖学上对应甲状腺支气管与发生系统肺消化道。 第六，脉轮颜色电星名为三眼轮解剖学上对应甲垂体下脑，左眼耳鼻神经系统。 第七，脉轮颜色紫色名为喉轮解剖学上对应松果体上脑，右眼位于人体正面的脉轮称为a脉轮与我们的医院有关，位于人体脉轮脉轮称为b脉轮与我们的行动有关。
+序号|颜色|名称|解剖学对应
+---|---|---|---
+第1脉轮|红色|海底轮/根轮|肾上腺、脊柱、双肾
+第2脉轮|橙色|腹轮|生殖腺、性腺、生殖系统
+第3脉轮|黄色|太阳轮|胰腺、胃、肝、胆、神经系统
+第4脉轮|绿色|心轮|胸腺、心脏、血液、交感神经、循环系统
+第5脉轮|蓝色|喉轮|甲状腺、支气管与发声系统、肺、消化道
+第6脉轮|靛青|三眼轮|脑垂体、下脑、左眼、耳、鼻、神经系统
+第7脉轮|紫色|顶轮|松果体、上脑、右眼
+
+Chakras situated in the front of the human body (so called A chakras) are associated to our intentions. Chakras situated in the rear of the human body (so called B chakras) are associated to our actions. 
+
+位于人体正面的脉轮称为A脉轮，与我们的意愿有关。位于人体背面的脉轮称为B脉轮，与我们的行动有关。
 
 #### Psychological Function of Chakras 
 
 **脉轮的心理功能**
 
 - Chakra 1:Quantity of physical energy,will to live 
-- Chakra 2A:Quality of love for the opposite sex,giving and receiving mental spiritual pleasure 
+- Chakra 2A:Quality of love for the opposite sex, giving and receiving mental spiritual pleasure 
 - Chakra 2B:Quality of sexual energy 
 - Chakra 3A:Pleasure expansiveness,spiritual wisdom,consciousness of the universality of life and who you are in the universe 
 - Chakra 3B:Healing and intentionality towards your health 
@@ -12341,7 +12409,18 @@ Well done!You have just created an all-inclusive,fully integrated,matrix-based s
 - Chakra 6B:Ability to achieve ideas in a practical way 
 - Chakra 7:Integration of personality with life and spiritual aspects of mankind 
 
-脉轮一物质能量的多少活着的意志脉轮。二a对异性挚爱的品质心理与灵性，给予与接受的快乐脉轮。 二b性能量的品质脉轮。三a快乐与广阔灵性智a对生命的普适性，以及你在宇宙中是谁的认识麦轮？ 三b疗愈以及朝向健康的意愿脉轮。四a对他人的内心挚爱，对生命的敞开度脉轮。 四b小，我的意志或朝向外在的意志脉轮。五a吸收与童话知识脉轮。 五b在社会里的自我意识和个人职业脉轮。六a视觉化的能力以及对心智概念的理解脉轮。 六b将想法付诸实践的能力脉轮。七将人格与生命及人类的灵性念整合。
+- 脉轮1：物质能量的多少，活着的意志
+- 脉轮2A：对异性之爱的品质，给予与接受精神上的快乐
+- 脉轮2B：性能量的品质
+- 脉轮3A：快乐与广阔，灵性智慧，对生命的普适性，以及你在宇宙中是谁的认识
+- 脉轮3B：疗愈以及朝向健康的意愿
+- 脉轮4A：对他人的内心之爱，对生命的敞开度
+- 脉轮4B：小我的意志，或朝向外在的意志
+- 脉轮5A：吸收与同化知识
+- 脉轮5B：在社会里的自我意识和个人职业
+- 脉轮6A：视觉化的能力，以及对心智概念的理解
+- 脉轮6B：将想法付诸实践的能力
+- 脉轮7：将人格与生命及人类的灵性面整合
 
 #### Name,Appearance,and Function of the Auric Layers/Levels 
 
@@ -12356,7 +12435,16 @@ Well done!You have just created an all-inclusive,fully integrated,matrix-based s
 - Auric layer 7-Name:Ketharic Template -Appearance:A highly structured matrix of tiny gold-silver threads of light within an egg shape that shows the structure of the physical body and all chakras-Function: Accumulation of past life bands,life plan,holds the auric bodies together 
 - Auric layer 8 to 10-Name:No names identified-Appearance:Gossamer-like structure,increasing in fineness the higher one goes and finalizing in no structure-Function:Main communication/link to the true and fully energetic self 
 
-第一层名称以钛体外观精细的蓝色能量线网格作用肉体的能量矩阵或模板。 第二层名称情绪体外观彩色云状持续流动作用，显示情绪，获爱喜悦愤怒等感觉，并允许其沟通。 第五层名称星智体外观结构化的明亮。黄光自身体的头部与肩膀散发出来作用，包含我们的思想与想法的结构。 第六层名称星光体外观不定型的彩色云朵带有玫瑰色光芒作用，有助于灵性能量转化成物质能量以及物质能量转化成灵性能量。 第五层还展示两个人之间的爱。第五层名称以钛模板形式有如古蓝色线条组成的蓝色照片。 底片作用是以钛体的蓝图或完美形式。第六层名称，天光体形式蜡笔画般的彩色光芒，带有金银色光泽作用，无条件爱之交流和与神合。 二为一第七层名称因果模板形式呈现弹形，由金银细光线组成的高度结构化的矩阵，显示出肉体与所有脉轮结构作用前，是生命和生命蓝图的积累，将所有的能量体连接在一起。 第八到十层名称名称为确认形式薄丝般的结构越高层越精细，最终以至于无结构作用与真正的全然的能量，自我的主要沟通连接。
+序号|名称|外观|作用
+---|---|---|---
+第1层|以太体|精细的蓝色能量线网格|肉体的能量矩阵或模板
+第2层|情绪体|彩色云状，持续流动|显示情绪或爱、喜悦、愤怒等感觉，并允许其沟通
+第3层|心智体|结构化的明亮黄光，自身体的头部与肩膀散发出来|包含我们的思想与想法的结构
+第4层|星光体|不定型的彩色云朵，带有玫瑰色光芒|有助于灵性能量转化成物质能量，以及物质能量转化成灵性能量，这一层还展示两个人之间的爱
+第5层|以太模板|有如钴蓝色线条组成的蓝色照片底片|以太体的蓝图或完美形式
+第6层|天光体|蜡笔画般的彩色光芒，带有金银色光泽|无条件爱之交流，与神合二为一
+第7层|因果模板|呈现蛋形，由金银细光线组成的高度结构化的矩阵，显示出肉体与所有脉轮结构|前世生命和生命蓝图的积累，将所有的能量体连接在一起
+第8~10层|未确认|薄丝般的结构，越高层越精细，最终以至于无结构|与真正的、全然的能量自我的主要沟通/连接
 
 #### How to Experience the Levels Discussed in The History of God 
 
@@ -12364,27 +12452,50 @@ Well done!You have just created an all-inclusive,fully integrated,matrix-based s
 
 Because trees provide a level of frequential stability,many people choose to experience higher frequency level meditations while sitting among trees or leaning against a tree.Some people progress better and feel safer when in the presence of trees.Trees are constantly connected to the universal grounding medium of water and are a gestalt mind.They revel in kind and loving human contact and a perfect setting for learning to traverse the many levels above the 7th. 
 
-由于树木能提供一种评级上的稳定性，许多人选择坐在树林中或靠着树据体验更高评级的冥想，有些人在有数的环境下进步更大，而且感觉更安全。 树木始终与普遍接地媒介水连接着，而且是格式塔心智。他们热爱跟善良友爱的人类接触，并且是学习穿越第七层以上各层的理想环境，我采用一套特殊带循序渐进的方法，用于提高自己的频率，使自己到达能穿越前七层物质心理层的程度。 在穿过更高的七层，也就是灵性能量层级，然后继续往前和往上来到on拜伦和其他能量体的所在之处。 我相信，通过完整的学习练习和不懈坚持。你最终也可以开始与原石体及起源进行对话，注作者所说的特殊的方法，在其全世界范围内教授的穿越频率线上课，实际工作房上有详细的说明和教学。 我们强烈建议您通过盖伊先生的独家官方渠道养课微信平台，加入作者独家授权的穿越频率灵性护盾，从头认识灵性世界等实地或线上的中文工作。 房微课程以保证您获得完整和安全的学习指导和服务，并可加入盖伊尼德勒相关课程的专属学员群一起体验和交流，每天频率的提升。
+由于树木能提供一种频率上的稳定性，许多人选择坐在树林中或靠着树去体验更高频率的冥想。有些人在有树的环境下进步更大，而且感觉更安全。树木始终与普遍接地媒介水连接着，而且是格式塔心智。它们热爱跟善良有爱的人类接触，并且是学习穿越第7层以上各层的理想环境。
 
-This exercise illustrates the basic method I initially used to raise my frequencies to the levels required to transcend the seven levels generally associated with the physical/spirituo- physical body,move through the next seven spiritual/energetic levels,and then continue onwards and upwards to those levels where the Om,Byron,and other energetic entities reside.With practice one can also commence a dialogue with the Source Entity and the Origin. 
+This exercise illustrates the basic method I initially used to raise my frequencies to the levels required to transcend the seven levels generally associated with the physical/spirituo-physical body,move through the next seven spiritual/energetic levels,and then continue onwards and upwards to those levels where the Om,Byron,and other energetic entities reside.With practice one can also commence a dialogue with the Source Entity and the Origin. 
+
+这个练习说明了我最初用来提高频率的基本方法，以达到超越与物理/灵性-物理相关的7个层级所需的水平，通过接下来的7个灵性/能量级别，然后继续向前和向上，到达那些OM、拜伦和其他能量实体所在的级别。通过练习，你也可以开始与源实体和起源对话。
 
 1.Find a quiet room where you will not be disturbed. 
 
+1、找一个不被打扰的安静房间。
+
 2.Stand with your knees slightly bent,feet shoulder width apart,arms and hands by your side. 
+
+2、站立时膝盖微屈，双脚分开与肩同宽，手臂和双手置于身体两侧。
 
 3.Ground yourself by imagining a climber's rope attached to you and an anchor buried deeply in the ground.You will need this,and you should keep referring to this grounding link throughout this exercise.This will help you return to the physical. 
 
+3、想象一条攀登者的绳索附在你身上，锚深深地埋在地里来接地。你将需要这个，并且在整个练习中你应该一直提到这个接地环节，这将帮助你回到物质世界。
+
 Each chakra is associated with an auric level.Imagine them opening in order.This will allow you to ascend to that auric layer level and frequency. 
+
+每个脉轮都与辉光层有关。想象它们有序地打开。这将允许你提升到辉光层的层次和频率。
 
 4.Concentrate on your base chakra.Imagine it being opened.Feel the etheric level.Move to that level. 
 
+4、集中注意力在你的海底轮上。想象它被打开了，感受以太层，进入那个层次。
+
 5.Move on to the second chakra,the sacral.Open it and feel the presence of the second auric level,the emotional.Move to that level. 
+
+5、移动到第2个脉轮，腹轮。打开它，感觉到第2个辉光层的存在，情绪层，移动到那个层次。
 
 6.Move to the third,fourth,fifth,sixth,and seventh chakras and auric layers and associated frequency levels in the same way.
 
+6、以同样的方式移动到第3、第4、第5、第6、第7脉轮和辉光层以及相关的频率水平。
+
 7.Stop at the seventh level.See the crown chakra open and the ketharic template present. You are now at the end of the physicality of your humanity.Check your grounding.Feel the level.Get used to it.Levels 8-10 are purely spiritual and levels 11 upwards are purely energetic. 
 
+7、在第7层停下来，看到顶轮打开和因果模板出现。你此刻在人类的物质身体的末端，检查你的接地。感觉这个层次，习惯它。8-10层是纯灵性层，11层以上是纯能量层。
+
 8.Next imagine an elevator with a series of buttons.Each button represents a frequency level from 8 through 100,as well as buttons marked G for ground and S for slow descent or ascent.For continuity of methodology,you can later include 1 through 7 buttons if you wish.Imagine that pressing one of these buttons takes you in a linear vertical ascent to the level selected.Therefore,pressing level 20 takes you to level 20 via levels 8,9,10,11,12,etc., to 20 in a slow and methodical fashion. 
+
+8、接下来想象一个有一系列按钮的电梯。每个按钮代表一个从8到100的频率等级，以及标记为G的地面按钮和S的缓慢下降或上升按钮。为了保持方法的连续性，如果你愿意，你可以在后面包括1到7个按钮。想象按下其中一个按钮会使你直线垂直上升到所选的等级。因此，按下20级按钮会使你通过8级，9级，10级，11级，12级，等等，以缓慢而有条不紊的方式到达20级。9.想象一下，在电梯旁边有一个楼梯间。这个楼梯间也有一系列的楼梯，通往每个楼层。走楼梯是重复提升频率水平的方式。如果你不愿意使用电梯的方法来提升一个水平，那么这个楼梯间应该被使用。使用楼梯将是一个从一个水平到另一个水平的更缓慢和更温和的过渡。10.总是检查你的接地，当你在身体/第七轮以上的水平上时，很容易飞离。
+ **这里有一个警告。**我不提倡“跳跃”的水平。一个接一个的进步。习惯每个水平的感觉，慢慢地获得你的信心。从频率上讲，你离你可能习惯的东西还有很长的路要走。在第八个以上一次进步一或两个水平。这与创建一个屏障/过滤器是不一样的，因为你的注意力不是固定在你自己的能量场上。进展太快会导致令人不安的图像，无论如何你可能会经历。最初移动频率太快是不明智的。最好是少量地习惯它们。在第十四个以上旅行需要重新接地，所以记住总是向锚发送另一条线。11.当你练习几次并达到第十四层时，用心眼看看你的周围。保持警惕与任何在这个层级上存在的实体进行交流。它可以通过超视听、超视力和/或超感知。12.当你准备好了，就乘坐心灵电梯，一步一步慢慢地往下走。13.深呼吸。如果你感到头晕，立即躺下。喝大量的水，这将帮助你接地。这是一个自然的反应。如果你感觉良好，也喝大量的水，以帮助你接地。到外面走几分钟，呼吸新鲜空气，然后躺下。你会感到疲倦(包括第二天)。
+ 任何时候，如果你对在一个特定的水平感到关心或担心，回到电梯，选择G/地面/完全物理水平按钮。选择缓慢下降按钮。下降太快与上升太高一样有害。不要停留在一个让你感到不舒服的水平。如果你在任何时间任何水平感到不舒服，要么下降到一个你感到快乐的水平，要么完全下降到地面。
+ 在几天或几周内，慢慢地进步到越来越高的水平(牢记你的接地和舒适水平)。记住要慢慢来。最终你将能够穿越所有水平，甚至可能超越这种穿越频率的机械方法。
 
 9.Also imagine access to a stairwell by the side of the elevator.This stairwell also has a series of stairs leading to each of the landings/levels as well.Walking the stairs duplicates the way to ascend the frequency levels.This stairwell should be used if you are resistant to moving up a level using the elevator method.Using the stairs will be a slower and much gentler transition from level to level. 
 
@@ -12406,105 +12517,141 @@ Over the days or weeks,slowly progress to higher and higher levels(keeping in mi
 
 **术语表**
 
-次星汽油一种高星玩质汽油巴卡西记录，每个人类行为及后续进化事件的过去未来所有记录埃伯里和基尔马星体一英国的的两个系统黑洞在物质上是局部重力密度的一个区域，在灵性上是一个稳定维度引力区域是维度中的维度脉轮，人体内的能量中心，不同的脉轮构成了人体的能量系统。 星核哈拉或星核基本上同意。但星核星量或灵体或转转能量的的灵系性平率印记及以及人的根根本目。 星星和明响一种进星影响的一样，主要是透过哈拉或星体与我们的高额系统去了解个人人的生命系化星图或转世使命能量层级每一层层级之间的距离，与人体明层不同，层级之间的频率差距一样。 格式塔完形星智，一些个体形成的一个集体，彼此共享同一星智功能。 例如蚂蚁蚁树木以及及宇宙间其他以能量为基础的生命哈拉与实体的转世部分相联系的力量或能量哈拉线转世个体的能量与物质地球之间的连接。 这条纽带能让我们存活于物质界，切断这条能量线便等于切断了哈拉与物质界的连接，从而导致物理死亡。 人体辉光场与人体物质与星光体部分有关的能量场气场。多位宇宙一个含有万千个宇宙的环境灵性和物质的肉体与心灵相会交融的层级丹田在肉体微光场内是哈拉线上一个重要的中心，心灵智斗，使用纯粹思想的力量，将一个物体或人抬升起来，瞬间移动在变换位置的过程中，有能力分解机体并予以重组，嗯，以能量为基础，但未在地球化身的存有源实体。 我们所称的神是我们多维宇宙的创造者，起源是十二个源实体的创造者。 十二个源实体界存在于起源之中。起源是更宏大的神纯粹分粹能量和一一切的开始
-
 **"Out for a Golden Duck"** - a saying in Cricket when you have been bowled out on your very first bowl of the ball in your first over of a match.In the conversation with Byron I expected to know everything about "time."As soon as Byron stated that time was spherical (in his first sentence on the subject),all of my pre-conceived knowledge was rendered meaningless. 
 
 **4 Star Petrol** - high octane gasoline. 
 
-**Akashic records** - an eternal past present and future record of each of humankind's actions and subsequent evolution 
+**4星汽油**：高辛烷值汽油。
+
+**Akashic records** - an eternal past present and future record of each of humankind's actions and subsequent evolution.
+
+**阿卡西记录**：每个人类行为及后续进化事件的过去、未来所有记录。
 
 At a rate of **knots** - an old nautical term.It means "fast"or to be at "speed."A knot is equal to one nautical mile per hour.In the days of the tall ships when old mariners were navigating by using the "dead reckoning"system of navigation (the most basic there is),they threw a weighted float attached to a knotted rope over the stern of the ship and counted the number of knots passing through the hand of the sailor,as the ship progressed,in the period taken to allow the sand in a 30-second hour glass to pass from one side to the other.The distance between the knots was 47 yards and 3 inches.When the ship was traveling fast and the "rate of knots"passing through the sailors hand was high,the term "we are traveling at a (high) rate of knots"was used to indicate a faster than normal speed.
 
 **Avebury** and **Kilmartin** are in the UK. 
 
-**Black hole** - physically is an area of local gravitational density and spiritually is an area of stable dimensional instability,a dimension within a dimension 
+埃夫伯里和基尔马丁：位于英国的的两个城市。
 
-**Chakra** - an energy center in the human body 
+**Black hole** - physically is an area of local gravitational density and spiritually is an area of stable dimensional instability,a dimension within a dimension. 
 
-**Coadunate** - a connected collection of civilizations that are all collectives in their own right 
+**黑洞**：在物质上是局部重力密度的一个区域，在灵性上是一个稳定维度引力区域，是维度中的维度。
 
-**Core star** - the **"Hara"**or **"Core Star"**are essentially the same with the exception that the Core Star tends to be associated with the Soul or the individuality (resonant signature)of the incarnate energy and the essential objective of the incarnation 
+**Chakra** - an energy center in the human body. 
 
-**Core star meditations** - a method of meditation focused upon understanding one's life plan/task or reason for incarnation through accessing our greater beingness via the Hara or Core Star 
+**脉轮**：人体内的能量中心。
 
-**Dimensional Mechanics** - a method of creating a dimension within a dimension 
+**Coadunate** - a connected collection of civilizations that are all collectives in their own right. 
 
-**DNA** - deoxyribonucleic acid 
+**Core star** - the **"Hara"**or **"Core Star"**are essentially the same with the exception that the Core Star tends to be associated with the Soul or the individuality (resonant signature)of the incarnate energy and the essential objective of the incarnation. 
 
-**Dysfunction** - out of specification functionality 
+**星核**：哈拉或星核基本上同义，但星核较偏向于灵体或转世能量的鲜明个性（频率印记），以及转世的根本目的。
 
-**Energy levels** - the distance between each level that is consistent with the difference between the frequencies in the human auric levels
+**Core star meditations** - a method of meditation focused upon understanding one's life plan/task or reason for incarnation through accessing our greater beingness via the Hara or Core Star. 
+
+**星核冥想**：一种静心冥想的方法，主要是透过哈拉或星核与我们的高我接触，去了解一个人的生命计划/蓝图或转世使命。
+
+**Dimensional Mechanics** - a method of creating a dimension within a dimension. 
+
+**DNA** - deoxyribonucleic acid. 
+
+**Dysfunction** - out of specification functionality. 
+
+**Energy levels** - the distance between each level that is consistent with the difference between the frequencies in the human auric levels.
+
+**能量层级**：每一个层级之间的距离，与人体辉光场不同层级之间的频率差距一样。 
 
 **Etheric Template** - please see Name,Appearance and Function of the Auric Layers/Levels in the Appendix. 
 
-**Frequential** - sequentially-based frequencies in frequentic space 
+**Frequential** - sequentially-based frequencies in frequentic space. 
 
-**Frequential Plane** - a singular sequential frequency 
+**Frequential Plane** - a singular sequential frequency. 
 
-**Frequentic** - multi-frequency space 
+**Frequentic** - multi-frequency space. 
 
-**Gestalt mind** - a collection of entities that share a single mind function,such as ants or trees and most other energy-based beings within this universe 
+**Gestalt mind** - a collection of entities that share a single mind function,such as ants or trees and most other energy-based beings within this universe. 
 
-**Hara** - the "Power"or energy associated with that part of the entity that is incarnate 
+**格式塔心智**：一些个体形成的一个集体，彼此共享同一心智功能，例如蚂蚁或树木，以及宇宙间其他以能量为基础的生命。
 
-**Hara line** - the connection between the incarnate entity's energy and the physical "earth." It is the bond that keeps us here in the physical.Cutting the Hara Line (Japanese Hara-Kiri or Seppuku,ceremonial suicide)is the cutting of the connection of the Hara to the physical, which results in physical death 
+**Hara** - the "Power"or energy associated with that part of the entity that is incarnate. 
 
-**Holographic** - a three-dimensional rendering 
+**哈拉**：与实体的转世部分相联系的力量或能量。
+
+**Hara line** - the connection between the incarnate entity's energy and the physical "earth." It is the bond that keeps us here in the physical.Cutting the Hara Line (Japanese Hara-Kiri or Seppuku,ceremonial suicide)is the cutting of the connection of the Hara to the physical, which results in physical death. 
+
+**哈拉线**：转世个体的能量与物质地球之间的连接。这条纽带能让我们存活于物质界，切断这条能量线便等于切断了哈拉与物质界的连接，从而导致物理死亡。 
+
+**Holographic** - a three-dimensional rendering. 
 
 **Hot Swop** - a computer peripheral term used to describe the removal or plugging in of a peripheral without the power being turned off.In the spiritual,this relates to the swopping in/out of a soul from/to a physical human body without the body needing to die or be born. This is sometimes called a walk-in.
 
 **Hum** - an energy being beloved of the Om.Hum was sent by the Om to help me in my early stages of continued connectivity with the higher levels of frequency/dimension. 
 
-**Human Aura** - the energy fields associated with the physical and astral components of the human body 
+**Human Aura** - the energy fields associated with the physical and astral components of the human body. 
+
+**人体辉光场**：与人体物质与星光体部分有关的能量场。
 
 **Hyperspace** - a moment of frequential and dimensional phase that is different than the normal graduations of phase that allows movement between dimensional and frequency based environments. 
 
-**Ketheric Template** - please see Name,Appearance and Function of the Auric Layers/Levels in the Appendix 
+**Ketheric Template** - please see Name,Appearance and Function of the Auric Layers/Levels in the Appendix. 
 
-**Macro-universe** - a complete universe where our own universe would serve to be the sub- atomic levels 
+**Macro-universe** - a complete universe where our own universe would serve to be the sub- atomic levels. 
 
-**Micro-universe** - a complete universe at the scale of the sub-atomic 
+**Micro-universe** - a complete universe at the scale of the sub-atomic. 
 
-**Minor-verse** - a universe of lesser content in terms of dimension and frequency and habitation,one of lower importance 
+**Minor-verse** - a universe of lesser content in terms of dimension and frequency and habitation,one of lower importance. 
 
-**Multi-verse** - an environment housing myriad universes 
+**Multi-verse** - an environment housing myriad universes. 
 
-Not **grasping the nettle** - grasping the nettle is a way of augmenting the level of understanding.Understanding is one thing but fully recognizing the details behind the level of understanding and believing it whole heartedly(deep down)is another thing."Grasping the Nettle"is,therefore,a way of saying that "I,"in this instance,was understanding but not fully appreciating the knowledge to the point of "knowing"on a fundamental basis and taking it“on-board”as fact.. 
+**多维宇宙**：一个容纳无数宇宙的环境。
 
-**Null Space** - the space in between universes for travel between universes 
+Not **grasping the nettle** - grasping the nettle is a way of augmenting the level of understanding.Understanding is one thing but fully recognizing the details behind the level of understanding and believing it whole heartedly(deep down)is another thing."Grasping the Nettle"is,therefore,a way of saying that "I,"in this instance,was understanding but not fully appreciating the knowledge to the point of "knowing"on a fundamental basis and taking it“on-board”as fact. 
 
-**Psychometry** - gaining spiritual information about an object or person via tactile contact 
+**Null Space** - the space in between universes for travel between universes. 
 
-**RNA** - ribonucleic acid 
+**Psychometry** - gaining spiritual information about an object or person via tactile contact. 
 
-**Simulacrum** - similar or in the same likeness 
+**RNA** - ribonucleic acid. 
 
-**Spaced out** - a term I used to describe being close to fainting 
+**Simulacrum** - similar or in the same likeness. 
 
-**Spirituophysical** - the level where the physical and spiritual levels meet and mix 
+**Spaced out** - a term I used to describe being close to fainting. 
+
+**Spirituophysical** - the level where the physical and spiritual levels meet and mix.
 
 **Tan tien** - the point within the physical/auric body where the center or point of the Core Star/Hara/soul is dominant.With Japanese Hara-Kiri,the cutting of the Hara line should also pass through the tan tien to ensure that the Soul energy is effectively released from its earthly ties. 
 
+**丹田**：在肉体/辉光体内的点，那里是星核/哈拉/灵魂的中心或点。在日本切腹中，哈拉线的切割也应该通过丹田，以确保灵魂能量有效地从其地球的联系中释放出来。
+
 **Telekinesis** - levitation of an object or person by application of pure thought.
+
+**心灵制动**：使用纯粹思想的力量将一个物体或人抬升起来。
 
 **Teleportation** - the ability to dissolve and materialize the physical body at will while changing location in the process. 
 
-**The Big Bang** - the current "scientific"theory on how the universe was created 
+**瞬间移动**：在变换位置的过程中，有能力分解机体并予以重组。
 
-**The Dragon Entity/Byron** - a 27th level energy being 
+**The Big Bang** - the current "scientific"theory on how the universe was created. 
 
-**The Om** - energy-based beings not indigenous to Earth 
+**The Dragon Entity/Byron** - a 27th level energy being. 
 
-**The Origin** - the creator of the 12 Source Entities who exist within the Origin,the greater God an entity of pure sentient energy 
+**The Om** - energy-based beings not indigenous to Earth. 
+
+**OM**：以能量为基础，但未在地球化身的存有。
+
+**The Origin** - the creator of the 12 Source Entities who exist within the Origin,the greater God an entity of pure sentient energy. 
+
+**起源**：12个源实体的创造者，12个源实体皆存在于起源之中。起源是更宏大的神，是纯粹知觉能量的实体。
 
 **The Silver Cord** - the connection with our energetic "higher selves,"the opposite of the Hara which anchors us to the earth energetically.Some individuals with enhanced ability to communicate with spirit have two silver cords. 
 
-**The Source Entity** - what we call God,the creator of our multi-verse 
+**The Source Entity** - what we call God,the creator of our multi-verse. 
+
+**源实体**：我们所称的神，是我们多维宇宙的创造者。
 
 **UFO** - Unidentified Flying Object. 
 
-**Unleaded petrol** - a low octane petrol with a zero lead count 
+**Unleaded petrol** - a low octane petrol with a zero lead count. 
 
 **Wormhole** - physically an area where two frequencies connect with each other.It is possible to use wormholes to jump up through the frequencies.
 
