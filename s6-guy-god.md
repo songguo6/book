@@ -27,39 +27,39 @@
     - Chapter 10 - The Source Entity on the Development of Human Beings（源实体谈人类的发展历史） 
     - Chapter 11 - Karma（业力） 
     - Chapter 12 - Galaxies, Solar Systems, Planets, and Creation（星系、太阳系、行星和创造） 
-    - Chapter 13 - On the Outside 
-    - Chapter 14 - Other Major Civilizations on Earth
-    - Chapter 15 - The History of Humanity
-    - Chapter 16 - Space-faring Humans
-    - Chapter 17 - The Second Silver Cord 
-    - Chapter 18 - The Records/Database, Akashic and Others 
-    - Chapter 19 - Living Many Incarnations Simultaneously 
-    - Chapter 20 - Illness 
-    - Chapter 21 - Relaxation, Meditation, and the Core Star 
-    - Chapter 22 - Souls Returning to the Source Entity 
-    - Chapter 23 - The Source Entity’s Observations of 
-    - Chapter 24 - A Bit about the Author’s Past Lives 
-    - Chapter 25 - Stars, Incarnating Souls, and Root Races 
-    - Chapter 26 - No Such Thing as Psychic Powers 
-- Part 3 - Communication with Aliens 
-    - Chapter 27 - Hum on Other Entities Commonly Called Aliens 
-    - Chapter 28 - Hum on the Om 
-    - Chapter 29 - Aliens/Other Entities and Intention 
-    - Chapter 30 - Aliens/Other Entities on Universes, Null Space, Hyperspace, Collective Beings, and Hillside Space Bases 
-    - Chapter 31 - Extended Dialogues with the Aliens/Other Entities 
-    - Chapter 32 - The Source Entity and the Council of Twelve 
-- Part 4 - The Less Than Mechanical Side 
-    - Chapter 33 - Nature Spirits in My Garden 
-    - Chapter 34 - Choice 
-    - Chapter 35 - No Coincidences 
-    - Chapter 36 - Coming into Our Power 
-    - Chapter 37 - Religion 
-    - Chapter 38 - Christ Consciousness 
-    - Chapter 39 - To Be of Service 
-    - Chapter 40 - Accelerated Spiritual Awareness 
-    - Chapter 41 - Forgiveness as a Rule for Life in the Physical 
-    - Chapter 42 - More on Communication with Our Higher Selves 
-    - Chapter 43 - Angels, Oranges, and Apples 
+    - Chapter 13 - On the Outside（太阳系的故事） 
+    - Chapter 14 - Other Major Civilizations on Earth（地球上的其他主要文明）
+    - Chapter 15 - The History of Humanity（人类的历史）
+    - Chapter 16 - Space-faring Humans（航空人类）
+    - Chapter 17 - The Second Silver Cord（第二条灵带） 
+    - Chapter 18 - The Records/Database, Akashic and Others（记录/数据库，阿卡西及其它） 
+    - Chapter 19 - Living Many Incarnations Simultaneously（同时的多个化身） 
+    - Chapter 20 - Illness（疾病） 
+    - Chapter 21 - Relaxation, Meditation, and the Core Star（放松、冥想和星核） 
+    - Chapter 22 - Souls Returning to the Source Entity（回归源实体的灵魂） 
+    - Chapter 23 - The Source Entity’s Observations of（源实体对地球上灵魂的观察） 
+    - Chapter 24 - A Bit about the Author’s Past Lives（作者的一些前世） 
+    - Chapter 25 - Stars, Incarnating Souls, and Root Races（恒星、转世灵魂和根源种族） 
+    - Chapter 26 - No Such Thing as Psychic Powers（没有超能力这回事） 
+- Part 3 - Communication with Aliens（第三部分：与外星人沟通） 
+    - Chapter 27 - Hum on Other Entities Commonly Called Aliens（Hum谈及被称作外星人的其它实体） 
+    - Chapter 28 - Hum on the Om（HUM谈OM） 
+    - Chapter 29 - Aliens/Other Entities and Intention（外星人/其它实体和意愿） 
+    - Chapter 30 - Aliens/Other Entities on Universes, Null Space, Hyperspace, Collective Beings, and Hillside Space Bases（外星人/其它实体谈及宇宙、零领域、超空间、集体存有和山坡上的太空基地） 
+    - Chapter 31 - Extended Dialogues with the Aliens/Other Entities（与外星人其他实体的扩展对话） 
+    - Chapter 32 - The Source Entity and the Council of Twelve（源实体和十二长老议会） 
+- Part 4 - The Less Than Mechanical Side（第四部分：非机械面向） 
+    - Chapter 33 - Nature Spirits in My Garden（花园中的自然精灵） 
+    - Chapter 34 - Choice（选择） 
+    - Chapter 35 - No Coincidences（没有巧合） 
+    - Chapter 36 - Coming into Our Power（找回我们的力量） 
+    - Chapter 37 - Religion（宗教信仰） 
+    - Chapter 38 - Christ Consciousness（基督意识） 
+    - Chapter 39 - To Be of Service（为他人服务） 
+    - Chapter 40 - Accelerated Spiritual Awareness（加速的灵性觉醒） 
+    - Chapter 41 - Forgiveness as a Rule for Life in the Physical（物质界生活中的宽恕法则） 
+    - Chapter 42 - More on Communication with Our Higher Selves（深入与高我交流的话题） 
+    - Chapter 43 - Angels, Oranges, and Apples（天使、橘子与苹果） 
 - Letter to the Reader 
 - Appendix 
 - Glossary 
@@ -5962,7 +5962,7 @@ SE:Not quite.You see,if the Origin had a memory in the style that you know as hu
 
 ### Chapter 13 - On the Outside 
 
-**太阳系的故事**
+**第13章：太阳系的故事**
 
 #### The Peace of Going Within Before Going into the World 
 
@@ -10672,7 +10672,7 @@ As I moved through the details that were being given to me,I noticed that I was 
 
 ### Chapter 33 - Nature Spirits in My Garden 
 
-**花园中的自然精灵**
+**第33章：花园中的自然精灵**
 
 #### Appearance of the Nature Spirits 
 
@@ -11750,7 +11750,7 @@ To send them into the Light,all you have to do is invoke the Christ or God consc
 
 ### Chapter 38 - Christ Consciousness 
 
-**基督意识**
+**第38章：基督意识**
 
 Me:We talk a lot in spiritual circles about the Christ consciousness,and we call Jesus "Christ"in separation to this,at least the religious circles do.What is the actual connection between the two? 
 

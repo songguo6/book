@@ -135,7 +135,7 @@ SE:You can quote HG Wells if you want,but we need to get down to the real busine
 
 One thing is certain-this is not a task to be taken lightly.Indeed,it is one that you WILL struggle with,specifically with the concepts that some of the Source Entities will present to you.It is with this thought about your struggling that I offer you this opportunity for help. Before we delve into the old ground of my creation,some of which I have no doubt you will cut and paste from the other texts and some of which will be new information,I suggest that I act as your guide,mentor,and main point of contact when establishing contact and ultimately communicating with the other Source Entities,especially as you will need to meet them in their own environments.Therefore,I will be your passport to the other Source environments whilst delivering this book. 
 
-有一件事是肯定的——这不是一个可以掉以轻心的任务。事实上，这是一个你会努力奋斗的任务，特别是一些源实体将向你展示的概念。正是由于你努力奋斗的想法，我才给你这个寻求帮助的机会。在我们深入研究我创造的旧领域之前，其中一些我毫不怀疑你会从其他文本中剪切和粘贴，其中一些将是新的信息，我建议我充当你的向导、导师和主要的联系点，当建立联系和最终与其他源头实体进行沟通时，特别是当你需要在他们自己的环境中与他们见面时。因此，在交付这本书的同时，我将成为你通往其他源头环境的通行证。
+有一件事是肯定的——这不是一个可以掉以轻心的任务。事实上，这是一个你会努力奋斗的任务，特别是一些源实体将向你展示的概念。正是由于你努力奋斗的想法，我才给你这个寻求帮助的机会。在我们深入研究我创造的旧领域之前，其中一些我毫不怀疑你会从其他文本中剪切和粘贴，其中一些将是新的信息，我建议我充当你的向导、导师和主要的联系点，当建立联系和最终与其他源实体进行沟通时，特别是当你需要在他们自己的环境中与他们见面时。因此，在交付这本书的同时，我将成为你通往其他源头环境的通行证。
 
 ME:Why do I need your help-not that I am refusing it?I can communicate with the Origin all on my own,so why not them? 
 
@@ -247,7 +247,7 @@ ME:So what did the Origin say to you?
 
 SE:First,the Origin spoke to each of us individually,not all at once,for we were not all ready to be advised on our roles.Second,each of us had to have established enough awareness and consciousness to be able to realize and understand that we were part of a larger-much larger-entity and that we were parts of this much larger entity given individuality. 
 
-源实体：首先，起源单独对我们每个人说话，不是同时对所有人，因为我们还没有准备好接受关于我们角色的建议。第二，我们每个人都必须建立足够的意识和觉醒，以便能够认识和理解我们是一个更大的-更大的-实体的一部分，我们是这个被赋予个性的更大实体的一部分。
+源实体：首先，起源单独对我们每个人说话，不是同时对所有人，因为我们还没有准备好接受关于我们角色的建议。第二，我们每个人都必须建立足够的意识和觉醒，以便能够认知和理解我们是一个更大的-更大的-实体的一部分，我们是这个被赋予个性的更大实体的一部分。
 
 ME:How did you understand that you were part of the Origin? 
 
@@ -263,7 +263,7 @@ ME:Not by traveling to the edge of the Origin's boundary?
 
 SE:The Origin has no boundary as you know it,so this would not have provided the evidence for being a component of the Origin.Once I established that the thoughts were not coming from the others-the other eleven Source Entities-I drew the conclusion that I must be part of something bigger.I reached out in communication to the Origin,and it responded.From that point onward,I was in constant communication with the Origin,learning the reasons for my existence and what task I had to undertake to explore the self and the Origin and improve my awareness-in essence,evolve. 
 
-源实体：正如你所知道的，**起源没有边界**，所以这不会提供证据作为起源的组成部分。一旦我确定这些想法不是来自其他11个源头实体，我得出结论，我一定是某个更大的一部分。我与起源沟通，它做出了回应。从那一刻起，我与起源保持着持续的沟通，学习我存在的原因，以及我必须承担什么任务来探索自我和起源，并提高我的意识——本质上，就是进化。
+源实体：正如你所知道的，**起源没有边界**，所以这不会提供证据作为起源的组成部分。一旦我确定这些想法不是来自其他11个源实体，我得出结论，我一定是某个更大的一部分。我与起源沟通，它做出了回应。从那一刻起，我与起源保持着持续的沟通，学习我存在的原因，以及我必须承担什么任务来探索自我和起源，并提高我的意识——本质上，就是进化。
 
 ME:Did you have any choice in the matter of the task at hand? 
 
@@ -311,83 +311,163 @@ SE:As you have been many times.
 
 ME:Yes,but I never realized that I was aware of self until I was-I have to think hard about at what point this occurred-sometime in the early pre-teenage years.And this was only because of being ridiculed at schoolfor having such way-out ideas,ones which I now realize were manifested from my ability to tap into the higher frequencies and,therefore,the greater reality-which now allows me to communicate with you and the Origin and other entities,such as Byron. 
 
-When I was a child,I just was me.I had no real feeling of individual awareness.I just did what children do but with no realization of self although I was aware that I was different somehow,apart from the others.This was a feeling that I found was quite strange,for I always thought that I was part of something important.As a result,I always found it hard to be "part of the gang,"so to speak,and they considered me as a bit strange. 
+我：是的，但我从未意识到我觉知到自我，直到我不得不努力思考这是发生在什么点上，在早期的十几岁前的某个时候。这只是因为在学校被嘲笑有这样逃避的想法，我现在意识到这些想法体现在我进入更高频率的能力，即更大的现实，现在允许我与你、起源、其他实体如拜伦进行交流。
+
+When I was a child,I just was me.I had no real feeling of individual awareness.I just did what children do but with no realization of self although I was aware that I was different somehow, apart from the others.This was a feeling that I found was quite strange,for I always thought that I was part of something important.As a result,I always found it hard to be "part of the gang,"so to speak,and they considered me as a bit strange. 
+
+当我还是个孩子时，我就是我。我没有真正的个人意识。我只是做孩子们做的事情，但没有自我意识，虽然我知道我不知何故是不同的，除了其他人以外。我发现这是一种很奇怪的感觉，因为我总是认为我是重要事情的一部分。因此，我总是发现很难成为“团体的一部分”，可以这么说，他们认为我有点奇怪。
 
 So you realized that you were you at the point just before the Origin communicated with you and a little after the time you noticed that there where eleven others? 
 
-SE:Yes,I became aware that I was able to experience different things by changing the location of myself.By location I do not mean spatial as you are thinking but both dimensional and frequential.When I moved myself into different "locations,"I experienced different things happening to my energies,my "self."These were predominantly sensations on many levels-many more levels than you can possibly imagine.It was during one of these sensation experiencing moments that I recognized my "self"as being individual.I was fully aware of cause and effect.If I did one thing,something else would happen.If I did something different,then this was rewarded with a different effect. 
+所以你意识到你是你，是在与起源交流之前，在你注意到还有其他11个源实体之后？
+
+SE:Yes,I became aware that I was able to experience different things by changing the location of myself.By location I do not mean spatial as you are thinking but both dimensional and frequential.When I moved myself into different "locations,"I experienced different things happening to my energies,my "self." These were predominantly sensations on many levels-many more levels than you can possibly imagine.It was during one of these sensation experiencing moments that I recognized my "self"as being individual.I was fully aware of cause and effect.If I did one thing,something else would happen.If I did something different,then this was rewarded with a different effect. 
+
+源实体：是的，我开始意识到我可以通过改变自己的位置来体验不同的事情。我说的位置并不是像你们想的那样是空间上的，而是同时指维度和频率。当我把自己移到不同的“位置”时，我体验到我的能量、我的“自我”发生着不同的事情。这些主要是许多层次上的感觉，比你能想象的多得多。正是在这些感觉经历的时刻之一，我认知到我的“自我”是一个个体。我完全意识到因果。如果我做了一件事情，就会发生另一件事。如果我做了不同的事情，就会得到不同的结果。
 
 The awareness of self is the most important milestone on any entity's road to evolution. Further,the awareness of awareness is the milestone in an entity's road to evolution where the veil of illusion is lifted to reveal the true reality of existence.This is the point where everything is made clear.Nothing is misunderstood.There is no environmental limitation, there is no limitation in understanding,there is no limitation in capacity for learning,and, therefore,no limitation in the ability to evolve.There is only opportunity. 
 
+自我意识是任何实体进化道路上最重要的里程碑。此外，觉知的觉知是一个实体进化道路上的里程碑，在那里幻相的面纱被揭开，以揭示存在的真正实相。这是一切都变得清晰的一点，没有什么是误解。没有环境的限制，没有理解的限制，没有学习能力的限制，因此，进化的能力没有限制，只有机会。
+
 ME:So apart from the feeling of cause and effect,what else gave you the nudge you needed to become aware? 
+
+我：那么除了因果关系的感觉，还有什么推动了你们的觉醒？
 
 SE:Nothing else,only the experience of cause and effect and the recognition of the other eleven Source Entities.Although at this point,none of us recognized what we were fully capable of as we were not yet in receipt of our instructions from the Origin.Let me say here though that the element of cause and effect as a factor of recognizing self-awareness should not be played down,for it is the recognition of an individual's ability to create that is the deciding factor.Cause creates effect,and to cause an effect that is the manifestation of pure creativity is to create the feeling of satisfaction;with satisfaction comes recognition of self and awareness of self in the environment of existence.
 
-ME:So what you are saying is that you really got to grips with recognizing your "self"when you were creating. 
+源实体：没有别的，只有因果关系的体验和对其他11个源实体的认知。尽管在这一点上，我们没有人认知到我们完全有能力做什么，因为我们还没有收到来自起源的指示。让我在这里说，虽然因果关系的元素作为认知自我意识的因素不应该被低估，因为这是对个人创造能力的认知，这是决定因素。因创造了果，而造成一种效果，是纯粹创造力的体现，是创造满足感；随着满足感的产生，在存在的环境中对自我的认知和自我意识。
+
+ME:So what you are saying is that you really got to grips with recognizing your "self" when you were creating. 
+
+我：所以你的意思是，当你在创造时，你真正掌握了认知“自我”的能力。
 
 SE:Eloquently put.Creativity is one of the most important things that an entity can do;it is a reflection of self and is,therefore,the doorway to self-realization,awareness.Many of your artists,engineers,scientists,and authors create,and it is with their creations that they realize who and what they are-their creations are an extension of their "selves"with their creations,therefore,acting as mirrors,making recognition easier. 
 
+源实体：说得好。创造力是一个实体能做的最重要的事情之一；它是自我的反映，因此，是自我实现、自我意识的大门。你们中的许多艺术家、工程师、科学家和作家都在创造，正是通过他们的创造，他们认知到自己是谁，是什么。他们的创造是他们“自我”的延伸，因此，他们的创造就像一面镜子，使认知更容易。
+
 ME:I get the feeling that pride has a hand in this as well. 
 
-SE:To some extent,but pride is only a feeling of well-being,of ego.However,as ego is the prerequisite for the state of "I am,"it also helps in being one of the markers on the road to awareness. 
+我：我为也参与其中而感到骄傲。
+
+SE:To some extent,but pride is only a feeling of well-being,of ego.However,as ego is the prerequisite for the state of "I am,"it also helps in being one of the markers on the road to awareness.
+
+源实体：在某种程度上，但骄傲只是幸福感、自我感。然而，由于自我是“我是”状态的前提，它也有助于成为意识道路上的标志之一。
 
 Creativity is the ultimate marker.It is the result of action on behalf of the individual.It is the debris left behind to indicate existence,and it is the evidence needed by the individual entity to make the jump from mere existence to the realization of existence.It was,therefore,when I created different things by manipulating and changing the natural representation of the energy surrounding me that I made the connection between mere existence and realization of self. 
 
+创造力是最终的标志，它代表个人行动的结果，它表明存在留下的残骸，它是个体实体从单纯的存在跳跃到对存在的认知所需要的证据。因此，当我通过操纵和改变周围能量的自然表现来创造不同事物时，我建立了存在和自我实现之间的联系。
+
 ME:If I remember correctly,then this must have been around the time that you were creating myriad patterns and shapes-what we now recognize as galaxies and planets. 
+
+我：如果我没记错的话，那么这肯定是在你创造无数图案和形状的时候，即我们现在认知的星系和行星。
 
 SE:Well remembered,but not correct as the galaxies and planets were not that which currently exist in your universal environment.
 
-ME:You mean that you wiped them out?You started again? 
+源实体：记得很清楚，但并不正确，因为星系和行星并不是现在存在于你们宇宙环境中的那些。
+
+ME:You mean that you wiped them out? You started again? 
+
+我：你的意思是你把它们都抹去了？你重新开始了？
 
 SE:Yes,it was merely a game.Nothing was lost,and everything was gained.My awareness was gained.Don't forget that creativity is a reflection of self,and in this instance,the shapes and patterns caused me to reflect inwardly and recognize achievement.As previously stated, the achievement of creativity is a reflection of self creating recognition of self and,therefore, granting the individual entity the gift of awareness.I subsequently became aware and was contacted by the Origin moments later,which further confirmed my awareness. 
 
+源实体：是的，这只是一个游戏。没有失去什么，一切都得到了，我的觉知得到了。不要忘记创造力是自我的反映，在这种情况下，形状和图案使我内省并认知到成就。正如前面所说，创造力的成就是对自我的反映，创造对自我的认知，是赋予个体意识的礼物。我随后意识到，并与起源联系，这进一步证实了我的觉知。
+
 ME:So would you completely wipe out the universes that you have currently,the ones that humanity and the rest of your entities exist within? 
+
+我：那么你是否会完全抹掉你目前拥有的人类和其他实体存在其中的宇宙？
 
 SE:I could and I might at some point in the future,but one thing that I will not do is remove the energy-based entities that I have created.These would stay and populate the new environment.Actually,I see no need to recreate a new environment,as there is much to gain from the current one. 
 
+源实体：我可以，我可能在未来的某个时候这样做，但是有一件事我不会做，那就是移除我所创造的基于能量的实体。这些实体会留下来，并填充新的环境。事实上，我认为没有必要再创造一个新的环境，因为从当前的环境中可以获得很多。
+
 ME:Why would you keep the entities from this set of universes if you decided to start again and not wipe them out as well? 
+
+我：如果你决定重新开始，为什么要保留这组宇宙中的实体，而不把它们也抹掉？
 
 SE:Simple.The reason for keeping the entities that I have created in this universe is because they are part of me,and I am part of them.If I consolidated back into oneness all that I have created and given individuality to,I would lose myriad opportunities to experience the vast number of experiences in the multipolous [multiple of multiple of multiple]ways that I am now.Moreover,I would lose the continued level of evolutionary experience.Experience and evolution takes time to accomplish as does the ability to understand how to evolve in the most effective way.All this would be lost and have to be re-learnt by the new entities that I would need to create.No,I see no need to do this;it would not be beneficial to me as it would ultimately slow down my speed of evolution. 
 
+源实体：很简单。保留我在这个宇宙中创造的实体的原因，是因为它们是我的一部分，而我是它们的一部分。如果我把我所创造的和赋予个性的一切都巩固成一体，我将失去无数的机会以多极（多重的多重的多重）的方式体验我现在所拥有的大量体验。此外，我将失去进化经验的持续层级。经验和进化需要时间来完成，就像理解如何以最有效的方式进化的能力一样。所有这些都会丢失，我需要创造的新实体必须重新学习。不，我没必要这样做，这对我没有好处，因为它最终会减慢我的进化速度。
+
 ### Creation of the Universes 
+
+**宇宙的创造**
 
 ME:We have discussed your awakening and awareness of your "self"in brief and the fact that you became more aware of self when the Origin communicated to you and the other Source Entities it created. 
 
+我：我们已经简要讨论过你们的觉醒和对“自我”的觉知，以及当起源与你和其他它所创造的源实体进行交流时，你们对自我觉知的增强。
+
 SE:Yes,we have. 
+
+源实体：是的，我们已经讨论过了。
 
 ME:I would like to know more about what the Origin said to you all and what made you decide on the format of entities and multiversal environment you chose. 
 
+我：我想知道更多关于起源对你们所有人说了什么，以及是什么让你们决定选择实体的形式和多维环境。
+
 SE:As I said in our previous dialogues,the other Source Entities and I were having a whale of a time.We were allowed to do anything we wanted. 
+
+源实体：正如我在我们之前的对话中所说的，其他源实体和我度过了一段美好的时光。我们被允许做任何我们想做的事情。
 
 ME:Was this your own choice? 
 
-SE:No.The first thing that the Origin said to us when we were aware of each other and the Origin was that we had to learn the art of experience-literally,how to experience and learn/ evolve from those experiences.The time in between our being aware of "self,each other, and the Origin was next to no time at all.It was almost instantaneous from my perspective, but you may think that millennia had gone by if you had to measure the time in human terms.At this point the Origin made us aware of its intentions for us and educated us on the reasons for our existence and the task that it was going to set us-all of which would result in the Origin's accelerated evolution and experience of its "self." 
+我：这是你们自己的选择吗？
+
+SE:No.The first thing that the Origin said to us when we were aware of each other and the Origin was that we had to learn the art of experience-literally,how to experience and learn/evolve from those experiences.The time in between our being aware of "self,each other, and the Origin was next to no time at all.It was almost instantaneous from my perspective, but you may think that millennia had gone by if you had to measure the time in human terms.At this point the Origin made us aware of its intentions for us and educated us on the reasons for our existence and the task that it was going to set us-all of which would result in the Origin's accelerated evolution and experience of its "self." 
+
+源实体：不是。当我们意识到彼此和起源时，起源对我们说的第一件事是我们必须学习经验的艺术。字面上的，如何体验和从这些经验中学习/进化。我们觉知到“自我”，彼此和起源之间几乎没有时间。从我的角度来看，这几乎是瞬间的，但如果你必须用人类的时间来衡量，你可能会认为已经过去了千年。在这一点上，起源让我们意识到它对我们的意图，并教育我们我们存在的原因和它将给我们设置的任务，所有这些都将导致起源加速进化和体验它的“自我”。
 
 The first thing we had to do was just create.We were told to create and experience anything and everything in any way we felt we would benefit by,simply by experiencing what we had created.This was primarily energetic at first but ultimately deviated into the frequential and dimensional aspects of creativity. 
 
+我们必须做的第一件事就是**创造**。我们被告知要以任何**我们认为我们会受益的方式去创造和体验任何事物**，只要通过体验我们所创造的东西。这最初主要是精力充沛的，但最终偏离了创造力的频率和维度方面。
+
 ME:How do you mean? 
 
-SE:Well,I think I had better focus on my own experience now as I am aware that I could start to explain what we were all experiencing rather than just myself.This will come out separately with each of the dialogues we have with the other Source Entities. 
+我：你是什么意思？
+
+SE:Well,I think I had better focus on my own experience now as I am aware that I could start to explain what we were all experiencing rather than just myself. This will come out separately with each of the dialogues we have with the other Source Entities. 
+
+源实体：嗯，我认为我现在最好专注于我自己的经历，因为我意识到我可以开始解释我们所有人都在经历的东西，而不仅仅是我自己。这将与我们与其他源实体的每一个对话分开出现。
 
 ME:That's fine by me. 
 
+我：我没问题。
+
 SE:Let us continue then.Once I had experienced creativity from the energetic aspect in a general environmental sense,i.e.,who and where I was,I started to realize that the same level of creativity was not represented in the same way the higher up or lower down the frequencies.This changed significantly as I introduced the dimensional aspect to the object or item that I was creating.I noticed that if I created something in my current general environment,the representation in the higher and lower frequencies/dimensions was not the same.In fact,the change was quite marked. 
+
+源实体：那么让我们继续。一旦我从一般环境的能量方面体验了创造力，即，我是谁，我在哪里，我开始意识到相同水平的创造力并不以相同的方式来表现频率更高或更低。当我把维度方面引入我正在创造的对象或项目时，这发生了显著的变化。我注意到，如果我现在在一般环境中创造一些东西，那么在高频和低频/维度中的表示是不同的。
 
 ME:Give me an example. 
 
+我：给我举个例子。
+
 SE:Let me take something that you would relate to as an example then,galaxies.When I created something that had singularity and was manifest into a lower frequency,it gained form.The lower down the frequencies I went,the more substantial the form was.When I went up the frequencies,the more insubstantial the form was and the more,for the want of a better word,fluidic it became. 
+
+源实体：让我拿一些你会联系到的东西作为例子，比如说星系。当我创造了某种具有奇点的东西，并表现为一个较低的频率时，它获得了形式。频率越低，形式就越实质。频率越高，形式就越不实质，为了寻找更好的词，它变得越呈流体。
 
 ME:You mean it became a fluid? 
 
+我：你的意思是它变成了一种流体？
+
 SE:No,it is a figure of speech.By fluidic I mean that it was more without form.What's more it was able to interject in between the dimensions the higher up the frequencies it was.For example,it was so formless it had the ability to exist in any environment.Similarly, the lower down the frequencies,the more form the creation had and the less able it was to interject between the dimensions and lower frequencies.In fact,it ended up being locked into one set of frequencies and a corresponding dimension as well.The "formless"was purely energetic;the"formed"became nebulae in some of the higher frequencies,suns in the lower frequencies,and planets in the lowest frequencies.What was interesting is that what you call galaxies are not specifically"form"as the level of form is local to the frequencies that the "formed"naturally migrated to or were attracted to.This meant that as I created things that had form,they were either more or less in substance and had more or less form due to the pockets of higher or lower frequencies,i.e.,what I created was not pure of frequency or dimension.This explains why galaxies are what they are-vast areas of space with local areas of density-the local areas of density correlating to the lower frequencies,therefore, creating "form."That which was "formed"resulted in the round objects you call suns and planets. 
+
+源实体：不，这是一种比喻。我的意思是它更没有形式。更重要的是它能够在插入在更高频率的维度之间。例如，它是如此无形，它有能力存在于任何环境中。同样，频率越低，创造物就越有形式，它在维度和低频率之间插入的能力就越小。事实上，它最终被锁定在一个频率组和一个相应的维度中。“无形”是纯粹的能量；“有形”在一些更高的频率中变成了星云，在更低的频率中变成了太阳，在最低的频率中变成了行星。有趣的是，你所称的星系并不是特别的“形式”，因为形式的水平是局部的，即“形成”自然地迁移或被吸引到频率。这意味着，当我创造有形式的东西时，它们要么在实质上或多或少，要么由于高或低频率的口袋而或多或少地有形式。也就是说，我创造的不纯粹是频率或维度。这解释了为什么星系是它们的样子，具有局部区域密度的广阔空间，局部区域密度与低频率相关，因此创造了“形式”。被“形成”的物体导致了你称之为太阳和行星的圆形物体。
 
 I found this fascinating and was entirely motivated into understanding that part that I had created that was form rather than formless.Hence,the universe you have today. 
 
+我发现这很有趣，并完全被动地去理解我创造的那部分是有形的，而不是无形的。即你今天拥有的宇宙。
+
 ME:So you messed around with energy to create what we now recognize as galaxies.
+
+我：所以你把能量弄得一团糟，创造了我们现在所认识的星系。
 
 SE:That's about the size of it. 
 
+源实体：这就是它的大小。
+
 ME:So when did you decide to stop with the set of galaxies that we have today,bearing in mind that we also now recognize that there are myriad universes as well,each having its own set of galaxies?So here's a second question as well.When did you decide to stop with the set of universes that we have today? 
+
+我：那么你什么时候决定停止我们今天拥有的星系集，记住我们现在也认识到有无数的宇宙，每个都有自己的星系集？所以这里还有第二个问题。你什么时候决定停止我们今天所拥有的宇宙？
 
 SE:Essentially when I realized that I was re-creating for the sake of it,I realized that I was not giving the creations that I had made enough time to mature and become something on their own.Everything that I had created was being manipulated by me just to see what it would look like.I had not recognized the possibility of extended creation through observation of form changing on its own as a result of its own inertia. 
 
