@@ -12484,7 +12484,7 @@ Each chakra is associated with an auric level.Imagine them opening in order.This
 
 6.Move to the third,fourth,fifth,sixth,and seventh chakras and auric layers and associated frequency levels in the same way.
 
-6、以同样的方式移动到第3、第4、第5、第6、第7脉轮和辉光层以及相关的频率水平。
+6、以同样的方式移动到第3、第4、第5、第6、第7脉轮和辉光层以及相关的频率层级。
 
 7.Stop at the seventh level.See the crown chakra open and the ketharic template present. You are now at the end of the physicality of your humanity.Check your grounding.Feel the level.Get used to it.Levels 8-10 are purely spiritual and levels 11 upwards are purely energetic. 
 
@@ -12492,32 +12492,43 @@ Each chakra is associated with an auric level.Imagine them opening in order.This
 
 8.Next imagine an elevator with a series of buttons.Each button represents a frequency level from 8 through 100,as well as buttons marked G for ground and S for slow descent or ascent.For continuity of methodology,you can later include 1 through 7 buttons if you wish.Imagine that pressing one of these buttons takes you in a linear vertical ascent to the level selected.Therefore,pressing level 20 takes you to level 20 via levels 8,9,10,11,12,etc., to 20 in a slow and methodical fashion. 
 
-8、接下来想象一个有一系列按钮的电梯。每个按钮代表一个从8到100的频率等级，以及标记为G的地面按钮和S的缓慢下降或上升按钮。为了保持方法的连续性，如果你愿意，你可以在后面包括1到7个按钮。想象按下其中一个按钮会使你直线垂直上升到所选的等级。因此，按下20级按钮会使你通过8级，9级，10级，11级，12级，等等，以缓慢而有条不紊的方式到达20级。9.想象一下，在电梯旁边有一个楼梯间。这个楼梯间也有一系列的楼梯，通往每个楼层。走楼梯是重复提升频率水平的方式。如果你不愿意使用电梯的方法来提升一个水平，那么这个楼梯间应该被使用。使用楼梯将是一个从一个水平到另一个水平的更缓慢和更温和的过渡。10.总是检查你的接地，当你在身体/第七轮以上的水平上时，很容易飞离。
- **这里有一个警告。**我不提倡“跳跃”的水平。一个接一个的进步。习惯每个水平的感觉，慢慢地获得你的信心。从频率上讲，你离你可能习惯的东西还有很长的路要走。在第八个以上一次进步一或两个水平。这与创建一个屏障/过滤器是不一样的，因为你的注意力不是固定在你自己的能量场上。进展太快会导致令人不安的图像，无论如何你可能会经历。最初移动频率太快是不明智的。最好是少量地习惯它们。在第十四个以上旅行需要重新接地，所以记住总是向锚发送另一条线。11.当你练习几次并达到第十四层时，用心眼看看你的周围。保持警惕与任何在这个层级上存在的实体进行交流。它可以通过超视听、超视力和/或超感知。12.当你准备好了，就乘坐心灵电梯，一步一步慢慢地往下走。13.深呼吸。如果你感到头晕，立即躺下。喝大量的水，这将帮助你接地。这是一个自然的反应。如果你感觉良好，也喝大量的水，以帮助你接地。到外面走几分钟，呼吸新鲜空气，然后躺下。你会感到疲倦(包括第二天)。
- 任何时候，如果你对在一个特定的水平感到关心或担心，回到电梯，选择G/地面/完全物理水平按钮。选择缓慢下降按钮。下降太快与上升太高一样有害。不要停留在一个让你感到不舒服的水平。如果你在任何时间任何水平感到不舒服，要么下降到一个你感到快乐的水平，要么完全下降到地面。
- 在几天或几周内，慢慢地进步到越来越高的水平(牢记你的接地和舒适水平)。记住要慢慢来。最终你将能够穿越所有水平，甚至可能超越这种穿越频率的机械方法。
+8、接下来想象一个有一系列按钮的电梯。每个按钮代表一个从8到100的频率等级，以及标记为“G”的地面按钮和“S”的缓慢下降或上升按钮。为了保持方法的连续性，如果你愿意，你可以在后面包括1到7的按钮。想象按下其中一个按钮会使你直线垂直上升到所选的等级。因此，按下20级按钮会使你通过第8、9、10，11，12级等等，以缓慢而有条不紊的方式到达第20级。
 
 9.Also imagine access to a stairwell by the side of the elevator.This stairwell also has a series of stairs leading to each of the landings/levels as well.Walking the stairs duplicates the way to ascend the frequency levels.This stairwell should be used if you are resistant to moving up a level using the elevator method.Using the stairs will be a slower and much gentler transition from level to level. 
 
+9、想象一下，在电梯旁边有一个楼梯间。这个楼梯间也有一系列的楼梯，通往每个楼层。走楼梯是重复提升频率层级的方式。如果你不愿意使用电梯的方法来提升一个水平，那么这个楼梯间应该被使用。使用楼梯将是一个从一个层级到另一个层级的更缓慢和更温和的过渡。
+
 10.Always check your grounding,it is easy to fly off when you are on the levels above the physical/the 7th chakra. 
 
-**A word of warning here.** I do not advocate "jumping"up the levels right away.Progress one by one.Get used to the feeling of each level and gain your confidence slowly.You are a long way,frequency-wise,from what you may be used to.Progress one or two levels at a time above the eighth.This is NOT the same as creating a shield/filter because your attention is not fixed upon your own energy fields.Progressing too fast will result in disturbing images, which you may experience anyway.Initially moving up the frequencies too fast isn't wise. It's better to get used to them in small amounts.Traveling above the fourteenth requires re- grounding,so remember always to send out another line to the anchor. 
+10、总是检查你的接地，当你在物质身体/第七脉轮以上的层级上时，很容易飞离。
 
-11.When you have practiced a few times and have reached the fourteenth level,take a look around you with your mind's eye.Stay alert for communication with any entities present at this level.It can be via clairaudience,clairvoyance,and/or clairsentience. 
+**A word of warning here.** I do not advocate "jumping" up the levels right away.Progress one by one.Get used to the feeling of each level and gain your confidence slowly.You are a long way,frequency-wise,from what you may be used to. Progress one or two levels at a time above the eighth.This is NOT the same as creating a shield/filter because your attention is not fixed upon your own energy fields.Progressing too fast will result in disturbing images, which you may experience anyway. Initially moving up the frequencies too fast isn't wise. It's better to get used to them in small amounts.Traveling above the fourteenth requires re-grounding,so remember always to send out another line to the anchor. 
+
+**这里有一个警告**。我不提倡马上“跳级”，而是一个接一个地进步，习惯每个层级的感觉，慢慢地获得你的信心。从频率上讲，你离你可能习惯的东西还有很长的路要走。在第8个层级以上一次提高一或两个层级。这与创建一个屏障/过滤器是不一样的，因为你的注意力不是固定在你自己的能量场上。进展太快会导致令人不安的图像，但无论如何，你都会经历。最初移动频率太快是不明智的，最好是少量地习惯它们。在第14层以上旅行需要重新接地，所以记住总是向锚发送另一条线。
+
+11.When you have practiced a few times and have reached the fourteenth level,take a look around you with your mind's eye. Stay alert for communication with any entities present at this level. It can be via clairaudience, clairvoyance,and/or clairsentience. 
+
+11、当你练习几次并达到第14层时，用心眼看看你的周围。保持警惕地与任何在这个层级上存在的实体进行交流，可以通过天耳通、天眼通和/或超觉知力。
 
 12.When you are ready,come down the levels slowly one by one using the mental elevator. 
 
+12、当你准备好了，就乘坐心灵电梯，一步一步慢慢地往下走。
+
 13.Take a deep breath.If you feel dizzy,lie down immediately.Drink lots of water,which will help ground you.This is a natural response.If you feel fine,drink plenty of water,too,to help ground you.Go outside for a few minutes,take in the fresh air,and then lie down.You WILL be tired (including the next day). 
+
+13、深呼吸。如果你感到头晕，立即躺下。喝大量的水，这将帮助你接地。这是一个自然的反应。如果你感觉良好，也喝大量的水，以帮助你接地。到外面走几分钟，呼吸新鲜空气，然后躺下。你会感到疲倦（包括第二天）。
 
 At any time if you are concerned or worried at being at a specific level,go back into the elevator and select the G/ground/full physicality level button.Choose also the slow descent button.Descending too fast is as detrimental as ascending too high.Do not stay on a level where you are uncomfortable.If you feel uncomfortable at any time at any level,either descend to a level where you are happy or descend fully to the ground.
 
+任何时候，如果你对呆在一个特定的层级感到担心或忧虑，回到电梯，选择G/地面/完全物理层级按钮。也选择缓慢下降按钮，下降太快与上升太高一样有害。不要停留在一个让你感到不舒服的层级。如果你在任何时间任何层级感到不舒服，要么下降到一个你感到快乐的层级，要么完全下降到地面。
+
 Over the days or weeks,slowly progress to higher and higher levels(keeping in mind your grounding and comfort level).Remember to take your time.Eventually you will be able to traverse all levels and may even transcend this mechanical method of traversing the frequencies.
+
+在几天或几周内，慢慢地进步到越来越高的层级（牢记你的接地和舒适层级）。记住要慢慢来，最终你将能够穿越所有层级，甚至可能超越这种穿越频率的机械方法。
 
 ## Glossary 
 
 **术语表**
-
-**"Out for a Golden Duck"** - a saying in Cricket when you have been bowled out on your very first bowl of the ball in your first over of a match.In the conversation with Byron I expected to know everything about "time."As soon as Byron stated that time was spherical (in his first sentence on the subject),all of my pre-conceived knowledge was rendered meaningless. 
 
 **4 Star Petrol** - high octane gasoline. 
 
@@ -12527,11 +12538,9 @@ Over the days or weeks,slowly progress to higher and higher levels(keeping in mi
 
 **阿卡西记录**：每个人类行为及后续进化事件的过去、未来所有记录。
 
-At a rate of **knots** - an old nautical term.It means "fast"or to be at "speed."A knot is equal to one nautical mile per hour.In the days of the tall ships when old mariners were navigating by using the "dead reckoning"system of navigation (the most basic there is),they threw a weighted float attached to a knotted rope over the stern of the ship and counted the number of knots passing through the hand of the sailor,as the ship progressed,in the period taken to allow the sand in a 30-second hour glass to pass from one side to the other.The distance between the knots was 47 yards and 3 inches.When the ship was traveling fast and the "rate of knots"passing through the sailors hand was high,the term "we are traveling at a (high) rate of knots"was used to indicate a faster than normal speed.
-
 **Avebury** and **Kilmartin** are in the UK. 
 
-埃夫伯里和基尔马丁：位于英国的的两个城市。
+**埃夫伯里**和**基尔马丁**：位于英国的的两个城市。
 
 **Black hole** - physically is an area of local gravitational density and spiritually is an area of stable dimensional instability,a dimension within a dimension. 
 
@@ -12543,6 +12552,8 @@ At a rate of **knots** - an old nautical term.It means "fast"or to be at "speed.
 
 **Coadunate** - a connected collection of civilizations that are all collectives in their own right. 
 
+**共同聚集**：一个连接的文明集合，它们都是以自己的方式聚集的。
+
 **Core star** - the **"Hara"**or **"Core Star"**are essentially the same with the exception that the Core Star tends to be associated with the Soul or the individuality (resonant signature)of the incarnate energy and the essential objective of the incarnation. 
 
 **星核**：哈拉或星核基本上同义，但星核较偏向于灵体或转世能量的鲜明个性（频率印记），以及转世的根本目的。
@@ -12553,21 +12564,31 @@ At a rate of **knots** - an old nautical term.It means "fast"or to be at "speed.
 
 **Dimensional Mechanics** - a method of creating a dimension within a dimension. 
 
+**维度力学**：在维度中创建维度的方法。
+
 **DNA** - deoxyribonucleic acid. 
 
+**DNA**：脱氧核糖核酸。
+
 **Dysfunction** - out of specification functionality. 
+
+**功能失调**：功能不符合规范。
 
 **Energy levels** - the distance between each level that is consistent with the difference between the frequencies in the human auric levels.
 
 **能量层级**：每一个层级之间的距离，与人体辉光场不同层级之间的频率差距一样。 
 
-**Etheric Template** - please see Name,Appearance and Function of the Auric Layers/Levels in the Appendix. 
+**Frequentic** - multi-frequency space. 
+
+**Frequentic**：多频率空间。
 
 **Frequential** - sequentially-based frequencies in frequentic space. 
 
+**Frequential**：多频率空间中的序列基准频率。
+
 **Frequential Plane** - a singular sequential frequency. 
 
-**Frequentic** - multi-frequency space. 
+**Frequential Plane**：单一的连续频率。
 
 **Gestalt mind** - a collection of entities that share a single mind function,such as ants or trees and most other energy-based beings within this universe. 
 
@@ -12583,9 +12604,15 @@ At a rate of **knots** - an old nautical term.It means "fast"or to be at "speed.
 
 **Holographic** - a three-dimensional rendering. 
 
+**全息**：三维渲染。
+
 **Hot Swop** - a computer peripheral term used to describe the removal or plugging in of a peripheral without the power being turned off.In the spiritual,this relates to the swopping in/out of a soul from/to a physical human body without the body needing to die or be born. This is sometimes called a walk-in.
 
+**热插拔**：一个计算机外设术语，用来描述在没有关闭电源的情况下将外设插入或拔出。在灵性领域，这涉及到灵魂突然进入一个身体或离开，而不需要身体死亡或重生。有时被叫做灵魂替换。
+
 **Hum** - an energy being beloved of the Om.Hum was sent by the Om to help me in my early stages of continued connectivity with the higher levels of frequency/dimension. 
+
+**HUM**：一个被OM所爱的能量存有。HUM被OM派来帮助我在早期阶段与更高频率/维度持续连接。
 
 **Human Aura** - the energy fields associated with the physical and astral components of the human body. 
 
@@ -12593,31 +12620,39 @@ At a rate of **knots** - an old nautical term.It means "fast"or to be at "speed.
 
 **Hyperspace** - a moment of frequential and dimensional phase that is different than the normal graduations of phase that allows movement between dimensional and frequency based environments. 
 
-**Ketheric Template** - please see Name,Appearance and Function of the Auric Layers/Levels in the Appendix. 
-
-**Macro-universe** - a complete universe where our own universe would serve to be the sub- atomic levels. 
+**超空间**：一种频率和维度相位的时刻，它不同于允许在维度和基于频率的环境之间运动的正常相位分级。
 
 **Micro-universe** - a complete universe at the scale of the sub-atomic. 
 
+**微观宇宙**：亚原子尺度的完整宇宙。
+
+**Macro-universe** - a complete universe where our own universe would serve to be the sub-atomic levels. 
+
+**宏观宇宙**：一个完整的宇宙，其中我们自己的宇宙将充当亚原子层次。
+
 **Minor-verse** - a universe of lesser content in terms of dimension and frequency and habitation,one of lower importance. 
+
+**次要宇宙**：在维度、频率、居住方面内容较少的宇宙，重要性较低。
 
 **Multi-verse** - an environment housing myriad universes. 
 
 **多维宇宙**：一个容纳无数宇宙的环境。
 
-Not **grasping the nettle** - grasping the nettle is a way of augmenting the level of understanding.Understanding is one thing but fully recognizing the details behind the level of understanding and believing it whole heartedly(deep down)is another thing."Grasping the Nettle"is,therefore,a way of saying that "I,"in this instance,was understanding but not fully appreciating the knowledge to the point of "knowing"on a fundamental basis and taking it“on-board”as fact. 
-
 **Null Space** - the space in between universes for travel between universes. 
+
+**零领域**：在宇宙之间的空间。
 
 **Psychometry** - gaining spiritual information about an object or person via tactile contact. 
 
+**心理测量** - 通过触摸接触，获得一个对象或人有关精神上的信息。
+
 **RNA** - ribonucleic acid. 
 
-**Simulacrum** - similar or in the same likeness. 
-
-**Spaced out** - a term I used to describe being close to fainting. 
+**RNA**：核糖核酸。
 
 **Spirituophysical** - the level where the physical and spiritual levels meet and mix.
+
+**灵性-物理**：物理和灵性层面相遇和混合的层面。
 
 **Tan tien** - the point within the physical/auric body where the center or point of the Core Star/Hara/soul is dominant.With Japanese Hara-Kiri,the cutting of the Hara line should also pass through the tan tien to ensure that the Soul energy is effectively released from its earthly ties. 
 
@@ -12631,9 +12666,9 @@ Not **grasping the nettle** - grasping the nettle is a way of augmenting the lev
 
 **瞬间移动**：在变换位置的过程中，有能力分解机体并予以重组。
 
-**The Big Bang** - the current "scientific"theory on how the universe was created. 
-
 **The Dragon Entity/Byron** - a 27th level energy being. 
+
+**龙实体/拜伦**：一个第27级的能量存有。
 
 **The Om** - energy-based beings not indigenous to Earth. 
 
@@ -12645,15 +12680,23 @@ Not **grasping the nettle** - grasping the nettle is a way of augmenting the lev
 
 **The Silver Cord** - the connection with our energetic "higher selves,"the opposite of the Hara which anchors us to the earth energetically.Some individuals with enhanced ability to communicate with spirit have two silver cords. 
 
+灵带：与我们充满活力的“更高自我”的连接，与精力充沛地将我们锚定在地球上的哈拉相反。一些与灵魂沟通能力更强的人有两条灵带。
+
 **The Source Entity** - what we call God,the creator of our multi-verse. 
 
 **源实体**：我们所称的神，是我们多维宇宙的创造者。
 
 **UFO** - Unidentified Flying Object. 
 
+**UFO**：不明飞行物。
+
 **Unleaded petrol** - a low octane petrol with a zero lead count. 
 
+**无铅汽油**：一种低辛烷值的汽油，铅含量为零。
+
 **Wormhole** - physically an area where two frequencies connect with each other.It is possible to use wormholes to jump up through the frequencies.
+
+**虫洞**：物理上两个频率相互连接的区域，使用虫洞来跳跃频率是可能的。
 
 ## About the author 
 
