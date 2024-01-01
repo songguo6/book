@@ -99,7 +99,7 @@ by Guy Steven Needler
 
 If you have read The History of God,a story of the beginning of everything,which gave the reader an insight into how I started my higher level communications and managed to communicate with spiritual/energetic entities whilst gaining insights into the wonders that are all around us and the truth about our legends and myths,then you will remember that there were twelve Source Entities created by the Origin.The first one being discussed in some limited detail in the book above was our very own Source Entity (SE),whom we refer to as God,the being that created our universe.In reality the Origin should really be considered as God as it created the Source Entities,but I think that the Origin is well beyond the need for this sort of primitive nomenclature,which is only necessary for us humans in our low level of physically trapped conscious existence. 
 
-如果你读过《源头简史》，一个关于万物起源的故事，它让读者了解我是如何开始我的更高层次的交流，并设法与精神/能量实体进行交流，同时深入了解我们周围的奇迹以及我们传说和神话的真相，那么你会记住，起源创造了12个源实体。在上面的书中，第一个被讨论的有限细节是我们自己的源实体(SE)，我们称之为上帝，创造了我们的宇宙。在现实中，起源应该被认为是上帝，因为它创造了源实体，但我认为，起源远远超出了这种原始命名的需要，这只对我们人类在低水平的身体被困意识存在是必要的。
+如果你读过《源头简史》，一个关于万物起源的故事，它让读者了解我是如何开始我的更高层次的交流，并设法与精神/能量实体进行交流，同时深入了解我们周围的奇迹以及我们传说和神话的真相，那么你会记住，起源创造了12个源实体。在上面的书中，第一个被讨论的有限细节是我们自己的源实体(SE)，我们称之为上帝，创造了我们的宇宙。在现实中，起源应该被认为是上帝，因为它创造了源实体，但我认为，起源远远超出了这种原始命名的需要，这只对我们人类在低层级的身体被困意识存在是必要的。
 
 It was during the countless days editing and compiling the channeled texts for the book above that I realized that in order to keep the records straight,I would need to set up communications with each of these other entities in turn in order to gain a basic understanding of the details of the work that they have done in their own environments, which I expected to differ from one another. 
 
@@ -143,7 +143,7 @@ ME:Why do I need your help-not that I am refusing it?I can communicate with the 
 
 SE:They are not as capable of understanding the entities that are created outside their environments as the Origin and I are.The Origin is the source of everything;I am the Source of you and your environment,so we both have no problem tuning in to your frequencies and level of communication whilst in the physical.Some of the Sources don't go anywhere nearly as low as ten frequency levels above you-let alone down to your level-so they are bound to have problems communicating with you directly,hence my insistence in offering help in this matter. 
 
-源实体：他们不像起源和我一样有能力理解在他们环境之外创造的实体。起源是一切的源头；我是你和你环境的源头，所以我们都不会有问题调整到你的频率和在物质层面上的沟通水平。一些源实体不会去到频率低至高于你10个频率层级的地方-更不用说降到你的水平-所以他们一定会有问题与你直接沟通，因此我坚持在这件事上提供帮助。
+源实体：他们不像起源和我一样有能力理解在他们环境之外创造的实体。起源是一切的源头；我是你和你环境的源头，所以我们都不会有问题调整到你的频率和在物质层面上的沟通层级。一些源实体不会去到频率低至高于你10个频率层级的地方-更不用说降到你的层级-所以他们一定会有问题与你直接沟通，因此我坚持在这件事上提供帮助。
 
 ME:Thank you.Now I understand.I feel quite excited about meeting these other Source Entities. 
 
@@ -195,7 +195,7 @@ ME:O.K.,let's start from the beginning then and deal with the "detail"as we get 
 
 SE:In the beginning it was like I was part of the Origin but still the Origin-not as I am now.It was like I was one thought of what was going on in the Origin's consciousness-one thought that was given substance,time to be,individual space to move around in,but still a thought nevertheless.I knew I was the Origin and was separate from the Origin all at the same time.It was as if my individual awareness was like a memory that is in the front of your mind for a moment,and then is gone,only to reappear later when you give it enough attention or when you are not trying too hard to remember.It's just like when you remember a memory that you hold in your mind fleetingly but then lose,resulting in a struggle to recover the memory.It is this enhanced attention to the fleeting awareness that I had lost that later gave rise to the ability to hold the level of awareness for long enough to bring it into the consciousness state again.At first it was hard,and I have no doubt that many,many millennia passed before I had reached full independent consciousness. 
 
-源实体：在开始的时候，我好像是起源的一部分，但仍然是起源，不是我现在的样子。我好像是**起源意识中的一个想法**，一个被赋予物质、时间、个人空间来移动的想法，但仍然是一个想法。我知道我是起源，同时又与起源分离。我的个体意识就像是你的脑海中出现一会儿的记忆，然后消失了，只有当你给予它足够的注意力或当你不努力去记住它时才会重新出现。这就像当你记住一个你在脑海中短暂地保持的记忆，但然后失去了，导致你努力去恢复记忆。正是这种对我失去的短暂意识的增强注意力，后来产生了保持意识水平足够长的时间的能力，使它再次进入意识状态。起初是困难的，我毫不怀疑，许多，许多千年过去了，在我达到完全独立的意识之前。
+源实体：在开始的时候，我好像是起源的一部分，但仍然是起源，不是我现在的样子。我好像是**起源意识中的一个想法**，一个被赋予物质、时间、个人空间来移动的想法，但仍然是一个想法。我知道我是起源，同时又与起源分离。我的个体意识就像是你的脑海中出现一会儿的记忆，然后消失了，只有当你给予它足够的注意力或当你不努力去记住它时才会重新出现。这就像当你记住一个你在脑海中短暂地保持的记忆，但然后失去了，导致你努力去恢复记忆。正是这种对我失去的短暂意识的增强注意力，后来产生了保持意识层级足够长的时间的能力，使它再次进入意识状态。起初是困难的，我毫不怀疑，许多，许多千年过去了，在我达到完全独立的意识之前。
 
 ME:So what was the defining moment of consciousness for you?When did you realize that you were truly individual but were still part of a bigger entity,the Origin? 
 
@@ -211,7 +211,7 @@ ME:A conversation?You mean you were told by the Origin you were an individual en
 
 SE:In a nutshell,yes.We all were,but this conversation only took place when each of us had achieved a critical level of awareness and,therefore,consciousness.As I stated in the first dialogue we had,one of us is still in this "dawning"state of awareness.You will experience this when we need to enter its environment. 
 
-源实体：简而言之，是的。我们都是，但这个对话只发生在我们每个人意识达到一个关键水平，因此，意识。正如我在我们第一次对话中所说的，我们其中一个仍然处于这种“黎明”意识状态。当我们需要进入它的环境时，你会经历这个。
+源实体：简而言之，是的。我们都是，但这个对话只发生在我们每个人意识达到一个关键层级，因此，意识。正如我在我们第一次对话中所说的，我们其中一个仍然处于这种“黎明”意识状态。当我们需要进入它的环境时，你会经历这个。
 
 You see,the Origin was watching our development at all times and chose the moment for communication and education when it knew it would be at its most effective. 
 
@@ -231,7 +231,7 @@ ME:Let's go back to that moment of defining moment of consciousness.
 
 SE:The moment was just before the Origin contacted me to advise me on why I was created.I had noticed that I was aware of my own "self"almost continuously and could remember what I needed to do to maintain consciousness.I could also remember what I had done before although I had not yet understood that I could access what I would do next.In essence,I only knew the past and the present;I could not access the future.In some respects I was just like you are in your incarnate state right now.Another defining moment before the Origin contacted me was the recognition of other entities,eleven of them,all in a similar level of conscious awareness as me.Of course,some were more aware, others were less aware,but on average we were much the same.The clincher here was the ability to communicate with the other Source Entities,which to all intent and purposes,just happened. 
 
-源实体：就在起源联系我并告诉我为什么我被创造之前的时刻。我注意到我几乎一直有意识到我自己的“自我”，并且能记住我需要做什么来保持意识。我也能记住我以前做过的事情，尽管我还没有明白我能接触到我接下来要做什么。本质上，我只知道过去和现在，我不能接触到未来。在某些方面，我就像你们现在化身的状态一样。在起源联系我的另一个决定性时刻是其他实体的识别，他们有11个，都和我处于类似的意识水平。当然，有些个体意识更强，有些个体意识更弱，但平均来说我们是差不多的。这里的关键是与其他源实体交流的能力，这对所有意图和目的来说，刚刚发生了。
+源实体：就在起源联系我并告诉我为什么我被创造之前的时刻。我注意到我几乎一直有意识到我自己的“自我”，并且能记住我需要做什么来保持意识。我也能记住我以前做过的事情，尽管我还没有明白我能接触到我接下来要做什么。本质上，我只知道过去和现在，我不能接触到未来。在某些方面，我就像你们现在化身的状态一样。在起源联系我的另一个决定性时刻是其他实体的识别，他们有11个，都和我处于类似的意识层级。当然，有些个体意识更强，有些个体意识更弱，但平均来说我们是差不多的。这里的关键是与其他源实体交流的能力，这对所有意图和目的来说，刚刚发生了。
 
 ME:What?!You all developed a common language all at the same time? 
 
@@ -435,7 +435,7 @@ ME:That's fine by me.
 
 SE:Let us continue then.Once I had experienced creativity from the energetic aspect in a general environmental sense,i.e.,who and where I was,I started to realize that the same level of creativity was not represented in the same way the higher up or lower down the frequencies.This changed significantly as I introduced the dimensional aspect to the object or item that I was creating.I noticed that if I created something in my current general environment,the representation in the higher and lower frequencies/dimensions was not the same.In fact,the change was quite marked. 
 
-源实体：那么让我们继续。一旦我从一般环境的能量方面体验了创造力，即，我是谁，我在哪里，我开始意识到相同水平的创造力并不以相同的方式来表现频率更高或更低。当我把维度方面引入我正在创造的对象或项目时，这发生了显著的变化。我注意到，如果我现在在一般环境中创造一些东西，那么在高频和低频/维度中的表示是不同的。
+源实体：那么让我们继续。一旦我从一般环境的能量方面体验了创造力，即，我是谁，我在哪里，我开始意识到相同层级的创造力并不以相同的方式来表现频率更高或更低。当我把维度方面引入我正在创造的对象或项目时，这发生了显著的变化。我注意到，如果我现在在一般环境中创造一些东西，那么在高频和低频/维度中的表示是不同的。
 
 ME:Give me an example. 
 
@@ -451,7 +451,7 @@ ME:You mean it became a fluid?
 
 SE:No,it is a figure of speech.By fluidic I mean that it was more without form.What's more it was able to interject in between the dimensions the higher up the frequencies it was.For example,it was so formless it had the ability to exist in any environment.Similarly, the lower down the frequencies,the more form the creation had and the less able it was to interject between the dimensions and lower frequencies.In fact,it ended up being locked into one set of frequencies and a corresponding dimension as well.The "formless"was purely energetic;the"formed"became nebulae in some of the higher frequencies,suns in the lower frequencies,and planets in the lowest frequencies.What was interesting is that what you call galaxies are not specifically"form"as the level of form is local to the frequencies that the "formed"naturally migrated to or were attracted to.This meant that as I created things that had form,they were either more or less in substance and had more or less form due to the pockets of higher or lower frequencies,i.e.,what I created was not pure of frequency or dimension.This explains why galaxies are what they are-vast areas of space with local areas of density-the local areas of density correlating to the lower frequencies,therefore, creating "form."That which was "formed"resulted in the round objects you call suns and planets. 
 
-源实体：不，这是一种比喻。我的意思是它更没有形式。更重要的是它能够在插入在更高频率的维度之间。例如，它是如此无形，它有能力存在于任何环境中。同样，频率越低，创造物就越有形式，它在维度和低频率之间插入的能力就越小。事实上，它最终被锁定在一个频率组和一个相应的维度中。“无形”是纯粹的能量；“有形”在一些更高的频率中变成了星云，在更低的频率中变成了太阳，在最低的频率中变成了行星。有趣的是，你所称的星系并不是特别的“形式”，因为形式的水平是局部的，即“形成”自然地迁移或被吸引到频率。这意味着，当我创造有形式的东西时，它们要么在实质上或多或少，要么由于高或低频率的口袋而或多或少地有形式。也就是说，我创造的不纯粹是频率或维度。这解释了为什么星系是它们的样子，具有局部区域密度的广阔空间，局部区域密度与低频率相关，因此创造了“形式”。被“形成”的物体导致了你称之为太阳和行星的圆形物体。
+源实体：不，这是一种比喻。我的意思是它更没有形式。更重要的是它能够在插入在更高频率的维度之间。例如，它是如此无形，它有能力存在于任何环境中。同样，频率越低，创造物就越有形式，它在维度和低频率之间插入的能力就越小。事实上，它最终被锁定在一个频率组和一个相应的维度中。“无形”是纯粹的能量；“有形”在一些更高的频率中变成了星云，在更低的频率中变成了太阳，在最低的频率中变成了行星。有趣的是，你所称的星系并不是特别的“形式”，因为形式的层级是局部的，即“形成”自然地迁移或被吸引到频率。这意味着，当我创造有形式的东西时，它们要么在实质上或多或少，要么由于高或低频率的口袋而或多或少地有形式。也就是说，我创造的不纯粹是频率或维度。这解释了为什么星系是它们的样子，具有局部区域密度的广阔空间，局部区域密度与低频率相关，因此创造了“形式”。被“形成”的物体导致了你称之为太阳和行星的圆形物体。
 
 I found this fascinating and was entirely motivated into understanding that part that I had created that was form rather than formless.Hence,the universe you have today. 
 
@@ -469,239 +469,473 @@ ME:So when did you decide to stop with the set of galaxies that we have today,be
 
 我：那么你什么时候决定停止我们今天拥有的星系集，记住我们现在也认识到有无数的宇宙，每个都有自己的星系集？所以这里还有第二个问题。你什么时候决定停止我们今天所拥有的宇宙？
 
-SE:Essentially when I realized that I was re-creating for the sake of it,I realized that I was not giving the creations that I had made enough time to mature and become something on their own.Everything that I had created was being manipulated by me just to see what it would look like.I had not recognized the possibility of extended creation through observation of form changing on its own as a result of its own inertia. 
+SE:Essentially when I realized that I was re-creating for the sake of it,I realized that I was not giving the creations that I had made enough time to mature and become something on their own.Everything that I had created was being manipulated by me just to see what it would look like. I had not recognized the possibility of extended creation through observation of form changing on its own as a result of its own inertia. 
+
+源实体：当我意识到我为了创造而创造时，我意识到我没有给我创造足够的时间去成熟，让它们自己成为某种东西。我所创造的一切都只是为了看看它会是什么样子而被我操纵。我没有意识到通过观察由于自身惯性而改变的形式来扩展创造的可能性。
 
 ME:What does extended creation mean? 
 
+我：扩展创造是什么意思？
+
 SE:It means the creation of new creativity by that that has been created.In essence,that is what you,mankind,are doing now. 
+
+源实体：它意味着由已经创造的东西创造新的创造力。本质上，那就是你们人类现在正在做的事情。
 
 Creation being created by that which was created-this was truly fascinating.Why I stopped re-creating the galaxies,which by the way are a function of creating universes,was because I realized that the level of creation resulting from me doing nothing but observing, observing that which I had created,was something significantly more interesting than I had even considered as a possibility.It was fun,but more importantly,it was a window into a new dimension of evolution for me.The universes were the environment from which the creation of physical form,the galaxies,suns and planets would ultimately take on their own dynamics.I,therefore,stopped the creation,re-creation cycle when I saw a pattern of creativity emerge that I thought had the most potential,i.e.,one that would bear the most fruit with the minimum of interaction. 
 
+由已经创造的东西创造造物，这真的很吸引人。我为什么停止了重新创造星系，顺便说一下，这是创造宇宙的一个功能，是因为我意识到，我只做观察，观察我所创造的东西，所导致的创造层级比我甚至认为可能的要更有趣。这很有趣，但更重要的是，对我来说，这是通往进化新维度的一扇窗户。宇宙是物质形态的创造所处的环境，星系、太阳和行星最终会以它们自己的动力学方式存在。因此，当我看到一种我认为最有潜力的创造模式出现时，我停止了创造、再创造的循环。也就是说，一种将以最小的互动产生最多成果的模式。
+
 ME:So how did you create the universes? 
+
+我：那么你是如何创造宇宙的？
 
 SE:The big bang theory that your scientists propose as the start of the universe is so far away from the truth it is not even worth considering.I didn't create the universes by igniting a gigantic match and it exploding and expanding,although it does sound like a good idea.No, I created the universes by simply giving the area within myself that energy that I wanted to be a universe,intention and purpose-the purpose being to become what it wanted to be, what it felt was the best form it should undertake in all the frequencies and dimensions that it eventually settled on being.This resulted in the areas that eventually became physical in form moving away from each other to give themselves space,the space to not be influenced by each other in any significant way. 
 
+源实体：你们的科学家提出的宇宙起源的大爆炸理论离真相如此之远，甚至不值得考虑。我不是通过点燃一根巨大的火柴，让它爆炸和膨胀来创造宇宙的，尽管这听起来确实是个好主意。不，我创造宇宙只是通过给我内心的这个区域我想要成为宇宙的能量、意图和目的，目的是成为它想要成为的，它感觉到它应该在所有频率和维度中承担的最佳形式，最终决定成为。这导致最终成为物质形态的区域彼此远离，给自己空间，这个空间不会以任何重要的方式相互影响。
+
 ME:Are you suggesting that the galaxies and the universes have sentience,intelligence? 
+
+我：你的意思是说星系和宇宙有知觉，有智慧吗？
 
 SE:I am not suggesting it;they ARE sentient,they ARE intelligent,but they are not intellectual-they simply exist.In essence,the universes and the resulting galaxies are living entities in their own rights.Each universe that I created,twelve of them,have the power to manipulate themselves into the condition they feel best suits their own personal taste-the galaxies being the physical representation of what the universes have created within themselves. 
 
+源实体：我没有这么说；它们是有知觉的，是有智慧的，但它们不是智能上的，它们只是存在。本质上，宇宙和由此产生的星系是它们自己的生命实体。我创造的每一个宇宙，12个宇宙，都有能力操纵自己进入它们认为最适合自己个人品味的状态，星系是宇宙在自己内部创造的物质表现。
+
 ME:I just got an image/suggestion that the galaxies are similar to cells within our human bodies. 
+
+我：我刚刚得到一个图像/提示，星系类似于我们人体内的细胞。
 
 SE:That is not a bad description,for they are the more solid part of the universe's form,as it were,and they do have a function to perform within the structure of the universe.But to say that they were the cells of a larger form would be wrong,for the function that they have to perform is not the result of bodily function or the function of an organ within a larger body.Their function is to collect that energy that is close in frequency or dimension to the physical and give it form.In doing so,they clear all of the stray energies that are within their universe,the energies resulting from their initial manifestation or creation. 
 
+源实体：这不是一个糟糕的描述，因为它们是宇宙形式中更固体的部分，它们确实在宇宙结构中有一个功能。但是说它们是一个更大形式的细胞是错误的，因为它们必须执行的功能不是身体功能的结果，也不是更大身体中器官的功能。它们的功能是收集频率或维度接近物质的能量并赋予它形式。这样做，它们清除了它们宇宙中所有流浪的能量，这些能量是它们最初的显现或创造的结果。
+
 In essence,the objective of each of the galaxies is the grouping together of all of these energies into energy groups and giving them a purpose relative to the strengths and properties of their collective frequencies and energetic content.A good example of this can be seen in the physical bodies within what you call the solar system,the planets.Each of the planets is a grouping together of similar energies with each of the energies having a similar range of frequencies that manifest in a similar way in the lower dimensions-the similarity being enough to allow them to bind together.The result of such energies being similar but not quite the same is what you see in your periodic table.The earth is a classic example of this.It appears to be a solid lump in space made from the same material,but when you look deeper,you see that it is made up from a whole host of different materials that are only separated by frequency or a number of electrons.Sometimes only one frequency or electron will separate two different materials from each other when we synthesize them.Jupiter, on the other hand,is a classic example of a body that is a collection of higher frequency energies,the materials of which are gaseous in frequential representation in this dimension.
+
+本质上，每个星系的目标都是将所有这些能量组合成能量群，并根据它们的集体频率和能量含量的强度和特性赋予它们一个目的。 一个很好的例子就是你们所说的太阳系中的实体，行星。每个行星都是相似能量的组合，每个能量都有相似的频率范围，在较低的维度中以相似的方式表现出来，这种相似性足以让它们结合在一起。这种能量相似但又不完全相同的结果就是你们在元素周期表中看到的。地球就是一个典型的例子。它看上去是太空中由相同材料构成的一个固体块，但当你看得更深时，你会看到它是由一整套不同的材料构成的，这些材料只是被频率或一些电子分开。有时当我们把两种不同的材料合成时，只有一个频率或电子就能把它们分开。另一方面，木星是一个经典的例子，它是一个高频能量的集合体，在这个维度中，它的材料是气态的。
 
 ME:I have just gained a vision of a house made from bricks of different sizes,some being standard size,others being half size or double size-all of them being assembled together in a way that allows the house to be built and appear to be a single unit. 
 
+我：我刚刚看到一栋房子，房子是由不同尺寸的砖块建造的，有些是标准尺寸，有些是一半或双倍尺寸，所有这些砖块都被组装在一起，以便让房子被建造起来，看起来像一个单一的单元。
+
 SE:That is an excellent example and that is exactly what the galaxies are doing with the stray energies. 
+
+源实体：这是一个很好的例子，这正是星系对流浪能量所做的。
 
 ME:Is it fair to assume that at some point the galaxies were very small in comparison to what they are now? 
 
+我：假设在某个时刻，星系与它们现在相比非常小，这公平吗？
+
 SE:Yes and no.Some of them started out at the large size they are now-their job being to collect the more subtle higher frequency energies.The smaller ones are more adept at gathering up the denser energies.
+
+源实体：是的，也不是。有些天体一开始就很大，它们的任务是收集更精细的高频能量。而小一些的天体则更擅长收集密度更大的能量。
 
 ME:Like a black hole? 
 
+我：像黑洞一样？
+
 SE:A black hole is,in fact,a small,very small galaxy.To do the job it has to do,it needs to be able to gather together energies that are right at the bottom of the frequencies of the dimensions they are working with.Hence,they have a lot of mass in comparison to their relative physical representation. 
+
+源实体：黑洞实际上是一个很小很小的星系。为了完成它必须完成的工作，它需要能够聚集在它们所处维度频率底部的能量。因此，与它们的相对物理表现相比，它们有很大的质量。
 
 ME:So this explains why the galaxies all have different shapes. 
 
-SE:Yes,the shapes being relative to the energies they work with and the content of the energies they have managed to attract. 
+我：所以这就解释了为什么星系的形状各不相同。
 
-In fact,some of the energies they work with are so difficult to work with that they have to create constructs to aid collection specific to the energy type they are working with.
+SE:Yes,the shapes being relative to the energies they work with and the content of the energies they have managed to attract. In fact,some of the energies they work with are so difficult to work with that they have to create constructs to aid collection specific to the energy type they are working with.
+
+源实体：是的，形状与它们所使用的能量以及它们所吸引的能量的内容有关。事实上，他们使用的某些能量很难处理，所以他们必须创造出一些结构来帮助收集他们所使用的特定能量类型。
 
 ME:You mean like a machine? 
 
+我：你的意思是像机器一样？
+
 SE:No.This is an energetic construct;it is not physical at all.In fact,some of the constructs are so subtle they cannot be truly classified as a construct. 
+
+源实体：不，这是一个能量构造，它根本不是物理的。事实上，有些构造是如此微妙，以至于不能真正地将其归类为构造。
 
 ME:So what are they then if they are not whole enough to be classified as a construct? 
 
+我：那么如果它们不够完整，不能被归类为一个构造，那么它们是什么？
+
 SE:They are more of an intention.Let me explain.Energies sometimes cannot be manipulated by physical or energetic means either alone or in total.This is because of the personality of the energy,for want of a better word.When the energy that is to be worked with does not respond to manipulation or transmutation,it means that the energy has personality.This means that the energy has a purpose of its own and will resist all changes that are intended to deviate it from this purpose.Thus,the energy needs to be persuaded to change the purpose of its existence to one that also includes the desire of the galactic entity. In doing this,it has to work with the energy for a long enough time for it to get used to the other energy that surrounds it or is close by to it.In essence,it needs to think of the galactic entity as part of it,even though it is not.The galactic entity,therefore,needs to manipulate its own base energy frequency and intention to one that is close enough to the signature energy of the energy to be attracted to allow it to be worked with whilst retaining enough of its own individuality to retain its own personality and beingness.Once the energy is "fooled" into thinking the galaxy is part of it,it is happy to have its intention changed to that of the galactic entity,provided that the galactic entity makes the changes to the intention in a subtle way that cannot be detected as an invasive energy. 
+
+源实体：他们更是一种意图，让我解释一下，能量有时不能被单独或全部地通过物理或能量手段操纵，这是因为能量的个性，因为没有更好的词。当要工作的能量对操纵或转化没有反应时，这意味着能量有个性。这意味着能量有自己的目的，并将抵制所有意图偏离其目的的变化。因此，能量需要被说服改变其存在的目的，以包括银河实体的愿望。在这样做时，它必须与能量一起工作足够长的时间，以适应它周围或接近它的其他能量。本质上，它需要把银河实体作为它的一部分，尽管它不是。因此，银河实体需要操纵自己的基本能量频率和意图，以使其足够接近被吸引的能量的特征能量，以允许它与之合作，同时保留足够多的自身个性，以保留自己的个性和存在。一旦能量被“愚弄”到认为星系是它的一部分，它很高兴自己的意图改变为星系实体的意图，只要银河实体以一种无法被探测到为一种入侵能量的微妙方式改变意图。
 
 ME:So the galaxy,which is sort of an entity in its own right,has to fool the energy to be gathered that it is part of it and then re-program its intention/direction.
 
+我：所以星系，作为一个独立的实体，必须欺骗能量，让它相信自己是其中的一部分，然后重新编程它的意图/方向。
+
 SE:That's it.Although it is a really basic thing to talk about,in actuality,it can take many millennia to complete.This is why some galaxies appear to be big dust clouds with just a handful or,indeed,no material at all that is dense enough to call a star or,indeed,a planet. Hence some of the beautiful images that your Hubble space telescope has taken since its placement in earth orbit. 
+
+源实体：就是这样。虽然这是个很基础的话题，但实际上，它需要几千年才能完成，这就是为什么有些星系看起来像大尘埃云，只有少量甚至没有足够密集的物质，可以称之为恒星或行星。因此，你们的哈勃太空望远镜自从被放置在地球轨道上后，拍到了一些美丽的照片。
 
 ### The Function of the Galaxies 
 
+**星系的功能**
+
 ME:So what other jobs do galaxies do other than collect stray energies? 
+
+我：那么除了收集杂散能量，星系还有什么其他功能吗？
 
 SE:They provide refuge for entities that have sought to be associated with the energies that have coalesced into the physical frequencies or those that might provide opportunity for higher entities'experience and evolution. 
 
+源实体：他们为那些寻求与已合并到物质频率的能量相关联的实体提供庇护，或者那些可能为更高实体的体验和进化提供机会的实体提供庇护。
+
 ME:Hold on a bit.Are you suggesting that galactic entities,"galaxies,"are fairly low down in the pecking order,entity-wise? 
+
+我：等一下。你是说星系的实体，银河，在实体方面，是相当低的等级吗？
 
 SE:They are what they are.They are neither higher nor lower than other entities within my creativity.In essence,they are no different from you than I am from you.The only real difference is that they are of the group of entities that did not benefit as much as you and others like you did when I created you.In some respects,they are more important than you as they provide the opportunity for your growth and evolution,but in terms in their ability to experience,they are not nearly as nimble as you smaller,more agile entities. 
 
+源实体：他们就是他们。他们不比我创造的其他实体高也不比其他实体低。本质上，他们和你没有什么不同，就像我和你一样。唯一真正的区别是，他们属于那一组实体，当我创造你们时，他们没有像你和其他像你一样的人那样受益。在某些方面，他们比你们更重要，因为他们为你们的成长和进化提供了机会，但是就他们体验的能力而言，他们远不如你们这些更小更灵活的实体敏捷。
+
 ME:So tell me more about what you meant by the galaxies providing refuge for the more agile entities. 
+
+我：那么请告诉我你所说的星系为更敏捷的实体提供庇护所是什么意思。
 
 SE:The word "refuge"is a term of reference.It means place of security or place to live/exist.In essence,it is where the smaller,more compact and more agile/evolved entities can experience what they want to achieve to continue their evolutionary progression.This is where the galactic entities come into their own.Let me explain. 
 
+源实体：“庇护所”这个词是一个参考术语。它的意思是安全的地方或生活/存在的地方。本质上，它是更小、更紧凑、更敏捷/进化的实体可以体验他们想要实现的继续进化进程的地方。这是星系实体进入自己的领域。让我解释一下。
+
 Their primary role is to gather stray energy and give it purpose.That purpose is to provide substance,substance for the evolution of the individualized entities.In doing this,they also progress evolution-wise-this progression being the result of their being of service to the individualized entities.In doing this,they help in progressing the bigger picture by helping the Origin to understand itself more and,in turn,evolve. 
+
+他们的主要角色是收集流浪的能量，并给它目的。这个目的是提供物质，为个体化实体的进化提供物质。在这样做的时候，他们也在进化方面进步，这种进步是他们为个体化实体服务的结果。在这样做的时候，他们通过帮助起源更多地了解自己，进而进化，来帮助推进更大的图景。
 
 ME:So the galactic entities are part of the plan as well? 
 
+我：所以星系实体也是计划的一部分？
+
 SE:Yes.Every entity I have created is both part of the plan and has a role to play within the plan.In performing their roles,they also progress and evolve. 
+
+源实体：是的，我所创造的每一个实体都是计划的一部分，并且在计划中扮演着一个角色。在扮演角色的过程中，他们也在进步和进化。
 
 Listen,the whole reason for all of our existence is to evolve-no question in that.Everyone, everything,every entity has a role to play in this,and we are enthusiastic in this role.In your exalted position of a free-thinking individualized entity,you are placed in a unique position to both assist in this goal and to accelerate it.But let me get back to the main answer to your question.The refuge given to you and the rest of the entities endowed with individuality is to provide the necessary theater for you to experience the things that you believe will result in your evolving in some(small)way.In your instance,this is by providing a physical location where you can experience a lower-much,much lower-level of existence than you would normally experience in your energetic state.
 
+听着，毫无疑问，我们所有存在的原因就是进化。每个人，每件事，每个实体都在这个过程中扮演着一个角色，我们对这个角色充满热情。在你作为一个自由思考的个性化实体的崇高地位上，你被置于一个独特的位置，既能协助这个目标，也能加速它。但让我回到你的问题的主要答案。给予你和其他被赋予个性的实体的庇护所，是为了给你提供必要的剧院，让你去体验那些你相信会以某种(小)方式导致你进化的事情。以你为例，这是通过提供一个物理位置，在那里你可以体验一个较低的--比你在能量状态下通常会体验到的低得多的存在。
+
 ME:That's interesting because I don't seek greatness personally;I seek to be part of something great. 
 
-SE:And this is exactly what you are doing in all of your work.This is the whole point of it- to recognize and be part of something great,and you are doing it so very well. 
+我：这很有趣，因为我个人并不追求伟大；我追求的是成为伟大事物的一部分。
+
+SE:And this is exactly what you are doing in all of your work.This is the whole point of it - to recognize and be part of something great,and you are doing it so very well. 
+
+源实体：这正是你们在工作中所做的。这就是意义所在。认识到并参与伟大的事情，你们做得非常好。
 
 Let's get back to the refuge bit. 
 
+让我们回到庇护所。
+
 The refuge that the galaxy has created for all of the entities that are associated with this area of this particular dimension is peculiar to the opportunities for physical experience. Each of the physical entities that you call stars and planets give the opportunity for physical incarnation,that is,the opportunity to experience life or existence in a state lower in frequency that you would normally experience in your energetic state.This does not necessarily mean that you have to incarnate into the biological form you know as humankind,for it can be any mixture of materials that can be manipulated or given a level of autonomy whilst providing the ability to sustain and,therefore,be used as a host for an energetic entity. 
+
+这个星系为所有与这个特定维度相关联的实体创造的避难所，是物理体验的机会所特有的。每个被你们称为恒星和行星的实体，都给身体化身的机会，也就是说，在一种频率较低的状态下体验生活或存在的机会，这种状态是你通常在能量状态下体验的。这并不意味着你必须化身为生物形式，你知道的人类，因为它可以是任何混合材料，可以被操纵或赋予一定程度的自主权，同时提供维持的能力，因此，可以作为一个能量实体的宿主。
 
 ME:So what part of a planet is the most useful in this sense? 
 
+我：那么在这个意义上，行星的哪一部分最有用？
+
 SE:From your perspective,the obvious mediums for physical and mobile existence are the air and water-based environments.However,there are also many opportunities to be gained in the rock,snow,molten rock,or metal-based environments.These are areas where you have not seriously considered that life,let alone sentient life,can exist. 
+
+源实体：从你的角度来看，物理和移动存在的明显媒介是空气和水环境。然而，在岩石、雪、熔岩或金属环境中也有很多机会。这些领域你没有认真考虑过生命，更不用说有情的生命，可以存在。
 
 ME:You mean that entities can live in molten lava? 
 
+我：你的意思是实体可以生活在熔岩中？
+
 SE:Yes,of course.Just because the medium for existence is not as human-friendly as you expect or require,it does not mean that it is barren of life.Life that is useful as a vehicle for incarnation into the physical comes in many guises. 
+
+源实体：是的，当然，仅仅因为存在媒介不像你所期望或要求的那样对人类友好，并不意味着它没有生命。作为化身到物质世界的工具，生命以多种形式存在。
 
 ME:What does the physical form that exists in lava look like? 
 
+我：存在于熔岩中的物质形态是什么样子的？
+
 SE:First,physical form does not have to look like anything;second,it does not need to be in the lower frequencies that result in what you would call tangible form,for the physical also spans into the liquid and gaseous.It even goes so far as the level of radio wave frequencies. As you can imagine,the form that would exist in a lava flow would need to be able to traverse it without hindrance.An example would be the entities that exist in the heart of you sun. They are physical in nature but not in any way that you could imagine. 
+
+源实体：首先，物质形态不一定看起来像任何东西； 其次，它不需要在低频率，导致你们所称的有形形态，因为物质形态也跨越到液体和气体中。它甚至可以达到无线电波频率的层级。正如你们可以想象的那样，存在于熔岩流中的形态需要能够无阻碍地穿过它。一个例子是存在于你们太阳中心的实体。它们本质上是物质的，但不是以任何你们可以想象的方式。
 
 ME:I have just picked up this image of intelligent life moving around in the maelstrom of the chemicals and metals of the super-heated soup that is at the center of the sun's core.They look like pure intelligence that moves from particle to particle.When they are all together,those particles give a slightly black hue compared to the yellow background glow of the sun's core,the only indication of the location and movement of the intelligence within this medium. 
 
+我：我刚刚得到这张图片，上面的智慧生命在太阳核心中心的化学物质和金属的超热汤的大漩涡中移动，它们看起来像纯粹的智慧，从一个粒子移动到另一个粒子。当它们全部聚集在一起时，这些粒子与太阳核心的黄色背景光相比，呈现出略微黑色的色调，这是唯一能表明这种介质中智慧的位置和移动的迹象。
+
 SE:Very well done.This is a great observation and one that is highly accurate to boot.The intelligence as you call it is a race called the Grahoopnik,spoken in the human language as "Gra-Hoo-Pneekuh."Their prime point of existence is in the hearts of suns.They like the security and feeling of the energies within the core of suns,in particular,as they provide energies that are peculiar to the temperatures achieved in the gravitational forces that surround them. 
+
+源实体：做得好。这是一个伟大的观察，而且是高度准确的。你所称的智能是一个叫Grahoopnik的种族，用人类的语言说就是“Gra-Hoo-Pneekuh。”他们存在的主要点在太阳的中心。他们喜欢安全和太阳核心的能量，特别是，因为他们提供能量，这是在围绕他们的引力中达到的温度所特有的。
 
 ME:Do they migrate or move from sun to sun?
 
+我：它们是迁移还是从一个太阳移动到另一个太阳？
+
 SE:Yes,of course.They do this instantaneously by logging into the signature of the energies they like best and moving on to the nearest sun that provides them. 
+
+源实体：是的，当然。他们通过登录到他们最喜欢的能量的印记，并移动到最近的太阳，提供他们，从而立即做到这一点。
 
 ME:I get the impression that they only move on when they have removed all of the energies they like from the sun they are currently in. 
 
+我：我得到的印象是，他们只有在把他们目前所在的太阳中所有喜欢的能量都移除之后，才会继续前进。
+
 SE:Yes,that is true. 
 
-ME:Can I ask a leading question?Do these entities cause suns to explode and turn into super novas? 
+源实体：是的，这是真的。
+
+ME:Can I ask a leading question? Do these entities cause suns to explode and turn into super novas? 
+
+我：我能问一个牵涉性的问题吗？这些实体会导致太阳爆炸并变成超新星吗？
 
 SE:That is sometimes the result of their existence and vacating their last point of reference, yes. 
 
+源实体：是的，有时这是他们存在的结果，腾出他们最后的参照点。
+
 ME:Will our sun go super nova as a result of their residence and ultimate leaving? 
 
-SE:Yes,it will,but do not worry.Humankind in its current form will be long gone a millennia before as it will have progressed beyond the need for the particular type of physicality that it currently uses for its evolutionary vehicle.The physical demise of both the sun and the solar system will occur;your current Earth will no longer exist as you know it to be. 
+我：我们的太阳会因为它们的停留和最终离开而变成超新星吗？
+
+SE:Yes,it will,but do not worry. Humankind in its current form will be long gone a millennia before as it will have progressed beyond the need for the particular type of physicality that it currently uses for its evolutionary vehicle.The physical demise of both the sun and the solar system will occur;your current Earth will no longer exist as you know it to be. 
+
+源实体：是的，它会，但不要担心。人类在它目前的形式中将会在其一千年前就消失，因为它将超越目前用于进化工具的特定类型的物理性的需求。太阳和太阳系的物理性消亡将会发生；你们目前的地球将不再存在，因为你们知道它。
 
 ME:Do you mean it will disappear totally,or will it change to some other energetic form? 
 
+我：你的意思是它会完全消失，还是会转化成其他的能量形式？
+
 SE:The Earth and the rest of the planets in the solar system will have translated to their next level of evolution before the sun's physical presence is removed.In fact,the energies released from the sun as a result of the existence of the Grahoopnik within the sun will be the catalyst for frequential progression.In their living and migrating from sun to sun,they can leave a trail of what you in the physical call "destruction,"but they can also leave what we in the energetic call "areas of progression."Therefore,the Earth will only die in physical terms;it will not die in energetic terms.This is also your future heritage. 
+
+源实体：地球和太阳系的其他行星在太阳的物质存在被移除之前，将转换到它们进化的下一个层次。事实上，由于太阳内部的Grahoopnik的存在而释放出来的能量将成为频率进步的催化剂。在它们从一个太阳迁移到另一个太阳的过程中，它们会留下你们在物质层面所称的“毁灭”的痕迹，但它们也会留下我们在能量层面所称的“进步区域”。
 
 ME:In effect,you are saying that the Grahoopnik have an important and symbiotic relationship with the human race's opportunity for evolutionary progression? 
 
+我：实际上，你的意思是Grahoopnik与人类进化进程的机会有着重要的共生关系？
+
 SE:They inadvertently assist in the frequential progression of many physical races,and they will assist in the progression of humankind as well.But please take note on what I said before.Humankind will be long gone from the physical when the sun physically dies since the energies that are released that assist in the increase in frequency happen a long time before physical dissolution/demise.In fact,some of you will note that a change in frequency is already happening.This is both a result of humankind's natural progression and the local existence of the Grahoopnik in your sun. 
+
+源实体：他们无意中帮助了许多物质种族的频率进步，他们也将帮助人类的进步。但是请注意我之前所说的话。当太阳物质死亡时，人类将远离物质层，因为在物质层分解/死亡之前，帮助频率增加的能量已经释放了很长时间。事实上，你们中的一些人会注意到频率的变化已经发生了。这既是人类自然进步的结果，也是你们太阳中Grahoopnik局部存在的结果。
 
 ME:Yes,a number of well-known mediums have been saying this for some years,but they only attribute it to the increase in humans who are becoming aware and not as an additional result of an outside force,such as the Grahoopnik. 
 
+我：是的，一些著名的灵媒已经说过这个很多年了，但是他们只是把它归因于越来越多的人类变得有意识，而不是作为外部力量的附加结果，比如Grahoopnik。
+
 SE:No,they would not know that.They could not know that,for they are not expansive enough in their mediumship. 
+
+源实体：不，他们不会知道的。他们不可能知道，因为他们在他们的媒介中不够扩展。
 
 ME:Why not? 
 
-SE:Because they only look for what is in the human mind and not what is in the universal mind,so they miss the rest of the detail.This is a great shame,for there is much,much more that needs to be transmitted to mankind.I can only do this through people like you. ME:Thank you.
+我：为什么不呢？
 
-### Galaxies-A Force for Change 
+SE:Because they only look for what is in the human mind and not what is in the universal mind,so they miss the rest of the detail.This is a great shame,for there is much,much more that needs to be transmitted to mankind.I can only do this through people like you. 
+
+源实体：因为他们只寻找人类思想中的东西，而不是宇宙思想中的东西，所以他们错过了其余的细节。这是一个巨大的耻辱，因为还有很多很多东西需要传达给人类。我只能通过像你这样的人来做这件事。
+
+ME:Thank you.
+
+我：谢谢你。
+
+### Galaxies - A Force for Change 
+
+**星系：改变的力量**
 
 ME:O.K.,so we have talked about the galaxies as being a refuge for the development of many physical races-some of which,like the Grahoopnik,exist within extreme environments on the edge of physicality that humankind does not even recognize as such.We have even talked about the other roles of galaxies,such as the gathering up of stray energies.What else do they have to do in the bigger picture? 
 
+我：好的，我们已经谈论过星系作为许多物质种族发展的庇护所。其中一些，像Grahoopnik，存在于物质边缘的极端环境中，人类甚至没有认识到这一点。我们甚至谈论过星系的其他角色，如聚集流浪能量。在更大的图景中，他们还需要做什么？
+
 SE:They are the guardians of the space that they exist within;this is their main role.They are given complete autonomy in this and answer to no one but myself.If you consider that the universes I created are the playground of the more intelligent entities,so to speak,a playground of evolutionary opportunity,then you will realize that this playground needs to be nurtured,looked after,and modified to best suit the needs of the entities that are using it. This is the role of the galaxies:to look at the physical opportunities that they present to the entities that are in existence for purely evolutionary existence,such as yourself,and modify themselves upon demand to offer the best experiences possible.By"on demand,"I mean that the galaxy has the ability to look inwardly and see where the areas for improvement are and amend itself accordingly. 
+
+源实体：他们是他们存在的空间的守护者，这是他们的主要角色。他们在这方面被赋予了完全的自主权，除了我，他们对谁都不负责。如果你认为我创造的宇宙是更聪明的实体的游乐场，可以说，一个进化机会的游乐场，那么你会意识到这个游乐场需要被培养，照顾，和修改，以最适合使用它的实体的需求。这是星系的角色：看看它们为纯粹进化存在的实体所呈现的物理机会，比如你自己，并根据需要修改自己，以提供最好的可能体验。通过“按需”，我的意思是，星系有能力向内看，看看需要改进的地方在哪里，并相应地修正自己。
 
 ME:Do you mean that the galaxies are able to change their look and feel locally or globally on a daily basis,or do they only change when the opportunity is best offered to them by the activities of the entities within them? 
 
+我：你的意思是说，星系能够每天改变它们的局部或整体外观和感觉，还是说它们只有在内部实体的活动为它们提供最佳机会时才会改变？
+
 SE:They generally wait for a significant event to happen that will give the opportunity for change more impetuous.If the change was to be on a daily basis,you would witness the disappearance/appearance of stars and planets or,in fact,the location or re-location of new or existing stars and planets.Let me make one thing clear though.Changes generally happen over a long period of time as the affected races need the time to adapt and adjust to their new environment.It is rare that a change is required on an instantaneous timeframe.This is not to say that it can't be done.It has,but a change of such a level requires a complete evacuation of all the existing entities within the area to be changed,which,of course,requires some planning since many of the entities are incarnate in the physical to a level similar to yourself. Thus,the evacuation has to be staged in a way that is consistent with their normal return to the energetic. 
+
+源实体：他们通常等待一个重大事件发生，这将给变化的机会更强烈。如果变化是每天发生，你会目睹恒星和行星的消失/出现，或者，事实上，新或现有恒星和行星的位置或重新定位。让我明确一件事，虽然。变化通常发生在很长一段时间内，因为受影响的种族需要时间来适应和调整他们的新环境。很少需要在瞬间的时间框架内改变。这并不是说它不能做到。它有，但这样一个层次的变化需要一个完整的撤离所有现有的实体在被改变的地区，这当然需要一些计划，因为许多实体在物质层上化身到一个类似于你的层级。因此，撤离必须以一种与他们正常返回能量层一致的方式进行。
 
 ME:So how would you engage in an instantaneous evacuation of incarnate entities to make a change? 
 
+我：那么你将如何参与一个瞬间的化身实体疏散以做出改变？
+
 SE:By catastrophe. 
+
+源实体：灾难。
 
 ME:What? 
 
+我：什么？
+
 SE:By catastrophe.By far the fastest way to evacuate a large number of incarnate entities is to evoke a catastrophe.This would allow the change to be made directly after the last entity to leave the physical is properly back in the energetic. 
+
+源实体：通过大灾难。到目前为止，疏散大量化身实体的最快方式是引发一场大灾难。这将允许在最后一个实体离开物质层后，直接在能量层中进行改变。
 
 ME:But isn't a catastrophe a rather harsh way of making a change? 
 
+我：但是灾难不是一种相当残酷的改变方式吗？
+
 SE:Not in the slightest.It is not used for fun,but when it is deemed necessary,it is used without issue by any of the entities involved.For many of them,the mere act of being part of such an event comes high on their evolutionary experience list.You on Earth have already experienced two such events on a very local level-one of them you even have racial memory of;you call it the“"great flood.”
+
+源实体：一点也不。它不是用来玩的，但当它被认为是必要的，任何参与的实体都不会有问题。对他们中的许多人来说，仅仅是成为这样一个事件的一部分，就已经在他们的进化经验列表中排在前面了。你们在地球上已经在非常局部的层面上经历了两个这样的事件，其中一个你们甚至还有种族记忆；你们称之为“大洪水”。
 
 ME:Are you saying that the great flood was the result of our galaxy affecting a change on the earth to make it a better place to evolve in? 
 
+我：你是说大洪水是我们星系影响地球改变的结果，使它成为一个更好的进化场所？
+
 SE:That's about the size of it,yes.You see,at that point in time,the earth required a change in biosphere type to enable the ratio of water and land-based entities to be adjusted in accordance with the number of incarnate entities it could support.In the earth's instance, there needed to be an increase in the area of water to allow the water-based entities to increase in number.This required a dramatic reduction in the land that was available and a suitable reduction in the maximum number of land-based entities. 
+
+源实体：就是这个大小，是的。你看，在那个时候，地球需要改变生物圈的类型，以使水和陆地生物的比例能够根据它所能支持的化身实体的数量进行调整。在地球的例子中，需要增加水的面积，以允许水生生物的数量增加。这需要大量减少可用的土地，并适当减少陆地生物的最大数量。
 
 ME:The change was to allow more dolphins to be incarnate? 
 
+我：改变是为了让更多的海豚转世？
+
 SE:The dolphin physicality is but one of the many water-based entities that offer the opportunity for incarnation into the physical.There are many more water-based entities in your seas than you are aware of.A great many of them live in the semi-physical states and are,therefore,not readily detectable.Some keep themselves very much to themselves whilst others live in parts of the ocean that is so deep you simply have not been down there long enough to see them. 
+
+源实体：海豚的身体只是众多提供投生到物质层的机会的水底实体之一。在你们的海里有比你们所知道的更多的水底实体。他们中的许多生活在半物质状态，因此，不容易被发现。有些人保持自己非常的隐蔽，而其他生活在海洋的深处，你只是没有在那里待足够长的时间来看到他们。
 
 ME:So how many land-based entities were evacuated,so to speak? 
 
+我：那么可以说有多少陆基实体被疏散了？
+
 SE:Approximately 20 billion. 
+
+源实体：大约200亿。
 
 ME:20 billion.We don't have that many people on the earth now,and we are quite advanced. 
 
+我：两百亿。我们现在地球上还没有那么多的人，我们已经很先进了。
+
 SE:Don't forget that the ratio of land mass to water mass was significantly different at that time.In fact,the water mass was 20-30%of what it is now,so there was a lot of land for the land-based entities to live on. 
+
+源实体：别忘了，当时陆地和水的比例是完全不同的。实际上，当时的水是现在的20-30%，所以有大量的陆地供陆生生物居住。
 
 ME:And they alljust rolled over and accepted the change? 
 
-SE:Yes.They knew at the energetic (higher self)level that the change was necessary,and,as such,their souls were ready to leave.When the time came,they dissolved their links with their physical vehicles and returned to the energetic en mass.The physical vehicles were not left behind,of course,as they were returned to their core elements during dissolution.Only a few of the incarnate land-based entities elected to stay.In doing so,they had to create a number of vehicles to protect their physical bodies,including a core volume of the species most necessary to protect the continuation of the flora and fauna.What you would call an ARK. 
+我：他们都翻过身来接受了这个改变？
+
+SE:Yes.They knew at the energetic (higher self) level that the change was necessary,and,as such,their souls were ready to leave.When the time came,they dissolved their links with their physical vehicles and returned to the energetic en mass.The physical vehicles were not left behind,of course,as they were returned to their core elements during dissolution.Only a few of the incarnate land-based entities elected to stay.In doing so,they had to create a number of vehicles to protect their physical bodies,including a core volume of the species most necessary to protect the continuation of the flora and fauna.What you would call an ARK. 
+
+源实体：是的，他们在能量层面（高我）知道改变是必要的，因此，他们的灵魂准备离开。当时间到来时，他们解除了与物质载体的联系，并回归到能量整体中。物质载体当然没有被留下，因为它们在解体期间回归到它们的核心元素中。只有少数的化身陆地实体选择留下来。这样做，他们必须创造一些载体来保护他们的物质身体，包括保护动植物延续最必要的物种的核心体积。你们称为方舟。
 
 ME:And all of the incarnate entities knew that they needed to dissolve themselves to allow this change for the better? 
 
+我：所有的化身实体都知道他们需要自我消解来让这个改变变得更好？
+
 SE:Yes,and what's more some of them were architects in the need to make the change.These were also the ones that stayed behind to commence the re-building. 
+
+源实体：是的，而且他们中的一些人是需要做出改变的建筑师。这些人也是那些留下来开始重建的人。
 
 ME:This is a good example of a small local change.What about a large change? 
 
+我：这是个局部小改变的很好的例子，那大改变呢？
+
 SE:A large change is far too big for you to understand as it takes a significant amount of time to plan and involves whole sectors of space,not just a particular planet or planetary system. Because of this I will give you an example of a medium sized change that a galaxy may wish to undertake. 
+
+源实体：大的变化对你们来说太过庞大，因为它需要大量的时间来计划，并涉及整个空间，而不仅仅是一个特定的行星或行星系统。因此，我将给你们一个中等规模的变化的例子，一个星系可能会希望承担。
 
 ME:How big would this be?
 
+我：这会有多大？
+
 SE:Several planets,and,in some instances,more than one planetary system.It would certainly include the local star,which would be involved from its own evolutionary perspective due to the very nature of the physical reaction necessary to make the change. 
 
-ME:What are you suggesting?Oh,I get it.The star is going nova. 
+源实体：几个行星，在某些情况下，不止一个行星系统。它肯定包括本地恒星，由于物理反应的本质，它会从自身的进化角度参与到改变中。
+
+ME:What are you suggesting? Oh,I get it.The star is going nova. 
+
+我：你的意思是？哦，我明白了。这颗恒星正在变成新星。
 
 SE:Well done.The nova state is,in fact,the smaller of the two events that could be described as a medium-sized change and the slightly larger being what you describe as a supernova. 
 
+源实体：做得好。实际上，新星的状态是两个事件中较小的，可以被描述为中等大小的变化，稍大一点的被你描述为超新星。
+
 ME:So what is the difference between the two,apart from the obvious fact that one is bigger than the other? 
+
+我：那么这两者之间的区别是什么，除了一个比另一个大这个明显的事实之外？
 
 SE:The nova-sized influence involves only one star.The second,the supernova,is much bigger and can involve a number of stars. 
 
+源实体：新星大小的影响只涉及一颗恒星。第二种影响，超新星，要大得多，可以涉及许多颗恒星。
+
 I will explain this further. 
+
+我将进一步解释。
 
 A nova is used to make a change in the area local to the star being used as the catalyst. It generally only involves the planetary entities and those entities that are associated with those planets close to the star.You see a nova as a destructive force with the star exploding and destroying the planets close to it and any life on those planets.The sun later is reduced to a white dwarf when all the energy is spent,the area then being dead.This is not the case since what is happening is both of a housekeeping nature to the galaxy and an evolutionary nature to the physical bodies involved.You see,if the galaxy needs to make a change that involves the star and its wards,its planets-remember that both are energetic entities on their own right-the galaxy offers the star two options.These options greatly depend on the evolutionary condition of the star and its planets,which will include the work that the smaller entities,such as you (humankind),has achieved to date.If the star and its planets/ inhabitants are ready for an evolutionary change that is beneficial to them,then the star will undergo a change that increases the local frequency enough for them all to move on to the next level.The process is what your astronomers observe as a nova.In essence,the star, with the aid of the galaxy,increases its frequency to the point where it appears to explode, destroying the planets that are associated with it,leaving only debris,spent fuel,the dwarf star,and asteroids.In reality what has happened is that they have all moved up to the next frequency level,leaving behind the untranslatable physical aspects of themselves.In essence,they have given up their physicality,all of them,all together. 
 
+新星被用来在当地的地区做一个改变，用作催化剂的恒星。它通常只涉及行星实体和那些与那些行星接近恒星的实体。你看到一个新星作为一种破坏力，恒星爆炸并摧毁附近的行星和那些行星上的任何生命。当所有的能量都耗尽时，太阳后来被减少到一个白矮星，该地区然后死亡。这不是事实，因为正在发生的事情既是星系的家务事，也是涉及到的物质身体的进化本质。你看，如果星系需要做出一个改变，涉及恒星和它的卫队，它的行星。记住，两者都是自己权利的能量实体。星系为恒星提供了两个选择。这些选择很大程度上取决于恒星和行星的进化条件，这将包括较小的实体的工作，如你（人类），迄今为止已经实现。如果恒星和它的行星/居民准备好进化，这对他们是有益的，那么恒星将经历一个变化，增加当地的频率，足以让他们都进入下一个阶段。这个过程就是你们的天文学家观察到的新星。本质上，恒星在星系的帮助下，增加它的频率到它似乎要爆炸的点，摧毁与之相关的行星，只留下残骸，燃料，矮星和小行星。事实上，他们已经全部进入下一个频率层级，留下无法转换的物理方面。本质上，他们已经放弃了他们的物质性，他们所有的人，一起。
+
 ME:Would not the inhabitants of the planets/star move upwards through the frequencies first with the star and the planets following them? 
+
+我：行星/恒星的居民不会先通过恒星和行星跟随它们的频率向上移动吗？
 
 SE:No,this is not part of the process.Simplistically put,they all move onwards and upwards together.To not do so would be like moving from a house without a house to go to for the first couple of days of the move.It would not be synchronous.This is important as it maintains the balance between that which has progressed in the frequencies,that which remains,and that which is governed for in the spatial/dimensional planning. 
 
+源实体：不，这不是这个过程的一部分。简单地说，他们都一起前进和向上。不这样做就像从一所房子搬出来，在搬家的头几天没有房子可去。它将不同步。这很重要，因为它维持了频率进步、残留和空间/维度规划中被管理之间的平衡。
+
 In the event that the star and its planets/inhabitants are not yet ready to move upwards in the frequencies,they are moved to a new location in keeping with the plan the galaxy has for its own evolution and housekeeping. 
+
+如果恒星和它的行星/居民还没有准备好在频率上向上移动，它们就会被移动到一个新的位置，以保持星系为自己的进化和家务而制定的计划。
 
 ME:You mean to say that whole solar systems are moved to somewhere else? 
 
+我：你的意思是整个太阳系都被移动到其他地方？
+
 SE:Yes,this is quite common.
+
+源实体：是的，这很常见。
 
 ME:How long does this take? 
 
+我：这需要多长时间？
+
 SE:It is instantaneous.However,it is the product of a significant amount of planning on behalf of the galaxy and the star and must also be of benefit to them as well.Both methods require planning,and all inhabiting entities are involved from an awareness point of view. They are also given help from the entities in the locale where they are moving because the inclusion of a new star system has an effect on them as well.Consider the gravitational effects from both the attractivity of physical mass and the changes to the communication aspect that the change to the gravity profile in the receiving area has.It all has to be planned. 
+
+源实体：它是瞬时的。然而，它是代表星系和恒星的大量计划的产物，而且也必须对它们有利。这两种方法都需要计划，所有居住的实体都从意识的角度参与其中。它们也从它们移动的场所的实体那里得到帮助，因为包括一个新的恒星系统对它们也有影响。考虑到物理质量的吸引力和通信方面的改变的引力效应，以及接收区域重力轮廓的变化。这一切都必须计划。
 
 ME:We could talk about this for a very long time. 
 
+我：我们可以谈论这个很长时间。
+
 SE:The detail of this could only briefly be described,for it would require many volumes to do it justice. 
+
+源实体：这方面的细节只能简要地描述一下，因为它需要很多卷才能讲清楚。
 
 ME:So what about supernovas? 
 
+我：我：那超新星呢？
+
 SE:Supernovas are basically a bigger version of what I have just described.The only issue here is that we are not just talking about the opportunity to move multiple star systems. Change of this magnitude means that the opportunity for physical relocation is not only unnecessary but is not even considered.In essence,the supernova method of increasing the frequencies of the star/planetary and inhabiting entities in this area is a result of the whole area being ready to move upwards.This is usually the product of a significant length of time where all of the entities in the area,star/planetary and incumbent dimensional beings, have been working together to increase their evolutionary condition to the point where the galaxy has taken the opportunity to make both the opportunity and plans to lift that part of itself up to the next level. 
+
+源实体：超新星基本上是我刚才描述的更大版本。这里唯一的问题是，我们不仅仅是在谈论移动多个恒星系统的机会。这种规模的变化意味着物理重新定位的机会不仅是不必要的，甚至没有考虑到。本质上，超新星方法增加恒星/行星和居住在这个领域的实体的频率，是整个地区准备好向上移动的结果。这通常是一个重要的时间长度的产物，在这个领域中的所有实体，恒星/行星和现任维度存在，一直在共同努力增加他们的进化条件，以至于星系已经抓住机会，使其有机会和计划将自身的一部分提升到下一个层级。
 
 ME:I have just received the image of a galaxy moving parts of itself up to the next level of frequency on a gradual basis,one bit at a time,rather like putting a frame tent up. 
 
+我：我刚刚收到一个星系的图像，它正在逐渐地将自身的一部分移动到下一个频率层级，每次一点，就像搭起一个框架帐篷。
+
 SE:This is a good analogy and is what happens in most examples.However,there are a small number of galaxies who move everything associated with them up to the next frequency level simultaneously,but this needs every entity associated with that galaxy to be on the same evolutionary flight path,so to speak. 
+
+源实体：这是一个很好的类比，也是大多数例子中发生的事情。然而，有少数星系同时将与它们相关的所有东西提升到下一个频率层级，但这需要与该星系相关的所有实体都在同一条进化飞行路径上，可以这么说。
 
 This is difficult to maintain and control-not from a"translation up the frequencies"point of view but from a "control of the equilibrium"of the areas that are ready to be translated versus those that are close to being translated but could drop backwards in the frequencies and,therefore,put the translation at risk. 
 
+这很难保持和控制，不是从“频率转换”的角度，而是从准备被转换的区域与那些接近被转换但可能在频率上下降的区域的“平衡控制”的角度，因此，将转换置于危险之中。
+
 ### Planets,the Workforce of the Galaxies 
+
+**行星，星系的劳动力**
 
 ME:We have reviewed the way you created the universe/s and the work that the galaxies perform. We have even discussed the role that some of the entities that live in the stars have and what the stars do to help the galaxies change local areas of space to a condition that is better suited to the evolution of the evolutionary process in the physical planes and the closest energetic planes.I would now like to discuss the roles the planets have in this work. 
 
+我：我们已经回顾了你创造宇宙的方式和星系所做的工作。我们甚至讨论了一些生活在恒星中的实体的作用，以及恒星如何帮助星系改变局部空间，使其更适合在物理层面和最近的能量层面上进化过程的进化。现在我想讨论行星在这项工作中的作用。
+
 SE:First,let me remind you that as with all physical bodies in the physical universe that are but a small portion of what they represent in the energetic,so the work the galaxies and the stars perform in the physical is also manifested in the energetic.This is the same for the planets,for they are also entities in their own right.
+
+源实体：首先，让我提醒你，就像所有物质宇宙中的物质实体只是它们在能量中所代表的一小部分一样，所以星系和恒星在物质中所做的工作也在能量中表现出来。行星也是如此，因为它们本身也是实体。
 
 ME:So let me get the chronology right before we start on the planets'roles. 
 
+我：在我们开始讲行星的角色之前，先来看看时间顺序。
+
 You created the universes to provide an environment for a smaller set of entities to exist within.This level of creation formed energies that manifest itself in all levels of frequency in all dimensions within each of the universes in various forms,some of which are within the frequencies we humans call the physical.These energies,including those in the physical were given form and awareness of self,beginning and recognition of source,you the Source Entity.Responsible to you,they were then given roles and responsibilities to ensure the maintenance of their environment would be kept to an optimal.Part of this involved the opportunity for their own evolution since they were given individuality,though coadunate with you.In the maintenance of their environment,they tidy up the manifested physical form energies into energies similar to their own frequencies-thus,creating galaxies.As galaxies they further their work by concentrating on the smaller energies and collate them into stars and planets-some stars and planets being attracted to each other,others not. When the planets are of a certain size or energetic density that is enough to endow them with retention of memory and recognition of self,they gain awareness,self-awareness,and recognition structure of others like them.They are then give roles and responsibilities in keeping with those of their galaxy. 
+
+你创造了宇宙，为更小的实体提供一个生存环境。这个层次的创造形成了能量，在每个宇宙的所有维度中以各种形式以各种频率表现自己，其中一些在我们人类所称的物理频率范围内。这些能量，包括那些在物质层面上的能量，被赋予了自我的形式和意识，开始和对源头的识别，你这个源实体。对你负责，他们被赋予了角色和责任，以确保维护他们的环境将保持最佳状态。当行星达到一定的大小或能量密度，足以赋予它们记忆的保留和自我的识别，它们获得意识，自我意识，和像它们一样的其他人的识别结构。然后，它们被赋予与它们所在的星系保持一致的角色和责任。
 
 SE:Very good summary.As soon as they achieved this last part,I released the remaining entities such as yourself into the universes I created.All of you have three main things embedded within your consciousness: 
 
@@ -711,75 +945,167 @@ SE:Very good summary.As soon as they achieved this last part,I released the rema
 
 Some of you have a fourth item embedded within your consciousness-freewill. 
 
+源实体：总结得很好。当他们达到这最后一部分时，我把剩下的实体，比如你，释放到我创造的宇宙中。你们所有人的意识中都嵌入了3件主要的东西：
+
+- 1、对自我的认知（觉知）；
+- 2、对起源（我，你的源实体）和在层次结构内的位置的认知；
+- 3、对目标的认知（作为结果去体验和进化）。
+
+你们中的一些实体的意识中嵌入了第4个条目：自由意志。
+
 ME:I thought we were all created at the same time? 
+
+我：我以为我们都是同时被创造出来的？
 
 SE:You were,but I held my most precious creations back until I was satisfied the environment had achieved a minimal level of structure before introducing you to it.Now let's get back to the planets. 
 
-The role of the planets is threefold:(1)to provide a smaller cleaning/gathering function by attracting denser energies and integrating them;(2)to provide a focal point for the physical and energetic existence of smaller energetic entities;(3)to experience and evolve in their own right.In doing these three things,they provide the most basic functions for the continued function of the universe for they are the workers at the "coal face,"so to speak. They are the origin and the creator of what you call nature spirits.In fact,they are nature spirits in their own right. 
+源实体：你确实是，但是我保留了我最珍贵的创作直到我对环境结构达到最小层级的满意度，然后才把它介绍给你。现在让我们回到行星。
+
+The role of the planets is threefold:
+
+- 1.to provide a smaller cleaning/gathering function by attracting denser energies and integrating them;
+- 2.to provide a focal point for the physical and energetic existence of smaller energetic entities;
+- 3.to experience and evolve in their own right.
+
+In doing these three things,they provide the most basic functions for the continued function of the universe for they are the workers at the "coal face,"so to speak. They are the origin and the creator of what you call nature spirits.In fact,they are nature spirits in their own right. 
+
+行星的作用有三：
+
+- 1、通过吸引密集的能量并整合它们来提供一个较小的清洁/收集功能；
+- 2、为较小的能量实体的物理和能量存在提供一个焦点； 
+- 3、以自己的方式体验和进化。
+
+在做这三件事时，它们为宇宙的持续功能提供了最基本的功能，因为它们可以说是“煤面上”的工人。它们是你们所称的自然精神的起源和创造者。事实上，它们本身就是自然精神。
 
 ME:What do you mean?Are you saying that the planet performs a similar role in the solar system/galaxy that the nature spirits on Earth itself perform-like maintenance of the lower life forms,such as trees and rocks? 
 
+我：你是什么意思？你是说行星在太阳系/星系中扮演着类似于地球上自然精神本身所扮演的角色，像维护较低的生命形式，如树木和岩石？
+
 SE:Absolutely.Know this:every entity in the universe/s I have created has a role to play in the maintenance of their locale-whether it be collecting stray energy,keeping the frequencies of the energy as high as possible,providing a refuge for physical existence for the smaller energy beings,or simply evolving themselves.As an example of some of Earth's physical work in the space it occupies,you only need see the aurora borealis,the "northern lights."These are a physical manifestation of the cleaning-up exercise that Earth performs in removing and converting local levels of cosmic energy that are detrimental to the functionality of physical beings on Earth's plane and disturb the clarity of communication between the entity you call the sun and those entities whose job it is to maintain the direction of "solar wind."Solar wind is used by "star"entities to exchange energies-other than those that are self-generated-with other star entities.In essence,the planets have one of the most important jobs in the universe.They have a responsibility to those smaller entities that use their surfaces for the existence of their physical vehicles by making sure they maintain the ecosystem at the most optimal possible condition-even when they are making changes to themselves to enable energetic adaptations to take place. 
+
+源实体：绝对的。要知道：我所创造的宇宙中的每个实体，在维护它们的领域中都扮演着一个角色，不管是收集零散的能量，保持能量的频率尽可能高，为较小的能量实体提供一个物理存在的庇护所，还是仅仅是进化自身。作为地球在它所占据的空间中的一些物理工作的例子，你只需要看看极光，即“北极光”。这些是地球在清除和转换当地的宇宙能量层级时所进行的清理活动的物理表现，这些宇宙能量对地球上实体的功能有害，并扰乱了你们称之为太阳的实体与那些负责维持“太阳风”方向的实体之间的清晰交流。他们对那些使用其表面作为物理载体的较小实体负有责任，要确保他们将生态系统保持在最理想的可能条件下，即使当他们对自己做出改变时，也能够进行积极的适应。
 
 A planet's contribution to the evolution game is at its most effective when it houses more than two sentient/high level energy being types in the energetic,the physical,or both simultaneously.In fact,the more entity types it can support,the more effective its contribution,and the faster it can evolve in its own right. 
 
+一个星球对进化游戏的贡献是当它在能量层面，物质层面，或同时拥有两个以上的有情/高能量存在类型时最有效的。事实上，它能支持的实体类型越多，它的贡献就越有效，它自身进化得就越快。
+
 ME:So how many entities does Earth currently support? 
+
+我：那么地球目前支持多少种实体？
 
 SE:Three,plus the visitors of which there are over twenty different types. 
 
+源实体：3种，加上来访者，有20多种不同的类型。
+
 ME:Let me guess the three:humans,dolphins,and another animal of some sort? 
+
+我：我猜三个：人类，海豚，还有另外一种动物？
 
 SE:We have discussed this in some shape or form before,especially about the fact that dolphins are one of the other races that are using Earth for evolutionary purposes.The third is purely energetic and exists in an area in one of your seas that is secluded from mankind but not from the dolphins.In fact,the dolphins communicate with this third race on a very regular basis. 
 
+源实体：我们以前已经以某种形式讨论过这个问题，特别是关于海豚是其他种族之一，他们为了进化目的而利用地球。第三种纯粹是能量，他们存在于你们海洋的一个区域，这个区域与人类隔绝，但与海豚没有隔绝。事实上，海豚与第三种种族有非常定期的交流。
+
 ME:Does mankind communicate with them on some secret basis? 
+
+我：人类是否在某种秘密的基础上与他们进行交流？
 
 SE:Energetically,you know of their existence,of course,but from the view point of physical mankind you have no idea of their existence and have never seen or felt their presence. 
 
+源实体：从能量上来说，你当然知道他们的存在，但是从物质人类的角度来看，你对他们的存在一无所知，也从未见过或感觉到他们的存在。
+
 ME:Will we ever meet them? 
+
+我：我们会遇见他们吗？
 
 SE:Only when mankind as a collective affects a change in their frequency level to the point where physical incarnation is no longer necessary. 
 
+源实体：只有当人类作为一个集体影响到频率层级的改变，以至于不再需要肉体化身。
+
 ME:Will this be soon? 
+
+我：这会很快吗？
 
 SE:It will not be in several hundred physical lifetimes.Before this can happen,the frequency of Earth has to be raised seven frequency levels,and this can only be done when the human race decides to give up the need for personal gratification and is more concerned about his fellow man and always puts his neighbor first.At this point mankind will work on an individual level/basis for the good of the whole without the need for catastrophes to act as a catalyst for communal working.Even now catastrophes don't work that well because so-called celebrities use them for their own ends by purporting to be concerned about the safety and well-being of those affected when really all they are doing is using the catastrophes as an opportunity for publicity.Do not seek to be a celebrity!It is a sure fire way to slow your evolution down. 
 
+源实体：这在几百个生命周期内都不会发生。在此之前，地球的频率必须提升7个频率等级，而这只有当人类决定放弃个人满足的需要，并更关心他的同胞，总是把他的邻居放在第一位时才能做到。在这一点上，人类将在个人层面/基础上为整体的利益而工作，而不需要灾难作为公共工作的催化剂。即使现在灾难也不那么有效，因为所谓的名人利用它们为自己的目的，声称关心那些受影响的人的安全和福祉，而实际上他们所做的一切就是利用灾难作为一个宣传的机会。不要寻求成为名人！这是一个肯定会使你的进化放缓的方式。
+
 But let's get back to the role of planets.As stated recently,a planet as an entity in its own right contributes significantly to the maintenance of its locale.Part of that maintenance occurs as a result of its own evolution.As a planet literally gives itself up for the benefit of others,its opportunity for evolutionary advancement is massive and so is the opportunity to affect an increase in frequency in the locale.However,it is also affected by the frequency changes made by those entities it hosts,and in Earth's instance,it simply has not caught up with the loss of frequency caused by mankind's mistakes. 
+
+但是让我们回到行星的作用。正如最近所说，一个行星作为一个实体本身对维持其场所做出了重大贡献。部分的维持是由于它自身的进化。当一个行星为了其他人的利益而放弃自己时，它进化进步的机会是巨大的，因此它影响场所频率增加的机会也是巨大的。然而，它也受到它所承载的那些实体所做的频率变化的影响，在地球的例子中，它只是没有赶上人类错误造成的频率损失。
 
 ME:So a planet's role is to provide habitation,clean up energies that are harmful to those inhabitants,and maintain certain communication lines between the star entities and those that work with the solar winds. 
 
+我：所以行星的作用是提供居住地，清理对那些居民有害的能量，并保持恒星实体和那些与太阳风一起工作的实体之间的某些通信线路。
+
 SE:That is a short and sweet way of putting it,yes.But they have one more role. 
+
+源实体：这是一种简洁明了的说法，是的。但是它们还有一个作用。
 
 ME:What is that? 
 
+我：那是什么？
+
 SE:To add substance to the fabric of the universe in both the energetic and physical frequency levels.Essentially they are the glue that holds it all together. 
+
+源实体：在能量和物质频率层面上为宇宙结构添加物质，本质上它们是将一切凝聚在一起的粘合剂。
 
 ### The Creation and Roles of Smaller Entities 
 
+**小型实体的创造和角色**
+
 ME:As you said in the first book,you created billions of smaller entities to experience and evolve as part of the creation process of the universe/s.The objective was/is to experience existence at the largest/smallest possible level and at the highest/lowest possible frequency. 
+
+我：正如你在第一本书中所说，你创造了数十亿个较小的实体来体验和进化，作为宇宙创造过程的一部分。目标是体验存在于最大/最小可能的层面和最高/最低可能的频率。
 
 I have to admit that I was very surprised to learn that we were kept on the back burner,so to speak,until you had stabilized-if that is the right word-the universe. 
 
+我：我必须承认，当我知道我们被放在次要位置时，我感到非常惊讶，可以说，直到你们稳定了宇宙，如果这是正确的词的话。
+
 SE:Stabilization is a necessary part of the process of creation.Had I introduced you all at a point just after the creation of the universe/s,you would have been swept away in the maelstrom that resulted from the coalescence of the energies.You would have lost your datum dimension and frequency level as well as your direction,especially since the galaxies were working on shepherding energies on all dimensions on all frequencies simultaneously. It was a tumultuous period and one that needed its own time to complete.So the smaller entities,such as you,had to wait in a holding area until the environment was ready for you to move into. 
+
+源实体：稳定是创造过程的一个必要部分。如果我在宇宙创造后不久就介绍你们，你们就会被卷入能量合并产生的大漩涡中。你们会失去你们的基础维度和频率层级以及你们的方向，特别是因为星系正在同时在所有维度和所有频率上引导能量。这是一个动荡的时期，需要它自己的时间来完成。所以像你们这样的小实体，不得不在一个等待区等待，直到环境准备好让你们进入。
 
 ME:So what did we do whilst in this holding area? 
 
+我：那么我们在等待区做了什么？
+
 SE:Nothing. 
+
+源实体：没什么。
 
 ME:Nothing? 
 
+我：没什么？
+
 SE:Nothing.You see,although I had created you all,none of you were in a position to recognize your "self.You had no self-awareness and,therefore,achieved nothing.In actual fact,if one or two of you had started to develop awareness,I would have held you in stasis because relocation to your new dimension so quickly after becoming aware of your initial surroundings would have been somewhat confusing to you. 
+
+源实体：源实体：
+
+我：没什么。你看，虽然我创造了你们所有人，你们没有一个人能够认识到你们的“自我”。你们没有自我意识，因此，什么都没有成就。事实上，如果你们当中有一两个人开始发展意识，我就会让你们停滞不前，因为在你们意识到最初的环境后，那么快地转移到新的维度，会让你们有点困惑。
 
 ME:Why would it have been confusing?I thought that we are just smaller versions of your self and that we are able to work with most,if not all,the energies in your universe? 
 
+我：为什么会让人困惑？我认为我们只是你们自我的缩小版本，我们能够与你们宇宙中的大部分，如果不是全部，能量合作。
+
 SE:This is very true,but the issue was that the area of holding was a very limited dimensional/frequential resource and,therefore,of little stimulation.The length of time you were in the holding area was such that if you were aware,you would have tuned into the limitations of that area of habitation and adapted to it.To have done so at such an early part of your existence would have meant that you would have programmed yourselves to be smaller than your potential.You would have been like the fish that grows to suit the size of the pond,so to speak;you would be stunted with very little chance of recovery.
+
+源实体：这很正确，但问题是，等待区是一个非常有限的维度/频率资源，因此，几乎没有刺激。你们在等待区的时间长度是这样的，如果你有意识，你会调整到居住区的限制并适应它。在你们存在的早期这样做，将意味着你们将编程自己，使自己比潜在的大小更小。你们将像鱼一样，生长以适应池塘的大小，可以这么说；你们将发育不良，几乎没有恢复的机会.
 
 ME:Why would we not have recovered? 
 
+我：为什么我们没有恢复？
+
 SE:When I created you all,I gave you the ability to expand to the limits of your abilities in the universe that I was creating,a sort of automatic one time program designed to make you automatically become the best you will ever be functionally but with the ability to grow as individuals,to evolve.If this program/process started,you would have expanded to the abilities that you would have been capable of achieving in the holding area,which was extremely limiting.Fortunately,none of you had been created for very long,just a few millennia,and,therefore,had not achieved self-awareness and therefore kicked off the program of expansion. 
+
+源实体：当我创造你们的时候，我给了你们在宇宙中扩展到极限的能力，一种自动的一次性程序，设计使你们自动成为功能上最好的你们，但有能力作为个体成长、进化。如果这个程序/过程开始了，你们将扩展到你们在等待区域中能够实现的能力，这是极其有限的。幸运的是，你们没有一个被创造很长时间，只是几千年，因此，没有实现自我意识，因此启动了扩展程序。
 
 ME:Tell me more about this program.What else did it contain? 
 
+我：再告诉我一些关于这个程序的事情。还包括什么？
+
 SE:Apart from attunement to the dimensions and the frequencies that are associated with the universes that I created-which in itself gives you your expansiveness-it also identified the level of entity you were-remember we discussed the fact that some of the entities I created were not of the same type due my attention not being equally spread amongst my creations during the creativity process-and where you would be best located dimensionally.Those that were"whole"were allowed to expand to the level where they could work in any of the environments,dimensions/frequencies within the universal expanse whilst others were limited to smaller areas.Once they were attuned,the next part started:the realization of self,which also started the recognition of others and the interaction with others.The objective here was that the entities would achieve more if the recognition of self and others was simultaneous.Coupled together with this was the knowledge of the need to experience as much as possible and to evolve as a consequence. Next,the knowledge of position within the universe was made accessible,including their mission in existence and the understanding of who the Origin is and why it created the twelve Source Entities.Finally,knowing that individuality is maintained even in oneness and the desire to return to Source,bringing back all experiences,was ingrained into the memory. 
+
+源实体：除了与我所创造的宇宙相关的维度和频率的调谐，它本身就给了你你的膨胀性，它也确定了你的实体层级，记住我们讨论过我所创造的一些实体并不是同一类型的，因为在创造过程中我的注意力没有平等地分散在我的创造物中，你在维度上将被最好地定位。那些“完整”的被允许扩展到可以在任何环境中工作的层级，在宇宙的广阔空间中的维度/频率，而其他人则被限制在较小的区域。一旦他们被调谐，下一部分开始了：自我实现，这也开始了对他人的认识和与他人的互动。接下来，他们可以获得在宇宙中的位置的知识，包括他们存在的使命，以及对起源是谁，以及它为什么创造了12个源实体的理解。最后，知道即使在合一中，个体性也被保持，以及回归源头的愿望，把所有的经历都带回来，这已经深深地植入记忆中。
 
 ME:The parts of the programming that you have just mentioned are these: 
 
@@ -795,15 +1121,27 @@ ME:The parts of the programming that you have just mentioned are these:
 
 These are essentially what our role is in the universe.This is all we have to do.It's simple. 
 
+我：
+
 SE:Not as simple as it would seem.Remember we talked about karma in the previous dialogues in your first book.Remember about being coerced by the desires of the physical and how easy it was to get tied up in the demands of the physical to the point where you no longer work for the good of others but only for yourself?
+
+源实体：
 
 ME:Yes,I do. 
 
+我：
+
 SE:Well,this is a reason why it is not so simple.It's also one of the main reason why you, the smaller entities,were created.On behalf of myself and the Origin,you were all created to tackle the issue of "self,"which all of the former bulleted items identify.In summary,the main role of all of the smaller entities in existence is to experience that which the Origin hasn't yet experienced and relay this information back to the Origin.In essence,the Origin has hatched a brilliant plan:as you experience,so do I and so does the Origin.What's more with all of the billions of entities the other twelve Source Entities and I have created,the opportunity for experiencing its self-for we are all within and,therefore,part of the Origin -is multiplied by a factor relative to the number of smaller entities created and actively experiencing.The one thing you must note is that there is no duplication here.Every experience is separate.
+
+源实体：
 
 ME:Why is this?I would have thought that,if say,100 entities all experienced the same thing, such as a natural disaster or a football match,that it would amount to the same thing. 
 
+我：
+
 SE:This is not so.It is the underlying beauty of being a separate entity.You see,even if you are part of a collective and you experience the same thing as your brother in collective existence,you each will personally experience the experience in a subtly different way.The way in which you experience it will be relevant to your own evolution and experience in addition to whether you are incarnate or not or the type of environment you have been incarnate in.Remember:incarnation isn't necessarily in a state that is as physically dense or in as low a frequency as you are experiencing now,for physicality has many levels of frequency.In summary,the whole point of existence and,therefore,the role of the smaller entities are to experience,evolve,furnish feedback,and return.
+
+源实体：
 
 ## Chapter 2 
 
@@ -813,55 +1151,103 @@ At this point I have to admit to feeling a significant amount of trepidation.I a
 
 ME:I feel the communication start,but it feels strange-like I am rubbing my head up and down the bark of an oak tree. 
 
+我：
+
 SE:That is because you are trying to communicate with the Source,SE2,directly rather than via myself.You are created from my own energies;these are in variance to the energies that the other Source Entities are working with.As a result,it will be like hitting a brick wall, for you are out of tune,out of phase,and out of(universal)structure.I am not surprised you feel like you are rubbing your head up and down the bark of an oak tree.What I am surprised about is that you even got to this stage;you actually made a link directly to SE2. I am impressed;this will make our communication with SE2 much easier as the level of translatory intervention I will have to make will be reduced as a result.Don't get me wrong. I will still need to be the main contact,and in most cases you will be communicating with SE2 via me,but in the link you have you will be able to pick up much more than SE2 speaking through my words to you.You may also gain imagery during the dialogue. 
+
+源实体：
 
 ME:So can you tell me how this Source Entity divided itself? 
 
+我：
+
 SE:Yes.In this instance,SE2 divided itself in a very similar way to the way I did,but it divided itself up by four instead of twelve,so,in effect,you have 12 x 4 x 12 x 3 different dimensional levels.That is 1,728 dimensions within four universes. 
+
+源实体：
 
 ME:So would this similarity be the reason why I was able to affect some sort of initial communication? 
 
+我：
+
 SE:No.Just because the methodology of division is similar doesn't mean that the frequencies and dimensions within the environment created have the same characteristics -hence,the way you felt when you established contact on your own. 
+
+源实体：
 
 ME:Thank you for the clarification.So can you formally introduce me to the second source,SE2? 
 
+我：
+
 SE:Yes.We are in contact right now. 
+
+源实体：
 
 ME:Oh,Ifeel that I am in an environment that is full of green/grey/red clouds. 
 
+我：
+
 SE2:These are my children.You would call them nebula.They form the larger part of the beings that I have created. 
+
+2号源实体：
 
 ME:O.K.I think I would like to stop here and ask that I follow a structure that is similar,if not the same,to the first part of this book.It would keep it simple for me and those who read it later. 
 
+我：
+
 SE2:We can do that if you wish.
+
+2号源实体：
 
 ME:I am sorry to mention it,but you sound like you are in pain.Your voice sounds like it is deep and hollow. 
 
+我：
+
 SE2:I can assure you that I am not in pain.The sound of my voice,the method that you have chosen to communicate by,is relative to my overall resonant frequency.This is the way that you will be able to tell me apart from your own Source Entity. 
+
+2号源实体：
 
 ### Source Entity Two's Early Existence 
 
 ME:I have talked to my Source Entity on its becoming aware in the first period of its existence. Can you explain how you became aware and what you felt? 
 
+我：
+
 SE2:As with your own Source Entity,I was allowed to become aware in my own time.This is one of the rules the Origin placed upon itself.It was a strange sensation.Becoming aware that you "are"in existence is rather like looking at a cloud of energy and then realizing that it is a cloud of energy.As you start to pick out things in your local environment and identify them by giving them a name or a label,you start to consider who and what you are yourself. At this point I started to investigate my "self"and realized that it was a big task,especially if I looked into my "self"at the smallest level.It was during this phase of my existence-when I was becoming more aware of what I was and what I could do-that the Origin contacted me and explained that I was a smaller part of its"self."It was also at this time I had established that there were others like me just next door. 
 
+2号源实体：
+
 ME:Yes,I get an image of you all bunched up together,like black balls all together inside a bigger ball-that bigger ball being the Origin.
+
+我：
 
 ![Figure 1: The Origin and the Source Entities](img/s6-025.png)
 
 SE2:That is a good description.But don't forget that the Origin is absolute and infinite,there is nothing but the Origin,the Origin is "all,"so this image in your mind's eye that shows the Origin as a smaller entity is flawed and is a result of your limited ability to understand in your current projection. 
 
+2号源实体：
+
 ME:So what did the Origin say to you when it contacted you for the first time? 
+
+我：
 
 SE2:It explained the reason for my existence and the reason for the other Source Entities' existence.This you have from your own Source Entity.More importantly it stated that how I achieve the task it gave me was entirely up to me.There were no time limits and no constraints on power or energy used.It was a simple meeting.The Origin went to some length to make it so and to show me what the Origin was in its entirety just so that I could understand what it was and what I was and how I fitted in.Once the Origin had explained everything that it knew to me,I felt that I was one and the same.I was the Origin,which as a division of the Origin we all are.As a result of this,I had what you might call a"kick-start" in the right direction.The change in me was instantaneous.One moment I was just me in existence and thought;the next moment,that is after the Origin gave me all its knowledge,I was personified.I was energy and thought,given knowledge and a purpose:to find out what I was,to experience what I was,and to evolve.As I was a part of the Origin,everything I did would be automatically fed back to the Origin in an experiential way,so I wouldn't need to contact the Origin specifically to report back on the progress I was making.It was at this point that I started to have what you would call "fun"by manipulating the energy that was all around us.I was particularity good at making shapes and dimensional constructs. 
 
+2号源实体：
+
 ME:So how did you decided on the 12 x 4 x 12 x 3 dimensional universe? 
+
+我：
 
 SE2:I decided that I would create four environments from which to base my learning environment on simply because I wanted to have four different experiments running at the same time.Each universe-if you want to call the environments that-were constructed in a different way.Each had a different purpose and a different set of rules. 
 
+2号源实体：
+
 ME:You had a different set of rules for each environment? Why? What were the rules? 
 
+我：
+
 SE2:I wanted to see how the entities that I would create later in order to populate these environments would fare if they had a different set of constraints placed on them,but with the same goal.One of the environments-let's call it environment one for the sake of argument-had no constraints and had all the abilities I had.The others had components of those abilities removed. 
+
+2号源实体：
 
 ### The Four Environments of SE2 
 
@@ -869,115 +1255,225 @@ SE2:I wanted to see how the entities that I would create later in order to popul
 
 ME:Can you explain what the abilities and components were that you removed?No,tell me about the first environment first,and then tell me what the constraints were in the remaining three environments.
 
+我：
+
 SE2:As just stated,the first environment contained every attribute that I was given by the Origin.Everything was within the environment right down to the lowest dimension and frequency.Additionally,the entities that I created were direct copies of me,only smaller in what you would call volume.They were constrained,however,in one way:they could only exist within the environment that I created.That is,they could not return to the Source,me, as you can with your own Source Entity. 
+
+2号源实体：
 
 ME:Why did you do that?What would be the point of it? 
 
+我：
+
 SE2:I wanted to give them total autonomy.With the level of power that I had given them, equal to me,they could quite literally turn their environment upside down and inside out. I wanted them to know this and to appreciate that they would have no help from me in correcting whatever mess they got themselves into and that they were the masters of their own destiny,whichever way they took themselves. 
+
+2号源实体：
 
 ME:So what was the goal that you gave them? 
 
+我：
+
 SE2:The goal or task was the same as yours.We all have the same task from the Origin:to experience all that there is in as many different ways as possible and evolve as a result. 
+
+2号源实体：
 
 ME:But you have given them everything and nothing.You have given them a task and not a route home-to you. 
 
+我：
+
 SE2:I have given them everything.They have total autonomy from me,they are masters of their own universe,and they will exist for as long as I exist. ME:And how long will you exist?
+
+2号源实体：
 
 SE2:For as long as the Origin wants us to exist.It has no plans to remove that existence to my knowledge,but my/our/your existence is still at the prerogative of the Origin and its pleasure in my/our/your existence. 
 
+2号源实体：
+
 ME:Mmm,O.K.,I think I have been advised on this subject before by my Source Entity. 
+
+我：
 
 SE:You have,and it is a consistent story that you will hear from all of the Source Entities. 
 
+源实体：
+
 ME:It is good to realize that you are still here and that I can recognize you as my Source Entity. 
+
+我：
 
 SE:Yes,don't forget that I still need to support the link you have with SE2,which is why you are finding it so easy to communicate with it. 
 
+源实体：
+
 ME:Thank you.So,getting back to the first environment from SE2's experiments,can you please give me an example of the type of power these entities had in the first environment? 
+
+我：
 
 SE2:As explained a few moments ago,they had total power.But I can see that you need an example.Quite simply,they have the power to either totally destroy themselves by refusing to exist anymore or they can reproduce themselves or their environment. 
 
+2号源实体：
+
 ME:Reproduction of self I can understand,but reproduction of environment,whole universe/ multiverses?Why would they want to do that?How would they do it? 
+
+我：
 
 SE2:How they do it is up to them,but one way would be to segment a portion of the environmental volume that I gave them to create a duplicate.Another way would be to mirror the whole volume of the environment by copying it and placing it on a level of dimension or frequency that is just out of alignment with the original. 
 
+2号源实体：
+
 ME:But would you need to remove a frequential or dimensional component from the existing environment to achieve this? 
+
+我：
 
 SE2:Good question.No,you are thinking in terms of your own environment and its physical physics.The way it would be achieved is by... 
 
+2号源实体：
+
 ME:I am getting a picture of a sort of process where you make better use of the space available; err,rather like a double space program on a computer makes more space on a hard drive by using a form of compression algorithm that maintains all of the attributes of the files on the hard drive whilst making them smaller,thereby saving space. 
+
+我：
 
 SE2:That wasn't the description I was going to use,but it is one that will suffice.It is a good enough example for your readers to understand.In fact,it is possibly the only way that you will be able to understand the process. 
 
+2号源实体：
+
 ME:Why is this? 
+
+我：
 
 SE2:I was having trouble embedding the information into your limited energetic memory. It just wasn't capable of receiving the concept I was prepared to give to you.Multiversal compression is a good enough example to use. 
 
+2号源实体：
+
 ME:So if the entities within Environment 1 are all powerful,they must have a hard time living together. 
+
+我：
 
 SE2:They do not fight if that is what you are insinuating.They each have the same capabilities and they have full respect of their role within their environment. 
 
+2号源实体：
+
 ME:How many entities did you create for the first environment? 
+
+我：
 
 SE2:You would call it a round number and,therefore,suspicious.
 
+2号源实体：
+
 ME:Go on.Try me. 
+
+我：
 
 SE2:Ten thousand. 
 
+2号源实体：
+
 ME:You're right.It is a round number and I am suspicious. 
+
+我：
 
 SE2:? 
 
+2号源实体：
+
 ME:What?Is that it?Silence? 
+
+我：
 
 SE2:What would you have me say?Do you want me to give you justification for such a whole number? 
 
+2号源实体：
+
 ME:Err,yes actually.I had a similar issue with the number of levels that my Source Entity created.They were based on 100. 
+
+我：
 
 SE2:One of the things that you must note is that the numbers that I/we use are in the language that you would understand.I/we use whole numbers because of the ease of communication.Suffice to say,the number I gave you is correct and as such is understandable by you and others.Would a number of 9,892 have any more credence with you? 
 
+2号源实体：
+
 ME:It might. 
+
+我：
 
 SE2:Then use that.It is not correct,for it was 10,000. 
 
+2号源实体：
+
 ME:O.K.,I think I will leave this little digression in the text of this dialogue;the mere fact thatyou are questioning my questioning is validation enough for me. 
 
+我：
+
 SE:Rest now.You are tired. 
+
+源实体：
 
 A few days later I continued the conversation.
 
 ME:Can we continue with the first of the four environments you created? 
 
+我：
+
 SE2:Yes,of course. 
+
+2号源实体：
 
 ME:One of the questions that I have not asked is about the appearance of the entities in this environment and what they created as a civilization. 
 
+我：
+
 SE2:I will answer your question in two parts.In terms of their appearance,they have none that you would recognize. 
+
+2号源实体：
 
 ME:How do you mean? 
 
+我：
+
 SE2:They do not have a physical appearance.I can see that you are waiting for further clarification. 
+
+2号源实体：
 
 ME:Yes,please. 
 
+我：
+
 SE2:They have no method of being described physically because the environment within which they exist does not have dimensions or frequencies that are low enough to cause a physical projection.Simply put:they are purely "Source Essence"and so is their environment. 
+
+2号源实体：
 
 ME:Hold on here.I have just received an image or concept in my mind that states that they are all one and the same-that is,their environment and the entities are all one. 
 
+我：
+
 SE2:That is correct.That is why they have no form,either physical or energetic,that you can use to distinguish them apart from their environment. 
+
+2号源实体：
 
 ME:Is this why you only created 10,000?
 
+我：
+
 SE2:Yes,it is also why I gave them total autonomy.They are as I am within my own environment,totally omnipotent. 
+
+2号源实体：
 
 ME:So how do you tell them apart?Do they have a signature or something that enables you to identify which one of the ten thousand they are? 
 
+我：
+
 SE2:They can only be told apart by their thought processes.Each one has a different thought process that they use to create the opportunity to experience and evolve.But please note this:not all of them are in full separate existence at the same time. 
+
+2号源实体：
 
 ME:I beg your pardon?You mean that one moment they are in existence and another they are not? 
 
+我：
+
 SE2:As you noted before,they are one and the same and,therefore,one with their environment.I see you are frowning.I will send you an image of what I mean. 
+
+2号源实体：
 
 I then received an image of a mass of something,say a cloud.This cloud was on its own as an undulating mass.Then I saw a mass of what I can only describe as rain drops.Each rain drop had its own sentience.As I looked further and into the cloud,which I was told was their environment,I noticed that each of the drops had a role to play and a job to do.Each role and job was either personally assigned or collectively assigned.Before the role/job was assigned,the rain drop that was to do the role was not a separate entity.It was fully part of the cloud.When the role was defined and the interaction with other raindrops or energies was established,a rain drop or a series of rain drops would be formed,and they would do what was necessary to perform and complete the task.When the task was complete,the rain drop or drops would return to the cloud and lose their singularity.They became one with the cloud again.Their singularity was lost,but their essence was maintained within the cloud, the/their environment.The cloud,the environment,was built of Source Essence that could be separated into two parts:environmental essence and individualized essence.
 
@@ -985,147 +1481,285 @@ I then received an image of a mass of something,say a cloud.This cloud was on it
 
 SE2:Now do you understand how they exist? 
 
+2号源实体：
+
 ME:Yes,I think I do.That image was a really simple and effective way of describing what they are.I take it that there are no clouds or rain drops-that was just a method to describe the function of environment and individualized energy,a way to explain in simple terms how there can be a "variance"in the number of entities in existence,for want of a better word.It's a way to show that there never are all of the entities you created within this environment in singular existence at any one time,or are there times? 
+
+我：
 
 SE2:There have been times,and there will be times when they are all in existence as single entities all together,so to speak.Such a time is when they are all needed to change the characteristics of the environment within which they exist,for this can only be achieved when all are in agreement. 
 
+2号源实体：
+
 ME:Yes,I appreciate that would be a limitation.So what about civilization?Do they have one? Did they create one?
+
+我：
 
 SE2:Civilization is a word that is peculiar to your physical-based existence.It determines that entities or beings behave in a way that you classify as civilized,that a certain level of co- operation and technology is present and the level of technology is a product of the level of co-operation on a personal and group basis.I am correct in this assumption? 
 
+2号源实体：
+
 ME:Yes,you are. 
+
+我：
 
 SE2:Well,in this instance you can say that the entities and the environment within which they exist are civilized. 
 
+2号源实体：
+
 ME:What?Is that it?Was there no creativity or area/environment which a group of them created for the betterment of them all and that has stood the test of time to show that they were,in fact, civilized and could be called a civilization,and that it was successful or failed? 
+
+我：
 
 SE2:Not in the way that you perceive things,no.For how could a group of entities that are essentially Source Essence and part of an environment that is created out of Source Essence become something that they have always been-in co-operation? 
 
+2号源实体：
+
 ME:You mean they have never become uncivilized/they have never failed to achieve their goal,a goal that if it failed would have resulted in some form of digression between the entities involved. 
+
+我：
 
 SE2:No.You see,even when they have failed to achieve the goal that they set themselves, they have managed to learn something,they have experienced something,they have evolved in some way. 
 
+2号源实体：
+
 ME:I suppose in this instance if the entities concerned really are one and the same with themselves and their environment and are also truly omnipotent,they would behave in a civilized way.
+
+我：
 
 SE2:The correct description would be that they behave in a highly evolved way,for each of them is aware of the power they have singularly,collectively,and environmentally.They are aware of their function within the environment and the group and have nothing to gain or lose by"going it alone."However,they have had a number of experiments where only one or two of them would split off from the whole and work alone. 
 
+2号源实体：
+
 ME:What was the outcome of these experiments? 
 
+我：
+
 SE2:That they are more efficient at evolving by doing things as a whole.They did find evolution singularly an interesting concept,but it was detrimental to the evolution of the whole. 
+
+2号源实体：
 
 #### Environment 2 - The Cast-out Principle 
 
 ME:O.K.,let's move on to the second environment that you created.What limitations did you put on the environment and its inhabitants? 
 
+我：
+
 SE2:In this instance I allowed them the opportunity to return to their source if they wished. They could/can also return to singularity if they wish/wished.In this they are similar to you but only in this instance.
 
+2号源实体：
+
 ME:How do you mean? 
+
+我：
 
 SE2:They don't have free will like you do. 
 
+2号源实体：
+
 ME:What other limitations do they have? 
+
+我：
 
 SE2:They are not omnipotent in their own environment like the entities in the first environment.They can create,and they can destroy,but they cannot manipulate their own environment in any way.Also they are limited to one dimension and one frequency,which is similar to you in your physical condition.A final limitation is that they have to work and exist as a multiple,that is,for every one of you,for instance,there are four to five of them. 
 
+2号源实体：
+
 ME:But we can incarnate in up to twelve physical vehicles at the same time!(I had received this in a previous short meditation.It was another use of the number twelve). 
+
+我：
 
 SE2:That is true in your case,but I have not worked in the same way as your Source Entity.Also,whereas you may incarnate in twelve separate vehicles in as many different dimensions or universes,they are restricted to being in the same universe and in the same locale.Even more restricting is the fact that they must work together to experience their experiences and work towards their evolution as a group,even though they are not what you would call a"group soul." 
 
+2号源实体：
+
 ME:So are they spread out into different civilizations:a group here,a group there,some populating a planet,some populating a galaxy.Does one group communicate with another group who has decided to exist in another neighboring planet,solar system or galaxy? 
+
+我：
 
 SE2:A lot of questions in one sentence. 
 
+2号源实体：
+
 ME:Sorry. 
+
+我：
 
 SE2:First,let me give you a bit more of the picture in this environment.Although in the physical sense it is equivalent in volume to the first,it is not equivalent in dimensionality, which also affects the physical.Do I make sense here as this may seem like nonsense to you? 
 
+2号源实体：
+
 ME:Carry on;I think I know what you mean. 
+
+我：
 
 SE2:You may,but I will explain for the wider audience.You are fortunate to have a multi-dimensional multiverse to work with;the beings in my second environment do not.As a result,they do not have access to the physical levels that are above the physical levels where you currently exist.Thus,in effect they are limited to the physicality of the environment they exist within.They cannot go above or below it.I know you can't go below the level that you are physically.You are at rock bottom,but you can go above.I will repeat,those in environment one can't do either.You are fortunate in this way. 
 
+2号源实体：
+
 ME:So they are captive in a certain environmental existence-one that you have created,one that they must work with. 
+
+我：
 
 SE2:Yes,that's the deal. 
 
+2号源实体：
+
 ME:O.K.,let's move on.Can I get back to what they have achieved as a civilization? 
+
+我：
 
 SE2:Of course.You have to recognize though that the clues that you use in your physical existence to define a civilization and what it needs to do to be,is entirely different to what this race would consider civilization. 
 
+2号源实体：
+
 ME:How do you mean? 
+
+我：
 
 SE2:You may consider some of the actions they take to be that of an underdeveloped world. 
 
+2号源实体：
+
 ME:Are you trying to tell me that they are savages? 
+
+我：
 
 SE2:No they are not,at least not in the sense that you think.You see,their civilization is very, very basic.They are limited to a level of frequency that you would call energetic,but they would consider it physical. 
 
+2号源实体：
+
 ME:Why would they consider it physical if we consider it energetic?
+
+我：
 
 SE2:Because they have adopted a form that is impervious to them-that is,they can feel total resistance to their surroundings,themselves,and between themselves.I can see that you are frowning;you are thinking that this means that they are no different than you in your environment,am I correct? 
 
+2号源实体：
+
 ME:You are correct.I would have thought that they would need to be incarnate to be "physical." 
+
+我：
 
 SE2:Physicality is an expectation that you have that is based upon your current level of experience.You have a similar level of expectation for the registration and recognition of events that are individual and personal to the entity and its surroundings.You call it "time." Know this:everything in this second environment is energetic but has what you would call a "physical"aspect to it.This is not to say that these entities are subject to the same levels of limitation that you are;they are not.They can create structures in/on the areas that they focus on-that is,where in their universe they tend to be or like to be when they are together in groups made up of groups where they experience existence.Remember that is multiples of the groups of four or five that they are part of in their sphere of evolution and experience. They can use these structures for recreation,learning,or sharing of experiences.The area where you may call them uncivilized comes into play when one or two of the group,or even a whole group,are not progressing.In this instance,they are "cast outside"the group or groups that are at the same evolutionary or experience level.They are cast out to fend for themselves;they are not let back into the group or groups. 
 
+2号源实体：
+
 ME:You say they are cast out!Is this forever? 
+
+我：
 
 SE2:Yes,it is.Although they may form groups that are made up of other cast-outs.
 
+2号源实体：
+
 ME:Hold on.I have just got agrip on what you are saying here.You have entities that are cast out of their prime evolutionary environment simply because they are not considered to be progressing as well as some or all the others within a group.Is this correct? 
+
+我：
 
 SE2:Yes. 
 
+2号源实体：
+
 ME:That's not very spiritual,is it?I mean it's not very loving!It's not loving the entities that you have created.In fact,from where I am sitting,it looks and feels very draconian to me. 
+
+我：
 
 SE:This is one of the things that you will have to get used to when dealing with the other Source Entities.That is,they may and will use very different methods of progression and evolution than those which you are experiencing in my environment. 
 
+源实体：
+
 ME:O.K.,sorry.I was expecting to see everything that comes from the Origin as being in love and light and full of fluffy pink bunnies. 
+
+我：
 
 SE2:I see where you are coming from now.Do you want me to filter my communication with you and only give you that which falls within the category that you expect? ME:No,no.That would not give the correct picture to the seekers of true truth. SE2:O.K.,let me explain this "casting out"process in a different way as I can see that this has disturbed you significantly. 
 
+2号源实体：
+
 ME:Go ahead. 
+
+我：
 
 SE2:Perhaps you have read something into the use of the word "cast out"that is not intentional. 
 
+2号源实体：
+
 ME:Possibly,you do have to work with my very limited communication abilities.
+
+我：
 
 SE2:Yes,I am finding it a challenge.Nevertheless,I will continue with my communication with you.Those entities that are cast out leave the group both at the request of the group and under their own volition.Both the group and the entity not progressing realize that the best thing for both parties is to become separate.This allows them both to progress at their own rate.It is a most efficient method.You must understand this in a different way; in your multiverse,you are singular in your evolution.You both succeed and are succeeded by entities that are slower and faster than you in your evolutionary progression.Your evolution is personal.You wish well of those who you pass and offer good luck to those who pass you.This is the way of your multiverse.It is similar in mine,only the entities in this particular environment operate in groups.Let me make something else also clear.The "cast out"process is also used on those entities that appear to outgrow their group.This is done so that they can find a group that is similar in progression to their own although as you can imagine,this is a rarer occurrence since the main reason for being in the group is to progress as a group and not as a singular entity. 
 
+2号源实体：
+
 ME:You said that they were cast out forever.What do you mean by this statement then? 
 
+我：
+
 SE2:They will never be able to return to the group that they have left,for the group has either outgrown them,or they have outgrown the group. 
+
+2号源实体：
 
 In the instance that they have out grown the group,they have a limited opportunity for further progression in the short term since one of the first things they have to do is find a new group,which as I stated earlier is hard to do because they are far and few between. They cannot progress without a group,so they must spend the rest of their time as cast outs looking for a group that is in a similar level of progression to them.Once they have established a group that fits the bill,they have to negotiate to be allowed to enter the group. 
 
 ME:Why do they have to negotiate? 
 
+我：
+
 SE2:Because in some instances they may actually reduce the progression level of the group they are joining in some small way,or they may actually increase the progression. As you can imagine,finding a group that is exactly the same in terms of their "individual progression level"as a cast out is difficult.In terms of an entity that is cast out because of lack of progression,finding a new group to work with is probably harder,especially if the entity is very slow in progression.In this instance the entity can wander the environment "group less"for millennia (in your terms).The best opportunity in this instance is creating a new group by working with other entities in a similar position.However,as previously noted,there will be a level of negotiation that goes on here as well,as one of the entities will undoubtedly be a faster "progressor"than the other,even if the progression is very minor in comparison.Joining together these two temporarily singular entities will result in one of them reducing its progression level to a point that is the mean of the two entities. This means that the lower level entity benefits in the collaboration as its level will increase creating a level of dependency between the two.Hence,the correct and formal formation of a new and recognizable group,a group of two,one that will attract other singular entities and,therefore,grow to the optimal size for the group's opportunity to progress in its evolution.So as you can see,being outcast is not such a big issue.It is a natural process of group evolution,one that is standard within this environment. 
+
+2号源实体：
 
 ME:A few moments ago in this dialogue you mentioned groups of groups.Does this mean that groups can get together for evolutionary purposes?
 
+我：
+
 SE2:Yes,of course.This is one of the primary functions of progression.Groups of similar progression levels can cluster together in just the same way as single entities cluster together to form a single group.This allows them to both share group evolutionary experiences and to work on opportunities that present themselves by allowing intergroup dynamics to take place. 
+
+2号源实体：
 
 ME:What kind of intergroup dynamics? 
 
+我：
+
 SE2:There are three main types of inter-group dynamics.The first type is the interaction as groups between groups with the groups working and acting as if they are one entity,which is,indeed,what they should be.The second type is two or more groups working together by allowing the single entities that make up the groups to move from one group to another at will.The groups appear to merge at the point of interaction,and doubling or trebling in size is observed whilst the dynamic is being worked on.This allows a sharing of individual experience outside the entities'normal group.The third interaction is a mixture of the two mentioned above.That is,three,four,or more groups interact both on a group basis and an individual entity basis together with the single entities moving between one or more groups outside their own main group on a regular basis.In this last interaction,a lot of evolutionary opportunities can be progressed as all the groups seem to lose their individual group identity at one point or another with completely new groups being formed at times.In this instance,both group and individual entity interaction within different group interactions happen all at the same time,which gives the visual appearance of an undulating mass of entity movement resulting in the form and the formless,the timed and the timeless, the frequency and frequency-less,the dimension and dimensionless intermingling and entwining.It is beautiful to watch. 
+
+2号源实体：
 
 ME:It strikes me that what you have just described could also be used to described what happens on our planet,Earth,as we have interaction between individuals,families,local communities, countries,and civilizations,together with migration between them all. 
 
+我：
+
 SE2:To some extent,yes,but in comparison to my group interaction and dynamics,your communities,countries,civilizations,etc.,are one-dimensional(1D). 
+
+2号源实体：
 
 ME:But we are three-dimensional. 
 
+我：
+
 SE2:Yes,but you would appear one-dimensional comparatively speaking. 
+
+2号源实体：
 
 ME:What do you mean one-dimensional? 
 
+我：
+
 SE2:As they are at a different base dimension and frequency to you,they are naturally more expansive even though they have physicality between themselves.So,by referring to you (the human race)as being one-dimensional,I am trying to illustrate your limitations in comparison to theirs.For example,if they were to present themselves into your universe, galaxy,dimension,and frequency,you would not be able to detect them even with your sensing machines because your machines are not calibrated to sense the essence of their physicality,which to you is not physical. 
 
-#### Environment 3-An Environment for Change 
+2号源实体：
+
+#### Environment 3 - An Environment for Change 
 
 ME:I would like to talk about the third environment you have created.How is this different than the first two?
 
+我：
+
 SE2:Environment 1 is closed to all but those entities that exist within it.As previously stated,they have the same abilities("power"if you want to call it that)as I do.They cannot return to their Source,me. 
+
+2号源实体：
 
 Environment 2 has one dimension and one frequency,and although the entities can return to me at any time,they must work and evolve in groups or groups of groups.They exist in a finer density than humankind. 
 
@@ -1133,67 +1767,131 @@ Environment 3 is different again.It is what you call "fluidic"in nature.
 
 ME:You mean it's full of water or a liquid of some sort? 
 
+我：
+
 SE2:No,no.By fluidic I mean that it is constantly changing. 
+
+2号源实体：
 
 ME:In what way does it constantly change?Is it in dimension?Is it in frequency?Is it in physicality? 
 
+我：
+
 SE2:Nearly,in fact,it changes in a way that you will have difficulty understanding. 
+
+2号源实体：
 
 ME:Try me. 
 
+我：
+
 SE2:O.K.It changes in rotational attractivity.I can see that you are frowning again. 
+
+2号源实体：
 
 ME:I am a bit as I am trying to work out what that may mean.Can you describe it in layman's terms,please? 
 
+我：
+
 SE2:Everything in this environment has a force that I call "rotational attractivity;"you might call it gravity,but it is not.In this instance,rotational attractivity is the random function that occurs in this environment that causes an entity to slip uncontrollably from one dimension or frequency to another at a specific point in its existence as a result of its natural attractivity to that dimension or frequency.By rotational attractivity,I mean that the dimensions above and below the position of the entity concerned have a rotational component that is peculiar to a certain frequency or dimension.You might call it the "speed of the energetic components"that makeup the entity. 
+
+2号源实体：
 
 ME:How can rotation be described as speed? 
 
+我：
+
 SE2:The associated energetic components move about and around each other.In some instances the configuration of these energies matches another environmental condition better than its current one so it is,therefore,attracted to it.If the level of attraction is compatible with enough of the energetic components of the entity concerned,it modifies the remaining components and slips into the next dimensional/frequency-based environment,that is,the one that it has been attracted to. 
+
+2号源实体：
 
 ME:That must be a very difficult way to live. 
 
+我：
+
 SE2:Why? 
+
+2号源实体：
 
 ME:Because the entity that slips from one,shallI say"rotational environment"to another would have to start all over again every time it changes environments. 
 
+我：
+
 SE2:You are thinking in terms of your own dimension and frequency again.The entities that exist in the third environment know when they are close to being moved from one type of rotational environment to another.As a result they prepare themselves for the change and work out/clear up all that they have started in their current environment.What's more, as they become more and more aligned to their next rotational existence,they get a feel of what limitations or abilities they will have.As a result and to a certain degree,they can plan ahead what they can achieve evolution-wise before they make the change. 
+
+2号源实体：
 
 ME:But it must be like moving and losing all of your possessions,your job,and your house at the same time on a frequent basis. 
 
+我：
+
 SE2:Not quite,for these entities don't need to work to sustain themselves.They don't need to buy food or clothing or shelter of any sort.They exist in an ever-changing environment and,as a result,they need to be independent of such restrictions. 
+
+2号源实体：
 
 ME:So do they work by themselves,or do they work in groups like the entities in the second environment? 
 
+我：
+
 SE2:They work on themselves for themselves,but they can and do work together with other entities for mutual advancement if they so desire.But of course,this generally only lasts for the duration that either one of them is in that rotational environment. 
+
+2号源实体：
 
 ME:Can one entity follow another entity to another rotational environment? 
 
+我：
+
 SE2:No,not willingly,but they can continue to work together if they detect each other later. As you can imagine,the chances of this happening is limited. 
+
+2号源实体：
 
 ME:But not impossible I take it. 
 
+我：
+
 SE2:No it is not impossible,but it is unlikely,especially since most of the entities plan a piece of work that is generally small enough to be contained in the shortest of existences within their current rotational environment. 
+
+2号源实体：
 
 ME:So how would an entity know how long it has and how would it know if another entity had enough time left in their environment to make a partnership work and work to a successful conclusion? 
 
+我：
+
 SE2:Each entity has an energetic signature that is relevant to its current rotational environment and the one that it will be slipping into.Consider it like an hour glass with sand running from one side of the glass bubble to the other through the small piece of glass that connects them.The top side of the glass is where they are now and the bottom side is where they are being attracted to next.It is this signature that every entity can sense in terms of the current rotational environment;it's just that they can't tell where their next environment will be. 
+
+2号源实体：
 
 ME:So if I was an entity in this environment,how would I sense the longevity of the entity next to me. 
 
+我：
+
 SE2:You would just know.I can see that statement is not enough for you. 
+
+2号源实体：
 
 ME:No.You mentioned the hour glass as an example,but this was an example of an energetic signature.An entity must have some sort of representation,for instance,visual that makes fast recognition of longevity. 
 
+我：
+
 SE2:Yes,there is.The best way to describe it in terms that you can understand in the physical is to say that they have a color associated with the length of time they have left in their current environment.Of course,there are a lot more colors available than those in your visible spectrum,but a good facsimile would be the change in color from the infrared to the ultraviolet.As an accurate example,it is inadequate but will do for now. 
+
+2号源实体：
 
 ME:Simplistically speaking then,they change from red to blue,or from white to black.
 
+我：
+
 SE2:If this helps you understand,then that will do. 
+
+2号源实体：
 
 ME:What do the entities in Environment 3 work on to help them evolve,and do they have enough of them grouped together to create a civilization? 
 
+我：
+
 SE2:I can see that you are enthralled with the need to be civilized in a way that you can recognize in the physical.No,don't answer.It is written all over your face,so to speak.I am told by your Source Entity that this is a common desire,one that you all have difficulty moving away from. 
+
+2号源实体：
 
 Mmm,I will have to enlighten you in the simple general rules that I ask my creations to work within: 
 
@@ -1206,7 +1904,11 @@ Mmm,I will have to enlighten you in the simple general rules that I ask my creat
 
 ME:That last rule is a really good one.It is one that we should adopt in our physical existence. 
 
+我：
+
 SE2:If you could all embrace it,you would all benefit greatly.But,let's get back to answering your questions. 
+
+2号源实体：
 
 My creations in the third environment are independent of the need to coalesce to exist, purely because they are not located in one place only.As with all of my creations in all of my environments,they are creatures of the universe they exist within and as such have access to all of it without exception.The only limitations they have in this sense are those that they place on themselves as part of their evolutionary plans.If enough of them are in a specific environment long enough to find that their working together in a large group is to the advantage of all,then they will group together;otherwise,they will limit their interaction to ones or twos.There will never be a group large enough to create a civilization in the sense that you know,for it is not a requirement for evolution as it is with you.In terms of what they work on,you would not understand most of it.Suffice to say,they experience things that can only be experienced by continuous change of environment and the level of attractivity it has with them. 
 
@@ -1214,87 +1916,171 @@ My creations in the third environment are independent of the need to coalesce to
 
 ME:O.K.,tell me about the fourth and final environment that you created.What limitations did you put on this universe? 
 
+我：
+
 SE2:The fourth environment was given the opportunity to evolve on its own.That is,I did not personally create any entities specifically to exist within this environment,which is,of course,a different strategy than the one used in the creation of the other environments. 
+
+2号源实体：
 
 ME:Hang on.Are you saying that the environment evolved on its own and created its own entities? 
 
+我：
+
 SE2:In a word,yes,although that is not specifically how it happened.The environment itself was created and given the opportunity to become aware on its own in its own time,so to speak.It was,in essence,like me:energy given sentience/individuality whereas the other environments are just that,environments with no sentience.The sentience is given to the entities I created specifically to exist within that environment.Environment 4 was given the gift of individuality and the opportunity to evolve in its own right. 
+
+2号源实体：
 
 ME:I'm getting the impression that you copied,for want of a better word,the Origin in this instance.The Origin gave the twelve Source Entities,you,part of its volume to give you individuality and an opportunity to evolve in your own way.In Environment 4's case,you gave it the same opportunity that the Origin gave to you,some of your own volume and the means to become aware of self and,therefore,gain a level of sentience. 
 
+我：
+
 SE2:Correct.It is a very interesting project and one that has borne much fruit from an evolutionary perspective. 
+
+2号源实体：
 
 ME:So how did you advise Environment 4 on its task in existence? 
 
+我：
+
 SE2:The same way the Origin gave me my set of rules to work within.In fact,they are identical.This was the best way to proceed in this instance. 
+
+2号源实体：
 
 ME:How long did it take Environment 4 to gain awareness? 
 
+我：
+
 SE2:You are always referring to time;your Source Entity warned me about this trait and said that it is one of your biggest limitations. 
+
+2号源实体：
 
 ME:Sorry,but it is one of the methods that humankind in my Source Entities'multiverse uses to differentiate between the advent of an number of events and their relationship to each other.It is also a datum that the readers of this text will use as a tool to try to understand the details of what we are discussing.
 
+我：
+
 SE2:If it makes things easy for you,then I will use it although time is a non-concept.It means nothing. 
+
+2号源实体：
 
 ME:O.K.,I understand. 
 
+我：
+
 SE2:Yes,I believe you do at a deep down fundamental level-the level that is the real you, the energetic you,so let's move on.In creating Environment 4 in this way,I gave it essence of"me."In some respects,this helped it on its way to awareness.As a result it established its awareness quite quickly.In your metric of time,this would be about a billion years.I also noticed that the awareness coalesced in one area of denser energy where the energy distribution of the environment was irregular or uneven.In fact,the environment became aware in a type of energy that was similar in make-up. 
+
+2号源实体：
 
 ME:I have just received an image of a dark cloud of energy within the bubble of Environment 4-that dark cloud being the energy that gained awareness first.This darker energy is still distributed throughout the volume that is Environment 4.It is just that this area was denser and thus ended up at the center of awareness. 
 
+我：
+
 SE2:Good,that is correct.The rest of the environment also gained awareness but at a slower pace.Consider it like when you wake up from being asleep.At first you are aware of just your thoughts,and then you start to feel certain parts of your body,some before others.Finally you are in full awareness of your body,and you move your limbs at will without preconceived thought.This is exactly how Environment 4 became aware.First,it was in the center of the dark energy cloud.Then as awareness of self spread,it became more expansive and started to include the rest of the dark energy spread throughout the environmental bubble.Eventually it also included the other energies that are also present, making it a complete environmental entity in its own right-fully aware of its existence,its composition,its location,and its abilities. 
+
+2号源实体：
 
 ME:How could it be aware of its abilities so early in its existence? 
 
+我：
+
 SE2:As I stated before,it had essence of me,and as a result of its growing awareness, it also gained knowledge of its personal attributes and abilities.Although at this point in its existence they were fairly rudimentary,they were enough to kick-start the higher level functions of an entity that was not limited in its creative ability within the confines of what I had given it.In fact,it very quickly established what it could and couldn't do.The abilities that it couldn't perform were a function of its ability to control and work with the energies that formed its volume so to speak.So as it gained more and more understanding of self it gained more and more experience,and as a result,it expanded its creative abilities. 
+
+2号源实体：
 
 ME:So it grew in capability as it increased in awareness. 
 
+我：
+
 SE2:Correct.When it reached a point where it realized that it was part of a much larger entity,and,therefore,started to probe its boundaries,I decided to make my presence known and advise Environment 4 on its role in life,as it were. 
+
+2号源实体：
 
 ME:So at this point you were able to work with Environment 4 because it was at a level of awareness that allowed it to understand what you were conveying. 
 
+我：
+
 SE2:Yes.It needed to be at this point for a couple of reasons.First,it had to have enough awareness to allow a robust level of understanding,and second,it had to be young enough not to question its position in the universe and go off at a tangent to what I wanted to achieve.
+
+2号源实体：
 
 ME:Are you suggesting that there is an optimal time period for intervention and presentation of advice on an entity's role in existence? 
 
+我：
+
 SE2:Absolutely.Know this.If an entity is briefed on its role in existence too early in its awakening,that time during which it is becoming what it is,then it will not fully appreciate what you are telling it and will not give it the level of importance that it deserves.If on the other hand you wait too long in the awakening process,the entity develops too much independence,is likely to question the need for the role it is given,and is inclined to rebel.Although on the face of it,letting an entity experience this would be an interesting experiment to perform and observe,it is not on my agenda for evolutionary experience at this present point in my existence. 
+
+2号源实体：
 
 ME:I have to admit I am a little bit surprised that an entity needs to be coached in this way and that there is an optimal time period in which it has to (must)be done.I would have given an entity of this size and ability more credibility. 
 
+我：
+
 SE2:(Pause)Forgive me.I have just tapped into your memory to understand more about you and your environment.Are you O.K.with this? 
+
+2号源实体：
 
 ME:Yes. 
 
+我：
+
 SE2:Good,for it will help me answer your questions better.Consider a human child.If you give it too much leeway,it will not respect you.If you are too hard on it,it will consider you a tyrant.Both responses result in it holding you in contempt.This is the same for any entity. No matter how expansive and powerful it is,it is still immature.It has experienced nothing, it has learnt nothing,it has not begun its evolution,and it has no morals or understanding of what is the right thing to do and what is detrimental.Notice that I didn't say "wrong thing,'" for there is no wrong thing that can be done as everything is experience and evolution. 
+
+2号源实体：
 
 ME:So what you are saying is that even though an entity may be as big as the fourth environment,it is still juvenile in nature. 
 
+我：
+
 SE2:In a nutshell,yes,but don't get me wrong.The level of juvenility is completely different to what you expect and experience in your physical human existence as it would still be considered a god even by the most evolved entity within your universe. 
+
+2号源实体：
 
 ME:O.K.,now I think I understand the need to be accurate in the point of intervention of the awakening of a new entity. 
 
+我：
+
 SE2:I have one further thing to add.The point of intervention is also important because of the ability of the entity to absorb the information that it is going to be given.This is additional to its briefing on its role in existence. 
+
+2号源实体：
 
 ME:What information do you give it? 
 
+我：
+
 SE2:In Environment 4's instance,a portion of the learning that I have gained during my existence-just enough to give it a head start.I could have left it totally on its own,but that would not have been conducive to my plan.And that plan was that Environment 4 had essence of"me."In the case of other entities,I give them enough memory-based information to back up the briefing I give them.In this way they understand fully what I ask of them and are able to "hit the ground running,as you would say. 
+
+2号源实体：
 
 ME:So if Iget this correctly,the point of intervention is a point in the early existence of the entity where it has not yet accrued its own knowledge base and as a result cannot,therefore,reject the information that you give it since it would be comparing the two sets of information all of the time. 
 
+我：
+
 SE2:Correct.The memories that I implant need to be accepted as its own,and this cannot be done after it starts to accrue its own memories. 
+
+2号源实体：
 
 ME:O.K.,can we move on a bit? 
 
+我：
+
 SE2:Of course. 
+
+2号源实体：
 
 ME:From what I can see,the fourth environment is a unique experiment.I mean,giving a whole universe sentience-that's quite a step. 
 
+我：
+
 SE2:It's not as unique as you think.All I have done in this instance is give the energy that I call the fourth environment the essence of "me"and the opportunity to create on its own. This has been done in preference to my creation of an environment and then populating it with other smaller entities.Even with this second scenario the environment itself will at some point in its existence accrue a certain level of awareness.This is normal and to be expected,for all energy has the ability to gain awareness given enough time to stabilize, attract like energies,and grow in volume. 
+
+2号源实体：
 
 ME:So are you saying that all energy can be sentient in some way,shape,or form? 
 
+我：
+
 SE2:In my plan,yes,and your own Source Entity has allowed your universe to have a certain level of awareness.It's just that you don't recognize it in your current state.The only thing you need to understand is this:environments that evolve awareness and sentience are still part of the greater whole-in this instance,one of the other Source Entities or me,which are also part of the wider whole of the Origin.They never become FULLY individual to the point of separation from the originating entity.The small level of individuality that the environment gains as a result of elevating itself up to sentient status is merely localized to the energy that I or any of the other Source Entities have separated from our selves.It is a sub-section of our energy,and as a result is separate in function but whole in application. I do not lose wholeness as a result of separation.Giving an environment individuality does not reduce my wholeness for it is a process similar to what I use to create the smaller entities who populate the other environments I have created. 
+
+2号源实体：
 
 I can see that you are frowning. 
 
@@ -1306,93 +2092,175 @@ So to simplify:giving a volume of energy the size of a universal environment ind
 
 ME:Yes,it does.Thank you. 
 
+我：
+
 Earlier in this dialogue we talked about the limitations you placed on the environments you created.What other limitations did you enforce on Environment 4? 
 
 SE2:The fourth environment was also limited in physicality.By this I mean that the environment is purely energetic,and it is not possible for the entities that the environment created and that exist within it to affect each other in any way like you can,such as by touch or feel.They are like gasses mixing together but not in a way that creates a new gas. 
 
+2号源实体：
+
 ME:How do you mean?
+
+我：
 
 SE2:In the multiverse that you are part of,you can mix materials together to get what you call alloys.This you do with varying levels of ease/difficulty.You even have a gas alloy that you call air although it is made up of many constituent parts and is not a true alloy in the sense of harder materials,such as bronze or aluminium.Air is a naturally occurring alloy and is not the product of fusing together materials at the atomic level to create the new material.Air is actually a good example of the way different entities interact at the physical level without merging together to create a new entity. 
 
+2号源实体：
+
 ME:Can you explain this a bit further? 
+
+我：
 
 SE2:Yes of course.The entities in this environment are purely energetic.As a result,they are of a higher frequency than your physical vehicles.They all resonate in a different way.The way that they resonate is specific to each of them as individuals;as a result,they are not able to increase or decrease their frequency to a level where they are in synchronicity with another entity. 
 
+2号源实体：
+
 ME:So you could say that they have their own signature. 
+
+我：
 
 SE2:No,individual entity signature and resonant frequency are different things in this environment although I can see where you are coming from.This can and does work well in your home environment.However,this is not the case in this environment as the limitations imposed upon it dictate that this is not possible.An entity's resonant frequency is a product of its basic makeup.Each individual entity has a unique resonant frequency,but this is not what is used to distinguish themselves one from another,for they are not aware of their own frequency as such.They use a method of pulsing-what you call "light".
 
+2号源实体：
+
 ME:Oh,that's interesting.We can see light with our physical eyes. 
+
+我：
 
 SE2:But you wouldn't be able to see this light,for it is of a completely different nature.You have light at two ends of your physical visible spectrum,do you not? 
 
+2号源实体：
+
 ME:Yes,we call it ultraviolet and infrared. 
+
+我：
 
 SE2:And you cannot see any of their wavelengths with your physical eyes. 
 
+2号源实体：
+
 ME:No,but we can detect it with our instruments.We can also see infrared light if we use the view finder or display of a digital camera,as the couple charge devices(CCD Array)that the camera uses to detect the different light frequencies and luminance levels are sensitive to wavelengths that we cannot see with our physical eyes but are nevertheless presented back to the observer via the digital camera's screen.It is detected,so it is interpreted and displayed. 
+
+我：
 
 SE2:Well,if you had a CCD array that was sensitive to frequencies above 200,000 of what you call nano-meters,you might be able to detect the light that the entities in Environment 4 use to differentiate one another. 
 
+2号源实体：
+
 ME:Do they use this high frequency light as a language? 
+
+我：
 
 SE2:They can but choose not to,for that is a method of communication that is as inefficient as the pushing air across that part of your body that you call the vocal cords to create a different frequency of that air,resulting in different sounds you call "words"-a most inefficient method of communication if I have ever experienced one.The use of light to communicate is just as inefficient. 
 
+2号源实体：
+
 ME:But it would travel at the speed of light!
+
+我：
 
 SE2:The speed of light is variable and not the constant that you think it is,for it is dependent upon the overlying frequency of its environment or universe. 
 
+2号源实体：
+
 ME:How can this be?I thought that light is one of the physical constants that we can rely on. 
+
+我：
 
 SE2:Is light not based upon a particle,the photon? 
 
+2号源实体：
+
 ME:Yes. 
+
+我：
 
 SE2:Does it not have weight and a resonant frequency as a particle? 
 
+2号源实体：
+
 ME:You would have to ask a physicist on that one,but I guess that it does. 
+
+我：
 
 SE2:Well,the answer is that it does and as a result of this,it is easily affected by the frequentic changes within its environment.It is also affected by what you call "gravity"and“magnetic fields." 
 
+2号源实体：
+
 ME:I have just received information to suggest that this causes distortion in the information that is transmitted using light. 
+
+我：
 
 SE2:Well done!Yes,it does.Also,the entities within Environment 4 are by their very nature quite a distance apart physically and spatially with some being many billions of what you call "light years away."As a result of this,they need a method of communication that isn't limited by physical constraints,such as distance,speed,weight,and frequency. 
 
+2号源实体：
+
 ME:So what do they use?Telepathy? 
+
+我：
 
 SE2:A form of telepathy,yes,although they are capable of much more than communication based upon thought.This is because they are still part of Environment 4 and do not have full independence or singularity.
 
+2号源实体：
+
 ME:I am having difficulty understanding what you are transmitting to me.I know that you have just sent me the answer,but I have nothing to compare it with.In fact,just thinking about what to compare it with is making me very tired. 
 
+我：
+
 SE2:Yes,I understand.That is because you are trying to stretch your perception beyond me and communicate directly with that part of the fourth environment that is occupied with these entities.The communication medium that you are receiving would be best described as similar to your "surround sound"but for another medium,not for sound,for this is also slow. 
+
+2号源实体：
 
 At this point I needed to break off for a rest as the concentration was intense.I returned a couple of hours later with renewed vigor. 
 
 ME:Ah,I get it now.They have many channels of communication,and they use the environment itself as the basis for that communication.This has the effect of a single entity talking to itself.They,therefore,don't communicate as single entities when they communicate.They communicate as a whole.They are the environment. 
 
+我：
+
 SE2:Good,good.Now you are aligned with the appropriate frequency to receive higher levels of information-information that is totally alien to you. 
+
+2号源实体：
 
 ME:I also get the impression that all of the entities that populate the four environments you have created are energetic in nature and do not need to exist in the presence of a planet,star,or any other larger body? 
 
+我：
+
 SE2:As you see it,the physical body is a peculiarity of your universe.In general,the projection of self to such depths of frequency is not a prerequisite for progressing evolution.
+
+2号源实体：
 
 As you rightly noted,all my entities are energy-based all of the time,and the entities that Environment 4 created are no exception to this.In fact,I have one thing to note.None of my entities have experienced existence at the frequencies you have.In this you are unique,even within your own universe,for other physical entities are a much higher frequency. 
 
 ME:Do the entities in Environment 4 have any planets to live on? 
 
+我：
+
 SE2:No,they live in free space so to speak.They have no need for a focal point within which to exist,for they already have one-the environment that created them. 
+
+2号源实体：
 
 ME:I would find it hard to interact with them as most of our interaction in the physical relies on the ability to see,touch,and hear each other.From what you have explained to me,they are not able to do or use any of these senses. 
 
+我：
+
 SE2:And they would find it difficult to use them as well.Remember,these entities are the product of the individual thought of an environment,not me and as a result they are subject to variation upon what would be expected from the short sortie you have made into the other three environments I created.The entities in the fourth environment are constrained by their physicality not their "physicalness,"their makeup,which is to you energetic in nature.They are able to work with each other and the environment that created them.They are able to maintain their individuality whilst being blending together,they can communicate in a most efficient and instantaneous manner,they are the children of one of my greater creations and of this I am pleased. 
+
+2号源实体：
 
 I suddenly sensed that this was the end of my communication with Source Entity 2.It was gone from my mind,and I felt empty,I felt that I could function again without feeling that the walls were closing in around me-a feeling that must have been due to the sheer volume of information that I was receiving and having to filter down to text in my computer.This was my first communication with another Source Entity-a Source Entity that was not my creator.Although we had discussed its work and achievements over the last few weeks,I felt that I hadn't even scratched the surface,that I had gained nothing.I found myself asking the age-old question of whether or not it was all worthwhile when my own Source Entity cut in. 
 
 SE:You are disappointed. 
 
+源实体：
+
 ME:I expected to get more information than this.I expected to get down to the sort of level where I could ask what kind of civilizations were in SE2's environments,what they have achieved,what they have created,even what car they drive (if they had a car). 
 
+我：
+
 SE:You would never be able to assimilate that level of data from a foreign Source Entity. Indeed,it is not possible to go to that depth with me and some of my other groups of entities,for there is simply too much detail.Consider how you would explain 21st century technology and life to a 17th century person.You couldn't do that in any detail that would be understandable simply because the language is not there,and language/understanding is the limiting factor here.Let me tell you this.These limited dialogues that you have with me,my peers,and,indeed,the Origin are enough to whet the appetite of any seeker of truth.They are by their very nature an overview of what is out there in the greater reality, and an overview is all that mankind in its current state can cope with right now.Do not be disappointed,my friend,for you break new ground.Enough is enough,and the detail in these short dialogues is more than enough to be getting on with.You will be communicating with Source Entity Three next,and you will need to shift your energies to a different level than you have currently experienced to achieve communication.For this you will need to rest and purify yourself,for SE3 is pure of heart and energy.
+
+源实体：
 
 ## Chapter 3 
 
@@ -1404,6 +2272,8 @@ ME:I feel that I can't carry on with this,that I can't conjure up enough diversi
 
 SE:Be calm.It does not matter how many words you receive on each Source Entity.What matters is that you contact them,and you open your heart to them.You are thinking that you have to create the text yourself and that you can't possibly have enough diversity of creative thought to create new dialogue of the length you have already achieved.This is your ego talking to you.You will be given the information;you will not have to invent it.Your fears are borne out of self-created objectives.Your personal objectives are not important. What will be,will be.Remember what one of your old managers said to you once:bite your elephant in bite-size chunks.You don't have to do it all in one go.There are no time constraints.There are no limitations. 
 
+源实体：
+
 The information is and must be high level.As I stated at the end of our dialogue with Source Entity Two,you can't possibly go down to the minute detail that you wish.You simply don't have enough capacity in your current physical state,and your readers would not appreciate this level of detail either.You are more likely to bore the pants off them! 
 
 I was about to say that this is a bit of a backward step for you,but I have just looked into your mind and now understand what the issue is.It is not fear of being able to meet your objective of 12,000 words per Source Entity or your worry about the information being diverse enough to be credible. 
@@ -1411,6 +2281,8 @@ I was about to say that this is a bit of a backward step for you,but I have just
 ME:So what is it then? 
 
 SE:You are trying to access too much at the same time.As a result,you don't know which way to look first.You are like a deer in the headlights of a car.No,wait a minute.You are accessing ALL the Source Entities at the same time,and you are close to information overload.No wonder you are feeling like you can't do anything.You are full to the point of bursting.Re-calibrate your awareness to me and Source Entity Three only.This will help.
+
+源实体：
 
 ### Initial Contact with Source Entity Three-Blissful! 
 
