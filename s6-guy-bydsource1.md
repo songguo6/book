@@ -1105,7 +1105,7 @@ ME:Tell me more about this program.What else did it contain?
 
 SE:Apart from attunement to the dimensions and the frequencies that are associated with the universes that I created-which in itself gives you your expansiveness-it also identified the level of entity you were-remember we discussed the fact that some of the entities I created were not of the same type due my attention not being equally spread amongst my creations during the creativity process-and where you would be best located dimensionally.Those that were"whole"were allowed to expand to the level where they could work in any of the environments,dimensions/frequencies within the universal expanse whilst others were limited to smaller areas.Once they were attuned,the next part started:the realization of self,which also started the recognition of others and the interaction with others.The objective here was that the entities would achieve more if the recognition of self and others was simultaneous.Coupled together with this was the knowledge of the need to experience as much as possible and to evolve as a consequence. Next,the knowledge of position within the universe was made accessible,including their mission in existence and the understanding of who the Origin is and why it created the twelve Source Entities.Finally,knowing that individuality is maintained even in oneness and the desire to return to Source,bringing back all experiences,was ingrained into the memory. 
 
-源实体：除了与我所创造的宇宙相关的维度和频率的调谐，它本身就给了你你的膨胀性，它也确定了你的实体层级，记住我们讨论过我所创造的一些实体并不是同一类型的，因为在创造过程中我的注意力没有平等地分散在我的创造物中，你在维度上将被最好地定位。那些“完整”的被允许扩展到可以在任何环境中工作的层级，在宇宙的广阔空间中的维度/频率，而其他人则被限制在较小的区域。一旦他们被调谐，下一部分开始了：自我实现，这也开始了对他人的认识和与他人的互动。接下来，他们可以获得在宇宙中的位置的知识，包括他们存在的使命，以及对起源是谁，以及它为什么创造了12个源实体的理解。最后，知道即使在合一中，个体性也被保持，以及回归源头的愿望，把所有的经历都带回来，这已经深深地植入记忆中。
+源实体：除了与我所创造的宇宙相关的维度和频率的调谐，它本身就给了你你的扩展性，它也确定了你的实体层级，记住我们讨论过我所创造的一些实体并不是同一类型的，因为在创造过程中我的注意力没有平等地分散在我的创造物中，你在维度上将被最好地定位。那些“完整”的被允许扩展到可以在任何环境中工作的层级，在宇宙的广阔空间中的维度/频率，而其他人则被限制在较小的区域。一旦他们被调谐，下一部分开始了：自我实现，这也开始了对他人的认识和与他人的互动。接下来，他们可以获得在宇宙中的位置的知识，包括他们存在的使命，以及对起源是谁，以及它为什么创造了12个源实体的理解。最后，知道即使在合一中，个体性也被保持，以及回归源头的愿望，把所有的经历都带回来，这已经深深地植入记忆中。
 
 ME:The parts of the programming that you have just mentioned are these: 
 
@@ -1121,27 +1121,39 @@ ME:The parts of the programming that you have just mentioned are these:
 
 These are essentially what our role is in the universe.This is all we have to do.It's simple. 
 
-我：
+我：你刚才提到的编程部分是这些：
+
+- 自我实现；
+- 认知他人；
+- 体验存在；
+- 进化；
+- 认知自己在宇宙中的位置；
+- 认知自己存在的使命；
+- 理解起源及其创造物；
+- 在适当的时候回归源头；
+- 在整体/源头中保持一体。
+
+这些本质上是我们在宇宙中的角色。这就是我们要做的。很简单。
 
 SE:Not as simple as it would seem.Remember we talked about karma in the previous dialogues in your first book.Remember about being coerced by the desires of the physical and how easy it was to get tied up in the demands of the physical to the point where you no longer work for the good of others but only for yourself?
 
-源实体：
+源实体：不像看起来那么简单。还记得我们在你第一本书中之前的对话中谈到的业力吗？还记得被肉体的欲望所迫，以及被肉体的需求所束缚是多么容易，以至于你不再为他人的利益而工作，而只是为自己而工作？
 
 ME:Yes,I do. 
 
-我：
+我：是的，我知道。
 
 SE:Well,this is a reason why it is not so simple.It's also one of the main reason why you, the smaller entities,were created.On behalf of myself and the Origin,you were all created to tackle the issue of "self,"which all of the former bulleted items identify.In summary,the main role of all of the smaller entities in existence is to experience that which the Origin hasn't yet experienced and relay this information back to the Origin.In essence,the Origin has hatched a brilliant plan:as you experience,so do I and so does the Origin.What's more with all of the billions of entities the other twelve Source Entities and I have created,the opportunity for experiencing its self-for we are all within and,therefore,part of the Origin -is multiplied by a factor relative to the number of smaller entities created and actively experiencing.The one thing you must note is that there is no duplication here.Every experience is separate.
 
-源实体：
+源实体：嗯，这就是为什么它不是那么简单的一个原因。这也是为什么你们，这些较小的实体，被创造出来的主要原因之一。代表我自己和起源，你们都被创造出来去解决“自我”的问题，这是前面列举的所有项目所确定的。总之，所有存在着的较小的实体的主要角色是去体验那些起源还没有经历过的事情，并将这些信息传回起源。本质上，起源已经酝酿了一个绝妙的计划：当你经历时，我也是，起源也是。更重要的是，其他12个源实体和我创造了数十亿个实体，体验自我的机会——因为我们都在其中，因此，是起源的一部分——是相对于被创造出来的和积极体验的较小的实体的数量的乘数。你必须注意的一件事是这里没有重复。每一次体验都是单独的。
 
 ME:Why is this?I would have thought that,if say,100 entities all experienced the same thing, such as a natural disaster or a football match,that it would amount to the same thing. 
 
-我：
+我：为什么会这样？我本以为，如果说，100个实体都经历了同样的事情，比如一场自然灾害或一场足球比赛，那它就会等于同样的事情。
 
-SE:This is not so.It is the underlying beauty of being a separate entity.You see,even if you are part of a collective and you experience the same thing as your brother in collective existence,you each will personally experience the experience in a subtly different way.The way in which you experience it will be relevant to your own evolution and experience in addition to whether you are incarnate or not or the type of environment you have been incarnate in.Remember:incarnation isn't necessarily in a state that is as physically dense or in as low a frequency as you are experiencing now,for physicality has many levels of frequency.In summary,the whole point of existence and,therefore,the role of the smaller entities are to experience,evolve,furnish feedback,and return.
+SE:This is not so.It is the underlying beauty of being a separate entity. You see,even if you are part of a collective and you experience the same thing as your brother in collective existence,you each will personally experience the experience in a subtly different way.The way in which you experience it will be relevant to your own evolution and experience in addition to whether you are incarnate or not or the type of environment you have been incarnate in.Remember:incarnation isn't necessarily in a state that is as physically dense or in as low a frequency as you are experiencing now,for physicality has many levels of frequency.In summary,the whole point of existence and,therefore,the role of the smaller entities are to experience,evolve,furnish feedback,and return.
 
-源实体：
+源实体：不是这样的，这是作为一个独立实体的潜在美。你看，即使你是集体的一部分，你在集体存在中和你的兄弟经历同样的事情，你们每个人都会以微妙不同的方式来体验这个经历，你体验它的方式将与你自己的进化和经历有关，除了你是否转世或你所转世的环境类型。记住：转世不一定是在一个像你现在正在经历的那样物理密集或低频率的状态中，因为物质性有许多频率层级。总之，存在的全部意义，因此，较小实体的角色是体验、进化、提供反馈和回报。
 
 ## Chapter 2 
 
@@ -1149,395 +1161,415 @@ SE:This is not so.It is the underlying beauty of being a separate entity.You see
 
 At this point I have to admit to feeling a significant amount of trepidation.I am about to communicate with another of the Source Entities,one that we shall call Source Entity Two (SE2). The Creator of our multiverse being Source Entity One but simplistically being referred to as "The Source Entity"(SE).It is a strange feeling,rather like having writer's block.I have no idea what we are going to talk about even though I do have a simple agenda of questions,which I shall use for discussions with all the Source Entities.This should keep it simple,as I am in no doubt that many of the concepts that I am about to have thrust upon me will be well over my head.I only hope I can put them into words that both the readers of this text and I can understand. 
 
+在这一点上，我不得不承认感到相当多的恐惧。我将要与另一个源实体进行交流，一个我们应该称之为2号源实体(SE2)。我们多维宇宙的创造者是1号源实体，但简单地被称为“源实体”(SE)。这是一种奇怪的感觉，就像作家的块。我不知道我们将要谈论什么，即使我有一个简单的问题议程，我将用它来与所有的源实体进行讨论。这应该保持简单，因为我毫不怀疑，许多我将要被强加给我的概念将远远超出我的头脑。我只希望我能把它们变成文字，这篇文章的读者和我都能理解。
+
 ME:I feel the communication start,but it feels strange-like I am rubbing my head up and down the bark of an oak tree. 
 
-我：
+我：我感觉到交流开始了，但感觉很奇怪——就像我在橡树的树皮上上下下地摩擦我的头。
 
 SE:That is because you are trying to communicate with the Source,SE2,directly rather than via myself.You are created from my own energies;these are in variance to the energies that the other Source Entities are working with.As a result,it will be like hitting a brick wall, for you are out of tune,out of phase,and out of(universal)structure.I am not surprised you feel like you are rubbing your head up and down the bark of an oak tree.What I am surprised about is that you even got to this stage;you actually made a link directly to SE2. I am impressed;this will make our communication with SE2 much easier as the level of translatory intervention I will have to make will be reduced as a result.Don't get me wrong. I will still need to be the main contact,and in most cases you will be communicating with SE2 via me,but in the link you have you will be able to pick up much more than SE2 speaking through my words to you.You may also gain imagery during the dialogue. 
 
-源实体：
+源实体：那是因为你试图与源头，SE2直接沟通，而不是通过我。你由我自己的能量创造，这些能量与其他源实体正在使用的能量不同。结果，它就像撞砖墙一样，因为你跑调了，脱离了阶段，脱离了(宇宙)结构。你觉得自己在橡树皮上上下下地摩擦头部，我并不感到惊讶。我惊讶的是，你甚至到了这个阶段；你实际上直接与SE2建立了联系。我印象深刻；这将使我们与SE2的沟通变得更容易，因为我将不得不做出的翻译干预层级将因此减少。不要误解我。我仍然需要成为主要的联系人，在大多数情况下，你将通过我与SE2沟通，但在你拥有的联系中，你将能够比SE2通过我的话语向你说话时多得多。你也可以在对话中获得意象。
 
 ME:So can you tell me how this Source Entity divided itself? 
 
-我：
+我：那么你能告诉我这个源实体是如何分裂自己的吗？
 
 SE:Yes.In this instance,SE2 divided itself in a very similar way to the way I did,but it divided itself up by four instead of twelve,so,in effect,you have 12 x 4 x 12 x 3 different dimensional levels.That is 1,728 dimensions within four universes. 
 
-源实体：
+源实体：是的，在这个例子中，SE2以一种非常相似的方式分裂自己，但它分裂自己为4个而不是12个，所以，实际上，你有4 x 12 x 3 x 12个不同的维度层级。那就是在4个宇宙中，有1728个维度。
 
 ME:So would this similarity be the reason why I was able to affect some sort of initial communication? 
 
-我：
+我：那么这种相似性会是我能够影响一些初始交流的原因吗？
 
 SE:No.Just because the methodology of division is similar doesn't mean that the frequencies and dimensions within the environment created have the same characteristics -hence,the way you felt when you established contact on your own. 
 
-源实体：
+源实体：不，仅仅因为划分的方法相似并不意味着所创造的环境的频率和维度具有相同的特征，因此，当你自己建立联系时的感觉。
 
 ME:Thank you for the clarification.So can you formally introduce me to the second source,SE2? 
 
-我：
+我：谢谢你的澄清。那么你能正式地介绍我第二个源头，SE2吗？
 
 SE:Yes.We are in contact right now. 
 
-源实体：
+源实体：是的，我们现在就在联系。
 
 ME:Oh,Ifeel that I am in an environment that is full of green/grey/red clouds. 
 
-我：
+我：哦，我感觉我在一个充满了绿色/灰色/红色云彩的环境中。
 
 SE2:These are my children.You would call them nebula.They form the larger part of the beings that I have created. 
 
-2号源实体：
+2号源实体：这些是我的孩子。你们会叫他们星云。他们构成了我所创造的大部分存在。
 
 ME:O.K.I think I would like to stop here and ask that I follow a structure that is similar,if not the same,to the first part of this book.It would keep it simple for me and those who read it later. 
 
-我：
+我：好的，我想我应该在这里停下来，并要求我遵循一个与本书第一部分类似的结构，如果不是相同的话。这将使我以及以后阅读它的人保持简单。
 
 SE2:We can do that if you wish.
 
-2号源实体：
+2号源实体：如果你愿意，我们可以这样做。
 
 ME:I am sorry to mention it,but you sound like you are in pain.Your voice sounds like it is deep and hollow. 
 
-我：
+我：很抱歉这么说，但是你听起来好像很痛苦，你的声音听起来很低沉，很空洞。
 
 SE2:I can assure you that I am not in pain.The sound of my voice,the method that you have chosen to communicate by,is relative to my overall resonant frequency.This is the way that you will be able to tell me apart from your own Source Entity. 
 
-2号源实体：
+2号源实体：我可以向你保证我没有痛苦。我的声音，你选择的交流方式，是与我的整体共振频率有关的。这是你将能够把我和你自己的源实体分开的方式。
 
 ### Source Entity Two's Early Existence 
 
+**2号源实体的早期存在**
+
 ME:I have talked to my Source Entity on its becoming aware in the first period of its existence. Can you explain how you became aware and what you felt? 
 
-我：
+我：我已经和我的源实体谈过它在存在初期的意识。你能解释一下你是如何意识到的，以及你当时的感受吗？
 
 SE2:As with your own Source Entity,I was allowed to become aware in my own time.This is one of the rules the Origin placed upon itself.It was a strange sensation.Becoming aware that you "are"in existence is rather like looking at a cloud of energy and then realizing that it is a cloud of energy.As you start to pick out things in your local environment and identify them by giving them a name or a label,you start to consider who and what you are yourself. At this point I started to investigate my "self"and realized that it was a big task,especially if I looked into my "self"at the smallest level.It was during this phase of my existence-when I was becoming more aware of what I was and what I could do-that the Origin contacted me and explained that I was a smaller part of its"self."It was also at this time I had established that there were others like me just next door. 
 
-2号源实体：
+2号源实体：和你自己的源实体一样，我被允许在自己的时间里变得有意识。这是起源自身设定的规则之一。这是一种奇怪的感觉。意识到你“存在”就好像看着一团能量云，然后意识到它就是一团能量云。当你开始从你周围的环境中挑选出事物，并给它们起名字或贴上标签来识别它们时，你开始考虑你自己是谁，是什么。在这一点上，我开始调查我的“自我”，并意识到这是一个大任务，特别是当我从最小的层面来审视我的“自我”时。正是在我存在的这一阶段——当我变得更加意识到我是谁，我能做什么时——起源联系了我，并解释说我是它的“自我”的一个较小的一部分。也是在这个时候，我确信在我的隔壁还有其他像我一样的人。
 
 ME:Yes,I get an image of you all bunched up together,like black balls all together inside a bigger ball-that bigger ball being the Origin.
 
-我：
+我：是的，我看到你们都聚集在一起，就像黑球聚集在一个更大的球里，那个更大的球就是起源。
+
+（图一：起源和源实体）
 
 ![Figure 1: The Origin and the Source Entities](img/s6-025.png)
 
 SE2:That is a good description.But don't forget that the Origin is absolute and infinite,there is nothing but the Origin,the Origin is "all,"so this image in your mind's eye that shows the Origin as a smaller entity is flawed and is a result of your limited ability to understand in your current projection. 
 
-2号源实体：
+2号源实体：这是一个很好的描述。但是不要忘记，起源是绝对的和无限的，除了起源，没有别的东西，起源是“一切”。所以你脑海中把起源看成一个较小的实体的这个图像是有缺陷的，这是你目前理解能力有限的结果。
 
 ME:So what did the Origin say to you when it contacted you for the first time? 
 
-我：
+我：那么，当起源第一次联系你的时候，它对你说了什么？
 
 SE2:It explained the reason for my existence and the reason for the other Source Entities' existence.This you have from your own Source Entity.More importantly it stated that how I achieve the task it gave me was entirely up to me.There were no time limits and no constraints on power or energy used.It was a simple meeting.The Origin went to some length to make it so and to show me what the Origin was in its entirety just so that I could understand what it was and what I was and how I fitted in.Once the Origin had explained everything that it knew to me,I felt that I was one and the same.I was the Origin,which as a division of the Origin we all are.As a result of this,I had what you might call a"kick-start" in the right direction.The change in me was instantaneous.One moment I was just me in existence and thought;the next moment,that is after the Origin gave me all its knowledge,I was personified.I was energy and thought,given knowledge and a purpose:to find out what I was,to experience what I was,and to evolve.As I was a part of the Origin,everything I did would be automatically fed back to the Origin in an experiential way,so I wouldn't need to contact the Origin specifically to report back on the progress I was making.It was at this point that I started to have what you would call "fun"by manipulating the energy that was all around us.I was particularity good at making shapes and dimensional constructs. 
 
-2号源实体：
+2号源实体：它解释了我存在的原因以及其他源实体存在的原因。这是你从你自己的源实体那里得到的。更重要的是它说，我如何完成它给我的任务完全取决于我自己。没有时间限制，也没有对力量或能量使用的限制。那是一个简单的会面。起源用了很长的时间来使它如此，并向我展示了它的全部，以便我能理解它是什么，我是什么，以及我如何适应。一旦起源向我解释了它所知道的一切，我感到我是一体的，是一样的。我是起源，作为起源的一个分支，我们所有人都是。因此，我有了你可能称之为“启动”的正确方向。我身上的变化是瞬间发生的。这一刻我只是存在和思考的我；下一刻，也就是在起源把它所有的知识都给了我之后，我人格化了。我是能量和思想，被赋予了知识和目的：去发现我是什么，去体验我是什么，去进化。因为我是起源的一部分，我所做的一切都会以一种经验的方式自动反馈给起源，所以我不需要特别联系起源来报告我所取得的进展。正是在这一点上，我开始拥有你们所说的“乐趣”，通过操纵我们周围的能量。我特别擅长制作形状和空间结构。
 
 ME:So how did you decided on the 12 x 4 x 12 x 3 dimensional universe? 
 
-我：
+我：那么你是怎么决定4 x 12 x 3 x 12维度的宇宙的？
 
 SE2:I decided that I would create four environments from which to base my learning environment on simply because I wanted to have four different experiments running at the same time.Each universe-if you want to call the environments that-were constructed in a different way.Each had a different purpose and a different set of rules. 
 
-2号源实体：
+2号源实体：我决定创建4个环境作为我的学习环境的基础，因为我想同时运行4个不同的实验。每个宇宙——如果你想把环境称为宇宙的话——都以不同的方式构建。每个宇宙都有不同的目的和不同的规则。
 
 ME:You had a different set of rules for each environment? Why? What were the rules? 
 
-我：
+我：你对每个环境都有不同的规则？为什么？规则是什么？
 
 SE2:I wanted to see how the entities that I would create later in order to populate these environments would fare if they had a different set of constraints placed on them,but with the same goal.One of the environments-let's call it environment one for the sake of argument-had no constraints and had all the abilities I had.The others had components of those abilities removed. 
 
-2号源实体：
+2号源实体：我想看看我之后为了填充这些环境而创建的实体，如果它们有不同的约束条件，但目标相同，会如何表现。其中一个环境——为了方便讨论，我们称之为环境一——没有约束条件，拥有我所有的能力。其他的组件则移除了这些能力。
 
 ### The Four Environments of SE2 
 
+**2号源实体的四个环境**
+
 #### Environment 1-10,000 Source Entities,One Environment 
+
+**环境1：10000个源实体，一个环境**
 
 ME:Can you explain what the abilities and components were that you removed?No,tell me about the first environment first,and then tell me what the constraints were in the remaining three environments.
 
-我：
+我：你能解释一下你移除的功能和组件是什么吗？不，先告诉我第一个环境，然后告诉我剩下三个环境中的限制是什么。
 
 SE2:As just stated,the first environment contained every attribute that I was given by the Origin.Everything was within the environment right down to the lowest dimension and frequency.Additionally,the entities that I created were direct copies of me,only smaller in what you would call volume.They were constrained,however,in one way:they could only exist within the environment that I created.That is,they could not return to the Source,me, as you can with your own Source Entity. 
 
-2号源实体：
+2号源实体：正如刚才所说，第一个环境包含了源头给予我的每个属性。环境中的一切，包括最低维度和频率，都在这个环境中。此外，我创造的实体都是我的直接复制品，只是体积小一些。它们受到了限制，不过，只有一种限制：它们只能存在于我创造的环境中。也就是说，它们不能回到源头，回到我，就像你们可以回到自己的源头实体一样。
 
 ME:Why did you do that?What would be the point of it? 
 
-我：
+我：你为什么要这么做？这样做有什么意义？
 
 SE2:I wanted to give them total autonomy.With the level of power that I had given them, equal to me,they could quite literally turn their environment upside down and inside out. I wanted them to know this and to appreciate that they would have no help from me in correcting whatever mess they got themselves into and that they were the masters of their own destiny,whichever way they took themselves. 
 
-2号源实体：
+2号源实体：我想给他们完全的自主权。我给他们的权力水平和我一样，他们可以完全颠倒他们的环境。我想让他们知道这一点，并认识到他们不会从我这里得到任何帮助来纠正他们自己陷入的任何混乱，他们是自己命运的主宰，无论他们采取什么方式。
 
 ME:So what was the goal that you gave them? 
 
-我：
+我：那你给他们设定的目标是什么？
 
 SE2:The goal or task was the same as yours.We all have the same task from the Origin:to experience all that there is in as many different ways as possible and evolve as a result. 
 
-2号源实体：
+2号源实体：目标或任务和你的一样。我们都有一个相同的起源任务：以尽可能多的不同方式体验所有的东西，并以进化为结果。
 
 ME:But you have given them everything and nothing.You have given them a task and not a route home-to you. 
 
-我：
+我：但是你给了他们一切，却又什么都没有。你给了他们一个任务，却没有给他们一条回家的路——回到你身边。
 
-SE2:I have given them everything.They have total autonomy from me,they are masters of their own universe,and they will exist for as long as I exist. ME:And how long will you exist?
+SE2:I have given them everything.They have total autonomy from me,they are masters of their own universe,and they will exist for as long as I exist. 
 
-2号源实体：
+2号源实体：我已经给了他们一切。他们完全自主，他们是他们自己宇宙的主人，只要我存在，他们就会存在。
+
+ME:And how long will you exist?
+
+我：那你们会存在多久？
 
 SE2:For as long as the Origin wants us to exist.It has no plans to remove that existence to my knowledge,but my/our/your existence is still at the prerogative of the Origin and its pleasure in my/our/your existence. 
 
-2号源实体：
+2号源实体：只要起源想让我们存在，它就不会取消我的存在，但是我/我们/你的存在仍然是起源的特权，它乐于我/我们/你的存在。
 
 ME:Mmm,O.K.,I think I have been advised on this subject before by my Source Entity. 
 
-我：
+我：嗯，好的，我想之前我的源实体已经就这个问题给我提过建议了。
 
 SE:You have,and it is a consistent story that you will hear from all of the Source Entities. 
 
-源实体：
+源实体：是的，这是你从所有源实体那里听到的一致的故事。
 
 ME:It is good to realize that you are still here and that I can recognize you as my Source Entity. 
 
-我：
+我：很高兴意识到你仍然在这里，我可以把你当作我的源实体。
 
 SE:Yes,don't forget that I still need to support the link you have with SE2,which is why you are finding it so easy to communicate with it. 
 
-源实体：
+源实体：是的，不要忘记我仍然需要支持你与SE2的链接，这就是为什么你发现与它交流如此容易。
 
 ME:Thank you.So,getting back to the first environment from SE2's experiments,can you please give me an example of the type of power these entities had in the first environment? 
 
-我：
+我：谢谢。那么，回到SE2实验的第一个环境，你能给我一个例子，说明在第一个环境中这些实体拥有的能量类型吗？
 
 SE2:As explained a few moments ago,they had total power.But I can see that you need an example.Quite simply,they have the power to either totally destroy themselves by refusing to exist anymore or they can reproduce themselves or their environment. 
 
-2号源实体：
+2号源实体：正如刚才所解释的，他们拥有完全的权力。但是我知道你需要一个例子。很简单，他们有权力通过拒绝继续存在来完全毁灭自己，或者他们可以再生自己或者他们的环境。
 
 ME:Reproduction of self I can understand,but reproduction of environment,whole universe/ multiverses?Why would they want to do that?How would they do it? 
 
-我：
+我：自我复制我能理解，但是复制环境，整个宇宙/多维宇宙？他们为什么要这么做？他们会怎么做？
 
 SE2:How they do it is up to them,but one way would be to segment a portion of the environmental volume that I gave them to create a duplicate.Another way would be to mirror the whole volume of the environment by copying it and placing it on a level of dimension or frequency that is just out of alignment with the original. 
 
-2号源实体：
+2号源实体：他们怎么做取决于他们自己，但一种方法是把我给他们的环境体积的一部分分割开来，然后创建一个副本。另一种方法是通过复制整个环境体积，并将其置于一个与原体积不一致的维度或频率层级上，来反映整个环境体积。
 
 ME:But would you need to remove a frequential or dimensional component from the existing environment to achieve this? 
 
-我：
+我：但是你需要从现有环境中移除频率或维度组件才能实现这一点吗？
 
 SE2:Good question.No,you are thinking in terms of your own environment and its physical physics.The way it would be achieved is by... 
 
-2号源实体：
+2号源实体：好问题。不，你在考虑你自己的环境和它的物理物理学。它将被实现的方式是通过...
 
 ME:I am getting a picture of a sort of process where you make better use of the space available; err,rather like a double space program on a computer makes more space on a hard drive by using a form of compression algorithm that maintains all of the attributes of the files on the hard drive whilst making them smaller,thereby saving space. 
 
-我：
+我：我正在得到一张图片，其中你更好地利用可用空间的过程；呃，更像电脑上的双空间程序，通过使用一种压缩算法，在保持硬盘上所有文件的属性的同时，使它们变小，从而节省空间，使硬盘上的空间更大。
 
 SE2:That wasn't the description I was going to use,but it is one that will suffice.It is a good enough example for your readers to understand.In fact,it is possibly the only way that you will be able to understand the process. 
 
-2号源实体：
+2号源实体：这不是我要用的描述，但它已经足够了。对于你的读者来说，这是一个足够好的例子。事实上，这可能是你能够理解这个过程的唯一方法。
 
 ME:Why is this? 
 
-我：
+我：为什么？
 
 SE2:I was having trouble embedding the information into your limited energetic memory. It just wasn't capable of receiving the concept I was prepared to give to you.Multiversal compression is a good enough example to use. 
 
-2号源实体：
+2号源实体：我很难把信息嵌入到你有限的精力充沛的记忆中，它就是无法接收我准备给你的概念。多维压缩是一个很好的例子。
 
 ME:So if the entities within Environment 1 are all powerful,they must have a hard time living together. 
 
-我：
+我：所以如果环境1中的实体都很强大，他们在一起生活一定很艰难。
 
 SE2:They do not fight if that is what you are insinuating.They each have the same capabilities and they have full respect of their role within their environment. 
 
-2号源实体：
+2号源实体：如果你暗示他们会打架的话，他们不会。他们每个人都有同样的能力，他们在环境中完全尊重自己的角色。
 
 ME:How many entities did you create for the first environment? 
 
-我：
+我：你为第一个环境创造了多少个实体？
 
 SE2:You would call it a round number and,therefore,suspicious.
 
-2号源实体：
+2号源实体：你会说这是一个整数，因此，值得怀疑。
 
 ME:Go on.Try me. 
 
-我：
+我：来吧，试试我。
 
 SE2:Ten thousand. 
 
-2号源实体：
+2号源实体：10000。
 
 ME:You're right.It is a round number and I am suspicious. 
 
-我：
+我：你说得对，这是一个整数，我对此表示怀疑。
 
 SE2:? 
 
-2号源实体：
+2号源实体：？
 
 ME:What?Is that it?Silence? 
 
-我：
+我：什么？就这样了？沉默？
 
 SE2:What would you have me say?Do you want me to give you justification for such a whole number? 
 
-2号源实体：
+2号源实体：你要我说什么？你要我给你一个这么大的数字的理由吗？
 
 ME:Err,yes actually.I had a similar issue with the number of levels that my Source Entity created.They were based on 100. 
 
-我：
+我：呃，实际上是的。我有一个类似的问题，我的源实体创建的层级数量。他们是基于100。
 
 SE2:One of the things that you must note is that the numbers that I/we use are in the language that you would understand.I/we use whole numbers because of the ease of communication.Suffice to say,the number I gave you is correct and as such is understandable by you and others.Would a number of 9,892 have any more credence with you? 
 
-2号源实体：
+2号源实体：你必须注意的一件事是我/我们使用的数字是用你能理解的语言写的。为了便于交流，我/我们使用整数。我只想说，我给你的数字是正确的，因此你和其他人都能理解。你觉得9892这个数字更有说服力吗？
 
 ME:It might. 
 
-我：
+我：可能吧。
 
 SE2:Then use that.It is not correct,for it was 10,000. 
 
-2号源实体：
+2号源实体：那就用那个。这个不正确，因为是10000。
 
 ME:O.K.,I think I will leave this little digression in the text of this dialogue;the mere fact thatyou are questioning my questioning is validation enough for me. 
 
-我：
+我：好吧，我想我将把这个小小的离题留在对话文本中；你对我的质疑本身就足以让我感到有理有据。
 
 SE:Rest now.You are tired. 
 
-源实体：
+源实体：现在休息一下。你很累了。
 
 A few days later I continued the conversation.
 
+几天后我继续了我们的对话。
+
 ME:Can we continue with the first of the four environments you created? 
 
-我：
+我：我们能继续谈谈你所创造的4个环境中的第一种吗？
 
 SE2:Yes,of course. 
 
-2号源实体：
+2号源实体：是的，当然。
 
 ME:One of the questions that I have not asked is about the appearance of the entities in this environment and what they created as a civilization. 
 
-我：
+我：我还没有问的一个问题是关于这个环境中的实体的外观和他们作为一个文明创造了什么。
 
 SE2:I will answer your question in two parts.In terms of their appearance,they have none that you would recognize. 
 
-2号源实体：
+2号源实体：我将分两部分来回答你的问题。就外表而言，你不会认出它们。
 
 ME:How do you mean? 
 
-我：
+我：你什么意思？
 
 SE2:They do not have a physical appearance.I can see that you are waiting for further clarification. 
 
-2号源实体：
+2号源实体：他们没有物理外观。我可以看出你在等待进一步的澄清。
 
 ME:Yes,please. 
 
-我：
+我：好的，请。
 
 SE2:They have no method of being described physically because the environment within which they exist does not have dimensions or frequencies that are low enough to cause a physical projection.Simply put:they are purely "Source Essence"and so is their environment. 
 
-2号源实体：
+2号源实体：他们没有办法被描述为物理，因为他们存在的环境没有足够低的维度或频率来引起物理投射。简单地说：他们是纯粹的“源头本质”，他们的环境也是。
 
 ME:Hold on here.I have just received an image or concept in my mind that states that they are all one and the same-that is,their environment and the entities are all one. 
 
-我：
+我：等一下，我刚才在脑海中接收到一个意象或概念，它说它们都是一体的，是一样的，也就是说，它们的环境和实体都是一体的。
 
 SE2:That is correct.That is why they have no form,either physical or energetic,that you can use to distinguish them apart from their environment. 
 
-2号源实体：
+2号源实体：是的，这就是为什么他们没有形体，无论是物质的还是能量的，你无法用它来将他们与环境区分开来。
 
 ME:Is this why you only created 10,000?
 
-我：
+我：这就是你只创造了10000个的原因吗？
 
 SE2:Yes,it is also why I gave them total autonomy.They are as I am within my own environment,totally omnipotent. 
 
-2号源实体：
+2号源实体：是的，这也是我为什么给他们完全的自主权。他们就像我在自己的环境里一样，完全无所不能。
 
 ME:So how do you tell them apart?Do they have a signature or something that enables you to identify which one of the ten thousand they are? 
 
-我：
+我：那你怎么区分他们呢？他们有没有签名或者其他什么东西，能让你从10000个中辨认出他们是谁？
 
 SE2:They can only be told apart by their thought processes.Each one has a different thought process that they use to create the opportunity to experience and evolve.But please note this:not all of them are in full separate existence at the same time. 
 
-2号源实体：
+2号源实体：他们只能通过他们的思维过程来区分。每个人都有不同的思维过程，他们用它来创造体验和进化的机会。但请注意：并不是所有的人同时都完全独立存在。
 
 ME:I beg your pardon?You mean that one moment they are in existence and another they are not? 
 
-我：
+我：你说什么？你的意思是前一秒钟他们还存在，下一秒钟他们就消失了？
 
 SE2:As you noted before,they are one and the same and,therefore,one with their environment.I see you are frowning.I will send you an image of what I mean. 
 
-2号源实体：
+2号源实体：正如你之前提到的，他们是一体的，是一样的，因此，他们与环境是一体的。我看到你皱眉了，我会给你发一个图片来说明我的意思。
 
 I then received an image of a mass of something,say a cloud.This cloud was on its own as an undulating mass.Then I saw a mass of what I can only describe as rain drops.Each rain drop had its own sentience.As I looked further and into the cloud,which I was told was their environment,I noticed that each of the drops had a role to play and a job to do.Each role and job was either personally assigned or collectively assigned.Before the role/job was assigned,the rain drop that was to do the role was not a separate entity.It was fully part of the cloud.When the role was defined and the interaction with other raindrops or energies was established,a rain drop or a series of rain drops would be formed,and they would do what was necessary to perform and complete the task.When the task was complete,the rain drop or drops would return to the cloud and lose their singularity.They became one with the cloud again.Their singularity was lost,but their essence was maintained within the cloud, the/their environment.The cloud,the environment,was built of Source Essence that could be separated into two parts:environmental essence and individualized essence.
+
+然后我收到一团东西的图像，比如说云。这片云本身就是一个起伏的团块。然后我看到一大团我只能形容为雨滴的东西。每一滴雨滴都有自己的知觉。当我进一步观察并进入云中，我被告知那是它们的环境，我注意到每一滴雨滴都有角色扮演和工作要做。每个角色和工作要么是个人分配的，要么是集体分配的。在角色/工作被分配之前，要扮演这个角色的雨滴并不是一个独立的实体。它完全是云的一部分。当角色被定义，并与其他雨滴或能量的相互作用被建立起来时，一滴雨或一系列雨滴将形成，它们将做必要的事情来执行和完成任务。当任务完成时，雨滴或雨滴将返回云中并失去它们的独特性。它们再次与云结合。它们的独特性消失了，但它们的本质在云中，即它们的环境中得以保持。云，即环境，是由源本质建造的，源本质可以分为两部分：环境本质和独立本质。
+
+（图二：云朵和雨滴）
 
 ![Figure 2: The Cloud and Rain Drops](img/s6-026.png)
 
 SE2:Now do you understand how they exist? 
 
-2号源实体：
+2号源实体：现在你明白它们是如何存在的了吧？
 
 ME:Yes,I think I do.That image was a really simple and effective way of describing what they are.I take it that there are no clouds or rain drops-that was just a method to describe the function of environment and individualized energy,a way to explain in simple terms how there can be a "variance"in the number of entities in existence,for want of a better word.It's a way to show that there never are all of the entities you created within this environment in singular existence at any one time,or are there times? 
 
-我：
+我：是的，我想我知道。那个图像是一种非常简单而有效的方式来描述它们是什么。我认为没有云或雨滴——那只是一个描述环境和个体能量功能的方法，一种用简单的术语来解释存在实体数量如何“变异”的方法，因为找不到更好的词。它是一种表明在任何一个时间，你在这个环境中创造的所有实体都不会单独存在的方法，或者有时间吗？
 
 SE2:There have been times,and there will be times when they are all in existence as single entities all together,so to speak.Such a time is when they are all needed to change the characteristics of the environment within which they exist,for this can only be achieved when all are in agreement. 
 
-2号源实体：
+2号源实体：有过，将来也会有，它们作为单一实体一起存在的时期。这样的时期是当它们都需要改变它们所生存的环境的特征时，因为这只有在它们都一致同意时才能实现。
 
 ME:Yes,I appreciate that would be a limitation.So what about civilization?Do they have one? Did they create one?
 
-我：
+我：是的，我知道那会是一个限制。那么文明呢？他们有文明吗？他们创造了文明吗？
 
 SE2:Civilization is a word that is peculiar to your physical-based existence.It determines that entities or beings behave in a way that you classify as civilized,that a certain level of co- operation and technology is present and the level of technology is a product of the level of co-operation on a personal and group basis.I am correct in this assumption? 
 
-2号源实体：
+2号源实体：文明是一个词，是你们以物质为基础的存在所特有的。它决定了实体或存在以一种你们将其归类为文明的方式行事，存在着一定程度的合作和技术，而技术水平是个人和团体合作水平的产物。我的这个假设是正确的吗？
 
 ME:Yes,you are. 
 
-我：
+我：是的。
 
 SE2:Well,in this instance you can say that the entities and the environment within which they exist are civilized. 
 
-2号源实体：
+2号源实体：嗯，在这个例子中，你可以说实体和他们存在的环境是文明的。
 
 ME:What?Is that it?Was there no creativity or area/environment which a group of them created for the betterment of them all and that has stood the test of time to show that they were,in fact, civilized and could be called a civilization,and that it was successful or failed? 
 
-我：
+我：什么？就是这样吗？难道没有创造力或地区/环境，他们中的一群人为了所有人的改善而创造，经受住了时间的考验，表明他们实际上是文明的，可以被称为文明，它是成功还是失败？
 
 SE2:Not in the way that you perceive things,no.For how could a group of entities that are essentially Source Essence and part of an environment that is created out of Source Essence become something that they have always been-in co-operation? 
 
-2号源实体：
+2号源实体：不是你们感知事物的方式，不是。因为一组本质上是源头本质的实体，以及源头本质创造的环境的一部分，怎么可能变成他们一直以来合作的东西？
 
 ME:You mean they have never become uncivilized/they have never failed to achieve their goal,a goal that if it failed would have resulted in some form of digression between the entities involved. 
 
-我：
+我：你的意思是他们从未变得不文明/他们从未失败过，如果目标失败，就会导致相关实体之间的某种形式的偏离。
 
 SE2:No.You see,even when they have failed to achieve the goal that they set themselves, they have managed to learn something,they have experienced something,they have evolved in some way. 
 
-2号源实体：
+2号源实体：不，你看，即使他们没有达到他们为自己设定的目标，他们也学到了一些东西，他们经历了一些事情，他们在某种程度上进化了。
 
 ME:I suppose in this instance if the entities concerned really are one and the same with themselves and their environment and are also truly omnipotent,they would behave in a civilized way.
 
-我：
+我：我认为在这种情况下，如果有关实体确实是一体的，与自己和他们的环境是相同的，而且也确实无所不能，他们会以文明的方式行事。
 
 SE2:The correct description would be that they behave in a highly evolved way,for each of them is aware of the power they have singularly,collectively,and environmentally.They are aware of their function within the environment and the group and have nothing to gain or lose by"going it alone."However,they have had a number of experiments where only one or two of them would split off from the whole and work alone. 
 
-2号源实体：
+2号源实体：正确的描述应该是它们的行为方式是高度进化的，因为它们中的每一个都意识到自己单独、集体和环境中的力量。它们意识到自己在环境和群体中的作用，并且“单干”不会有任何得失。然而，它们做过一些实验，其中只有一两个会从整体中分离出来独自工作。
 
 ME:What was the outcome of these experiments? 
 
-我：
+我：这些实验的结果是什么？
 
 SE2:That they are more efficient at evolving by doing things as a whole.They did find evolution singularly an interesting concept,but it was detrimental to the evolution of the whole. 
 
-2号源实体：
+2号源实体：他们认为作为一个整体来做事会更有效率。他们确实发现单独的进化是一个有趣的概念，但这对整体的进化是有害的。
 
 #### Environment 2 - The Cast-out Principle 
 
