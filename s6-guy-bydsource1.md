@@ -1575,259 +1575,275 @@ SE2:That they are more efficient at evolving by doing things as a whole.They did
 
 ME:O.K.,let's move on to the second environment that you created.What limitations did you put on the environment and its inhabitants? 
 
-我：
+我：好的，让我们继续看你创造的第二个环境。你对环境和它的居民有什么限制？
 
 SE2:In this instance I allowed them the opportunity to return to their source if they wished. They could/can also return to singularity if they wish/wished.In this they are similar to you but only in this instance.
 
-2号源实体：
+2号源实体：在这个例子中，我允许他们有机会回到他们的源头，如果他们愿意的话。他们也可以回到奇点，如果他们愿意的话。在这个例子中，他们和你相似，但只是在这个例子中。
 
 ME:How do you mean? 
 
-我：
+我你什么意思？
 
 SE2:They don't have free will like you do. 
 
-2号源实体：
+2号源实体：他们不像你有自由意志。
 
 ME:What other limitations do they have? 
 
-我：
+我：他们还有什么其他的限制吗？
 
 SE2:They are not omnipotent in their own environment like the entities in the first environment.They can create,and they can destroy,but they cannot manipulate their own environment in any way.Also they are limited to one dimension and one frequency,which is similar to you in your physical condition.A final limitation is that they have to work and exist as a multiple,that is,for every one of you,for instance,there are four to five of them. 
 
-2号源实体：
+2号源实体：他们在自己的环境中并不像第一种环境中的实体那样无所不能。他们可以创造，他们可以毁灭，但他们无法以任何方式操纵自己的环境。此外，他们被限制在一个维度和一个频率，这与你们的物理条件相似。最后一个限制是，他们必须以多重的形式工作和存在，也就是说，对于你们中的每一个人，举例来说，有4到5个他们。
 
 ME:But we can incarnate in up to twelve physical vehicles at the same time!(I had received this in a previous short meditation.It was another use of the number twelve). 
 
-我：
+我：但是我们可以同时化身在12种物质载体中！(这是我在之前的一次短暂冥想中得到的，这是12这个数字的另一种用法)。
 
 SE2:That is true in your case,but I have not worked in the same way as your Source Entity.Also,whereas you may incarnate in twelve separate vehicles in as many different dimensions or universes,they are restricted to being in the same universe and in the same locale.Even more restricting is the fact that they must work together to experience their experiences and work towards their evolution as a group,even though they are not what you would call a"group soul." 
 
-2号源实体：
-
-ME:So are they spread out into different civilizations:a group here,a group there,some populating a planet,some populating a galaxy.Does one group communicate with another group who has decided to exist in another neighboring planet,solar system or galaxy? 
-
-我：
+2号源实体：在你的情况中，这是真实的，但我没有以与你的源头实体相同的方式工作。此外，鉴于你可能在12个不同的维度或宇宙中投生，他们被限制在同一宇宙和同一地点。 更限制的是，他们必须一起工作来体验他们的经历，并朝着他们的进化作为一个团体而努力，即使他们不是你们所称的“集体灵魂”。
 
 SE2:A lot of questions in one sentence. 
 
-2号源实体：
+2号源实体：一句话里有很多问题。
 
 ME:Sorry. 
 
-我：
+我：对不起。
 
 SE2:First,let me give you a bit more of the picture in this environment.Although in the physical sense it is equivalent in volume to the first,it is not equivalent in dimensionality, which also affects the physical.Do I make sense here as this may seem like nonsense to you? 
 
-2号源实体：
+2号源实体：首先，让我给你们更多一点关于这个环境的图片。虽然在物理意义上它在体积上等于第一个，但它在维度上是不等的，这也影响了物理。我在这里讲得通吗？ 这对你来说可能看起来像胡说八道。
 
 ME:Carry on;I think I know what you mean. 
 
-我：
+我：继续说，我想我知道你的意思。
 
 SE2:You may,but I will explain for the wider audience.You are fortunate to have a multi-dimensional multiverse to work with;the beings in my second environment do not.As a result,they do not have access to the physical levels that are above the physical levels where you currently exist.Thus,in effect they are limited to the physicality of the environment they exist within.They cannot go above or below it.I know you can't go below the level that you are physically.You are at rock bottom,but you can go above.I will repeat,those in environment one can't do either.You are fortunate in this way. 
 
-2号源实体：
+2号源实体：你可以，但我还是要为广大观众解释一下。你们很幸运，可以使用多维宇宙，而第二种环境中的生物却没有。因此，他们无法进入你们目前所处的物理层级之上。因此，实际上他们被限制在他们所处环境的物理性质中。他们无法超越或低于这个水平。我知道你们无法低于你们的物理水平。你们处于最低点，但你们可以超越。我再重复一遍，这种环境中的生物两者都做不到。你们在这方面是幸运的。
 
 ME:So they are captive in a certain environmental existence-one that you have created,one that they must work with. 
 
-我：
+我：所以他们被困在某种环境中，一种你创造的，他们必须与之共存的环境。
 
 SE2:Yes,that's the deal. 
 
-2号源实体：
+2号源实体：是的，就是这样。
 
 ME:O.K.,let's move on.Can I get back to what they have achieved as a civilization? 
 
-我：
+我：好的，我们继续。我能回到他们作为一个文明所取得的成就吗？
 
 SE2:Of course.You have to recognize though that the clues that you use in your physical existence to define a civilization and what it needs to do to be,is entirely different to what this race would consider civilization. 
 
-2号源实体：
+2号源实体：当然，你必须认识到，你在你的物质存在中所使用的线索，用来定义一个文明，以及它需要做什么，与这个种族所认为的文明完全不同。
 
 ME:How do you mean? 
 
-我：
+我：你什么意思？
 
 SE2:You may consider some of the actions they take to be that of an underdeveloped world. 
 
-2号源实体：
+2号源实体：你可能会认为他们采取的一些行动是落后世界的做法。
 
 ME:Are you trying to tell me that they are savages? 
 
-我：
+我：你是想告诉我他们是野蛮人吗？
+
+ME:So are they spread out into different civilizations:a group here,a group there,some populating a planet,some populating a galaxy.Does one group communicate with another group who has decided to exist in another neighboring planet,solar system or galaxy? 
+
+我：所以他们分散到不同的文明中：一个群体在这里，一个群体在那里，一些人居住在一个行星上，一些人居住在银河系里。一个群体与另一个决定生活在邻近的行星、太阳系或银河系的群体有交流吗？
 
 SE2:No they are not,at least not in the sense that you think.You see,their civilization is very, very basic.They are limited to a level of frequency that you would call energetic,but they would consider it physical. 
 
-2号源实体：
+2号源实体：不，他们不是，至少不是你所想的那种。你看，他们的文明非常非常基础。他们被限制在一个频率的水平上，你们会称之为有活力的，但他们会认为它是物理的。
 
 ME:Why would they consider it physical if we consider it energetic?
 
-我：
+我：为什么他们认为它是身体的，如果我们认为它是能量的？
 
 SE2:Because they have adopted a form that is impervious to them-that is,they can feel total resistance to their surroundings,themselves,and between themselves.I can see that you are frowning;you are thinking that this means that they are no different than you in your environment,am I correct? 
 
-2号源实体：
+2号源实体：因为他们采取了一种对他们来说是无懈可击的形式，也就是说，他们能感觉到对周围环境、他们自己以及他们之间的完全的抵抗。我能看到你在皱眉；你在想这意味着他们和你所处的环境没有什么不同，我说的对吗？
 
 ME:You are correct.I would have thought that they would need to be incarnate to be "physical." 
 
-我：
+我：你说得对，我以为他们需要转世来“有形”。
 
 SE2:Physicality is an expectation that you have that is based upon your current level of experience.You have a similar level of expectation for the registration and recognition of events that are individual and personal to the entity and its surroundings.You call it "time." Know this:everything in this second environment is energetic but has what you would call a "physical"aspect to it.This is not to say that these entities are subject to the same levels of limitation that you are;they are not.They can create structures in/on the areas that they focus on-that is,where in their universe they tend to be or like to be when they are together in groups made up of groups where they experience existence.Remember that is multiples of the groups of four or five that they are part of in their sphere of evolution and experience. They can use these structures for recreation,learning,or sharing of experiences.The area where you may call them uncivilized comes into play when one or two of the group,or even a whole group,are not progressing.In this instance,they are "cast outside"the group or groups that are at the same evolutionary or experience level.They are cast out to fend for themselves;they are not let back into the group or groups. 
 
-2号源实体：
+2号源实体：物理性是你基于你当前经验水平的一种期望。你对个体和个人的实体及其周围环境的事件的登记和识别有类似的期望水平。你称之为“时间”。要知道：第二环境中的一切都是有活力的，但有你所说的“物理”方面。这并不是说这些实体受到你同样水平的限制；它们不是。它们可以在它们关注的领域中创造结构——也就是说，在它们的宇宙中，当它们在由它们体验存在的团体组成的团体中在一起时，它们倾向于或喜欢在那里。记住，在它们的进化和经验领域中，它们是四或五个团体的倍数。它们可以利用这些结构进行娱乐、学习或分享经验。当团体中的一个或两个人，甚至整个团体没有进步时，你可能会称它们为不文明的地区开始发挥作用。在这种情况下，它们被“抛弃”在同一个进化或经验水平的团体或团体之外。他们被抛弃，只能自谋生路；他们不会被重新接纳到这个团体或团体中。
 
 ME:You say they are cast out!Is this forever? 
 
-我：
+我：你说他们被驱逐了！这是永远的吗？
 
 SE2:Yes,it is.Although they may form groups that are made up of other cast-outs.
 
-2号源实体：
+2号源实体：是的，是这样的。尽管他们可能会组成由其他被抛弃的人组成的团体。
 
 ME:Hold on.I have just got agrip on what you are saying here.You have entities that are cast out of their prime evolutionary environment simply because they are not considered to be progressing as well as some or all the others within a group.Is this correct? 
 
-我：
+我：等一下。我刚刚明白你的意思。你有一些实体被排除在它们主要的进化环境之外，仅仅因为它们被认为没有像群体中其他一些或所有其他人一样进步。这对吗？
 
 SE2:Yes. 
 
-2号源实体：
+2号源实体：是的。
 
 ME:That's not very spiritual,is it?I mean it's not very loving!It's not loving the entities that you have created.In fact,from where I am sitting,it looks and feels very draconian to me. 
 
-我：
+我：这不是很灵性，是吗？我的意思是这不是很爱！这不是爱你所创造的实体。事实上，从我坐的地方，它看起来和感觉对我来说非常严酷。
 
 SE:This is one of the things that you will have to get used to when dealing with the other Source Entities.That is,they may and will use very different methods of progression and evolution than those which you are experiencing in my environment. 
 
-源实体：
+源实体：这是你在与其他源实体打交道时必须习惯的一点，也就是说，他们可能并且将会使用与你在我的环境中所经历的完全不同的进程和进化方法。
 
 ME:O.K.,sorry.I was expecting to see everything that comes from the Origin as being in love and light and full of fluffy pink bunnies. 
 
-我：
+我：好吧，抱歉。我原以为从起源处来的一切都是充满爱和光明，还有满是毛茸茸的粉色兔子。
 
-SE2:I see where you are coming from now.Do you want me to filter my communication with you and only give you that which falls within the category that you expect? ME:No,no.That would not give the correct picture to the seekers of true truth. SE2:O.K.,let me explain this "casting out"process in a different way as I can see that this has disturbed you significantly. 
+SE2:I see where you are coming from now.Do you want me to filter my communication with you and only give you that which falls within the category that you expect? 
 
-2号源实体：
+2号源实体：我明白你现在从哪里来。你想要我过滤我与你的沟通，只给你你期望的类别中的东西吗？ 
+
+ME:No,no.That would not give the correct picture to the seekers of true truth. 
+
+我：不，不。那不会给真理的追求者正确的画面。
+
+SE2:O.K.,let me explain this "casting out"process in a different way as I can see that this has disturbed you significantly. 
+
+2号源实体：好的，让我用不同的方式解释这个“铸造”过程，因为我可以看到这已经严重地打扰了你。
 
 ME:Go ahead. 
 
-我：
+我：说吧。
 
 SE2:Perhaps you have read something into the use of the word "cast out"that is not intentional. 
 
-2号源实体：
+2号源实体：也许你对“驱逐”这个词的用法有误解。
 
 ME:Possibly,you do have to work with my very limited communication abilities.
 
-我：
+我：可能吧，你得和我有限的沟通能力一起工作。
 
 SE2:Yes,I am finding it a challenge.Nevertheless,I will continue with my communication with you.Those entities that are cast out leave the group both at the request of the group and under their own volition.Both the group and the entity not progressing realize that the best thing for both parties is to become separate.This allows them both to progress at their own rate.It is a most efficient method.You must understand this in a different way; in your multiverse,you are singular in your evolution.You both succeed and are succeeded by entities that are slower and faster than you in your evolutionary progression.Your evolution is personal.You wish well of those who you pass and offer good luck to those who pass you.This is the way of your multiverse.It is similar in mine,only the entities in this particular environment operate in groups.Let me make something else also clear.The "cast out"process is also used on those entities that appear to outgrow their group.This is done so that they can find a group that is similar in progression to their own although as you can imagine,this is a rarer occurrence since the main reason for being in the group is to progress as a group and not as a singular entity. 
 
-2号源实体：
+2号源实体：是的，我发现这是一个挑战。尽管如此，我将继续与你交流。那些被驱逐的实体离开群体，既是应群体的要求，也是出于他们自己的意愿。群体和没有进步的实体都意识到，对双方来说最好的事情就是分开。这让他们都能以自己的速度前进。这是一个最有效的方法。你必须以不同的方式理解这一点；在你的多维宇宙中，你在进化中是单一的。在你的进化进程中，你既成功了，也被比你慢和快的实体所取代。你的进化是个人的。你祝福那些你经过的人，并向那些经过你的人提供好运。这就是你的多维宇宙的方式。在我的多维宇宙中也是类似的，只是在这个特定的环境中，实体以群体的形式运作。让我把其他事情也弄清楚。“驱逐”过程也用于那些似乎超越了群体的实体。这样做是为了让他们能够找到一个与自己进展相似的小组，尽管你可以想象，这是一种罕见的现象，因为加入小组的主要原因是作为一个小组而不是一个单独的实体。
 
 ME:You said that they were cast out forever.What do you mean by this statement then? 
 
-我：
+我：你说他们被永远驱逐了。那么你这句话是什么意思呢？
 
 SE2:They will never be able to return to the group that they have left,for the group has either outgrown them,or they have outgrown the group. 
 
-2号源实体：
+2号源实体：他们再也回不到他们离开的那个群体了，因为那个群体要么已经超越了他们，要么他们已经超越了那个群体。
 
 In the instance that they have out grown the group,they have a limited opportunity for further progression in the short term since one of the first things they have to do is find a new group,which as I stated earlier is hard to do because they are far and few between. They cannot progress without a group,so they must spend the rest of their time as cast outs looking for a group that is in a similar level of progression to them.Once they have established a group that fits the bill,they have to negotiate to be allowed to enter the group. 
 
+在这种情况下，他们已经超过了群体，他们在短期内进一步发展的机会有限，因为他们必须做的第一件事之一是找到一个新的群体，正如我之前所说的，这是很难做到的，因为他们之间距离很远。他们没有一个群体就无法进步，所以他们必须把剩下的时间花在寻找一个与他们进展水平相似的群体上。一旦他们建立了一个符合要求的群体，他们必须谈判才能被允许进入该群体。
+
 ME:Why do they have to negotiate? 
 
-我：
+我：为什么他们必须谈判？
 
 SE2:Because in some instances they may actually reduce the progression level of the group they are joining in some small way,or they may actually increase the progression. As you can imagine,finding a group that is exactly the same in terms of their "individual progression level"as a cast out is difficult.In terms of an entity that is cast out because of lack of progression,finding a new group to work with is probably harder,especially if the entity is very slow in progression.In this instance the entity can wander the environment "group less"for millennia (in your terms).The best opportunity in this instance is creating a new group by working with other entities in a similar position.However,as previously noted,there will be a level of negotiation that goes on here as well,as one of the entities will undoubtedly be a faster "progressor"than the other,even if the progression is very minor in comparison.Joining together these two temporarily singular entities will result in one of them reducing its progression level to a point that is the mean of the two entities. This means that the lower level entity benefits in the collaboration as its level will increase creating a level of dependency between the two.Hence,the correct and formal formation of a new and recognizable group,a group of two,one that will attract other singular entities and,therefore,grow to the optimal size for the group's opportunity to progress in its evolution.So as you can see,being outcast is not such a big issue.It is a natural process of group evolution,one that is standard within this environment. 
 
-2号源实体：
+2号源实体：因为在某些情况下，他们可能会以某种小的方式降低他们加入的团体的进程水平，或者他们可能会增加进程。正如你所能想象的，找到一个在“个人进程水平”方面与被驱逐者完全相同的团体是困难的。就因为缺乏进程而被驱逐的实体而言，找到一个新的团体来合作可能是更困难的，特别是如果实体的进程非常缓慢。在这种情况下，实体可以在环境中“少团体”徘徊千年（用你们的话来说）.在这种情况下，最好的机会是通过与其他处于类似位置的实体合作来创建一个新团体。然而，正如前面提到的，这里也会有一定程度的协商，因为其中一个实体无疑将比另一个更快的“进步者”，即使相比之下进程是非常小的。将这两个暂时单一的实体结合在一起，将导致其中一个实体将其进程水平降低到两个实体的平均水平。这意味着低层次的实体在合作中受益，因为它的层次会增加，在两者之间创造一种依赖程度。因此，一个新的和可识别的群体的正确和正式的形成，一个由两个人的群体，一个将吸引其他单一实体的群体，因此，增长到该群体在进化中进步的机会的最优规模。所以，正如你所看到的，被排斥并不是一个大问题。这是群体进化的自然过程，在这个环境中是标准的。
 
 ME:A few moments ago in this dialogue you mentioned groups of groups.Does this mean that groups can get together for evolutionary purposes?
 
-我：
+我：在刚才的对话中，你提到了群体的群体。这是否意味着群体可以为了进化的目的而聚集在一起？
 
 SE2:Yes,of course.This is one of the primary functions of progression.Groups of similar progression levels can cluster together in just the same way as single entities cluster together to form a single group.This allows them to both share group evolutionary experiences and to work on opportunities that present themselves by allowing intergroup dynamics to take place. 
 
-2号源实体：
+2号源实体：当然。这是进程的主要功能之一。具有相似进程水平的群体可以聚集在一起，就像单个实体聚集在一起形成一个单一的群体一样。这使得他们既可以分享群体进化经验，又可以通过允许群体间动态发生来抓住机会。
 
 ME:What kind of intergroup dynamics? 
 
-我：
+我：什么样的群体间动态？
 
 SE2:There are three main types of inter-group dynamics.The first type is the interaction as groups between groups with the groups working and acting as if they are one entity,which is,indeed,what they should be.The second type is two or more groups working together by allowing the single entities that make up the groups to move from one group to another at will.The groups appear to merge at the point of interaction,and doubling or trebling in size is observed whilst the dynamic is being worked on.This allows a sharing of individual experience outside the entities'normal group.The third interaction is a mixture of the two mentioned above.That is,three,four,or more groups interact both on a group basis and an individual entity basis together with the single entities moving between one or more groups outside their own main group on a regular basis.In this last interaction,a lot of evolutionary opportunities can be progressed as all the groups seem to lose their individual group identity at one point or another with completely new groups being formed at times.In this instance,both group and individual entity interaction within different group interactions happen all at the same time,which gives the visual appearance of an undulating mass of entity movement resulting in the form and the formless,the timed and the timeless, the frequency and frequency-less,the dimension and dimensionless intermingling and entwining.It is beautiful to watch. 
 
-2号源实体：
+2号源实体：主要有三种类型的群体间动态。第一种类型是群体之间的互动，这些群体工作和行动，就像它们是一个实体，事实上，它们应该是什么。第二种类型是两个或更多的群体一起工作，通过允许组成群体的单个实体随意从一个群体移动到另一个群体。这些群体似乎在互动点上合并，并且在动态工作时，观察到规模翻倍或三倍。在这种情况下，群体和个体实体的互动以及不同群体互动都同时发生，给人一种实体运动的波浪状视觉效果，从而导致有形和无形、有时间和无时间、有频率和无频率、有维度和无维度的交织和交错。 这是一种美丽的视觉效果。
 
 ME:It strikes me that what you have just described could also be used to described what happens on our planet,Earth,as we have interaction between individuals,families,local communities, countries,and civilizations,together with migration between them all. 
 
-我：
+我：你刚才所描述的让我想到，也可以用来描述在我们的星球上发生的事情，因为我们有个人、家庭、地方社区、国家和文明之间的互动，以及它们之间的迁移。
 
 SE2:To some extent,yes,but in comparison to my group interaction and dynamics,your communities,countries,civilizations,etc.,are one-dimensional(1D). 
 
-2号源实体：
+2号源实体：某种程度上是的，但是和我的群体互动和动态相比，你们的社区、国家、文明等等，都是一维的。
 
 ME:But we are three-dimensional. 
 
-我：
+我：但是我们是三维的。
 
 SE2:Yes,but you would appear one-dimensional comparatively speaking. 
 
-2号源实体：
+2号源实体：是的，但是相对来说，你显得单调了。
 
 ME:What do you mean one-dimensional? 
 
-我：
+我：一维是什么意思？
 
 SE2:As they are at a different base dimension and frequency to you,they are naturally more expansive even though they have physicality between themselves.So,by referring to you (the human race)as being one-dimensional,I am trying to illustrate your limitations in comparison to theirs.For example,if they were to present themselves into your universe, galaxy,dimension,and frequency,you would not be able to detect them even with your sensing machines because your machines are not calibrated to sense the essence of their physicality,which to you is not physical. 
 
-2号源实体：
+2号源实体：因为他们在你们不同的基本维度和频率，所以他们自然更扩展，即使他们之间有物质性。所以，通过把你们（人类）称为一维，我试图说明你们与他们的比较的局限性。例如，如果他们进入你们的宇宙、银河系、维度和频率，你们甚至不能用你们的感应器探测到他们，因为你们的感应器没有校准来感应他们的物质性本质，而这对你们来说不是物质的。
 
 #### Environment 3 - An Environment for Change 
 
+**一个变化的环境**
+
 ME:I would like to talk about the third environment you have created.How is this different than the first two?
 
-我：
+我：我想谈谈你所创造的第三个环境。它与前两个有什么不同？
 
 SE2:Environment 1 is closed to all but those entities that exist within it.As previously stated,they have the same abilities("power"if you want to call it that)as I do.They cannot return to their Source,me. 
 
-2号源实体：
+2号源实体：环境1对所有实体关闭，除了那些存在于其中的实体。如前所述，他们拥有和我一样的能力（如果你想称之为“力量”的话）。他们不能回到他们的源头，我。
 
 Environment 2 has one dimension and one frequency,and although the entities can return to me at any time,they must work and evolve in groups or groups of groups.They exist in a finer density than humankind. 
 
+环境2只有一个维度和一个频率，虽然实体可以随时回到我身边，但它们必须成群或成群成群地工作和进化。它们的密度比人类要高。
+
 Environment 3 is different again.It is what you call "fluidic"in nature. 
+
+环境3又不一样了。它本质上就是你们所说的“流体”。
 
 ME:You mean it's full of water or a liquid of some sort? 
 
-我：
+我：你是说它充满了水或某种液体？
 
 SE2:No,no.By fluidic I mean that it is constantly changing. 
 
-2号源实体：
+2号源实体：不，不。我的意思是它在不断变化。
 
 ME:In what way does it constantly change?Is it in dimension?Is it in frequency?Is it in physicality? 
 
-我：
+我：它以什么方式不断变化？是在维度上吗？是在频率上吗？是在物质性上吗？
 
 SE2:Nearly,in fact,it changes in a way that you will have difficulty understanding. 
 
-2号源实体：
+2号源实体：差不多，事实上，它改变的方式会让你很难理解。
 
 ME:Try me. 
 
-我：
+我：试试我。
 
 SE2:O.K.It changes in rotational attractivity.I can see that you are frowning again. 
 
-2号源实体：
+2号源实体：好的，它在旋转吸引力中改变。我能看到你又皱眉了。
 
 ME:I am a bit as I am trying to work out what that may mean.Can you describe it in layman's terms,please? 
 
-我：
+我：我有点儿困惑，因为我正在试图弄明白那可能意味着什么。你能用外行人的话来描述一下吗？
 
 SE2:Everything in this environment has a force that I call "rotational attractivity;"you might call it gravity,but it is not.In this instance,rotational attractivity is the random function that occurs in this environment that causes an entity to slip uncontrollably from one dimension or frequency to another at a specific point in its existence as a result of its natural attractivity to that dimension or frequency.By rotational attractivity,I mean that the dimensions above and below the position of the entity concerned have a rotational component that is peculiar to a certain frequency or dimension.You might call it the "speed of the energetic components"that makeup the entity. 
 
-2号源实体：
+2号源实体：在这个例子中，旋转吸引力是发生在这个环境中的随机作用，它导致一个实体在存在中的一个特定点上，由于它对那个维度或频率的自然吸引力，不受控制地从一个维度或频率滑到另一个维度或频率。通过旋转吸引力，我的意思是，有关实体位置的上下维度有一个旋转分量，这是特定频率或维度所特有的。你可能会称它为组成实体的“能量分量的速度”。
 
 ME:How can rotation be described as speed? 
 
