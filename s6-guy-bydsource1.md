@@ -1281,7 +1281,7 @@ ME:Can you explain what the abilities and components were that you removed?No,te
 
 SE2:As just stated,the first environment contained every attribute that I was given by the Origin.Everything was within the environment right down to the lowest dimension and frequency.Additionally,the entities that I created were direct copies of me,only smaller in what you would call volume.They were constrained,however,in one way:they could only exist within the environment that I created.That is,they could not return to the Source,me, as you can with your own Source Entity. 
 
-2号源实体：正如刚才所说，第一个环境包含了源头给予我的每个属性。环境中的一切，包括最低维度和频率，都在这个环境中。此外，我创造的实体都是我的直接复制品，只是体积小一些。它们受到了限制，不过，只有一种限制：它们只能存在于我创造的环境中。也就是说，它们不能回到源头，回到我，就像你们可以回到自己的源头实体一样。
+2号源实体：正如刚才所说，第一个环境包含了源头给予我的每个属性。环境中的一切，包括最低维度和频率，都在这个环境中。此外，我创造的实体都是我的直接复制品，只是体积小一些。它们受到了限制，不过，只有一种限制：它们只能存在于我创造的环境中。也就是说，它们不能回到源头，回到我，就像你们可以回到自己的源实体一样。
 
 ME:Why did you do that?What would be the point of it? 
 
@@ -1603,7 +1603,7 @@ ME:But we can incarnate in up to twelve physical vehicles at the same time!(I ha
 
 SE2:That is true in your case,but I have not worked in the same way as your Source Entity.Also,whereas you may incarnate in twelve separate vehicles in as many different dimensions or universes,they are restricted to being in the same universe and in the same locale.Even more restricting is the fact that they must work together to experience their experiences and work towards their evolution as a group,even though they are not what you would call a"group soul." 
 
-2号源实体：在你的情况中，这是真实的，但我没有以与你的源头实体相同的方式工作。此外，鉴于你可能在12个不同的维度或宇宙中投生，他们被限制在同一宇宙和同一地点。 更限制的是，他们必须一起工作来体验他们的经历，并朝着他们的进化作为一个团体而努力，即使他们不是你们所称的“集体灵魂”。
+2号源实体：在你的情况中，这是真实的，但我没有以与你的源实体相同的方式工作。此外，鉴于你可能在12个不同的维度或宇宙中投生，他们被限制在同一宇宙和同一地点。 更限制的是，他们必须一起工作来体验他们的经历，并朝着他们的进化作为一个团体而努力，即使他们不是你们所称的“集体灵魂”。
 
 SE2:A lot of questions in one sentence. 
 
@@ -1847,99 +1847,99 @@ SE2:Everything in this environment has a force that I call "rotational attractiv
 
 ME:How can rotation be described as speed? 
 
-我：
+我：旋转怎么能被描述为速度？
 
 SE2:The associated energetic components move about and around each other.In some instances the configuration of these energies matches another environmental condition better than its current one so it is,therefore,attracted to it.If the level of attraction is compatible with enough of the energetic components of the entity concerned,it modifies the remaining components and slips into the next dimensional/frequency-based environment,that is,the one that it has been attracted to. 
 
-2号源实体：
+2号源实体：相关联的能量组件相互移动和围绕。在某些情况下，这些能量的配置比当前的环境条件更适合另一个环境条件，因此，它被吸引到那里。如果吸引的程度与有关实体的能量组件足够兼容，它会修改剩余的组件并滑入下一个维度/基于频率的环境，也就是它被吸引到的环境。
 
 ME:That must be a very difficult way to live. 
 
-我：
+我：那一定是一种非常艰难的生活方式。
 
 SE2:Why? 
 
-2号源实体：
+2号源实体：为什么？
 
 ME:Because the entity that slips from one,shallI say"rotational environment"to another would have to start all over again every time it changes environments. 
 
-我：
+我：因为实体从一个我应该说“旋转环境”到另一个，每次它改变环境时都必须重新开始。
 
 SE2:You are thinking in terms of your own dimension and frequency again.The entities that exist in the third environment know when they are close to being moved from one type of rotational environment to another.As a result they prepare themselves for the change and work out/clear up all that they have started in their current environment.What's more, as they become more and more aligned to their next rotational existence,they get a feel of what limitations or abilities they will have.As a result and to a certain degree,they can plan ahead what they can achieve evolution-wise before they make the change. 
 
-2号源实体：
+2号源实体：你又在考虑你自己的维度和频率。存在于第三个环境中的实体知道，当他们接近于从一种类型的旋转环境转移到另一种类型时。结果，他们为改变做准备，并解决/清理他们在当前环境中开始的所有事情。更重要的是，当他们变得越来越与下一个旋转存在一致时，他们会感觉到他们将拥有什么限制或能力。结果，在某种程度上，他们可以在做出改变之前提前计划他们可以进化地实现什么。
 
 ME:But it must be like moving and losing all of your possessions,your job,and your house at the same time on a frequent basis. 
 
-我：
+我：但是那一定就像经常搬家，同时失去你所有的财产，工作和房子。
 
 SE2:Not quite,for these entities don't need to work to sustain themselves.They don't need to buy food or clothing or shelter of any sort.They exist in an ever-changing environment and,as a result,they need to be independent of such restrictions. 
 
-2号源实体：
+2号源实体：不完全是，因为这些实体不需要工作来维持自己。他们不需要买食物或衣服或任何形式的住所。他们存在于一个不断变化的环境中，因此，他们需要独立于这些限制。
 
 ME:So do they work by themselves,or do they work in groups like the entities in the second environment? 
 
-我：
+我：那么他们是自己工作，还是像第二个环境中的实体一样在群体中工作？
 
 SE2:They work on themselves for themselves,but they can and do work together with other entities for mutual advancement if they so desire.But of course,this generally only lasts for the duration that either one of them is in that rotational environment. 
 
-2号源实体：
+2号源实体：他们为自己而工作，但如果他们愿意，他们可以并确实与其他实体一起工作以实现共同进步。但当然，这通常只持续他们中的任何一方处于那个旋转环境中的时间。
 
 ME:Can one entity follow another entity to another rotational environment? 
 
-我：
+我：一个实体可以跟随另一个实体到另一个旋转环境吗？
 
 SE2:No,not willingly,but they can continue to work together if they detect each other later. As you can imagine,the chances of this happening is limited. 
 
-2号源实体：
+2号源实体：不，不愿意，但是如果他们后来发现了对方，他们可以继续合作。正如你所能想象的，这种情况发生的可能性很有限。
 
 ME:But not impossible I take it. 
 
-我：
+我：但也不是不可能。
 
 SE2:No it is not impossible,but it is unlikely,especially since most of the entities plan a piece of work that is generally small enough to be contained in the shortest of existences within their current rotational environment. 
 
-2号源实体：
+2号源实体：不，这不是不可能，但不太可能，特别是因为大多数实体计划的一件工作通常小到足以包含在当前旋转环境中最短的存在中。
 
 ME:So how would an entity know how long it has and how would it know if another entity had enough time left in their environment to make a partnership work and work to a successful conclusion? 
 
-我：
+我：那么一个实体如何知道它还有多久，它如何知道另一个实体在他们的环境中还有足够的时间来让合作工作，并取得成功？
 
 SE2:Each entity has an energetic signature that is relevant to its current rotational environment and the one that it will be slipping into.Consider it like an hour glass with sand running from one side of the glass bubble to the other through the small piece of glass that connects them.The top side of the glass is where they are now and the bottom side is where they are being attracted to next.It is this signature that every entity can sense in terms of the current rotational environment;it's just that they can't tell where their next environment will be. 
 
-2号源实体：
+2号源实体：每个实体都有一个能量特征，与它当前的旋转环境和它将要滑入的环境相关。把它想象成一个沙漏，沙子通过连接它们的玻璃片从玻璃泡的一边流到另一边。玻璃的顶部是它们现在所在的地方，底部是它们将要被吸引到的地方。这就是每个实体根据当前旋转环境可以感知的特征；只是它们不知道下一个环境会在哪里。
 
 ME:So if I was an entity in this environment,how would I sense the longevity of the entity next to me. 
 
-我：
+我：如果我是这个环境中的实体，我怎么能感觉到我旁边实体的寿命？
 
 SE2:You would just know.I can see that statement is not enough for you. 
 
-2号源实体：
+2号源实体：你就会知道了。我看得出那个声明对你来说是不够的。
 
 ME:No.You mentioned the hour glass as an example,but this was an example of an energetic signature.An entity must have some sort of representation,for instance,visual that makes fast recognition of longevity. 
 
-我：
+我：不。你提到了时钟作为一个例子，但这是一个能量签名的例子。一个实体必须有某种表示，例如，视觉上的，可以快速识别寿命。
 
 SE2:Yes,there is.The best way to describe it in terms that you can understand in the physical is to say that they have a color associated with the length of time they have left in their current environment.Of course,there are a lot more colors available than those in your visible spectrum,but a good facsimile would be the change in color from the infrared to the ultraviolet.As an accurate example,it is inadequate but will do for now. 
 
-2号源实体：
+2号源实体：是的，有。用你们能理解的物理术语来描述它的最好方法是说它们有一个颜色，这个颜色与它们在当前环境中所剩时间的长短有关。当然，比起你们的可见光谱，还有更多的颜色可供选择，但一个好的传真就是从红外到紫外线颜色的变化。作为一个精确的例子，它并不充分，但现在可以了。
 
 ME:Simplistically speaking then,they change from red to blue,or from white to black.
 
-我：
+我：那么简单地说，它们从红变蓝，或者从白变黑。
 
 SE2:If this helps you understand,then that will do. 
 
-2号源实体：
+2号源实体：如果这能帮助你理解，那就行了。
 
 ME:What do the entities in Environment 3 work on to help them evolve,and do they have enough of them grouped together to create a civilization? 
 
-我：
+我：环境3中的实体是如何帮助他们进化的，他们有足够的实体聚集在一起来创造一个文明吗？
 
 SE2:I can see that you are enthralled with the need to be civilized in a way that you can recognize in the physical.No,don't answer.It is written all over your face,so to speak.I am told by your Source Entity that this is a common desire,one that you all have difficulty moving away from. 
 
-2号源实体：
+2号源实体：我能看到你被一种你在物质世界里能认出的文明化的需求所迷惑，不，不要回答，这可以说写在你脸上，你们的源实体告诉我这是一个共同的愿望，一个你们都难以摆脱的愿望。
 
 Mmm,I will have to enlighten you in the simple general rules that I ask my creations to work within: 
 
@@ -1950,365 +1950,394 @@ Mmm,I will have to enlighten you in the simple general rules that I ask my creat
 - Do not intentionally harm another. 
 - It is the quality of experience that counts,not how fast you experience the experience. 
 
+嗯，我将告诉你一些我要求我的创造物遵守的简单规则：
+
+- 通过实验和经验进化
+- 必要时一起工作
+- 不要创造任何可能对自己或他人有害的东西
+- 提供服务(你也需要遵守这个规则)
+- 不要故意伤害别人
+- 重要的是体验的质量，而不是你体验得有多快
+
 ME:That last rule is a really good one.It is one that we should adopt in our physical existence. 
 
-我：
+我：最后一个规则真的很好。这是我们应该在我们的物理存在中采用的一个规则。
 
 SE2:If you could all embrace it,you would all benefit greatly.But,let's get back to answering your questions. 
 
-2号源实体：
+2号源实体：如果你们都能接受它，你们都会受益匪浅。但是，让我们回到回答你们的问题上来。
 
 My creations in the third environment are independent of the need to coalesce to exist, purely because they are not located in one place only.As with all of my creations in all of my environments,they are creatures of the universe they exist within and as such have access to all of it without exception.The only limitations they have in this sense are those that they place on themselves as part of their evolutionary plans.If enough of them are in a specific environment long enough to find that their working together in a large group is to the advantage of all,then they will group together;otherwise,they will limit their interaction to ones or twos.There will never be a group large enough to create a civilization in the sense that you know,for it is not a requirement for evolution as it is with you.In terms of what they work on,you would not understand most of it.Suffice to say,they experience things that can only be experienced by continuous change of environment and the level of attractivity it has with them. 
 
+我第三种环境中的创造物独立于需要联合而存在，纯粹是因为它们不仅仅存在于一个地方。 和我所有环境中的所有创造物一样，它们是它们所存在的宇宙的创造物，因此可以无一例外地接触到宇宙的一切。在这个意义上，它们唯一的限制是它们作为进化计划的一部分而加诸于自身的。如果在一个特定的环境中，有足够多的创造物长时间地发现，它们在一个大群体中合作对所有创造物都有好处，那么它们就会聚集在一起；否则，它们会将它们的互动限制在一两个之间。永远不会有一个群体大到足以创造出你所知道的那种文明，因为这不是进化的要求，就像你一样。就它们所从事的工作而言，你不会理解其中的大部分。可以这么说，它们经历的事情只能通过不断改变环境和它对它们的吸引力来经历。
+
 #### Environment 4-An Environment Aware of Its Own Existence 
+
+**环境4：一个觉察到自己存在的环境**
 
 ME:O.K.,tell me about the fourth and final environment that you created.What limitations did you put on this universe? 
 
-我：
+我：好吧，跟我说说你创造的第4个也是最后一个环境。你在这个宇宙中设置了什么限制？
 
 SE2:The fourth environment was given the opportunity to evolve on its own.That is,I did not personally create any entities specifically to exist within this environment,which is,of course,a different strategy than the one used in the creation of the other environments. 
 
-2号源实体：
+2号源实体：第4种环境被赋予了自我进化的机会。也就是说，我没有亲自创造任何在这个环境中存在的实体，这当然是一种不同于在其他环境中所使用的创造策略。
 
 ME:Hang on.Are you saying that the environment evolved on its own and created its own entities? 
 
-我：
+我：等等，你是说环境自己进化并创造了自己的实体？
 
 SE2:In a word,yes,although that is not specifically how it happened.The environment itself was created and given the opportunity to become aware on its own in its own time,so to speak.It was,in essence,like me:energy given sentience/individuality whereas the other environments are just that,environments with no sentience.The sentience is given to the entities I created specifically to exist within that environment.Environment 4 was given the gift of individuality and the opportunity to evolve in its own right. 
 
-2号源实体：
+2号源实体：总而言之，是的，尽管这并不是具体发生的。环境本身被创造出来，并被赋予了在自己的时间里自我意识的机会，可以说。本质上，它就像我：被赋予了感知/个性的能量，而其他环境只是没有感知的环境。感知被赋予了我创造出来专门存在于那个环境中的实体。环境被赋予了个性的礼物，并被赋予了以自己的方式进化的机会。
 
 ME:I'm getting the impression that you copied,for want of a better word,the Origin in this instance.The Origin gave the twelve Source Entities,you,part of its volume to give you individuality and an opportunity to evolve in your own way.In Environment 4's case,you gave it the same opportunity that the Origin gave to you,some of your own volume and the means to become aware of self and,therefore,gain a level of sentience. 
 
-我：
+我：我得到的印象是，你复制了，因为找不到更好的词，在这个例子中的“起源”。起源给了12个源实体，你们，它的一部分体积，给你们个性和一个机会，以你们自己的方式进化。在环境4的例子中，你给了它同样的机会，起源给了你，一些你自己的体积和方法，变得有自我意识，因此，获得一个层次的感知。
 
 SE2:Correct.It is a very interesting project and one that has borne much fruit from an evolutionary perspective. 
 
-2号源实体：
+2号源实体：正确。这是一个非常有趣的项目，从进化的角度来看，它已经结出了许多果实。
 
 ME:So how did you advise Environment 4 on its task in existence? 
 
-我：
+我：那么你对环境4的现有任务有什么建议吗？
 
 SE2:The same way the Origin gave me my set of rules to work within.In fact,they are identical.This was the best way to proceed in this instance. 
 
-2号源实体：
+2号源实体：同样的，起源给了我一套规则，我可以按照它来工作。事实上，它们是完全相同的。在这种情况下，这是最好的办法。
 
 ME:How long did it take Environment 4 to gain awareness? 
 
-我：
+我：环境4号花了多长时间才获得关注？
 
 SE2:You are always referring to time;your Source Entity warned me about this trait and said that it is one of your biggest limitations. 
 
-2号源实体：
+2号源实体：你总是提到时间；你的源实体警告过我这个特点，说这是你最大的限制之一。
 
 ME:Sorry,but it is one of the methods that humankind in my Source Entities'multiverse uses to differentiate between the advent of an number of events and their relationship to each other.It is also a datum that the readers of this text will use as a tool to try to understand the details of what we are discussing.
 
-我：
+我：抱歉，但是这是我源实体的多维宇宙中人类用来区分一系列事件的到来和它们之间的关系的方法之一，这也是这篇文章的读者将用作试图理解我们正在讨论的细节的工具的一个数据。
 
 SE2:If it makes things easy for you,then I will use it although time is a non-concept.It means nothing. 
 
-2号源实体：
+2号源实体：如果这样能让你轻松点，那我就用它，虽然时间是个无意义的概念。它什么都不是。
 
 ME:O.K.,I understand. 
 
-我：
+我：好的，我明白了。
 
 SE2:Yes,I believe you do at a deep down fundamental level-the level that is the real you, the energetic you,so let's move on.In creating Environment 4 in this way,I gave it essence of"me."In some respects,this helped it on its way to awareness.As a result it established its awareness quite quickly.In your metric of time,this would be about a billion years.I also noticed that the awareness coalesced in one area of denser energy where the energy distribution of the environment was irregular or uneven.In fact,the environment became aware in a type of energy that was similar in make-up. 
 
-2号源实体：
+2号源实体：是的，我相信你在最深层的层面上是这样做的-这个层面就是真实的你，充满活力的你，所以让我们继续。以这种方式创造环境4，我赋予它“我”的本质。在某些方面，这有助于它在通往意识的道路上前进。结果它很快就建立了意识。以你们的时间度量衡，这大约是10亿年。我也注意到意识集中在一个能量密度较高的区域，那里环境的能量分布是不规则或不均匀的。事实上，环境在一种类似于化妆品的能量中变得有意识。
 
 ME:I have just received an image of a dark cloud of energy within the bubble of Environment 4-that dark cloud being the energy that gained awareness first.This darker energy is still distributed throughout the volume that is Environment 4.It is just that this area was denser and thus ended up at the center of awareness. 
 
-我：
+我：我刚刚收到一张在环境4的泡泡中有一团黑暗能量的图片，这团黑暗能量是最初获得意识的能量。这团黑暗能量仍然分布在整个环境4的体积中。只是这个区域密度更大，因此最终成为意识的中心。
 
 SE2:Good,that is correct.The rest of the environment also gained awareness but at a slower pace.Consider it like when you wake up from being asleep.At first you are aware of just your thoughts,and then you start to feel certain parts of your body,some before others.Finally you are in full awareness of your body,and you move your limbs at will without preconceived thought.This is exactly how Environment 4 became aware.First,it was in the center of the dark energy cloud.Then as awareness of self spread,it became more expansive and started to include the rest of the dark energy spread throughout the environmental bubble.Eventually it also included the other energies that are also present, making it a complete environmental entity in its own right-fully aware of its existence,its composition,its location,and its abilities. 
 
-2号源实体：
+2号源实体：很好，说对了。环境的其他部分也获得了意识，但速度较慢。想象一下你从睡梦中醒来，起初你只意识到自己的思想，然后你开始感觉身体的某些部分，有些先于其他部分。最后你完全意识到自己的身体，你随意移动四肢而没有先入为主的想法。这正是环境4获得意识的方式。起初，它在黑暗能量云的中心 然后随着自我意识的扩散，它变得更加膨胀，开始包括扩散到整个环境泡泡的其他黑暗能量。最后它还包括了其他存在的能量，使它成为一个完全独立的环境实体，完全意识到自己的存在、组成、位置和能力。
 
 ME:How could it be aware of its abilities so early in its existence? 
 
-我：
+我：它怎么能在它存在的这么早就意识到自己的能力？
 
 SE2:As I stated before,it had essence of me,and as a result of its growing awareness, it also gained knowledge of its personal attributes and abilities.Although at this point in its existence they were fairly rudimentary,they were enough to kick-start the higher level functions of an entity that was not limited in its creative ability within the confines of what I had given it.In fact,it very quickly established what it could and couldn't do.The abilities that it couldn't perform were a function of its ability to control and work with the energies that formed its volume so to speak.So as it gained more and more understanding of self it gained more and more experience,and as a result,it expanded its creative abilities. 
 
-2号源实体：
+2号源实体：正如我之前所说，它具有我的本质，由于它意识的增长，它也获得了关于自身属性和能力的知识。尽管在它存在的这个时刻，它们相当原始，但它们足以启动一个实体的更高层次的功能，这个实体的创造能力不受限于我赋予它的范围。事实上，它很快就确定了它能做什么和不能做什么。它不能执行的能力是它控制和利用构成它体积的能量的能力的功能。因此，当它对自己获得越来越多的理解时，它获得了越来越多的经验，结果，它扩展了它的创造能力。
 
 ME:So it grew in capability as it increased in awareness. 
 
-我：
+我：所以随着意识的增强，它的能力也在增强。
 
 SE2:Correct.When it reached a point where it realized that it was part of a much larger entity,and,therefore,started to probe its boundaries,I decided to make my presence known and advise Environment 4 on its role in life,as it were. 
 
-2号源实体：
+2号源实体：当它意识到自己是一个更大实体的一部分，并因此开始探索自己的边界时，我决定让它知道我的存在，并建议环境4在生活中扮演什么角色。
 
 ME:So at this point you were able to work with Environment 4 because it was at a level of awareness that allowed it to understand what you were conveying. 
 
-我：
+我：所以在这一点上，你能够与环境4合作，因为它处于一种意识水平，允许它理解你所传达的东西。
 
 SE2:Yes.It needed to be at this point for a couple of reasons.First,it had to have enough awareness to allow a robust level of understanding,and second,it had to be young enough not to question its position in the universe and go off at a tangent to what I wanted to achieve.
 
-2号源实体：
+2号源实体：是的，它需要在这个点上，有几个原因。首先，它必须有足够的意识，以允许一个健全的理解水平，其次，它必须足够年轻，不会质疑它在宇宙中的位置，并偏离我想达到的目标。
 
 ME:Are you suggesting that there is an optimal time period for intervention and presentation of advice on an entity's role in existence? 
 
-我：
+我：你的意思是说，对于一个实体的存在角色，存在一个最佳的干预和建议提出时间段吗？
 
 SE2:Absolutely.Know this.If an entity is briefed on its role in existence too early in its awakening,that time during which it is becoming what it is,then it will not fully appreciate what you are telling it and will not give it the level of importance that it deserves.If on the other hand you wait too long in the awakening process,the entity develops too much independence,is likely to question the need for the role it is given,and is inclined to rebel.Although on the face of it,letting an entity experience this would be an interesting experiment to perform and observe,it is not on my agenda for evolutionary experience at this present point in my existence. 
 
-2号源实体：
+2号源实体：如果一个实体在觉醒的早期就被告知它在存在的角色，在它成为它自己的时候，它将不会完全理解你告诉它的东西，也不会给予它应得的重要性。另一方面，如果你在觉醒的过程中等待太久，实体发展得太过独立，很可能会质疑它被赋予的角色的必要性，并倾向于反抗。尽管从表面上看，让一个实体经历这将是一个有趣的实验来执行和观察，但在我存在的这个时刻，它不在我的进化经验议程上。
 
 ME:I have to admit I am a little bit surprised that an entity needs to be coached in this way and that there is an optimal time period in which it has to (must)be done.I would have given an entity of this size and ability more credibility. 
 
-我：
+我：我不得不承认，我有点惊讶，一个实体需要以这种方式指导，有一个最佳的时间段，它必须完成。我将给这种规模和能力的实体更多的可信度。
 
 SE2:(Pause)Forgive me.I have just tapped into your memory to understand more about you and your environment.Are you O.K.with this? 
 
-2号源实体：
+2号源实体：(停顿)请原谅。我刚刚进入了你的记忆，以便更多地了解你和你所处的环境。你没问题吧？
 
 ME:Yes. 
 
-我：
+我：是的。
 
 SE2:Good,for it will help me answer your questions better.Consider a human child.If you give it too much leeway,it will not respect you.If you are too hard on it,it will consider you a tyrant.Both responses result in it holding you in contempt.This is the same for any entity. No matter how expansive and powerful it is,it is still immature.It has experienced nothing, it has learnt nothing,it has not begun its evolution,and it has no morals or understanding of what is the right thing to do and what is detrimental.Notice that I didn't say "wrong thing,'" for there is no wrong thing that can be done as everything is experience and evolution. 
 
-2号源实体：
+2号源实体：很好，因为这将有助于我更好地回答你的问题。考虑一个人类的孩子。如果你给它太多的余地，它不会尊重你。如果你对它太严厉，它会认为你是暴君。这两种反应的结果是它蔑视你。对任何实体来说都是一样的。无论它有多么广阔和强大，它仍然是不成熟的。它什么都没有经历过，它什么都没有学到过，它还没有开始进化，它没有道德或理解什么是正确的事情，什么是有害的。注意我没有说“错误的事情”，因为没有错误的事情可以做，因为一切都是经验和进化。
 
 ME:So what you are saying is that even though an entity may be as big as the fourth environment,it is still juvenile in nature. 
 
-我：
+我：所以你的意思是，即使一个实体可能像环境4一样大，它在本质上仍然是幼稚的。
 
 SE2:In a nutshell,yes,but don't get me wrong.The level of juvenility is completely different to what you expect and experience in your physical human existence as it would still be considered a god even by the most evolved entity within your universe. 
 
-2号源实体：
+2号源实体：简而言之，是的，但别误会我的意思。幼稚的程度与你们在你们的肉体人类存在中所期待和经历的完全不同，因为即使是你们宇宙中最进化的实体也仍然会认为它是一个神。
 
 ME:O.K.,now I think I understand the need to be accurate in the point of intervention of the awakening of a new entity. 
 
-我：
+我：好的，现在我认为我理解了在新实体觉醒的干预点上需要准确的。
 
 SE2:I have one further thing to add.The point of intervention is also important because of the ability of the entity to absorb the information that it is going to be given.This is additional to its briefing on its role in existence. 
 
-2号源实体：
+2号源实体：我还有一件事要补充。干预点也很重要，因为实体吸收将要提供的信息的能力。这是对其存在角色的简要说明的补充。
 
 ME:What information do you give it? 
 
-我：
+我：你给它什么信息？
 
 SE2:In Environment 4's instance,a portion of the learning that I have gained during my existence-just enough to give it a head start.I could have left it totally on its own,but that would not have been conducive to my plan.And that plan was that Environment 4 had essence of"me."In the case of other entities,I give them enough memory-based information to back up the briefing I give them.In this way they understand fully what I ask of them and are able to "hit the ground running,as you would say. 
 
-2号源实体：
+2号源实体：以环境4为例，我从自身存在中学到的一部分知识，刚好足以让它有一个好的开始。我本来可以完全让它自己发展，但那对我的计划没有帮助。而那个计划就是环境4具有“我”的本质。至于其他实体，我给它们提供足够的基于记忆的信息来支持我给它们的简报。这样它们就能完全理解我对它们的要求，并能够“如你们所说，一举成名”。
 
 ME:So if Iget this correctly,the point of intervention is a point in the early existence of the entity where it has not yet accrued its own knowledge base and as a result cannot,therefore,reject the information that you give it since it would be comparing the two sets of information all of the time. 
 
-我：
+我：如果我理解正确，干预点是实体早期存在的一点，它还没有积累自己的知识库，因此不能拒绝你给它的信息，因为它会一直比较两组信息。
 
 SE2:Correct.The memories that I implant need to be accepted as its own,and this cannot be done after it starts to accrue its own memories. 
 
-2号源实体：
+2号源实体：正确，我植入的记忆需要被接受为它自己的，这不能在它开始积累自己的记忆后完成。
 
 ME:O.K.,can we move on a bit? 
 
-我：
+我：好的，我们能往前走一点吗？
 
 SE2:Of course. 
 
-2号源实体：
+2号源实体：当然。
 
 ME:From what I can see,the fourth environment is a unique experiment.I mean,giving a whole universe sentience-that's quite a step. 
 
-我：
+我：在我看来，环境4是一个独特的实验。我的意思是，赋予整个宇宙感知力，这是相当大的一步。
 
 SE2:It's not as unique as you think.All I have done in this instance is give the energy that I call the fourth environment the essence of "me"and the opportunity to create on its own. This has been done in preference to my creation of an environment and then populating it with other smaller entities.Even with this second scenario the environment itself will at some point in its existence accrue a certain level of awareness.This is normal and to be expected,for all energy has the ability to gain awareness given enough time to stabilize, attract like energies,and grow in volume. 
 
-2号源实体：
+2号源实体：这并不像你想的那么独特。在这个例子中，我所做的只是给予我称之为环境4的能量“我”的本质和自我创造的机会。这已经被优先于我创造一个环境，然后用其他更小的实体填充它。即使是第二个场景，环境本身也会在其存在的某个点上积累一定程度的意识。这是正常的，也是可以预料到的，因为所有能量都有能力获得意识，只要有足够的时间来稳定，吸引类似的能量，并增长体积。
 
 ME:So are you saying that all energy can be sentient in some way,shape,or form? 
 
-我：
+我：所以你的意思是所有的能量都能够以某种方式、形状或形式存在？
 
 SE2:In my plan,yes,and your own Source Entity has allowed your universe to have a certain level of awareness.It's just that you don't recognize it in your current state.The only thing you need to understand is this:environments that evolve awareness and sentience are still part of the greater whole-in this instance,one of the other Source Entities or me,which are also part of the wider whole of the Origin.They never become FULLY individual to the point of separation from the originating entity.The small level of individuality that the environment gains as a result of elevating itself up to sentient status is merely localized to the energy that I or any of the other Source Entities have separated from our selves.It is a sub-section of our energy,and as a result is separate in function but whole in application. I do not lose wholeness as a result of separation.Giving an environment individuality does not reduce my wholeness for it is a process similar to what I use to create the smaller entities who populate the other environments I have created. 
 
-2号源实体：
+2号源实体：在我的计划中，是的，你自己的源实体已经允许你的宇宙有一定程度的意识。只是你在你目前的状态中没有认识到它。你唯一需要理解的是：进化意识和感觉的环境仍然是更大整体的一部分——在这个例子中，其他源实体之一或我，也是更广泛的起源整体的一部分。它们永远不会完全独立到从起源实体分离的程度。环境提升到有意识状态的结果获得的小水平的个体性仅仅局限于我或任何其他源实体从我们自己分离出来的能量。它是我们能量的一个子部分，因此在功能上是分离的，但在应用上是完整的。我不会因为分离而失去完整性。赋予环境个体性并不会减少我的完整性，因为它是一个类似于我用来创造更小的实体的过程，这些实体居住在我创造的其他环境中。
 
 I can see that you are frowning. 
 
+我能看到你在皱眉。
+
 The environments are like my major organs,and the smaller entities are like the cells that make up those organs.Consider it like one of your own organs-say your brain.You think that your sentience,your intellect,your individuality is centrally located in the organ you call the brain.This is not the case.In reality that part of you that is energetic is the real you,and the part that is associated with this physical vehicle is a small part of the real you.However,that part of you is associated with the whole of the physical body and not just the brain;it's just that you credit the brain with the power of individual thought when, in actuality,individual thought comes from the energetic.If you gave yourself the time to listen to the rest of your body's components,you would notice that they all have a level of intelligence.They all have individual function.Currently you recognize the personality of physical self as being the "person."You center the mind at the brain while actually the mind is the whole of you,physical and energetic,even though the physical is transient. 
+
+环境就像我的主要器官，而较小的实体就像组成这些器官的细胞。把它看成你自己的器官之一，比如说你的大脑。你认为你的知觉、你的智力、你的个性都集中在你称之为大脑的器官中。事实并非如此。事实上，你那充满活力的部分才是真正的你，而与这个物质载体相关联的那部分只是真正的你中的一小部分。然而，你的那部分与整个身体相关联，而不仅仅是大脑； 只是你把个人思想的力量归功于大脑，而实际上，个人思想来自于充满活力的部分。如果你给自己一些时间去倾听身体其他部分的声音，你会注意到它们都有一定程度的智能。它们都有各自的功能。目前，你把身体自我的个性认作“人”。你把思想集中在大脑，而实际上思想就是你整个的身体和充满活力的部分，尽管身体是短暂的。
 
 It is the ability to recognize that the sum of the functions of the individual parts create the self.That gives an entity the understanding of the evolutionary advantage available by the creation of smaller parts of itself within itself that gives them individuality and the ability to evolve as individuals.In essence,I become more as a result of giving a part of myself individuality because personal energy given individuality remains a solid part of the whole. Your liver is individual but part of the whole.Your heart is individual but part of the whole. Your pancreas is individual but part of the whole,and your lungs are individual but part of the whole.Your physical body is an excellent example of what I describe;it is a microcosm of the macrocosm. 
 
+它是一种能力，能够识别个体部分功能的总和创造了自我。这让一个实体理解了通过在自身内部创造更小的一部分来获得进化优势，这让它们具有个性，并能够作为个体进化。本质上，我变得更加因为给予我自己的一部分个性，因为个人能量在给予个性后仍然是整体的固有部分。你的肝脏是独立的，但也是整体的一部分。你的心脏是独立的，但也是整体的一部分。你的胰腺是独立的，但也是整体的一部分，你的肺是独立的，但也是整体的一部分。你的身体是我所描述的最好的例子；它是宏观世界的缩影。
+
 So to simplify:giving a volume of energy the size of a universal environment individuality and sentience is no different to giving an entity of your volume of energy individuality. The subdivision of energy within energy and giving it individuality does not result in a reduction of size of the original entity.It remains part of the whole.Does this explain this concept for you? 
+
+所以简化一下：给予宇宙环境大小的能量体积的个性和感觉，与给予一个实体你能量体积的个性没有什么不同。能量内部的能量细分并赋予它个性，不会导致原始实体的缩小。它仍然是整体的一部分。这是否为你解释了这个概念？
 
 ME:Yes,it does.Thank you. 
 
-我：
+我：是的，它确实如此。谢谢你！
 
 Earlier in this dialogue we talked about the limitations you placed on the environments you created.What other limitations did you enforce on Environment 4? 
 
+在前面的对话中，我们谈到了你对自己创造的环境所做的限制。你对环境4还做了哪些限制？
+
 SE2:The fourth environment was also limited in physicality.By this I mean that the environment is purely energetic,and it is not possible for the entities that the environment created and that exist within it to affect each other in any way like you can,such as by touch or feel.They are like gasses mixing together but not in a way that creates a new gas. 
 
-2号源实体：
+2号源实体：环境4在物理性上也有限制。我的意思是，这个环境是纯粹的能量，环境所创造的实体和存在于其中的实体不可能像你们一样以任何方式相互影响，比如通过触摸或感觉。它们就像气体混合在一起，但却不能创造出一种新的气体。
 
 ME:How do you mean?
 
-我：
+我：什么意思？
 
 SE2:In the multiverse that you are part of,you can mix materials together to get what you call alloys.This you do with varying levels of ease/difficulty.You even have a gas alloy that you call air although it is made up of many constituent parts and is not a true alloy in the sense of harder materials,such as bronze or aluminium.Air is a naturally occurring alloy and is not the product of fusing together materials at the atomic level to create the new material.Air is actually a good example of the way different entities interact at the physical level without merging together to create a new entity. 
 
-2号源实体：
+2号源实体：在你所处的多维宇宙中，你可以把材料混合在一起，得到你所称的合金。你用不同程度的容易/困难来做这件事。你甚至有一个气体合金，你称之为空气，尽管它由许多组成部分组成，但它不是像青铜或铝那样硬的材料意义上的真正的合金。空气是一种自然形成的合金，不是在原子层面上把材料融合在一起创造新材料的产物。空气实际上是一个很好的例子，不同的实体在物理层面上相互作用，而不需要合并在一起创造一个新的实体。
 
 ME:Can you explain this a bit further? 
 
-我：
+我：你能再解释一下吗？
 
 SE2:Yes of course.The entities in this environment are purely energetic.As a result,they are of a higher frequency than your physical vehicles.They all resonate in a different way.The way that they resonate is specific to each of them as individuals;as a result,they are not able to increase or decrease their frequency to a level where they are in synchronicity with another entity. 
 
-2号源实体：
+2号源实体：当然可以。这个环境中的实体是纯粹的能量。因此，它们比你们的物质载体具有更高的频率。它们以不同的方式共振，它们共振的方式是特定于它们每一个个体的；因此，它们不能增加或减少它们的频率到一个与另一个实体同步的层级。
 
 ME:So you could say that they have their own signature. 
 
-我：
+我：所以你可以说他们有自己的签名。
 
 SE2:No,individual entity signature and resonant frequency are different things in this environment although I can see where you are coming from.This can and does work well in your home environment.However,this is not the case in this environment as the limitations imposed upon it dictate that this is not possible.An entity's resonant frequency is a product of its basic makeup.Each individual entity has a unique resonant frequency,but this is not what is used to distinguish themselves one from another,for they are not aware of their own frequency as such.They use a method of pulsing-what you call "light".
 
-2号源实体：
+2号源实体：不，在这个环境中，个体实体签名和共振频率是两回事，虽然我能看出你从哪儿来。这在你的家庭环境中可以而且确实工作得很好。然而，在这个环境中不是这样，因为强加给它的限制规定了这是不可能的。一个实体的共振频率是其基本构成的产物。每个个体实体都有唯一的共振频率，但这不是用来区分彼此的，因为它们并不知道自己的频率。它们使用一种脉冲的方法——你称之为“光”。
 
 ME:Oh,that's interesting.We can see light with our physical eyes. 
 
-我：
+我：哦，那很有趣。我们可以用肉眼看到光。
 
 SE2:But you wouldn't be able to see this light,for it is of a completely different nature.You have light at two ends of your physical visible spectrum,do you not? 
 
-2号源实体：
+2号源实体：但你看不见这种光，因为它性质完全不同。你在可见光谱的两端都有光，不是吗？
 
 ME:Yes,we call it ultraviolet and infrared. 
 
-我：
+我：是的，我们称之为紫外线和红外线。
 
 SE2:And you cannot see any of their wavelengths with your physical eyes. 
 
-2号源实体：
+2号源实体：你不能用肉眼看到它们的任何波长。
 
 ME:No,but we can detect it with our instruments.We can also see infrared light if we use the view finder or display of a digital camera,as the couple charge devices(CCD Array)that the camera uses to detect the different light frequencies and luminance levels are sensitive to wavelengths that we cannot see with our physical eyes but are nevertheless presented back to the observer via the digital camera's screen.It is detected,so it is interpreted and displayed. 
 
-我：
+我：没有，但是我们可以用仪器探测到它。如果我们使用取景器或数码相机的显示器，我们也可以看到红外线，因为相机用来探测不同光频和亮度的电荷耦合器件(CCD阵列)对我们肉眼看不到的波长很敏感，但仍然通过数码相机的屏幕呈现给观察者。它被探测到，所以它被解释和显示。
 
 SE2:Well,if you had a CCD array that was sensitive to frequencies above 200,000 of what you call nano-meters,you might be able to detect the light that the entities in Environment 4 use to differentiate one another. 
 
-2号源实体：
+2号源实体：嗯，如果你有一个对20万纳米频率以上的频率敏感的CCD阵列，你也许能够探测到环境4中的实体用来区分彼此的光。
 
 ME:Do they use this high frequency light as a language? 
 
-我：
+我：他们用这种高频光作为一种语言吗？
 
 SE2:They can but choose not to,for that is a method of communication that is as inefficient as the pushing air across that part of your body that you call the vocal cords to create a different frequency of that air,resulting in different sounds you call "words"-a most inefficient method of communication if I have ever experienced one.The use of light to communicate is just as inefficient. 
 
-2号源实体：
+2号源实体：他们可以，但他们选择不这样做，因为这种交流方式的效率很低，就好像你把空气从你身体的一部分，你称之为声带的地方推过去，产生不同的空气频率，从而产生不同的你称之为“话语”的声音一样——如果我曾经经历过，这是一种最无效的交流方式。用光来交流也是一样无效。
 
 ME:But it would travel at the speed of light!
 
-我：
+我：但是它会以光速飞行！
 
 SE2:The speed of light is variable and not the constant that you think it is,for it is dependent upon the overlying frequency of its environment or universe. 
 
-2号源实体：
+2号源实体：光速是可变的，而不是你所认为的常数，因为它取决于其环境或宇宙的覆盖频率。
 
 ME:How can this be?I thought that light is one of the physical constants that we can rely on. 
 
-我：
+我：这怎么可能？我认为光是我们可以依赖的物理常数之一。
 
 SE2:Is light not based upon a particle,the photon? 
 
-2号源实体：
+2号源实体：光不是基于粒子，光子吗？
 
 ME:Yes. 
 
-我：
+我：是的。
 
 SE2:Does it not have weight and a resonant frequency as a particle? 
 
-2号源实体：
+2号源实体：它不像粒子一样有重量和共振频率吗？
 
 ME:You would have to ask a physicist on that one,but I guess that it does. 
 
-我：
+我：你得问问物理学家，但我猜是这样的。
 
 SE2:Well,the answer is that it does and as a result of this,it is easily affected by the frequentic changes within its environment.It is also affected by what you call "gravity"and“magnetic fields." 
 
-2号源实体：
+2号源实体：嗯，答案是它有，因此，它很容易受到其环境频繁变化的影响。它也受到你所说的“重力”和“磁场”的影响。
 
 ME:I have just received information to suggest that this causes distortion in the information that is transmitted using light. 
 
-我：
+我：我刚刚收到信息，这会导致使用光传输的信息失真。
 
 SE2:Well done!Yes,it does.Also,the entities within Environment 4 are by their very nature quite a distance apart physically and spatially with some being many billions of what you call "light years away."As a result of this,they need a method of communication that isn't limited by physical constraints,such as distance,speed,weight,and frequency. 
 
-2号源实体：
+2号源实体：干得好！是的，它确实有。而且，环境4中的实体本身在物理上和空间上都相隔很远，有些相隔数十亿你们所谓的“光年”。因此，它们需要一种不受物理限制的通讯方式，比如距离、速度、重量和频率。
 
 ME:So what do they use?Telepathy? 
 
-我：
+我：那他们用什么？心灵感应？
 
 SE2:A form of telepathy,yes,although they are capable of much more than communication based upon thought.This is because they are still part of Environment 4 and do not have full independence or singularity.
 
-2号源实体：
+2号源实体：一种心灵感应，是的，尽管他们能够基于思想的交流。这是因为他们仍然是环境4的一部分，没有完全的独立性或奇点。
 
 ME:I am having difficulty understanding what you are transmitting to me.I know that you have just sent me the answer,but I have nothing to compare it with.In fact,just thinking about what to compare it with is making me very tired. 
 
-我：
+我：我很难理解你传达给我的东西。我知道你刚刚给我发了答案，但我没有什么可以比较的。事实上，仅仅是思考用什么来比较就让我很累。
 
 SE2:Yes,I understand.That is because you are trying to stretch your perception beyond me and communicate directly with that part of the fourth environment that is occupied with these entities.The communication medium that you are receiving would be best described as similar to your "surround sound"but for another medium,not for sound,for this is also slow. 
 
-2号源实体：
+2号源实体：是的，我明白。那是因为你试图把你的知觉延伸到我之外，直接与环境4中被这些实体占据的那部分进行交流。你所接收到的交流媒介最好被描述为类似于你的“环绕立体声”，但对于另一种媒介，而不是声音，因为这也是缓慢的。
 
 At this point I needed to break off for a rest as the concentration was intense.I returned a couple of hours later with renewed vigor. 
 
+在这一点上我需要休息一下，因为集中精力太难了。几个小时后我带着新的活力回来了。
+
 ME:Ah,I get it now.They have many channels of communication,and they use the environment itself as the basis for that communication.This has the effect of a single entity talking to itself.They,therefore,don't communicate as single entities when they communicate.They communicate as a whole.They are the environment. 
 
-我：
+我：啊，我现在明白了。他们有很多沟通渠道，他们使用环境本身作为沟通的基础。这有一个单一实体与自己交谈的效果。因此，当他们沟通时，他们不是作为单一实体进行沟通。他们作为一个整体进行沟通。他们就是环境。
 
 SE2:Good,good.Now you are aligned with the appropriate frequency to receive higher levels of information-information that is totally alien to you. 
 
-2号源实体：
+2号源实体：很好，很好。现在你已经与适当的频率保持一致，以接收更高层次的信息——对你来说完全陌生的信息。
 
 ME:I also get the impression that all of the entities that populate the four environments you have created are energetic in nature and do not need to exist in the presence of a planet,star,or any other larger body? 
 
-我：
+我：我还得到一个印象，所有居住在你所创造的4个环境中的实体，本质上都是充满活力的，不需要行星、恒星或任何其他更大的物体存在？
 
 SE2:As you see it,the physical body is a peculiarity of your universe.In general,the projection of self to such depths of frequency is not a prerequisite for progressing evolution.
 
-2号源实体：
+2号源实体：正如你们所见，物质身体是你们宇宙的一个特性。一般来说，自我投射到如此深的频率并不是进化进步的先决条件。
 
 As you rightly noted,all my entities are energy-based all of the time,and the entities that Environment 4 created are no exception to this.In fact,I have one thing to note.None of my entities have experienced existence at the frequencies you have.In this you are unique,even within your own universe,for other physical entities are a much higher frequency. 
 
+正如你正确地注意到的，我所有的实体一直都是基于能量的，环境4所创造的实体也不例外。事实上，我有一件事要指出。我的实体中没有一个经历过你所拥有的频率的存在。在这方面你是独一无二的，即使在你自己的宇宙中，因为其他物理实体的频率要高得多。
+
 ME:Do the entities in Environment 4 have any planets to live on? 
 
-我：
+我：环境4中的实体有任何行星可以居住吗？
 
 SE2:No,they live in free space so to speak.They have no need for a focal point within which to exist,for they already have one-the environment that created them. 
 
-2号源实体：
+2号源实体：不，它们生活在自由空间里。它们不需要一个存在于其中的焦点，因为它们已经有一个了——创造它们的环境。
 
 ME:I would find it hard to interact with them as most of our interaction in the physical relies on the ability to see,touch,and hear each other.From what you have explained to me,they are not able to do or use any of these senses. 
 
-我：
+我：我发现很难与他们互动，因为我们大多数的物理互动依赖于彼此看到、触摸和听到的能力。从你向我解释的情况来看，他们不能做或使用任何这些感官。
 
 SE2:And they would find it difficult to use them as well.Remember,these entities are the product of the individual thought of an environment,not me and as a result they are subject to variation upon what would be expected from the short sortie you have made into the other three environments I created.The entities in the fourth environment are constrained by their physicality not their "physicalness,"their makeup,which is to you energetic in nature.They are able to work with each other and the environment that created them.They are able to maintain their individuality whilst being blending together,they can communicate in a most efficient and instantaneous manner,they are the children of one of my greater creations and of this I am pleased. 
 
-2号源实体：
+2号源实体：他们也会发现使用它们很困难，记住，这些实体是环境的个体思想的产物，不是我的，因此，他们会受到变化的约束，从你进入我创造的其他3个环境的短暂出击中，第4个环境中的实体受限于他们的肉体，而不是他们的“肉体”，他们的组成，对你来说，本质上是充满活力的，他们能够与创造他们的环境一起工作，他们能够在融合在一起的同时保持他们的个性，他们能够以一种最有效和最迅速的方式进行交流，他们是我伟大创造之一的孩子，对此我很高兴。
 
 I suddenly sensed that this was the end of my communication with Source Entity 2.It was gone from my mind,and I felt empty,I felt that I could function again without feeling that the walls were closing in around me-a feeling that must have been due to the sheer volume of information that I was receiving and having to filter down to text in my computer.This was my first communication with another Source Entity-a Source Entity that was not my creator.Although we had discussed its work and achievements over the last few weeks,I felt that I hadn't even scratched the surface,that I had gained nothing.I found myself asking the age-old question of whether or not it was all worthwhile when my own Source Entity cut in. 
 
+我突然意识到，这是我与2号源实体的最后一次交流。它从我脑海中消失了，我感到空虚，我可以再次正常工作，而不再感到四周的墙壁正在向我逼近——这种感觉一定是因为我接收到的信息量太大，我必须过滤掉电脑中的文本。这是我第一次与另一个源实体交流——一个不是我的创造者的源实体。尽管我们在过去几周里讨论过它的工作和成就，我感到我甚至没有触及表面，我什么也没得到。我发现自己问了一个古老的问题，当我自己的源实体介入时，这一切是否值得。
+
 SE:You are disappointed. 
 
-源实体：
+源实体：你感到失望。
 
 ME:I expected to get more information than this.I expected to get down to the sort of level where I could ask what kind of civilizations were in SE2's environments,what they have achieved,what they have created,even what car they drive (if they had a car). 
 
-我：
+我：我希望得到比这更多的信息。我希望能深入到那种层次，我可以问问在SE2的环境中，存在着什么样的文明，他们取得了什么成就，他们创造了什么，甚至他们开什么车(如果他们有车的话)。
 
 SE:You would never be able to assimilate that level of data from a foreign Source Entity. Indeed,it is not possible to go to that depth with me and some of my other groups of entities,for there is simply too much detail.Consider how you would explain 21st century technology and life to a 17th century person.You couldn't do that in any detail that would be understandable simply because the language is not there,and language/understanding is the limiting factor here.Let me tell you this.These limited dialogues that you have with me,my peers,and,indeed,the Origin are enough to whet the appetite of any seeker of truth.They are by their very nature an overview of what is out there in the greater reality, and an overview is all that mankind in its current state can cope with right now.Do not be disappointed,my friend,for you break new ground.Enough is enough,and the detail in these short dialogues is more than enough to be getting on with.You will be communicating with Source Entity Three next,and you will need to shift your energies to a different level than you have currently experienced to achieve communication.For this you will need to rest and purify yourself,for SE3 is pure of heart and energy.
 
-源实体：
+源实体：你永远无法从一个其他源实体吸收那层次的数据。确实，和我以及我的其他实体团体去到那个深度是不可能的，因为有太多的细节。想想你如何向一个17世纪的人解释21世纪的技术和生活。你不能在任何可以理解的细节中做到这一点，因为语言不在那里，而语言/理解是这里的限制因素。让我告诉你这个，这些你和我，我的同伴，以及，事实上，起源的有限对话足以磨砺任何真理追求者的胃口。它们从本质上是对更大的现实中什么是概述，概述是所有人类在当前状态下现在可以应付的。不要失望，我的朋友，因为你开辟了新天地。够了就够了，而这些简短对话中的细节已经足够让你继续下去了。你将与3号源实体进行下一步的交流，你将需要将你的能量转移到一个不同于你目前所经历的实现交流的层次。为此，你需要休息和净化自己，因为SE3是纯净的心灵和能量。
 
 ## Chapter 3 
 
