@@ -1157,7 +1157,11 @@ SE:This is not so.It is the underlying beauty of being a separate entity. You se
 
 ## Chapter 2 
 
+**第2章**
+
 ### Source Entity Two 
+
+**2号源实体**
 
 At this point I have to admit to feeling a significant amount of trepidation.I am about to communicate with another of the Source Entities,one that we shall call Source Entity Two (SE2). The Creator of our multiverse being Source Entity One but simplistically being referred to as "The Source Entity"(SE).It is a strange feeling,rather like having writer's block.I have no idea what we are going to talk about even though I do have a simple agenda of questions,which I shall use for discussions with all the Source Entities.This should keep it simple,as I am in no doubt that many of the concepts that I am about to have thrust upon me will be well over my head.I only hope I can put them into words that both the readers of this text and I can understand. 
 
@@ -2341,105 +2345,203 @@ SE:You would never be able to assimilate that level of data from a foreign Sourc
 
 ## Chapter 3 
 
+**第3章**
+
 ### Source Entity Three 
+
+**3号源实体**
 
 I have to admit that at this point in the game I am feeling a little worried.I feel that the information that I have already received as a result of my communications with the first two Source Entities is very high level and not of enough detail to be ofimportance.I also feel that it is diverse enough to cover most of what I could possibly expect.In fact,I can't possibly think what would come out of dialogue with the other Source Entities that would be enough to create a robust piece of work that is of interest to the spiritual public.It is a real dichotomy. The feeling is a little bit akin to writer's block,except that it is "channeler's block,"or is it? It could be that the task at hand is so large that I am daunted by it to the point of inactivity, of mental seizure,of doubt.I am also worried that the details that I have taken down are the result of a vivid imagination,that I am not in contact with other Source Entities,and that I am,in effect,just talking to myself.As I type these words,my fears are being put to one side specifically because now I feel that I have already made a mental link with Source Entity Three(SE3)to the point where I have a mental image of what it looks like.Also,my own Source Entity is here with me and has a few words of comfort and help. 
 
+我必须承认，在游戏的这个点上，我感到有点担心。我感到我已经收到的信息，作为我与前两个源实体的通信结果是非常高水平的，没有足够的细节是重要的。我还感到它是多样的，足以覆盖我可能期望的大部分。事实上，我不可能认为与其他源实体的对话会产生什么，将足以创造一个强大的作品，是有兴趣的精神公众。这是一个真正的二分法。这种感觉有点类似于作家的阻塞，除了它是“通灵者的阻塞”，或者是吗？这可能是手头的任务是如此之大，我被它吓到了不活动的程度，精神发作，怀疑。我也担心我记下的细节是生动的想象的结果，我没有与其他源实体接触，我实际上只是在自言自语。当我打出这些字的时候，我的恐惧被放在一边，因为现在我感觉我已经和3号源实体(SE3)建立了精神联系，我对它的样子有一个心理图像。同时，我自己的源实体也在这里，并有一些安慰和帮助的话。
+
 ME:I feel that I can't carry on with this,that I can't conjure up enough diversity of information to justify the goal of having a chapter on each Source Entity. 
+
+我：我觉得我不能继续下去了，我不能召唤出足够多样化的信息来证明每个源实体都有一章的目标。
 
 SE:Be calm.It does not matter how many words you receive on each Source Entity.What matters is that you contact them,and you open your heart to them.You are thinking that you have to create the text yourself and that you can't possibly have enough diversity of creative thought to create new dialogue of the length you have already achieved.This is your ego talking to you.You will be given the information;you will not have to invent it.Your fears are borne out of self-created objectives.Your personal objectives are not important. What will be,will be.Remember what one of your old managers said to you once:bite your elephant in bite-size chunks.You don't have to do it all in one go.There are no time constraints.There are no limitations. 
 
-源实体：
+源实体：冷静。你在每个源实体上收到多少字并不重要。重要的是你联系了他们，你向他们敞开心扉。你认为你必须自己创造文本，你不可能有足够多样化的创造性思维来创造你已经达到的长度的新对话。这是你的自我在对你说话。你会得到信息；你不必发明它。你的恐惧来自于自我创造的目标。你的个人目标并不重要。该来的，就会来。记住你的一个老经理曾经对你说过的话：把你的大象一口一口地咬。你不必一口气做完。没有时间限制。没有限制。
 
 The information is and must be high level.As I stated at the end of our dialogue with Source Entity Two,you can't possibly go down to the minute detail that you wish.You simply don't have enough capacity in your current physical state,and your readers would not appreciate this level of detail either.You are more likely to bore the pants off them! 
 
+信息是并且必须是高水平的。正如我在我们与2号源实体的对话结束时所说的，你不可能达到你所希望的细微的细节。在你目前的身体状态下，你没有足够的能力，你的读者也不会欣赏这种程度的细节。你更有可能让他们厌烦！
+
 I was about to say that this is a bit of a backward step for you,but I have just looked into your mind and now understand what the issue is.It is not fear of being able to meet your objective of 12,000 words per Source Entity or your worry about the information being diverse enough to be credible. 
+
+我正要说这对你来说是一个倒退，但我刚刚看到了你的思想，现在明白了问题所在。这不是害怕能够达到你每个来源实体12000字的目标，或者你担心信息足够多样化以至于可信。
 
 ME:So what is it then? 
 
+我：那么是什么呢？
+
 SE:You are trying to access too much at the same time.As a result,you don't know which way to look first.You are like a deer in the headlights of a car.No,wait a minute.You are accessing ALL the Source Entities at the same time,and you are close to information overload.No wonder you are feeling like you can't do anything.You are full to the point of bursting.Re-calibrate your awareness to me and Source Entity Three only.This will help.
 
-源实体：
+源实体：你试图同时接触太多东西，结果你不知道先看哪个方向，你就像汽车前灯下的鹿，不，等一下，你同时接触所有源实体，你接近于信息超载，难怪你感觉你什么都做不了，你已经满到爆了，重新校准你的意识，只关注我和3号源实体，这会有帮助。
 
 ### Initial Contact with Source Entity Three-Blissful! 
 
+**与3号源实体的初次接触：极乐**
+
 I took the advice of my Source Entity.I mentally told myself that I would only receive information from my own Source Entity and Source Entity Three.The effect was remarkable.I suddenly felt lighter,cleaner,open.All of my fears about what I was doing left me,and the fog cleared from my mind.I must be careful not to open myself too much again, or I must train myself to accept the increase in information. 
+
+我接受了我的源实体的建议。我在心里告诉自己，我只会从我自己的源实体和3号源实体那里接收信息。效果是显著的。我突然感到更轻，更干净，更开放。我对自己正在做的事情的所有恐惧都离开了我，我的头脑中的迷雾也消失了。我必须小心不要再过度开放自己，否则我必须训练自己接受信息的增长。
 
 At this point I found myself logging into Source Entity Three.Again I saw the image of it. I approached it from the perspective of the Origin,looking inward and downward to see its appearance and location within the Origin.The initial impression I received was that of an amorphous white ball that undulated.It felt warm,comforting,even welcoming.It was a delight to be in its presence.What's more it was pleased to sense me and invited me inside itself.It felt pure.It was pure.It was pure of heart,just like my Source Entity told me.I was in a state of bliss,one I had not experienced in communications with my own Source Entity. I opened a dialogue. 
 
-ME:Wow,it feels totally euphoric!It's a very heady feeling.Why is this? SE3:What you are feeling is the result of the work that I am doing.Within your own Source Entity's environments,you are allowed to experience different levels of"-ivity." 
+此时我发现自己进入了3号源实体。我再次看到了它的形象。我从源头的角度接近它，向里向下看，看它在源头中的外观和位置。我收到的最初印象是一个起伏的无定形的白色球。它感到温暖，舒适，甚至是受欢迎的。它的存在是一种喜悦。更重要的是，它很高兴地感觉到我，并邀请我进入它自己。它感到纯洁。它是纯洁的。它是纯净的心灵，就像我的源实体告诉我的。我处于一种幸福的状态，一种我与自己的源实体交流时从未经历过的状态。我开始了对话。
+
+ME:Wow,it feels totally euphoric!It's a very heady feeling.Why is this? 
+
+我：哇，感觉完全是欣快的！这是一种非常令人头晕的感觉。为什么会这样？
+
+SE3:What you are feeling is the result of the work that I am doing.Within your own Source Entity's environments,you are allowed to experience different levels of"-ivity." 
+
+3号源实体：你所感觉到的是我正在做的工作的结果。在你自己的源实体的环境中，你被允许体验不同层次的“-ivity”。
 
 ME:-ivity? 
 
+我：-ivity？
+
 SE3:-ivity.You see them in two basic ways though:positivity and negativity.In my experiment and in all of the environments that I have created,there is no such thing as negativity.I can see that you are about to ask a question.
+
+我：你能从两种基本方式看到它们：积极和消极。在我的实验中，在我创造的所有环境中，没有消极这回事。我知道你想问个问题。
 
 ME:Yes,my own Source Entity says there is no such thing as a negative experience.There is only experience. 
 
+我：是的，我自己的源实体说没有负面体验这回事。只有经验。
+
 SE3:Yes,that is true,but in my environments there can be no experience that can be classified as bad,detrimental,or horrible.Everything is delightful;every entity works in harmony in everything it does. 
+
+3号源实体：是的，这是真的，但在我的环境中，没有任何经历可以被归类为坏的，有害的或可怕的。一切都是令人愉快的；每个实体在它所做的一切中都和谐地工作。
 
 ME:I find this a bit hard to take on-board.How can everything be done in a state of bliss? 
 
+我：我发现这有点难以接受。怎么能一切都做在幸福的状态？
+
 SE3:In comparison with your current existence,everything in the Origin's multiverse is experienced in a state of bliss.That which is not in bliss is generally of such a low frequency that it is unbearable. 
+
+3号源实体：与你们目前的生存相比，起源的多维宇宙中的一切都处于极乐状态。凡不是处于极乐状态的，其频率通常都低得令人无法忍受。
 
 ME:Are you suggesting that bliss is a state of frequency? 
 
+我：你是说幸福是一种频率吗？
+
 SE3:No,but it is a component part of it.An entity that is in a state of bliss is usually of a high frequency. 
+
+3号源实体：不，但它是其中的一部分。处于极乐状态的实体通常具有高频率。
 
 ME:So why would you want to create a universe where its entities are only able to experience positive blissful things? 
 
+我：那么为什么你想要创造一个宇宙，其中的实体只能够体验积极的幸福的事情？
+
 SE3:Quite simply,to see what happens.One of the things you will notice in your dialogues with the Source Entities is that each of us is doing things its way.Sometimes there is an overlap in what we do,and sometimes we are poles,even multiverses,apart.Where we overlap,we compare and contrast what we did and how we arrived at the condition,what the route was,what the circumstances were,and what the incumbent entity's contribution was that resulted in that end result.Where we do not overlap,we share our learning and add it to the total reservoir of evolutionary data that we create.Why shouldn't I have an experiment where every entity that exists within an environment is in blissful harmony? 
+
+3号源实体：很简单，看看会发生什么。在你和源实体对话时你会注意到一件事情，我们每个人都在以自己的方式做事。有时我们做的事情有重叠，有时我们是两极，甚至是多维宇宙，分开。当我们重叠时，我们比较和对比我们所做的和我们如何到达条件，路线是什么，环境是什么，以及在任实体的贡献是什么导致了最终的结果。当我们没有重叠时，我们分享我们的学习并把它添加到我们创造的进化数据的总库中。为什么我不应该有一个实验，让存在于环境中的每个实体都处于幸福的和谐中？
 
 ME:Well,I would consider that it limits the experience opportunity. 
 
+我：嗯，我认为它限制了体验的机会。
+
 SE3:It does,and that is the point. 
+
+3号源实体：是的，这就是问题的关键。
 
 Let me make it easier for you.Although you would think that you are limiting the evolutionary opportunities of an entity or environment by initiating such limitations,what you are actually doing is opening up an opportunity to focus on an aspect of existence to a greater depth of detail.To some extent,this is what you are doing now in your physical,low frequency existence.The objective of the experience and resultant evolutionary opportunity is not just in the quantity of things that you experience,it is also in the quality of what you experience.To achieve this,you must limit your options.To put it in a nutshell,as you might say,the entities in my environments are to experience existence in a state of bliss or positivity in every which way they can and as much as they can. 
 
+让我来解释得更简单些。虽然你可能会认为你通过这种限制，是在限制一个实体或环境的进化机会，但你实际上是在打开一个机会，把存在的一个方面集中到更深的细节。在某种程度上，这就是你现在在你的物质、低频存在中所做的。经验的目标和由此产生的进化机会，不仅仅在于你所经历的事情的数量，还在于你所经历的事情的质量。为了实现这一点，你必须限制你的选择。简而言之，正如你可能会说，我环境中的实体，要以他们能做到的任何一种方式，尽可能多地体验幸福或积极的状态。
+
 ME:My own Source Entity said that you are "Pure of Heart."I have an understanding of what that means from my own sense,but can you tell me what your understanding is? 
+
+我：我自己的源实体说你“心灵纯净”。我从我自己的感官中理解了这意味着什么，但你能告诉我你的理解是什么吗？
 
 SE3:Simply put,it is the way I do business in my environments.What do I mean by this? 
 
+3号源实体：简单地说，这是我在我的环境中做事的方式。我这么说是什么意思？
+
 ME:I don't know.Maybe it is that you do not stray off the beaten track.You stick to your strategy that you cannot be corrupted in any way by any of the things that your creations do,and you expect the same from your creations. 
 
-SE3:Good try.In my instance,being pure of heart is that I only have the best intentions in mind and only want the best for my creations and their experiences.That is why I limited their environment to the higher frequency levels:those levels that result in the condition you call“bliss.”
+我：我不知道。也许是因为你不会偏离既定轨道。你坚持自己的策略，你不会被你的创造物所做的任何事情以任何方式所腐蚀，你也希望你的创造物能做到这一点。
+
+SE3:Good try.In my instance,being pure of heart is that I only have the best intentions in mind and only want the best for my creations and their experiences.That is why I limited their environment to the higher frequency levels:those levels that result in the condition you call “bliss.”
+
+3号源实体：好样的。就我而言，保持心灵纯洁就是我只有最好的意图，只希望我的创造物和他们的体验是最好的。这就是为什么我把他们的环境限制在更高的频率水平：那些导致你称之为“极乐”的水平。
 
 ME:What does it feel like to live continually in this bliss state that you have created for your creations? 
 
+我：持续地生活在你为你的创作创造的这种极乐状态中是什么感觉？
+
 SE3:I can only explain it from your perspective. 
+
+3号源实体：我只能从你的角度来解释。
 
 It would be like being in a continuous state of well-being,good cheer,and good humor. You would not have any ailments,worries,or concerns.Everything is understood and understandable.Everything is achieved and achievable.Anything that the individual does is for the good of all,including the environment.Nothing is detrimental.Nothing detrimental can be or is desired to be done.No one does anything just for self.Everything is done in love and light. 
 
+这就像处于一种持续的健康、快乐和幽默的状态。你不会有任何疾病、担忧或忧虑。一切都是理解和理解的。一切都是实现和可实现的。个人所做的任何事情都是为了所有人的利益，包括环境。没有什么是有害的。没有有害的东西可以或希望被做。没有人只是为自己做任何事情。一切都是在爱和光中完成的。
+
 ME:Whilst you were describing this,I started to experience it.I felt like I was in a cloud of light that I was free of any restrictions and constraints.Ifelt FREE in every sense of the word. 
+
+我：当你在描述这一切时，我开始体验它。我感觉自己在一片光云中，我摆脱了任何限制和约束。我感觉到自由的每一个字。
 
 SE3:Even though my entities are constrained to only experiencing the bliss state,the level of freedom from your perspective is infinite. 
 
+3号源实体：即使我的实体被限制只能体验极乐状态，从你的角度来看，自由的程度是无限的。
+
 ME:It felt like I was everywhere all at the same time-in communication with all things and everything all at the same time.Being restricted to the bliss state does not seem like a restriction to me.It seems like a delight,an honor,something to be cherished. 
+
+我：感觉我同时在任何地方，同时与所有事物和一切事物交流。被限制在极乐状态对我来说不像是限制。它似乎是一种喜悦，一种荣耀，值得珍惜的东西。
 
 SE3:Ah.You have hit the secret of remaining in bliss on the head.You in your condition can only remain in the bliss state if you understand at the most fundamental level that it is something special,something to be cherished,something to be shared.
 
+3号源实体：啊，你已经一针见血地指出了保持极乐状态的秘密。在你这种状况下，只有当你最根本地理解极乐是一件特别的事情，一件值得珍惜的事情，一件值得分享的事情时，你才能保持极乐状态。
+
 ME:And this is how your entities feel all of the time that they are in existence? 
+
+我：这就是你的实体在存在时的感觉？
 
 SE3:Yes,and they are in existence for as long as I require them to be.Don't get the wrong impression here.I don't create entities and then destroy them or remove sentience from them.Like your Source Entity,I could remove them from existence at any time,but I don't. There is no need to,for in real terms I have just started the work that I wanted to do. 
 
+3号源实体：是的，只要我需要它们存在，它们就会存在。不要在这里产生错误的印象，我不会创造实体然后毁灭它们或者从它们身上移除感知。就像你的源实体一样，我可以在任何时候把它们从存在中移除，但我没有。没有必要，因为实际上我只是刚刚开始我想做的工作。
+
 ### Source Entity Three's Environmental Dimensionality 
+
+**3号源实体的环境维度**
 
 ME:O.K.,I would like to ask a standard question that I plan to ask all of the Source Entities that is about the environment/s that you have created.What are they like? 
 
+我：好的，我想问一个标准的问题，我计划问所有源实体，关于你所创造的环境。它们是什么样子的？
+
 SE3:In variance to the multiple layer/dimension environments that the first two Source Entities created,I only created one.If you are observant,this is similar to one of the environments that Source Entity Two created.All of the entities that I have created exist and work within this environment.If I was to illustrate the dimensional mathematics to you,it would look like this:12 x 1 x 12 x 3.That's 432 dimensions. 
+
+3号源实体：在前两个源实体创建的多层/维度环境中，我只创建了一个。如果你观察力敏锐，这与2号源实体创建的环境之一类似。我创建的所有实体都在这个环境中存在和工作。如果我向你说明维度数学，它看起来像这样：12 x 1 x 12 x 3。有432个维度。
 
 ME:That looks like a similar representation to that given by the first two Source Entities.What I mean is that it is a multiple of twelve and three. 
 
+我：这看起来像一个类似的表示法，由前两个源实体给出。我的意思是，它是12和3的倍数。
+
 SE3:Correct.I am told that you have already been educated in the mechanics of the rules for dimensional construct by your own Source Entity. 
+
+3号源实体：正确。我听说你已经被你自己的源实体教育了维度构造的规则机制。
 
 ME:That's right.It is within the text of my first publication. 
 
+我：没错。这是我第一本出版物的正文。
+
 SE3:Then I will not bore you with similar details.Suffice to say,there are rules that we have to follow for creating dimensional constructs or environments for existence.Those rules are based upon the way that the Origin is constructed-hence,the use of three base dimensions to start the construction of a single dimensional environment at the lowest level and the multiplication of those dimensions by twelve levels,not forgetting the frequencies that exist within the dimensions. 
+
+3号源实体：那么我就不以类似的细节来烦扰你了。我只想说，在创造维度构造或存在环境时，我们必须遵循一些规则。这些规则是基于起源的构建方式，因此，使用3个基本维度来开始构建最低层次的单维环境，然后将这些维度乘以12个层次，不要忘记维度内的频率。
 
 ME:When my own Source Entity created us,he said that he had a lapse of concentration that resulted in some of the entities being created had a lower level of ability than others.These are used to look after the universe that it created and are allowed to incarnate into simpler physical vehicles for their own evolution.What happened when you created your entities?How did you create them? 
 
+我：当我自己的源实体创造我们的时候，他说他有过一次注意力的缺失，导致一些被创造的实体能力水平比其他的低。这些被用来照顾它所创造的宇宙，并被允许为自己的进化而化身成更简单的物质载体。当你创造你的实体时发生了什么？你是如何创造它们的？
+
 SE3:The process for creating a sentient entity is the same for all Source Entities.It is also the same as that used by the Origin to create us.The creating entity must identify and segregate that part of itself energetically that it wants to use as the medium for creating the entities concerned.Please note this.We cannot create something out of nothing-specifically if it is to have its own sentience.For if nothing exists,then there is nothing to work with.A void without energy of any kind remains a void.In this respect,we must give up part of our own energy,energy with sentience,to create that which requires its own sentience.These creations remain part of us,contained within us but separate from us. 
 
-The lack of concentration by your own Source Entity resulting in entities of lesser faculty was a result of its own lack of interest in the process once it had started it off.It simply became more interested in something else.The beauty of its error is that it ended up with a plethora of unexpected opportunities for evolution;opportunities that it hadn't planned for,hence its decision to keep what it ended up with.In my case I did not have such a lapse of attention and created what I wanted to create in the first place.In this instance what I created was pure and it was this level of purity that gave me the idea to restrict the universe they were to exist within to the higher frequencies of bliss,to ensure that everything remained pure.Pure of Heart therefore means that purity,or lack of error,is at the center of everything that I have created and will create. 
+3号源实体：创造一个有意识实体的过程对所有源实体来说都是一样的。它也和起源创造我们的方式一样。创造实体必须积极地识别和分离它想用来作为创造相关实体媒介的那部分自身。请注意这一点。我们不能从无中创造出某种东西——特别是如果它要拥有自己的意识。因为如果没有存在，那么就没有东西可以用来工作。一个没有任何能量的真空仍然是一个真空。在这方面，我们必须放弃我们自己的部分能量，有意识的能量，来创造需要自己有意识的东西。这些创造物仍然是我们的一部分，包含在我们之中，但又与我们分离。
+
+The lack of concentration by your own Source Entity resulting in entities of lesser faculty was a result of its own lack of interest in the process once it had started it off.It simply became more interested in something else.The beauty of its error is that it ended up with a plethora of unexpected opportunities for evolution;opportunities that it hadn't planned for,hence its decision to keep what it ended up with.In my case I did not have such a lapse of attention and created what I wanted to create in the first place. In this instance what I created was pure and it was this level of purity that gave me the idea to restrict the universe they were to exist within to the higher frequencies of bliss,to ensure that everything remained pure. Pure of Heart therefore means that purity,or lack of error,is at the center of everything that I have created and will create. 
+
+你自己的源实体缺乏专注导致了能力较差的实体，这是源实体在启动这个过程后对其本身缺乏兴趣的结果。它只是对其他事情更感兴趣。它的错误之美在于它最终获得了大量意想不到的进化机会；它没有计划的机会，因此它决定保持它最终拥有的东西。在我的情况下，我没有这样的注意力缺失，创造了我一开始就想创造的东西。在这种情况下，我创造的是纯粹的，正是这种纯粹程度给了我限制他们将要存在的宇宙到更高的幸福频率的想法，以确保一切都保持纯粹。因此，纯粹的心意味着纯粹，或缺少错误，是我已经创造和将要创造的一切的中心。
 
 ### Source Entity Three's Universe 
 
@@ -2447,25 +2549,47 @@ At this point in the dialogue with Source Entity Three,I was aware that we had d
 
 SE:Do not be impatient with your progress,for you are dealing with energies that are totally alien to you.As a result,you will find it hard to align yourself with some of the frequencies, especially when you have been stuck in the demands of physical life.I note that you have noticed that you are drawn to the physical more than normal lately? 
 
+源实体：
+
 ME:Yes,I have even found out that one of my spiritual friends has been experiencing the same. It's like we are being lured,like something is fighting back at the increase in the Earth's frequency. 
+
+我：
 
 SE:This is exactly what is happening.Those of lower frequency are indeed fighting back. As a result,you and others are feeling the weight of this pull you from every angle,in every relationship,and in every pastime.Thus you are finding it difficult to elevate yourself energetically and,hence,feel that you are being dragged down.Worry not,for it will pass, and you will get stronger as you come to recognize where the influences originate that cause the pull towards the lower frequencies.Concentrate on Source Entity Three,and you will be O.K.Remember that Source Entity Three is also a finer frequency than previously experienced.This will also cause you to feel a little discontented until you align your energies better. 
 
+源实体：
+
 ME:Thank you for those words of encouragement. 
+
+我：
 
 SE:It is a pleasure,for you are taking on quite a task. I then changed my attention to Source Entity Three. 
 
+源实体：
+
 ME:We have talked very little about your universal environment so far,other than to explain the basics.I would like to learn more about your creations and what they are doing in the environment you have created for them.I would like to split this into a number of areas,which I will discuss separately as I am aware that I have jumped in at the deep end with you.So,first,can you tell me more about the environment you created? 
+
+我：
 
 SE3:As I previously stated,my universe is limited to allow my smaller creations to experience nothing but the higher frequencies-what you call the bliss state.I can see though that you want to know more of the details behind it. 
 
+3号源实体：
+
 ME:Yes,please.It would keep the dialogue similar to that already achieved with Source Entities One and Two.
+
+我：
 
 SE3:Mmm.Do not preconceive what the dialogue will be,for that will lead the conversation into a direction that is adverse to what it needs to be.Remember,we are trying to give information about ourselves to humanity that it needs to know,not what you think it needs to know.Your desire to fulfil certain requirements of your own may divert you from the opportunity to access more important information. 
 
+3号源实体：
+
 ME:O.K.,I understand,but I would still like to touch on these two main areas.Whatever happens after,I will leave up to you. 
 
+我：
+
 SE3:Good.Now I will explain my environment and my entities and what they do in order to evolve further. 
+
+3号源实体：
 
 As we have already discussed,my entities exist within those dimensions and frequencies relative to the bliss state.Having said this,I realize that any energetic state above your current frequency can be classified as bliss,but this is several orders of magnitude above the highest level that the human race could achieve.Indeed,what you experienced by tapping into my energies is but a fraction of a fraction of a fraction of what my entities experience. 
 
@@ -2473,45 +2597,83 @@ Contrary to what you might think,my entities do have areas of what you call plan
 
 ME:I have just received an image of a purple-yellow colored planet in an area of space that is pure white light.Our planets exist in dark lightless space. 
 
+我：
+
 SE3:That is a result of the higher frequency of the environment.Your own physicality is bound by low vibration which is signified by the darkness of the space in-between the areas of density.My environment is not bound by low frequency,so the areas in-between are in lightness. 
+
+3号源实体：
 
 ME:So if your creations exist in such high frequencies,why do they need areas of local density to work out their evolutionary tasks? 
 
+我：
+
 SE3:They don't as such.It's just that some of them like to associate themselves with an object of density.Don't get me wrong here.When I say density,I mean areas where there are energies that stick together out of creation not by what you would call "molecular attraction."These areas are created and,in most instances,can be given individuality. 
+
+3号源实体：
 
 ### Planets Created by Smaller Entities 
 
 ME:Our planets have individuality! 
 
+我：
+
 SE3:Your planets are collective individuals;they are the creations of the galaxies and are, therefore,facets of the galactic mind.These are not.They are either fully separate or are lacking individuality altogether. 
+
+3号源实体：
 
 ME:So planets in this environment...can I continue to call them planets? 
 
+我：
+
 SE3:Yes,it will suffice as an explanation although it is not entirely correct as I will explain later.
+
+3号源实体：
 
 ME:Planets are created by the entities that live in your bliss-based environment as a method of providing some level of focus on a certain evolution-based project.They are "similar energies" that are bound together to create an object of sufficient size to allow any number of entities to co-exist/work together on evolving.Indeed,the planet or energetic construct could,in fact,be the project itself. 
 
+我：
+
 SE3:Not bad.But note this:the planet or planets are created by the entities but not larger entities,such as in your galaxies.Also,they are not generally spherical as they are in your physicality for they are not created by molecular attractivity.They can be and are any shape, frequency,dimension,or a mixture of all.They can be used as housing,workshops,or as something created for pure pleasure.Some of the entities even create entities to live on/in these constructs.They do this to see how smaller versions of themselves manage on their own. 
+
+3号源实体：
 
 ME:This seems a bit like life on the Earth. 
 
+我：
+
 SE3:Theoretically speaking,it does have a certain similarity,but in essence it is not because they are not dealing with the same levels of discontinuity of self-this being your projections into the lowest physicality you can find and almost separate from your totality as a result.They create new entities from the surrounding energy;they do not separate themselves to create new entities. 
+
+3号源实体：
 
 ME:Hold on.I thought that all entities with sentience were created by separation of the larger entity to create the smaller.This is how the Origin created you and the other Source Entities.In fact,I distinctly remember being told this by Source Entity Two.
 
+我：
+
 SE3:This is correct.But note that you have used the word "sentience."The rule that you have stated is to do with the creation of sentient beings.The entities being created by my entities are more akin to what you would call astral entities.These are energy given form with individuality but without sentience. 
+
+3号源实体：
 
 ME:So do the planetary entities also have entities to exist in or within them? 
 
+我：
+
 SE3:They do,but they are similar in function to those you have on Earth to maintain it. You would call them nature spirits.In essence,they are not anything like the nature spirits your planet has,for they have limited function,ability,and longevity.They are created to perform a function and when that function is completed,they return to the core energy that they were created from.They are like tools in a box,so to speak,but with the box being full of "manipulatable"energy only,not specialized tools.The maintenance of the planetary construct is relative to its ability to withstand evolutionary pressure,so the nature spirits created are made in order to modify the planet to allow it to cope with/adapt to the demands of the creating entities using the planet. 
+
+3号源实体：
 
 ### An Area of Local Density 
 
 SE3:Now,let me tell you something about these planets.Your current expectation is to see a spherical shape for a planet or,indeed,a star.Although this is a common,natural shape in the physical and energetic environments created by your Source Entity,it is not a necessary requirement.Many of my creations have created areas of local density of any shape that you could know or think of.In fact,to use the word "shape"would only lead you astray in your process of understanding;you would "go off at a tangent,"so to speak.
 
+3号源实体：
+
 ME:So what does a planet or area of local density look like in your environment? 
 
+我：
+
 SE3:It does not necessarily need to look like anything.Most of them just are what they are:areas of local density where there is more energy of a certain type and frequency than any other.A planet does not need to be a physical solid to be useful in evolution.Just take your largest planet,Jupiter.It mostly exists in a frequency that you are not aware of yet and houses many energetic entities.What you see in the physical is merely a shadow of its totality.So with this in mind,I will try to describe a typical planetary construct in my environment. 
+
+3号源实体：
 
 First,here's a correlation with your own area of local density,Earth.Your Earth is quite unique in your universe/multiverse environment,for it has both energetic entities and physical entities to maintain its function.Your nature spirits work on the higher frequency levels,and all kinds of your plants and animals work on maintaining the lower frequency levels.On planets in my environment,we have only the energetic entities because there is no need for maintenance at such low levels.Don't forget each of your animals has a maintenance-based function to perform on your Earth.So as one form becomes extinct,the function that it performs is lost and the resulting level of maintenance is diluted in this area. Because none of my creations have created a planet that is so low in frequency,there is no need for such lower frequency levels of maintenance;therefore,we have no animals.That is not to say that the creating entities do not have a desire to create smaller entities to fill the spaces available in their planetary creation,for they do so for their own pleasure. 
 
@@ -2521,287 +2683,547 @@ Within the construct,which would be similar in size to two of your suns,the enti
 
 ME:So do they create things like houses,tools,and transportation just like us? 
 
+我：
+
 SE3:No,they have no need for transportation systems or places of shelter.The constructs that they make are for helping other entities evolve. 
+
+3号源实体：
 
 ME:Hang on a moment.There are other entities than those you created to exist in this environment? 
 
+我：
+
 SE3:Yes,of course.They are created as part of the initial environment. 
+
+3号源实体：
 
 ME:What?Now I am confused.Please help me out here as I am starting to lose the thread of the direction of our conversation. 
 
+我：
+
 SE3:There is a general rule that all the Source Entities use when creating:an entity can create other entities for evolutionary purposes,but if that entity is to have sentience and individuality,it must come from the energy of the creating entity.On the other hand,if that entity is to have individuality but not sentience,then it can be created from the surrounding energy.An entity that is to have sentience but be part of a collective must also be part of the originating creator's energy.Therefore,only entities that are created by the giving up or sharing personal energy can have sentience and evolve.Some of the entities in my bliss-based environment have given up part or half of their energy,which,of course,links back to the Origin for the sole purpose of creating sentient beings that can both evolve in their own right and add to their creator's evolution.Please note that all of them are considered as equals,even though they are potentially of lesser energetic content-that is,volume not ability.They are also aware that they are created by others from their own personal energy and as such are bound by their energetic and evolutionary imprint. 
+
+3号源实体：
 
 ### An Evolutionary Imprint 
 
 ME:What is an evolutionary imprint?That is a description I have never heard before. 
 
+我：
+
 SE3:An evolutionary imprint is something that is unique to my entities.Each entity chooses a route to attain its optimum evolutionary opportunity.Call it a road map,if you like, with certain points that need to be achieved at certain points in their evolution.To get to these points,each entity needs to have achieved a certain level of experience,creativity, and responsibility.Each of these are recorded as being achieved,being experienced,being planned but not reached and in the imprint.If an entity creates an entity with the intention of giving it sentience,it then also gives it that which the creating entity has experienced and the rest of the points on the evolutionary imprint. 
+
+3号源实体：
 
 ME:They get a head start in their existence above that of their creators. 
 
+我：
+
 SE3:That is correct.But in doing so,the creating entity has the ability to evolve at twice the speed,as there are now two entities using the same imprint. 
+
+3号源实体：
 
 ### Replication,Division and Merging for Evolutionary Acceleration 
 
 ME:So you are saying that the original entities that you created are also able to create sentient entities for the purposes of their own evolution?
 
+我：
+
 SE3:In a nutshell,yes.But do not think that this is unusual,for you also create sentient beings,do you not? 
+
+3号源实体：
 
 ME:You mean we couple together to breed new human beings in order to replace ourselves and increase the population so that more souls can incarnate? 
 
+我：
+
 SE3:Yes.And do you not evolve are a result of the interaction between yourselves as parents and the smaller beings you call children? 
+
+3号源实体：
 
 ME:I suppose we do,yes,but we also accrue karma points as a result.It is a double edged sword with us humans re-creating ourselves the way we do.It's a slow process and relies on us, in general,being dedicated to those that we give physical life to for the rest of our physical lives. Some people abuse this privilege whereas others are model children,parents,and grandparents. 
 
+我：
+
 SE3:I have just experienced what you are talking about through your memories.I will say that those that are created are created instantaneously and do not have to go through such long-winded processes.Those that are created with the evolutionary imprint are party to all knowledge and experience immediately upon creation. 
 
+3号源实体：
+
 ME:So they are clones,direct copies of the creators? 
+
+我：
 
 SE3:They are not direct copies,for they are not able to create from the division of themselves;therefore,they cannot create sentient beings.They can create non-sentient individual beings,but as I have previously explained,they are made of energy that is available within the surrounding areas. 
 
 ME:O.K.,so what do these copies do to evolve and help their creators evolve?
 
+我：
+
 SE3:They do what they feel is required to evolve.It is entirely possible for a creating entity to create many,many copies of itself in order to accelerate its evolution. 
+
+3号源实体：
 
 ME:Up to how many can they create?There must be a limit so they avoid diluting themselves too much. 
 
+我：
+
 SE3:Correct observation.There is an upper limit where they create before they lose their energetic majority.This is dependent upon the original energetic content of the creating entity,for not all entities are ofequal content.This is mainly to do with the merging together of entities to create a bigger creating entity.I will describe this further in a moment.Suffice to say,an entity has a generally accepted upper limit of around one hundred copies of itself before it starts to lose its cohesion as a creating entity. 
+
+3号源实体：
 
 ME:So what happens to an entity that exceeds this number? 
 
+我：
+
 SE3:It becomes as one with their creations and loses the ability to re-create itself in this way.Also,by default,it then creates a collective.Some entities elect to do this as part of their evolution whereas others elect to merge themselves with another creating entity to create a new collective-in this instance,a single individual entity of greater power if you want to call it that. 
+
+3号源实体：
 
 ME:So why would entities want to merge together whilst others want to diversify to the point of loss of creativity? 
 
+我：
+
 SE3:Simply to evolve in a different way than the other entities they were created with. 
 
+3号源实体：
+
 ME:So an entity may decide to either divide itself up to the point of dilution of own ability to experience evolution as a supposedly lesser entity but still be collectively connected to those entities that it created,or it can merge with others to create a bigger more powerful being of combined experience,knowledge,evolution,and evolutionary imprint. 
+
+我：
 
 SE3:Yes. 
 
 ME:Can the entity that has split itself into the level that it loses its creativity,entity-wise,reverse this process? 
 
+我：
+
 SE3:Once the process has been initiated,it cannot be reversed,that is,not by the will of the original entity on its own.Remember:the creating entity has created a high number of "sentient"entities.It cannot of its own violation remove their individuality or sentience,for this would be akin to killing that entity.It can,however,merge with a willing entity to create an entity of greater "creator"energy and,therefore,reinstate its position-that position being relative to the number of entities that elect to merge with the original of a creating entity.They cannot merge themselves to create a bigger more powerful entity;this can only be done with the original creating entity and the desire of one or more "created"entities to return to their source. 
+
+3号源实体：
 
 ### Returning to the Creating Entity 
 
 ME:Do they lose their individuality when they return to their creator?This is one of the things that we all ask in the physical world of our creator,Source Entity One.In our instance,we still retain individuality but are a fully functioning part of Source Entity One.We can even leave the Source at will if required/requested in order to provide additional evolutionary opportunities. 
 
+我：
+
 SE3:Yes,but this is understood by the returning entity.They know that they came from nothing,as indeed we all do since we are all ultimately creations of the Origin.However, they are also aware that once they have been created,they can be re-created by the creating entity in totality at a later date after they decide to return to their creator. 
+
+3号源实体：
 
 ME:So does this happen a lot?Do entities elect to return to their creator,complete in the knowledge that they will no longer have individuality? 
 
+我：
+
 SE3:This happens on a regular basis and is a direct result of the type of evolutionary work done by that entity.In essence,they become specialized in evolving within certain types of experience.Once they have evolved as a result of the work they have done within the experiential environment,they may then elect to become part of the whole again.However, when the creating entity needs to evolve in an area that would be best supported by that part of itself that was of optimal evolution in the proposed experiential environment,it re-creates that entity even at the potential expense of it losing its creating functions.The object here is not the concern over the loss of individuality but taking every opportunity that presents itself to evolve and working with it.This is something that you humans could learn.In their eyes,evolutionary progression is the number one priority;they have no concept of personal loss of individuality.This is one of the facets of existence in the levels of frequency that they exist in. 
+
+3号源实体：
 
 ME:So the entities that are created by the creating entities are,in effect,entities that are created as tools for maximizing evolutionary opportunities whenever they arise.They are facets of themselves that are experienced in evolving in certain conditions and are created specifically to maximize that opportunity.They are given sentience and individuality to allow them to function in a fully autonomous way,maximizing the evolutionary opportunity.This is why they have the evolutionary imprint.They function exactly as the original creating individual,and the only difference is that they are focused upon the task that they were created for.That is why the original entity evolves at the same time as the created entity.Although they are separate, they are one and the same.They are like,for example,twenty entities experiencing twenty different evolutionary opportunities all at the same time-thus allowing the creating entity the opportunity to evolve at twenty times the speed that it could on its own. 
 
+我：
+
 SE3:Correct.This is a good analogy and is the reason why the created entities have no qualm about returning to their creator and losing their individuality as a result.It's also the reason why the creating entity has no issue with losing its creative ability and becoming one and the same with its creations,albeit temporarily,because it knows that at some point one of the entities it has created will need to return to it because it will have finished its job. 
+
+3号源实体：
 
 ME:But hold on.You said that the created entities elected to return to their creators earlier.This tells me that they have some level of free will on electing to return,and when they complete their job,they may actually elect to not return to their creator. 
 
+我：
+
 SE3:This is,in fact,a decision that they may elect to take.However,they must have a valid reason for not returning to their creator. 
+
+3号源实体：
 
 ME:So what constitutes a reason not to return to the creating entity when the created entity has clearly finished its job,evolved,and in the process pushed the creating entity up the evolutionary ladder? 
 
+我：
+
 SE3:As part of the finalization of the existence of the entity,it needs to review what it has done to evolve in the way it has.In that instance,if the entity sees that the level of evolution could be optimized further by taking the direction of experience into a different direction,one that is not too distant from that already experienced but different,it would be enough to warrant investigation.It may decide that it needs to investigate this route further and,therefore,extend its time in individuality in order to take advantage of this evolutionary opportunity.It does this of its own violation and does not need the permission of the creating entity.You see in this instance the created entity is doing its job correctly.It is pushing the evolution of itself and the creating entity by maximizing its existence.When eventually all of the avenues of opportunity are taken,the entity will then consider that it has maximized its reason for individual existence and will elect to return to its creator. 
+
+3号源实体：
 
 ME:So how often does a creating entity reach the stage where it is in the state that it is equal with its creations,and how long could it stay in that condition? 
 
+我：
+
 SE3:I would say that almost every one of the creating entities has been in this state at least three or four times.Indeed,some of them have been in this condition ten or twenty times. You have to understand that these entities have been in existence for almost as long as I have and,therefore,have had many opportunities to evolve.How long they have been in this condition varies from entity to entity and how many of their creations are close to finishing their work.I will check on the imprints of my entities.(Pause) Some have experienced equality for as little as 25 minutes whereas many others have experienced this condition for many millennia;it just depends on the timing of the creation of their entities.A good average would be in excess of 300-400 of your years. 
+
+3号源实体：
 
 ME:You just mentioned that almost all of the creating entities experienced this condition.This implies that there are those that haven't.
 
+我：
+
 SE3:You are right.There are a handful of entities that have not reached that level of dilution. This is not an issue for they have experienced the evolution that they expected to achieve in their evolution imprint. 
+
+3号源实体：
 
 ME:You also stated earlier that some entities merged together to create a larger entity.What is the reasoning for this?I thought that they were pretty powerful in their normal state? 
 
+我：
+
 SE3:Although the creating entities are powerful in their own right,they gain additional facilities as a result of their merging together.In variance to the re-merging together of created entities were the created entities that lose individuality when returning to the creating entity.When they merge together,they do not lose their individuality even though they are,for all intents and purposes,a single entity. 
+
+3号源实体：
 
 ME:So what is the benefit of their merging then? 
 
+我：
+
 SE3:Enhanced creativity which enhances their evolutionary opportunities.I see that this is not a good enough answer for you,so I will elaborate further.Creating entities that merge together in-I will use a word in your mind-coadunation,increase their capacity for creativity to a level that none of them could achieve on their own even in collaboration.In merged groups of three or four entities and above,they can create their own universes and act as a Source Entity might in terms of its level of creativity and resulting responsibility. This can only be achieved in numbers merging above two since three and above creates a critical mass that allows certain Source Entity energies to be available. 
+
+3号源实体：
 
 ME:Do you have many creating entities merging?
 
+我：
+
 SE3:It is one of the most popular ways of enhancing evolution,especially when some of the creating entities elect to work within the universe/s that some of these merged entities create. 
+
+3号源实体：
 
 ME:Do any of these entities remove themselves from this merged state?I can imagine that once an entity has experienced a level of creativity and responsibility consistent with the number of entities merged together that allows the integration of Source Entity energy,they would not want to return to a level that is,to my mind,fairly mediocre in comparison. 
 
+我：
+
 SE3:You forget that these entities already exist in a fine frequency level,a bliss state,so they are not disenfranchised too much when they remove themselves from the merge.They have grown as a result of the merge and the energies involved and are "bigger"as a result. Suffice to say,I have only had two groups dissolve their merge to date and less than twenty individuals remove themselves from a merge greater than two.You may actually have a point here,but I...I will just scan them.(Pause)No,none of those who are still in a merged existence are only in that existence through fear of loss of ability,function,or power. 
+
+3号源实体：
 
 ### A Comparison with Source Entity One's Multiverse 
 
 ME:One of the things I would like to ask is how similar is life,energetically and physically,in our multiverse compared to your own? 
 
+我：
+
 SE3:You need to understand that there can be no comparison with your universe's environment-at least not in the sense that you would want a comparison to be made. As I've previously explained,the reason for this is due to the high frequency level of my universal environment.I can see that you are already about to ask another question,one where you think we may be able to make a comparison.Is this not correct? 
+
+3号源实体：
 
 ME:Yes,I was thinking that we could compare the structure of your universe with that of Source Entity One's. 
 
+我：
+
 SE3:First,your source Entity has created myriad different universes,which you call a multiverse.I chose not to go down this route as this was not what I wanted to do.As I have previously stated,I created a single universal environment of high frequency of an equally high dimensional status.Within this I have created one race of beings to populate it,each pre-programmed (as you are)with the need to evolve through experience.As my creations are all part of the same frequency base as their environment,they are subject to the limitations of that frequency.In my universe I also have one operational dimension; this dimension is singular in expression but high enough not to need the support of other dimensions to keep it in its position.If I were to compare its position with your dimensions, it would be in the 14-15th dimensional position.Bear in mind that you do not actually have a dimension of such a high status.In your multiverse,you have but twelve real levels within which all your other dimensions or dimensional phases exist. 
+
+3号源实体：
 
 ME:My Source Entity told me that it had 12 x 12 x 12 x 3 dimensions.Are you saying that this is not true? 
 
+我：
+
 SE3:It is true,but you have to consider that Source Entity One's dimensions are nested. It has created dimensions within dimensions,each of them padded out with a frequency base.My dimension is not nested and,therefore,allows an entity to access its volumetric opportunities in entirety. 
+
+3号源实体：
 
 ME:Help me out here.Are you suggesting that the dimension in your universe is the same size as all of the dimensions in my Source Entities multiverse? 
 
+我：
+
 SE3:Yes.It must be.We are both the same,so whatever we create,we create within ourselves.As a result we can make things as big or as small as we like,provided they are contained within our own boundaries. 
+
+3号源实体：
 
 ME:I find that fascinating. 
 
+我：
+
 SE3:You may,but it is one of the rules we,as Source Entities,have to follow. 
+
+3号源实体：
 
 ME:Getting back to the comparison-if your entities are existing in a single dimension of high frequency,everything that they are in contact with must be the same because energetically speaking,they are based upon this.They must be in conflict with it at all times-like they must be stuck in the ground or a rock,so to speak. 
 
+我：
+
 SE3:You are thinking in terms of the physical environment thatthat part of you is currently experiencing. 
+
+3号源实体：
 
 ME:I might be.I have to actually.This is the only tangible datum I have as a human being. 
 
+我：
+
 SE3:Again,this is a physical consideration.Please understand-physics is the only known constant that can be used to describe that which is Origin,but know this:physics is not a study of the physical.It is a study of the energetic,and the energetic behaves relative to that dimension/frequency that it is part of.As a result,that which is of the same dimension or frequency is not necessarily in conflict.I will use your condition as a descriptor;it is not solid object against solid object.It is like a very rare gas mixing with a very rare gas.Of course,this is a crude example,and even the rare gas example is far too dense to be anywhere near correct,but it will suffice. 
+
+3号源实体：
 
 ME:But aren't gases based upon differing frequency levels? 
 
+我：
+
 SE3:No,they are based upon a different chemical composition,and a chemical composition is a physicality that is not available in my universe.Now consider that the difference in an entity and its environment is based upon energy-energy that is based upon a dimensional condition without actually needing to be part of a particular dimension-and you have the ability for that entity to have energy that is singular to its environment whilst being part of it because it exists within it.That means that the content of the universe is not opaque; it is always clear.An entity can pass through it,any part of it,at will without hindrance or resistance of any sort.I can see that you are having difficulty with this. 
+
+3号源实体：
 
 ME:I am a bit. 
 
+我：
+
 SE3:Well,think of it in these terms:the entity is one with the universe,and the universe is one with the entity.The only difference is that the universe has a single intelligence/ sentience of its own.Parts of it also have intelligence and sentience.These smaller parts travel around the universe by associating that part of their intelligence where they want it.This causes the loci of their energetic signature-if you want to call it that-to be relocated to that part of the universe where they wanted to be present.Hence,this gives the impression that they have moved without hindrance. 
+
+3号源实体：
 
 ME:Why did you use the word "loci"?It is usually attributed to a number of points a fixed distance from an originating point that creates a curve or that can be related to a specific point on a curve.
 
+我：
+
 SE3:That would be a good description of my entities.They have an origin point and other points where their intellect is in focus.When a particular point is in more focus than the others-that is,it has more sentience attributed to it-then it could be called the loci or locus of that entity.It is similar to that part of you that is typing this text now is the locus of that part of you that is projected into the physical of your multiverse to create you as a human being.Thus,they have a locus to indicate thatthat is the majority of them in their universe. This is how they maintain their singularity within the universe and how they can become merged-by the joining together of points of their loci-or separated by removing points of their loci. 
+
+3号源实体：
 
 ME:O.K.,so I have established that you have created a singular universe and that it is of a high dimension and frequency.The universe has its own sentience,and it is populated with a single race of entities that have the ability to merge or split themselves up into smaller entities.The planets or areas of local density,if we can call them that,have no more density than a cloud in my planet's atmosphere.The entities evolve by being creative in their own right. 
 
+我：
+
 SE3:That would be a reasonable summary. 
+
+3号源实体：
 
 ### Working Together-A Job for Life! 
 
 ME:I can't help feeling that I am missing something though.It's like there is a piece of the jigsaw that is necessary before I can finish with my dialogue with you. 
 
+我：
+
 SE3:You want to know what my entities do when they are attracted to work within the vicinity of local density you call planets. 
+
+3号源实体：
 
 ME:Right!
 
+我：
+
 SE3:Then I will tell you as I can see that you want to get down to the coal face/nitty-gritty/ basic levels of existence in my universe. 
+
+3号源实体：
 
 ME:Correct. 
 
+我：
+
 SE3:My entities do not need to have the trappings of life that you have in your universe and,therefore,do not use or create them.In your universe the entities that are incarnate are bound by the need to create objects of technology to help with everyday existence.Good examples are safe areas where you go to regenerate-you call them houses-and various means you use to allow the physical body to travel from one part of the planet or universe to the other.Some of you even have devices that allow inter-dimensional transport.None of these are necessary in my universe. 
+
+3号源实体：
 
 As we have recently discussed and you have expressed eloquently,my entities can merge or separate to evolve in the way they choose.When they work together as a team,they do so as a team of merged entities,a team of separated entities,or a mixture of both.When they are working as a team,they sometimes find it advantageous to work within an environment where they are limited in their connectivity with the rest of the universe.To do this,they align themselves to the area of local density you call a planet.Now I have previously stated that the planets in my universe are not solid in nature;as a result,they do not have what you would call physicality.In fact,they are not part of a solar system or a galaxy which are clusters of areas of local density within your own universe,for they do not exist. 
 
 ME:So the planets are singular and not part of a cluster in any way,shape,or form?
 
+我：
+
 SE3:No,but they are spread out fairly equally around my universe.Yes,I see that you have picked up an image of what I am describing.Think of a matrix in what you might call 3D.Then consider my universe as spherical that is filled with this matrix of areas of local density.You will then have a very crude illustration of how my universe is populated with planets.
+
+3号源实体：
 
 ![Figure 3: The Matrix Sphere](img/s6-027.png)
 
 ME:So how large are they? 
 
+我：
+
 SE3:Some of them are as big as one of your galaxies whereas others are no bigger than your moon.They are all there for the use of my entities in their evolutionary exploits if they so wish to use them. 
+
+3号源实体：
 
 ME:This is very interesting-a single universe with no galaxies but full of areas of local density or cloud-like planets with some of them as big as a galaxy in my own universe but,nevertheless, a planet.I can hardly think of the possibilities that present themselves in a planet the size of a galaxy.What do the entities do? 
 
+我：
+
 SE3:I have explained some of the things they do from a high level already,but I can see that you still want something extra. 
+
+3号源实体：
 
 ME:I do.I would like to understand what life is like being associated with these planets,even if it is a case that they just mess around with energy for hundreds of years. 
 
+我：
+
 SE3:The planets are not solid,and so the entities that associate themselves with the planet work within them,that is,in the area where the planet exists.The entities work with those that they are merged with or are split up as a group.Whilst operating within the confines of these planets,the entities'general objective is to use the available energy within the volume of the planet to create something of evolutionary benefit both to themselves and to those merged or separated but grouped entities at a later point in existence. 
+
+3号源实体：
 
 ME:So what do they create?Considering that it is just a level of density that is lower than the surrounding universe,I can't imagine much. 
 
+我：
+
 SE3:If they are to work within the planetary confines,then they are restricted to use only the energies that are available within this area.As previously stated,they create things that are of evolutionary importance.Some of these things may be constructs that,in turn,use the surrounding energies and turn them into something else of use that would not have been naturally available using the raw energies. 
+
+3号源实体：
 
 ME:So you are talking about the creation of a new material by creating an energetic alloy of some sort?
 
+我：
+
 SE3:In short,yes,but these constructs may even create a finer energy set than that available in the universe. 
+
+3号源实体：
 
 ME:Are you suggesting that they can create a better universe than the one where they exist but within the confines of the planet they are working with? 
 
+我：
+
 SE3:Yes,this is one of the major reasons for my entities being in existence-to see if they can create something that is an improvement on where they exist-that being the universe and not the planetary environment that is the bliss state. 
+
+3号源实体：
 
 ME:Is there not a chance that it would create a hole in your own universe,a hole that is filled with an environment of improved/increased/refined frequency? 
 
+我：
+
 SE3:Yes,exciting isn't it?You see,what my entities are doing when they create an area of improvement is creating a new but localized universe.Within this universe they can do whatever they want,and they do!I will give you an example of an area of betterment that was created by one group of merged entities. 
+
+3号源实体：
 
 This group created a universe and populated it with entities they created themselves.These were then given the power of creativity themselves and,henceforth,created their own universe and populated it.This created a universe within a universe,which was a part of a planet in the total universe.Each of these universes had a dimension and frequency that was consistent with the total universe whilst being a microcosm of that universe.Within the first level of universe,the creating entities also created entities that were not given the power of creativity but were given purpose-that purpose being an automatic response to the needs of the creating entities.
 
 ME:What was that purpose?Was it similar to the roles that the nature spirits have in my universe,or was it something else? 
 
+我：
+
 SE3:If you are alluding to the need for your nature spirits to maintain the integrity of your earth and its surrounding area,then the answer is yes.The whole point of them being created was to help with the continued existence of the created universe and its contents. These universes or created constructs have a limited period of existence or usefulness if left unattended.As a result,those entities that are created for automatic purposes have but one role:to ensure that the creative intention is maintained. 
+
+3号源实体：
 
 ### Creative Intention 
 
 ME:You've lost me.What do you mean by "creative intention"? 
 
+我：
+
 SE3:You have this is your own universe;thought is part of your creative intention.The only difference is that when you use your creative intention and create something-whether an object or a situation-that which you have created remains in existence,unless of course it is transposed into another energy for some other reason.Within the universe that my entities have created,they need to create entities that maintain the intention that created the universe where they have been created to exist.In other words,they are the choir that continue the song that is started by the choir leader/s.Their sole purpose is to maintain the field of energy that keeps the universe inflated and maintains all that was created to exist within the universe,including themselves. 
+
+3号源实体：
 
 ME:That must be quite ajob,knowing that if you lose concentration and any part of the creative intention,you might wink out of existence.
 
+我：
+
 SE3:These entities do not know of that possibility,for they are not sentient.Their existence is infinite or until the creating entities decide to deconstruct the universe they have created, if in fact they do decide to deconstruct it at all. 
+
+3号源实体：
 
 ME:So if these entities need to create entities to perpetuate their creative intention,what are they doing that means they can't maintain their own intent? 
 
+我：
+
 SE3:They are creating elsewhere within the planet where they have aligned themselves. Therefore,they need to divorce themselves from the creative intention surrounding their creation of their universe before they can continue to create anew. 
+
+3号源实体：
 
 ME:So these entities are the equivalent of pit props? 
 
+我：
+
 SE3:In a word,yes. 
+
+3号源实体：
 
 ME:Are there any other entities created for the maintenance of the "universe within a planet' creations? 
 
+我：
+
 SE3:I can see that you are thinking of the equivalent of animals in your own universe. 
+
+3号源实体：
 
 ME:Well,I was thinking of both physical and energetic,not just physical. 
 
+我：
+
 SE3:Animals have a role to play in your own physicality,for they exist in order to maintain the ecosphere.The answer is no.The other entities created to help maintain other areas of creative thought are and cannot be considered as animals,for they are created purely for the use that they were created for.Your animals have another important role to play;they are your companions in the depths of low frequency physicality. 
+
+3号源实体：
 
 ME:So in that case would you call them energetic machines because they seem to be doing the job of a machine? 
 
+我：
+
 SE3:No,they are more than that as well.They are cognizant of the needs of the energies that they work with to maintain the intention that creates the universe they are working with, for intention is energy as well.There has to be a certain level of autonomy in their existence to allow them to work with the ebb and flow of intention energy. 
+
+3号源实体：
 
 ME:What do you mean by ebb and flow?Does this energy increase and decrease? 
 
+我：
+
 SE3:Of course.The energy of intention is made available by the creating entity each time the creating entity creates the intention to create something,no matter how small it is.Once the creating entity has delivered its intention for the universe it is working with/within,that energy has to be continued,especially if the intention is to create a permanent creation.This is what these entities are for-to continue the intention energy that is required to continue the creation.Now let's get back to the ebb and flow.The intention energy is only required whilst that creation is required to be present.When a creation is no longer required,the intention energy that created it is returned to the creating entity;therefore,the energy of the maintaining entity is reduced as is the workload for continuing the existence of that creation. 
+
+3号源实体：
 
 ME:Hold on here.Are you suggesting that the maintaining entity has to sustain,hold in the present,the thought supporting the intention? 
 
+我：
+
 SE3:Yes,that is its workload.On top of that,one of the main pieces of work it has to do is to maintain the thought that created the intention energy that created itself.It,therefore,has incentive to continue its work.
+
+3号源实体：
 
 ME:But at some time the creating entity will need to remove the intention energy that is maintaining its own existence. 
 
+我：
+
 SE3:Yes,but that only happens when the group of entities that have created the universe decide to close it down and when all the evolutionary opportunities apportioned to that universe have been experienced by those entities destined to experience them.In this instance,the creating entities assume control of their own intentions and remove them from the wider universal matrix--thus,removing the universe.Suffice to say,a decent size universe has a long time before it reaches this point in its existence.Sometimes new entities who were not on the original list may request the opportunity to experience that environment,thereby extending its existence beyond that planned. 
+
+3号源实体：
 
 ME:What would one of these intention energy maintenance entities look like? 
 
+我：
+
 SE3:You are typically human and need to see everything. 
+
+3号源实体：
 
 ME:Yes,I do. 
 
+我：
+
 SE3:I was advised of this by your Source Entity. 
+
+3号源实体：
 
 ME:I am sorry,but it helps with my understanding and allows me to explain to others who want to understand in a way that they will comprehend. 
 
+我：
+
 SE3:I will describe one of them for you then.If you were to see them with your energetic eyes and then overlay that image onto your cerebral cortex,they would appear as a ball that is full of stars of differing colors.Each of the stars represents a level of energy that is related to a particular intention.The color of the star represents the level of attention and intention the maintaining entity needs to sustain to keep it manifest.
 
+3号源实体：
+
 ME:I can just see an image in my mind's eye.The image I see is a ball full of stars,but the entity has only white stars with a couple that are blue.
+
+我：
 
 ![Figure 4: The Ball Filled with Stars](img/s6-028.png)
 
 SE3:Yes,good.That is an example of an entity that has an even level of attention required but with two intentions that are not so important. 
 
+3号源实体：
+
 ME:Why would an intention be of lesser importance? 
+
+我：
 
 SE3:Because the opportunities it offers have all been used up;therefore,the intention is close to being returned to the creating entity.The color is representative of the number of entities taking advantage of the intention for evolutionary purposes.The blue color, therefore,indicates that only a few entities are using the creation created by this intention. 
 
+3号源实体：
+
 ME:O.K.,I would like to give the readers an idea of what the universal environment would look like if it were to be seen with physical eyes. 
+
+我：
 
 SE3:You would need to use the process that I described above because you would not be able to perceive it otherwise.Consider that you are in the center of what you call the northern lights,the aurora borealis.The magnetic properties of the planet where you exist manipulates the universal(cosmic)energy in a way that provides a reasonable example of what it may look like on one of its levels. 
 
+3号源实体：
+
 ME:It's full of different colors. 
 
+我：
+
 SE3:Yes,but that's not what I am looking to describe.It's the energies and how they are being manipulated by the magnetic flux is what I am referring to.In this instance,the magnetic flux can be used to describe an entity,and the colors in the atmosphere represent how that energy is responding to the manipulation.Of course,the colors are just one manifestation of what is happening to the energies under the influence of the magnetosphere,one that you can perceive,but it gives you an idea as there are many levels of magnetic flux in the magnetosphere.The effect it has on the universal energies is not within your range of perception.Suffice to say the universal environment that my entities manipulate reacts in a way that can be described in this method.The planetary environments would,therefore, be a subset of energies that are held in place by a single energy.This allows my entities the opportunity to use other energies,together with their intention,to manipulate them at will and thus create their own universes and entities. 
+
+3号源实体：
 
 As I have stated before,physicality is not available in my environment.Entities exist in the higher level of frequencies that are associated with bliss,so there is no datum within you that I can use to allow a more in-depth description of me and my creations. 
 
@@ -2815,19 +3237,31 @@ The Source Entities below me appeared as a group of dark colored opaque balls.Ea
 
 ME:It has been some time since we spoke,for I have been concentrating on communicating with my own Source Entity and Source Entities Two and Three 
 
+我：
+
 O:Yes,and you still have the others to communicate with as well.This is not an easy job you have chosen here because your frequency is in variance to all but your own Source Entity and,of course,Me. 
+
+起源：
 
 ME:I feel that once I have established a link with the Source Entity I am communicating with,I can communicate with it.I do have to say that I end up being far more fatigued communicating with the other Source Entities than I do when I communicate with my own creator.I also feel that, so far,the depth of information that I am receiving is not what I expected. 
 
 O:You expected more detail? 
 
+起源：
+
 ME:In a word,yes. 
 
+我：
+
 O:If you would check with the level of detail you have gained from your own Source Entity and compare it with what you have gained from your communication with the other two Source Entities,you would notice that it is of a similar depth.The only difference is that in the first book you have delved a little deeper into the human aspect of Source Entity One's environment. 
+
+起源：
 
 I took the time to examine mentally the information about the first book that was in my mind and found that the Origin was correct.The detail and depth were similar.There was still something missing though.The Origin responded to me before I had the chance to ask the question. 
 
 O:Remember,it would be an impossible task in your current form to assimilate all the information that is in just one universe that your Source Entity created,let alone what is in any of the other universes,dimensions,and frequencies.The information that you have been given is a microcosm of the greater reality-not that it is unimportant.Any level of information that brings the truth to the lower frequencies is important,and each of the entities that have taken on this noble work is only capable of glimpsing and taking on-board a small part of the picture,a single piece in an extremely large jigsaw puzzle. 
+
+起源：
 
 Something else to consider is that you are not alone in this work,for many have chosen to take on an aspect of the delivery of the truth to mankind.No one of you could do it on your own,nor would it be desirable for you to do it on your own because humankind is not able to assimilate such knowledge in the volumes that would be necessary to support such information.It has to be and is being done at the speed and volume that is optimal for the absorption of such knowledge in the projected consciousness of those who are interested, becoming aware,and exposed to those who are interested and becoming aware. 
 
@@ -2835,7 +3269,11 @@ Therefore,the work you are doing is both at the correct level,to plan,and in the
 
 ME:Thank you.I will endeavour to do my best in this instance. 
 
+我：
+
 O:Just one more word of advice about when you reach the level of your higher aspect.As you work with this level of your "self"more and more,you will feel disassociated with the physical plane of your existence.You must be careful of this as it will affect your physical judgement and ability to discriminate correctly when interacting with those of the physical plane who work around and with you.
+
+起源：
 
 Go now and work with this information and commence communication with Source Entity Four.
 
