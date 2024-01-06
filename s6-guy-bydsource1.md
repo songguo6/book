@@ -2545,261 +2545,313 @@ The lack of concentration by your own Source Entity resulting in entities of les
 
 ### Source Entity Three's Universe 
 
+**3号源实体的宇宙**
+
 At this point in the dialogue with Source Entity Three,I was aware that we had discussed very little of the nitty gritty of the subject that I like to be involved in,namely trying to understand the makeup of its universes and what the entities that exist within it were doing in order to achieve the goal of all entities created by the Origin and its Source Entities- individual evolution.I had not even merely scratched the surface of the first two Source Entities and had only ventured slightly further with my own Source Entity.I felt that I had gotten off to a slower start with this Source Entity than with the others.I was dissatisfied with my progress and was eager to move on.My own Source Entity had a few words of wisdom to help me on my way. 
+
+在与3号源实体对话的这个时刻，我意识到我们讨论的很少是我想要参与的主题的实质，即试图理解其宇宙的组成和存在于其中的实体正在做什么，以实现由起源和其源实体创造的所有实体的目标——个体进化。我甚至没有仅仅触及前两个源实体的表面，只是冒险与我自己的源实体稍微深入一点。我觉得我与这个源实体的开始比与其他的源实体要慢。我对自己的进步不满意，渴望继续前进。我自己的源实体有一些智慧的话来帮助我前进。
 
 SE:Do not be impatient with your progress,for you are dealing with energies that are totally alien to you.As a result,you will find it hard to align yourself with some of the frequencies, especially when you have been stuck in the demands of physical life.I note that you have noticed that you are drawn to the physical more than normal lately? 
 
-源实体：
+源实体：不要对自己的进步不耐烦，因为你正在处理对你来说完全陌生的能量。因此，你会发现很难让自己与某些频率保持一致，特别是当你被困在物质生活的需求中时。我注意到你已经注意到你最近比正常情况下更容易被物质吸引？
 
 ME:Yes,I have even found out that one of my spiritual friends has been experiencing the same. It's like we are being lured,like something is fighting back at the increase in the Earth's frequency. 
 
-我：
+我：是的，我甚至发现我的一个精神上的朋友也有同样的经历。就像我们被引诱了，就像有些东西在地球频率的增加时反抗。
 
 SE:This is exactly what is happening.Those of lower frequency are indeed fighting back. As a result,you and others are feeling the weight of this pull you from every angle,in every relationship,and in every pastime.Thus you are finding it difficult to elevate yourself energetically and,hence,feel that you are being dragged down.Worry not,for it will pass, and you will get stronger as you come to recognize where the influences originate that cause the pull towards the lower frequencies.Concentrate on Source Entity Three,and you will be O.K.Remember that Source Entity Three is also a finer frequency than previously experienced.This will also cause you to feel a little discontented until you align your energies better. 
 
-源实体：
+源实体：这正是正在发生的事。那些低频率的确实在反击。结果，你和其他人从每一个角度，在每一种关系中，在每一种消遣中都感觉到这种拉拽的重量。因此，你发现很难在精力上提升自己，因此，感觉到你正在被拉下来。不要担心，因为它会过去，当你开始认识到导致向低频率拉拽的影响源自何处时，你会变得更强大。集中精力于3号源实体，你就会没事的。记住3号源实体也是比以前经历过的更精细的频率。这也会使你感到一点点不满，直到你更好地调整你的精力。
 
 ME:Thank you for those words of encouragement. 
 
-我：
+我：谢谢你的鼓励。
 
 SE:It is a pleasure,for you are taking on quite a task. I then changed my attention to Source Entity Three. 
 
-源实体：
+源实体：很高兴，因为你正在承担一项相当大的任务。然后我把注意力转移到3号源实体。
 
 ME:We have talked very little about your universal environment so far,other than to explain the basics.I would like to learn more about your creations and what they are doing in the environment you have created for them.I would like to split this into a number of areas,which I will discuss separately as I am aware that I have jumped in at the deep end with you.So,first,can you tell me more about the environment you created? 
 
-我：
+我：到目前为止，除了解释基本概念外，我们很少谈论你的通用环境。我想更多地了解你的创作，以及它们在你为它们创造的环境中所做的事情。我想把这个问题分成几个部分，我将分别讨论，因为我知道我已经和你一起跳到了深处。那么，首先，你能告诉我更多关于你创造的环境吗？
 
 SE3:As I previously stated,my universe is limited to allow my smaller creations to experience nothing but the higher frequencies-what you call the bliss state.I can see though that you want to know more of the details behind it. 
 
-3号源实体：
+3号源实体：正如我之前所说，我的宇宙是有限的，只允许我较小的造物体验更高的频率，即你们所说的极乐状态。我可以看出，尽管你们想知道更多背后的细节。
 
 ME:Yes,please.It would keep the dialogue similar to that already achieved with Source Entities One and Two.
 
-我：
+我：是的，请。它将保持与1号源实体和2号源实体已经实现的对话相似。
 
 SE3:Mmm.Do not preconceive what the dialogue will be,for that will lead the conversation into a direction that is adverse to what it needs to be.Remember,we are trying to give information about ourselves to humanity that it needs to know,not what you think it needs to know.Your desire to fulfil certain requirements of your own may divert you from the opportunity to access more important information. 
 
-3号源实体：
+3号源实体：嗯，不要预先设想对话的内容，因为那会使对话走向与其需要相反的方向。记住，我们正在努力向人类提供人类需要了解的关于我们自己的信息，而不是你认为人类需要了解的信息。你满足自己某些要求的欲望可能会使你失去获得更重要信息的机会。
 
 ME:O.K.,I understand,but I would still like to touch on these two main areas.Whatever happens after,I will leave up to you. 
 
-我：
+我：好的，我明白了，但是我还是想谈谈这两个主要方面，之后的事情就交给你了。
 
 SE3:Good.Now I will explain my environment and my entities and what they do in order to evolve further. 
 
-3号源实体：
+3号源实体：很好，现在我要解释我的环境和我的实体，以及它们在进一步发展中所做的事情。
 
 As we have already discussed,my entities exist within those dimensions and frequencies relative to the bliss state.Having said this,I realize that any energetic state above your current frequency can be classified as bliss,but this is several orders of magnitude above the highest level that the human race could achieve.Indeed,what you experienced by tapping into my energies is but a fraction of a fraction of a fraction of what my entities experience. 
 
+正如我们已经讨论过的，我的实体存在于那些与极乐状态相关的维度和频率中。说了这些，我意识到任何高于你当前频率的能量状态都可以被归类为极乐，但这是人类可以达到的最高水平的几个数量级。事实上，你通过进入我的能量所经历的只是我实体所经历的一小部分的一小部分的一小部分。
+
 Contrary to what you might think,my entities do have areas of what you call planets, spherical constructs,and areas of local density,where they are able to work on what they are experiencing.The environment I created for them is not as multi-layered as yours because the areas of local density exist within the normal high frequencies of the environment and do not form their own environment as a result of their lower level.Everything exists within the same environment;I have no separation between dimensions and frequencies. 
+
+与你可能想的相反，我的实体确实有你们称之为行星的区域，球形结构，以及局部密度的区域，在那里他们能够从事他们正在经历的事情。我为他们创造的环境不像你们的那样多层次，因为局部密度的区域存在于正常的高频率环境中，并且由于它们的低水平而没有形成自己的环境。一切都存在于相同的环境中；我没有在维度和频率之间进行分离。
 
 ME:I have just received an image of a purple-yellow colored planet in an area of space that is pure white light.Our planets exist in dark lightless space. 
 
-我：
+我：我刚刚收到了一幅紫黄色行星的图像，它位于纯白光的空间区域中。我们的行星存在于黑暗无光的空间中。
 
 SE3:That is a result of the higher frequency of the environment.Your own physicality is bound by low vibration which is signified by the darkness of the space in-between the areas of density.My environment is not bound by low frequency,so the areas in-between are in lightness. 
 
-3号源实体：
+3号源实体：这是环境频率较高的结果。你们自己的物质性被低频所束缚，这由密度区域之间空间的黑暗所表示。我的环境没有被低频束缚，所以区域之间是光明的。
 
 ME:So if your creations exist in such high frequencies,why do they need areas of local density to work out their evolutionary tasks? 
 
-我：
+我：那么，如果你的创造物存在于如此高的频率，为什么他们需要局部密度的区域来完成他们的进化任务？
 
 SE3:They don't as such.It's just that some of them like to associate themselves with an object of density.Don't get me wrong here.When I say density,I mean areas where there are energies that stick together out of creation not by what you would call "molecular attraction."These areas are created and,in most instances,can be given individuality. 
 
-3号源实体：
+3号源实体：他们不像那样，只是他们中的一些人喜欢和一个密度大的物体联系在一起，不要误解我的意思，当我说密度大的时候，我指的是那些能量聚集在一起的区域，不是通过你们所说的“分子吸引力”而是通过创造力，这些区域被创造出来，在大多数情况下，可以赋予个性。
 
 ### Planets Created by Smaller Entities 
 
+**行星是由更小的实体创造的**
+
 ME:Our planets have individuality! 
 
-我：
+我：我们的行星有个体性！
 
 SE3:Your planets are collective individuals;they are the creations of the galaxies and are, therefore,facets of the galactic mind.These are not.They are either fully separate or are lacking individuality altogether. 
 
-3号源实体：
+3号源实体：你们的行星是集体的个体；它们是银河系的产物，因此，它们是银河系意识的不同方面。这些行星不是。它们要么完全独立，要么完全缺乏个体性。
 
 ME:So planets in this environment...can I continue to call them planets? 
 
-我：
+我：那么在这种环境下的行星...我还能继续称它们为行星吗？
 
 SE3:Yes,it will suffice as an explanation although it is not entirely correct as I will explain later.
 
-3号源实体：
+3号源实体：是的，它足以作为一种解释，尽管它并不完全正确，我稍后会解释。
 
 ME:Planets are created by the entities that live in your bliss-based environment as a method of providing some level of focus on a certain evolution-based project.They are "similar energies" that are bound together to create an object of sufficient size to allow any number of entities to co-exist/work together on evolving.Indeed,the planet or energetic construct could,in fact,be the project itself. 
 
-我：
+我：行星是由生活在你们基于极乐的环境中的实体创造的，作为一种在某种进化基础上提供某种程度的关注的方法。它们是“类似的能量”结合在一起创造一个足够大的物体，以允许任何数量的实体共存/共同进化。事实上，行星或能量结构可以是项目本身。
 
 SE3:Not bad.But note this:the planet or planets are created by the entities but not larger entities,such as in your galaxies.Also,they are not generally spherical as they are in your physicality for they are not created by molecular attractivity.They can be and are any shape, frequency,dimension,or a mixture of all.They can be used as housing,workshops,or as something created for pure pleasure.Some of the entities even create entities to live on/in these constructs.They do this to see how smaller versions of themselves manage on their own. 
 
-3号源实体：
+3号源实体：还不错。但请注意：行星是由实体创造的，而不是更大的实体，比如你们的星系。此外，它们通常不是你们物质性中的球形，因为它们不是由分子吸引力创造的。它们可以是任何形状、频率、尺寸，或所有这些的混合。它们可以用作住房、车间，或作为纯粹的娱乐。一些实体甚至创造实体来生活在这些构造上。他们这样做是为了看看自己更小的版本如何自己管理。
 
 ME:This seems a bit like life on the Earth. 
 
-我：
+我：这看起来有点像地球上的生命。
 
 SE3:Theoretically speaking,it does have a certain similarity,but in essence it is not because they are not dealing with the same levels of discontinuity of self-this being your projections into the lowest physicality you can find and almost separate from your totality as a result.They create new entities from the surrounding energy;they do not separate themselves to create new entities. 
 
-3号源实体：
+3号源实体：理论上讲，确实有一定的相似性，但本质上不是，因为它们不是在处理自我的不连续性，这是你投射到你能找到的最低物质性，结果几乎与你的整体分离。它们从周围的能量中创造新的实体；它们不分离自己来创造新的实体。
 
 ME:Hold on.I thought that all entities with sentience were created by separation of the larger entity to create the smaller.This is how the Origin created you and the other Source Entities.In fact,I distinctly remember being told this by Source Entity Two.
 
-我：
+我：等等，我以为所有有意识的实体都是由更大的实体分裂出来创造出更小的实体。这就是起源创造你和其他源实体的方式。事实上，我清楚地记得2号源实体告诉过我这个。
 
 SE3:This is correct.But note that you have used the word "sentience."The rule that you have stated is to do with the creation of sentient beings.The entities being created by my entities are more akin to what you would call astral entities.These are energy given form with individuality but without sentience. 
 
-3号源实体：
+3号源实体：这是正确的。但请注意你使用了“感知”这个词。你所陈述的规则是与有情众生的创造有关。我的实体所创造的实体更类似于你们所称的星体实体。这些是具有个性但没有感知的能量赋予形式。
 
 ME:So do the planetary entities also have entities to exist in or within them? 
 
-我：
+我：那么行星实体也有实体存在于其中吗？
 
 SE3:They do,but they are similar in function to those you have on Earth to maintain it. You would call them nature spirits.In essence,they are not anything like the nature spirits your planet has,for they have limited function,ability,and longevity.They are created to perform a function and when that function is completed,they return to the core energy that they were created from.They are like tools in a box,so to speak,but with the box being full of "manipulatable"energy only,not specialized tools.The maintenance of the planetary construct is relative to its ability to withstand evolutionary pressure,so the nature spirits created are made in order to modify the planet to allow it to cope with/adapt to the demands of the creating entities using the planet. 
 
-3号源实体：
+3号源实体：他们确实有，但他们在功能上与你们在地球上维持它的那些东西相似，你们可以称他们为自然精灵。本质上，他们与你们星球上的自然精灵完全不同，因为他们的功能、能力和寿命都有限。他们被创造出来是为了执行某种功能，当这个功能完成时，他们就会回到创造他们的核心能量中。他们就像盒子里的工具，可以这么说，但盒子里装满了“可操纵的”能量，而不是专门的工具。行星结构的维护与其承受进化压力的能力有关，因此创造自然精灵是为了改变行星，使它能够应对/适应使用行星的创造实体的需求。
 
 ### An Area of Local Density 
 
+**局部密度区域**
+
 SE3:Now,let me tell you something about these planets.Your current expectation is to see a spherical shape for a planet or,indeed,a star.Although this is a common,natural shape in the physical and energetic environments created by your Source Entity,it is not a necessary requirement.Many of my creations have created areas of local density of any shape that you could know or think of.In fact,to use the word "shape"would only lead you astray in your process of understanding;you would "go off at a tangent,"so to speak.
 
-3号源实体：
+3号源实体：现在，让我告诉你一些关于这些行星的事情。你目前的期望是看到一个行星的球形，或者，事实上，一个恒星。虽然这是由你们的源实体创造的物理和能量环境中一个常见的、自然的形状，但这不是必要的要求。我的许多创造物创造了任何形状的局部密度区域，你可以知道或想到。事实上，使用“形状”这个词只会让你在理解过程中误入歧途；可以说，你会“跑题”。
 
 ME:So what does a planet or area of local density look like in your environment? 
 
-我：
+我：那么在你的环境中，一个星球或局部密度的区域看起来像什么？
 
 SE3:It does not necessarily need to look like anything.Most of them just are what they are:areas of local density where there is more energy of a certain type and frequency than any other.A planet does not need to be a physical solid to be useful in evolution.Just take your largest planet,Jupiter.It mostly exists in a frequency that you are not aware of yet and houses many energetic entities.What you see in the physical is merely a shadow of its totality.So with this in mind,I will try to describe a typical planetary construct in my environment. 
 
-3号源实体：
+3号源实体：它不一定非得看起来像什么。它们中的大多数就是它们本身：局部密度区域，那里有比其他任何地方都多的某种类型和频率的能量。行星不需要是物理固体才能在进化中发挥作用。就拿你们最大的行星木星来说。它主要存在于你们还未意识到的频率中，并容纳了许多能量实体。你们在物理中看到的仅仅是它的整体的影子。因此，记住这一点，我会试着描述我所处环境中一个典型的行星构造。
 
 First,here's a correlation with your own area of local density,Earth.Your Earth is quite unique in your universe/multiverse environment,for it has both energetic entities and physical entities to maintain its function.Your nature spirits work on the higher frequency levels,and all kinds of your plants and animals work on maintaining the lower frequency levels.On planets in my environment,we have only the energetic entities because there is no need for maintenance at such low levels.Don't forget each of your animals has a maintenance-based function to perform on your Earth.So as one form becomes extinct,the function that it performs is lost and the resulting level of maintenance is diluted in this area. Because none of my creations have created a planet that is so low in frequency,there is no need for such lower frequency levels of maintenance;therefore,we have no animals.That is not to say that the creating entities do not have a desire to create smaller entities to fill the spaces available in their planetary creation,for they do so for their own pleasure. 
 
+首先，这里有一个与你自己的区域的局部密度，地球的相关性。你们的地球在你们的宇宙/多维宇宙环境中是相当独特的，因为它既有能量实体，又有物理实体来维持其功能。你们的自然精灵在更高的频率水平上工作，而你们所有的植物和动物都在维持较低的频率水平。在我环境中的行星上，我们只有能量实体，因为在如此低的水平上没有必要进行维护。不要忘记你们的每一种动物都在你们的地球上执行着一个基于维护的功能。所以当一种形式灭绝时，它执行的功能就丢失了，由此导致的维护水平在这个地区被稀释了。因为我的创造物中没有一个创造了一个频率如此低的行星，所以没有必要进行如此低的频率水平的维护；因此，我们没有动物。这并不是说创造实体没有创造更小的实体来填补他们行星创造中可用空间的愿望，因为他们这样做是为了他们自己的乐趣。
+
 A typical construct does not have or need physicality,and so it does not have one.You might want to use the construction of your own clouds as an example you can relate to for this is how they would be perceived if they could be seen by your physical eyes. 
+
+一个典型的构造没有或不需要物理性，所以它没有。你可能想用你自己的云的结构作为一个例子，你可以联系到，因为这是它们如何被感知，如果它们能被你的肉眼看到。
 
 Within the construct,which would be similar in size to two of your suns,the entities create further constructs and discuss their relevance within the work they are doing to help their evolution.These constructs have a function and form that is relevant to the work they are created for. 
 
+在这个结构中，大小类似于两个太阳，实体创建进一步的结构，并讨论它们在工作中的相关性，以帮助它们的进化。这些结构有一个功能和形式，与它们被创造出来的目的有关。
+
 ME:So do they create things like houses,tools,and transportation just like us? 
 
-我：
+我：所以他们创造像房子、工具和交通工具这样的东西，就像我们一样吗？
 
 SE3:No,they have no need for transportation systems or places of shelter.The constructs that they make are for helping other entities evolve. 
 
-3号源实体：
+3号源实体：不，他们不需要交通系统或庇护所，他们建造的建筑是为了帮助其他实体进化。
 
 ME:Hang on a moment.There are other entities than those you created to exist in this environment? 
 
-我：
+我：等一下，在这个环境中除了你创建的实体之外，还有其他实体存在吗？
 
 SE3:Yes,of course.They are created as part of the initial environment. 
 
-3号源实体：
+3号源实体：是的，当然。它们被创建为初始环境的一部分。
 
-ME:What?Now I am confused.Please help me out here as I am starting to lose the thread of the direction of our conversation. 
+ME:What? Now I am confused.Please help me out here as I am starting to lose the thread of the direction of our conversation. 
 
-我：
+我：什么？我现在很困惑了。请帮我一下，因为我开始失去我们谈话的方向了。
 
 SE3:There is a general rule that all the Source Entities use when creating:an entity can create other entities for evolutionary purposes,but if that entity is to have sentience and individuality,it must come from the energy of the creating entity.On the other hand,if that entity is to have individuality but not sentience,then it can be created from the surrounding energy.An entity that is to have sentience but be part of a collective must also be part of the originating creator's energy.Therefore,only entities that are created by the giving up or sharing personal energy can have sentience and evolve.Some of the entities in my bliss-based environment have given up part or half of their energy,which,of course,links back to the Origin for the sole purpose of creating sentient beings that can both evolve in their own right and add to their creator's evolution.Please note that all of them are considered as equals,even though they are potentially of lesser energetic content-that is,volume not ability.They are also aware that they are created by others from their own personal energy and as such are bound by their energetic and evolutionary imprint. 
 
-3号源实体：
+3号源实体：所有源实体在创造时都有一个普遍的规则：**一个实体可以为了进化的目的而创造其他实体，但如果那个实体要有感知和个体性，它必须来自创造实体的能量**。另一方面，**如果那个实体要有个体性但没有感知，那么它可以从周围的能量中创造出来**。一个有感知但属于集体的实体也必须是起源创造者能量的一部分。因此，**只有通过放弃或分享个人能量而创造的实体才能有感知和进化**。在我基于极乐的环境中的一些实体已经放弃了部分或一半的能量，当然，这与源头联系起来的唯一目的是创造有情众生，这些众生既可以自己进化，又可以为创造者的进化添砖加瓦。
 
 ### An Evolutionary Imprint 
 
+**进化印记**
+
 ME:What is an evolutionary imprint?That is a description I have never heard before. 
 
-我：
+我：什么是进化印记？这是一个我从未听说过的描述。
 
 SE3:An evolutionary imprint is something that is unique to my entities.Each entity chooses a route to attain its optimum evolutionary opportunity.Call it a road map,if you like, with certain points that need to be achieved at certain points in their evolution.To get to these points,each entity needs to have achieved a certain level of experience,creativity, and responsibility.Each of these are recorded as being achieved,being experienced,being planned but not reached and in the imprint.If an entity creates an entity with the intention of giving it sentience,it then also gives it that which the creating entity has experienced and the rest of the points on the evolutionary imprint. 
 
-3号源实体：
+3号源实体：进化印记是每个实体独一无二的东西。每个实体选择一条路径来获得最佳的进化机会。如果你愿意，你可以称之为路线图，在进化的某些点上需要达到某些点。为了达到这些点，每个实体都需要达到一定水平的经验、创造力和责任。这些都被记录为正在实现、正在经历、正在计划但尚未达到的印记。如果一个实体创造一个实体的目的是赋予它知觉，那么它也会赋予它创造实体所经历的以及进化印记上的其他点。
 
 ME:They get a head start in their existence above that of their creators. 
 
-我：
+我：它们比它们的创造者更早存在。
 
 SE3:That is correct.But in doing so,the creating entity has the ability to evolve at twice the speed,as there are now two entities using the same imprint. 
 
-3号源实体：
+3号源实体：是的，但是这样做的话，创造实体有能力以两倍的速度进化，因为现在有两个实体在使用同一个印记。
 
 ### Replication,Division and Merging for Evolutionary Acceleration 
 
+**为了加速进化而复制、分裂和合并**
+ 我：
+
+3号源实体：
+
+我：我：
+
+3号源实体：
+
+我：我：
+
+我刚刚通过你的记忆经历了你所谈论的事情。我会说那些被创造的人是瞬间被创造的，不需要经历如此冗长的过程。那些带有进化印记的人在被创造时立即参与所有知识和经验。3号源实体：
+
+我：所以他们是克隆人，直接复制创造者？我：
+
+他们不是直接的复制品，因为他们不能从自身的分裂中创造； 因此，他们不能创造有情众生。他们可以创造无情的个体众生，但正如我之前解释的，他们是由周围可利用的能量组成的。
+ 我：好的，那么这些复制品如何进化并帮助他们的创造者进化呢？我：
+
+他们做他们认为需要进化的事情。一个创造实体完全有可能创造很多很多的自我复制品，以加速其进化。3号源实体：
+
+我：他们最多能创造多少个？一定有一个限制，以避免他们自己被过度稀释。我：
+
+SE3:正确观察。在他们失去能量多数之前，他们创造有一个上限。这取决于创造实体的原始能量含量，因为不是所有的实体都是等量的。这主要与实体合并在一起创造一个更大的创造实体有关。我马上会进一步描述。足够说的是，一个实体有一个普遍接受的上限，大约是一百个复制品，然后它开始失去作为一个创造实体的凝聚力。3号源实体：
+
+我：那么超过这个数字的实体会发生什么？我：
+
+它与他们的创造物合二为一，并失去了以这种方式重新创造自己的能力，同时，默认情况下，它会创造一个集体，一些实体选择这样做作为他们进化的一部分，而另一些实体选择与另一个创造实体合并，以创造一个新的集体，在这种情况下，一个单一的个体实体拥有更大的力量，如果你想这么称呼它的话。
+
 ME:So you are saying that the original entities that you created are also able to create sentient entities for the purposes of their own evolution?
 
-我：
+我：所以您的意思是，您所创造的原始实体也能够为了它们自己的进化目的而创造有意识的实体？
 
 SE3:In a nutshell,yes.But do not think that this is unusual,for you also create sentient beings,do you not? 
 
-3号源实体：
+3号源实体：简而言之，是的。但不要认为这是不寻常的，因为你也创造了众生，不是吗？
 
 ME:You mean we couple together to breed new human beings in order to replace ourselves and increase the population so that more souls can incarnate? 
 
-我：
+我：你的意思是我们结合在一起来繁殖新的人类，以取代我们自己，增加人口，这样更多的灵魂可以投生？
 
 SE3:Yes.And do you not evolve are a result of the interaction between yourselves as parents and the smaller beings you call children? 
 
-3号源实体：
+3号源实体：是的。你们作为父母和你们称之为孩子的小生命之间的互动，难道不是进化的结果吗？
 
 ME:I suppose we do,yes,but we also accrue karma points as a result.It is a double edged sword with us humans re-creating ourselves the way we do.It's a slow process and relies on us, in general,being dedicated to those that we give physical life to for the rest of our physical lives. Some people abuse this privilege whereas others are model children,parents,and grandparents. 
 
-我：
+我：我想我们是这样，是的，但我们也积累了业力。这是一把双刃剑，我们人类以我们的方式来重塑自己。这是一个缓慢的过程，通常依赖于我们，为那些我们给予物质生命的余生而奉献。有些人滥用这种特权，而另一些人则是模范儿童、父母和祖父母。
 
 SE3:I have just experienced what you are talking about through your memories.I will say that those that are created are created instantaneously and do not have to go through such long-winded processes.Those that are created with the evolutionary imprint are party to all knowledge and experience immediately upon creation. 
 
-3号源实体：
+3号源实体：我刚刚通过你的记忆经历了你所谈论的事情。我要说那些被创造的人是瞬间被创造的，不需要经历如此冗长的过程。那些带着进化印记被创造的人，在被创造时立即成为所有知识和经验的一方。
 
 ME:So they are clones,direct copies of the creators? 
 
-我：
+我：所以他们是克隆人，直接复制创造者？
 
 SE3:They are not direct copies,for they are not able to create from the division of themselves;therefore,they cannot create sentient beings.They can create non-sentient individual beings,but as I have previously explained,they are made of energy that is available within the surrounding areas. 
 
+3号源实体：他们不是直接的复制品，因为他们不能从自身的分裂中创造；因此，他们不能创造有情众生。他们可以创造无情的个体众生，但正如我之前解释的，他们是由周围可利用的能量组成的。
+
 ME:O.K.,so what do these copies do to evolve and help their creators evolve?
 
-我：
+我：好的，那么这些复制品如何进化并帮助他们的创造者进化呢？
 
 SE3:They do what they feel is required to evolve.It is entirely possible for a creating entity to create many,many copies of itself in order to accelerate its evolution. 
 
-3号源实体：
+3号源实体：他们做他们认为需要进化的事情。一个创造实体完全有可能创造很多很多的自我复制品，以加速其进化。
 
 ME:Up to how many can they create?There must be a limit so they avoid diluting themselves too much. 
 
-我：
+我：他们最多能创造多少个？一定有个限制，以免他们自己被稀释太多。
 
 SE3:Correct observation.There is an upper limit where they create before they lose their energetic majority.This is dependent upon the original energetic content of the creating entity,for not all entities are ofequal content.This is mainly to do with the merging together of entities to create a bigger creating entity.I will describe this further in a moment.Suffice to say,an entity has a generally accepted upper limit of around one hundred copies of itself before it starts to lose its cohesion as a creating entity. 
 
-3号源实体：
+3号源实体：正确观察。在他们失去他们的能量多数之前，有一个创造的上限。这取决于创造实体的原始能量含量，因为不是所有的实体都是等量的。这主要与实体合并在一起创造一个更大的创造实体有关。我马上会进一步描述这一点。足够说，一个实体有一个普遍接受的上限，大约是一百个复制品，然后它开始失去作为一个创造实体的凝聚力。
 
 ME:So what happens to an entity that exceeds this number? 
 
-我：
+我：那么超过这个数字的实体会发生什么？
 
 SE3:It becomes as one with their creations and loses the ability to re-create itself in this way.Also,by default,it then creates a collective.Some entities elect to do this as part of their evolution whereas others elect to merge themselves with another creating entity to create a new collective-in this instance,a single individual entity of greater power if you want to call it that. 
 
-3号源实体：
+3号源实体：它与他们的创造物合二为一，并失去了以这种方式重新创造自己的能力。同时，默认情况下，它会创造一个集体。一些实体选择这样做，作为他们进化的一部分，而另一些实体选择与另一个创造实体合并，以创造一个新的集体——在这种情况下，一个单一的个体实体，如果你想这么称呼它的话，它拥有更大的力量。
 
 ME:So why would entities want to merge together whilst others want to diversify to the point of loss of creativity? 
 
-我：
+我：那么为什么有些实体想要合并在一起，而另一些实体想要多样化到失去创造力的地步呢？
 
 SE3:Simply to evolve in a different way than the other entities they were created with. 
 
-3号源实体：
+3号源实体：简单地说，就是以一种不同于其他实体的方式进化。
 
 ME:So an entity may decide to either divide itself up to the point of dilution of own ability to experience evolution as a supposedly lesser entity but still be collectively connected to those entities that it created,or it can merge with others to create a bigger more powerful being of combined experience,knowledge,evolution,and evolutionary imprint. 
 
-我：
+我：所以一个实体可以决定要么分裂自己到稀释自己的能力，以一个假设的较小的实体来经历进化，但仍然与它所创造的那些实体共同连接，或者它可以与其他实体合并，创造一个更大更强大的存在，结合经验、知识、进化和进化印记。
 
 SE3:Yes. 
 
+3号源实体：是的。
+
 ME:Can the entity that has split itself into the level that it loses its creativity,entity-wise,reverse this process? 
 
-我：
+我：这个实体已经分裂成一个失去创造力的等级，那么这个实体能否逆转这个过程？
 
 SE3:Once the process has been initiated,it cannot be reversed,that is,not by the will of the original entity on its own.Remember:the creating entity has created a high number of "sentient"entities.It cannot of its own violation remove their individuality or sentience,for this would be akin to killing that entity.It can,however,merge with a willing entity to create an entity of greater "creator"energy and,therefore,reinstate its position-that position being relative to the number of entities that elect to merge with the original of a creating entity.They cannot merge themselves to create a bigger more powerful entity;this can only be done with the original creating entity and the desire of one or more "created"entities to return to their source. 
 
-3号源实体：
+3号源实体：一旦这个过程开始了，就不能逆转，也就是说，不能由原始实体的意愿来逆转。记住：创造实体已经创造了大量的“有知觉”实体。它不能通过自己的违背来移除它们的个性或知觉，因为这将等同于杀死那个实体。然而，它可以与一个愿意合并的实体来创造一个拥有更大的“创造者”能量的实体，因此，恢复它的地位——这个地位与选择与原始创造实体合并的实体的数量有关。
 
 ### Returning to the Creating Entity 
 
