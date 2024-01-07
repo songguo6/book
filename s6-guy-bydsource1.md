@@ -1239,7 +1239,7 @@ ME:Yes,I get an image of you all bunched up together,like black balls all togeth
 
 我：是的，我看到你们都聚集在一起，就像黑球聚集在一个更大的球里，那个更大的球就是起源。
 
-（图一：起源和源实体）
+（图1：起源和源实体）
 
 ![Figure 1: The Origin and the Source Entities](img/s6-025.png)
 
@@ -1511,7 +1511,7 @@ I then received an image of a mass of something,say a cloud.This cloud was on it
 
 然后我收到一团东西的图像，比如说云。这片云本身就是一个起伏的团块。然后我看到一大团我只能形容为雨滴的东西。每一滴雨滴都有自己的知觉。当我进一步观察并进入云中，我被告知那是它们的环境，我注意到每一滴雨滴都有角色扮演和工作要做。每个角色和工作要么是个人分配的，要么是集体分配的。在角色/工作被分配之前，要扮演这个角色的雨滴并不是一个独立的实体。它完全是云的一部分。当角色被定义，并与其他雨滴或能量的相互作用被建立起来时，一滴雨或一系列雨滴将形成，它们将做必要的事情来执行和完成任务。当任务完成时，雨滴或雨滴将返回云中并失去它们的独特性。它们再次与云结合。它们的独特性消失了，但它们的本质在云中，即它们的环境中得以保持。云，即环境，是由源本质建造的，源本质可以分为两部分：环境本质和独立本质。
 
-（图二：云朵和雨滴）
+（图2：云朵和雨滴）
 
 ![Figure 2: The Cloud and Rain Drops](img/s6-026.png)
 
@@ -2855,353 +2855,367 @@ SE3:Once the process has been initiated,it cannot be reversed,that is,not by the
 
 ### Returning to the Creating Entity 
 
+**回到创造者身边**
+
 ME:Do they lose their individuality when they return to their creator?This is one of the things that we all ask in the physical world of our creator,Source Entity One.In our instance,we still retain individuality but are a fully functioning part of Source Entity One.We can even leave the Source at will if required/requested in order to provide additional evolutionary opportunities. 
 
-我：
+我：当他们回到他们的创造者身边时，他们会失去他们的个性吗？这是我们在我们的创造者，源实体一的物质世界里所问的其中一个问题。在我们的例子中，我们仍然保留个性，但却是源实体一的完全运作的一部分。为了提供额外的进化机会，如果需要/要求，我们甚至可以随意离开源头。
 
 SE3:Yes,but this is understood by the returning entity.They know that they came from nothing,as indeed we all do since we are all ultimately creations of the Origin.However, they are also aware that once they have been created,they can be re-created by the creating entity in totality at a later date after they decide to return to their creator. 
 
-3号源实体：
+3号源实体：是的，但是回归的实体理解这一点。他们知道他们来自虚无，就像我们所有人一样，因为我们都是起源的最终产物。然而，他们也意识到一旦他们被创造了，他们可以在他们决定回到他们的创造者之后，被创造的实体在以后的某个日期全部重新创造。
 
 ME:So does this happen a lot?Do entities elect to return to their creator,complete in the knowledge that they will no longer have individuality? 
 
-我：
+我：那么这种情况经常发生吗？实体选择回到他们的创造者那里，完全知道他们将不再有个性吗？
 
 SE3:This happens on a regular basis and is a direct result of the type of evolutionary work done by that entity.In essence,they become specialized in evolving within certain types of experience.Once they have evolved as a result of the work they have done within the experiential environment,they may then elect to become part of the whole again.However, when the creating entity needs to evolve in an area that would be best supported by that part of itself that was of optimal evolution in the proposed experiential environment,it re-creates that entity even at the potential expense of it losing its creating functions.The object here is not the concern over the loss of individuality but taking every opportunity that presents itself to evolve and working with it.This is something that you humans could learn.In their eyes,evolutionary progression is the number one priority;they have no concept of personal loss of individuality.This is one of the facets of existence in the levels of frequency that they exist in. 
 
-3号源实体：
+3号源实体：这在常规的基础上发生，是该实体所做的进化工作的直接结果。本质上，它们在某些类型的经验中进化得更加专业化。一旦它们在经验环境中所做的工作导致了进化，它们可能再次选择成为整体的一部分。然而，当创造实体需要在一个领域进化时，它会得到在所提出的经验环境中最优进化的那部分自身的最佳支持，它会重新创造那个实体，即使它可能会失去创造功能。这里的目标不是担心个性的丧失，而是抓住每一个出现的进化和工作的机会。这是你们人类可以学习的东西。在它们眼中，进化过程是第一优先事项；它们没有个人个性丧失的概念。这是它们所存在的频率水平的存在方面之一。
 
 ME:So the entities that are created by the creating entities are,in effect,entities that are created as tools for maximizing evolutionary opportunities whenever they arise.They are facets of themselves that are experienced in evolving in certain conditions and are created specifically to maximize that opportunity.They are given sentience and individuality to allow them to function in a fully autonomous way,maximizing the evolutionary opportunity.This is why they have the evolutionary imprint.They function exactly as the original creating individual,and the only difference is that they are focused upon the task that they were created for.That is why the original entity evolves at the same time as the created entity.Although they are separate, they are one and the same.They are like,for example,twenty entities experiencing twenty different evolutionary opportunities all at the same time-thus allowing the creating entity the opportunity to evolve at twenty times the speed that it could on its own. 
 
-我：
+我：所以，由创造实体所创造的实体，实际上，是作为工具而创造的实体，以最大化进化机会，无论何时出现这种机会。它们是自身的不同方面，在特定条件下经历进化，并被专门创造出来以最大化这种机会。它们被赋予了感知能力和个性，使它们能够以完全自主的方式运作，最大化进化机会。这就是为什么它们有进化的印记。它们的功能与最初的创造个体完全相同，唯一的区别是它们专注于被创造的任务。这就是为什么原始实体与被创造的实体同时进化。虽然它们是分离的，但它们是一体的。例如，它们就像20个实体，同时经历20个不同的进化机会，从而使创造实体有机会以20倍于它自身的速度进化。
 
 SE3:Correct.This is a good analogy and is the reason why the created entities have no qualm about returning to their creator and losing their individuality as a result.It's also the reason why the creating entity has no issue with losing its creative ability and becoming one and the same with its creations,albeit temporarily,because it knows that at some point one of the entities it has created will need to return to it because it will have finished its job. 
 
-3号源实体：
+3号源实体：正确。这是一个很好的类比，也是为什么被创造的实体对于返回到创造者那里并因此失去自己的个性没有任何不安的原因。这也是为什么创造实体对于失去创造能力并与其创造物合二为一没有任何问题的原因，尽管是暂时的，因为它知道在某个时刻它所创造的实体之一将需要返回到它那里，因为它将完成自己的工作。
 
 ME:But hold on.You said that the created entities elected to return to their creators earlier.This tells me that they have some level of free will on electing to return,and when they complete their job,they may actually elect to not return to their creator. 
 
-我：
+我：但是等等。你之前说过被创造的实体选择回到他们的创造者那里。这告诉我他们有某种程度的自由意志来选择返回，当他们完成他们的工作时，他们可能实际上选择不返回他们的创造者那里。
 
 SE3:This is,in fact,a decision that they may elect to take.However,they must have a valid reason for not returning to their creator. 
 
-3号源实体：
+3号源实体：事实上，这是他们可以选择采取的决定。然而，他们必须有一个不返回到他们的创造者的正当理由。
 
 ME:So what constitutes a reason not to return to the creating entity when the created entity has clearly finished its job,evolved,and in the process pushed the creating entity up the evolutionary ladder? 
 
-我：
+我：那么当被创造的实体已经完成了它的工作，进化了，并且在这个过程中把创造实体推上了进化的阶梯，那么不回到创造实体的理由是什么？
 
 SE3:As part of the finalization of the existence of the entity,it needs to review what it has done to evolve in the way it has.In that instance,if the entity sees that the level of evolution could be optimized further by taking the direction of experience into a different direction,one that is not too distant from that already experienced but different,it would be enough to warrant investigation.It may decide that it needs to investigate this route further and,therefore,extend its time in individuality in order to take advantage of this evolutionary opportunity.It does this of its own violation and does not need the permission of the creating entity.You see in this instance the created entity is doing its job correctly.It is pushing the evolution of itself and the creating entity by maximizing its existence.When eventually all of the avenues of opportunity are taken,the entity will then consider that it has maximized its reason for individual existence and will elect to return to its creator. 
 
-3号源实体：
+3号源实体：作为实体存在终结的一部分，它需要回顾它所做的事情以便以它的方式进化。在这种情况下，如果实体看到进化水平可以通过将经验的方向转向另一个方向来进一步优化，一个与已经经历过的不太远但不同的方向，那就足以保证调查。它可能会决定需要进一步调查这条路线，因此，为了利用这个进化的机会，它延长了个体的时间。它这样做是违反自己的，不需要创造实体的许可。在这个例子中，你可以看到被创造的实体正在正确地做它的工作。它正在通过最大化其存在来推动自身和创造实体的进化。当最终所有的机会都被利用时，实体将考虑到它已经最大化了其个体存在的理由，并将选择回到它的创造者那里。
 
 ME:So how often does a creating entity reach the stage where it is in the state that it is equal with its creations,and how long could it stay in that condition? 
 
-我：
+我：那么一个创造实体多久会达到它与其创造物相等的状态，它能在这种状态下停留多久？
 
 SE3:I would say that almost every one of the creating entities has been in this state at least three or four times.Indeed,some of them have been in this condition ten or twenty times. You have to understand that these entities have been in existence for almost as long as I have and,therefore,have had many opportunities to evolve.How long they have been in this condition varies from entity to entity and how many of their creations are close to finishing their work.I will check on the imprints of my entities.(Pause) Some have experienced equality for as little as 25 minutes whereas many others have experienced this condition for many millennia;it just depends on the timing of the creation of their entities.A good average would be in excess of 300-400 of your years. 
 
-3号源实体：
+3号源实体：我可以说几乎每一个创造实体都至少经历过这种状态3到4次。事实上，其中一些已经经历过这种状态10到20次。你必须明白这些实体存在的时间几乎和我一样长，因此，有许多进化的机会。它们在这种状态下的时间因实体而异，取决于它们的创造物中有多少接近完成它们的工作。我会检查我实体的印记。(停顿)有些实体只经历了25分钟的平等，而许多其他实体经历了数千年的平等；这只是取决于它们实体的创造时间。一个好的平均值将超过你们时间的300-400年。
 
 ME:You just mentioned that almost all of the creating entities experienced this condition.This implies that there are those that haven't.
 
-我：
+我：你刚才提到几乎所有的创造实体都经历过这种情况，这意味着有些实体没有经历过。
 
 SE3:You are right.There are a handful of entities that have not reached that level of dilution. This is not an issue for they have experienced the evolution that they expected to achieve in their evolution imprint. 
 
-3号源实体：
+3号源实体：你说得对。有少数实体还没有达到那种稀释的程度。这不是一个问题，因为他们已经经历了他们在进化印记中预期要达到的进化。
 
 ME:You also stated earlier that some entities merged together to create a larger entity.What is the reasoning for this?I thought that they were pretty powerful in their normal state? 
 
-我：
+我：你之前也提到过一些实体会合并成一个更大的实体。这背后的原因是什么？我认为他们在正常状态下已经很强大了。
 
 SE3:Although the creating entities are powerful in their own right,they gain additional facilities as a result of their merging together.In variance to the re-merging together of created entities were the created entities that lose individuality when returning to the creating entity.When they merge together,they do not lose their individuality even though they are,for all intents and purposes,a single entity. 
 
-3号源实体：
+3号源实体：虽然创造实体本身是强大的，但它们由于合并在一起而获得额外的设施。与被创造实体重新合并在一起不同的是，被创造实体在返回创造实体时失去了个性。 当它们合并在一起时，它们不会失去自己的个性，尽管它们实际上是一个单一的实体。
 
 ME:So what is the benefit of their merging then? 
 
-我：
+我：那么他们合并有什么好处呢？
 
 SE3:Enhanced creativity which enhances their evolutionary opportunities.I see that this is not a good enough answer for you,so I will elaborate further.Creating entities that merge together in-I will use a word in your mind-coadunation,increase their capacity for creativity to a level that none of them could achieve on their own even in collaboration.In merged groups of three or four entities and above,they can create their own universes and act as a Source Entity might in terms of its level of creativity and resulting responsibility. This can only be achieved in numbers merging above two since three and above creates a critical mass that allows certain Source Entity energies to be available. 
 
-3号源实体：
+3号源实体：增强创造力，增强他们的进化机会。我看到这对你来说不是个足够好的答案，所以我会进一步阐述。创造融合在一起的实体——我会用你脑海中的一个词——联合，增加他们的创造力到一个水平，即使在合作中，他们也没有一个人能实现。在三个或四个实体以上的合并组中，他们可以创造他们自己的宇宙，并作为一个源实体，根据其创造力水平和由此产生的责任。这只能在两个以上的合并数字中实现，因为三个及以上创造了一个临界质量，允许某些源实体能量可用。
 
 ME:Do you have many creating entities merging?
 
-我：
+我：你有很多创建实体合并吗？
 
 SE3:It is one of the most popular ways of enhancing evolution,especially when some of the creating entities elect to work within the universe/s that some of these merged entities create. 
 
-3号源实体：
+3号源实体：这是增强进化最流行的方式之一，特别是当一些创造实体选择在这些合并实体所创造的宇宙中工作时。
 
 ME:Do any of these entities remove themselves from this merged state?I can imagine that once an entity has experienced a level of creativity and responsibility consistent with the number of entities merged together that allows the integration of Source Entity energy,they would not want to return to a level that is,to my mind,fairly mediocre in comparison. 
 
-我：
+我：这些实体中有没有从这种合并状态中移除自己的？我可以想象，一旦一个实体经历了与合并在一起的实体数量相一致的创造力和责任，允许源实体能量的整合，他们不会想要回到一个在我看来相当平庸的水平。
 
 SE3:You forget that these entities already exist in a fine frequency level,a bliss state,so they are not disenfranchised too much when they remove themselves from the merge.They have grown as a result of the merge and the energies involved and are "bigger"as a result. Suffice to say,I have only had two groups dissolve their merge to date and less than twenty individuals remove themselves from a merge greater than two.You may actually have a point here,but I...I will just scan them.(Pause)No,none of those who are still in a merged existence are only in that existence through fear of loss of ability,function,or power. 
 
-3号源实体：
+3号源实体：你忘记了这些实体已经存在于一个很好的频率水平，一个幸福的状态，所以当他们从合并中移除自己时，他们并没有被剥夺太多的权利，他们已经因为合并和所涉及的能量而成长，结果是“更大”，我只让两个团体解散了他们的合并，不到20个人从大于两个的合并中移除自己，你可能有一点，但我...我只是扫描他们。(停顿)不，那些仍然在合并的存在中，没有人只是因为害怕失去能力，功能或权力而存在。
 
 ### A Comparison with Source Entity One's Multiverse 
 
+**与1号源实体的多维宇宙的比较**
+
 ME:One of the things I would like to ask is how similar is life,energetically and physically,in our multiverse compared to your own? 
 
-我：
+我：我想问的一件事是，在能量和物质上，我们的多维宇宙与你们自己的相比，有多相似？
 
 SE3:You need to understand that there can be no comparison with your universe's environment-at least not in the sense that you would want a comparison to be made. As I've previously explained,the reason for this is due to the high frequency level of my universal environment.I can see that you are already about to ask another question,one where you think we may be able to make a comparison.Is this not correct? 
 
-3号源实体：
+3号源实体：你需要明白，我们无法与你们宇宙的环境进行比较，至少不是你们所希望的那种比较。正如我之前解释的，原因在于我宇宙环境的高频率。我知道你已经准备问另一个问题了，你认为我们可以进行比较。这不对吗？
 
 ME:Yes,I was thinking that we could compare the structure of your universe with that of Source Entity One's. 
 
-我：
+我：是的，我正在想我们可以比较一下你们宇宙的结构和1号源实体的结构。
 
 SE3:First,your source Entity has created myriad different universes,which you call a multiverse.I chose not to go down this route as this was not what I wanted to do.As I have previously stated,I created a single universal environment of high frequency of an equally high dimensional status.Within this I have created one race of beings to populate it,each pre-programmed (as you are)with the need to evolve through experience.As my creations are all part of the same frequency base as their environment,they are subject to the limitations of that frequency.In my universe I also have one operational dimension; this dimension is singular in expression but high enough not to need the support of other dimensions to keep it in its position.If I were to compare its position with your dimensions, it would be in the 14-15th dimensional position.Bear in mind that you do not actually have a dimension of such a high status.In your multiverse,you have but twelve real levels within which all your other dimensions or dimensional phases exist. 
 
-3号源实体：
+3号源实体：首先，你们的源实体创造了无数不同的宇宙，你们称之为多维宇宙。我选择不走这条路，因为这不是我想做的。正如我以前所说，我创造了一个高频率的单一宇宙环境，具有同等高的维度地位。在此我创造了一个种族的存有来填充它，每个预先编程(就像你们一样)需要通过经验进化。由于我的创造物都是它们环境相同频率基础的一部分，它们受制于那个频率的限制。在我的宇宙中，我还有一个运作维度；这个维度在表达上是单一的，但高到足以不需要其他维度的支持来保持它的位置。如果我把它的位置与你们的维度进行比较，它将处于第14-15个维度的位置。记住，你们实际上没有一个如此高地位的维度。在你们的多维宇宙中，你们只有12个真实的级别，在其中存在着你们所有的其他维度或维度阶段。
 
 ME:My Source Entity told me that it had 12 x 12 x 12 x 3 dimensions.Are you saying that this is not true? 
 
-我：
+我：我的源实体告诉我它有12 x 12 x 12 x 3维度。你是说这不是真的？
 
 SE3:It is true,but you have to consider that Source Entity One's dimensions are nested. It has created dimensions within dimensions,each of them padded out with a frequency base.My dimension is not nested and,therefore,allows an entity to access its volumetric opportunities in entirety. 
 
-3号源实体：
+3号源实体：是的，但是你必须考虑到1号源实体的维度是嵌套的，它在维度中创造了维度，每个维度都有一个频率基。我的维度不是嵌套的，因此，允许实体完全地接触到它的体积机会。
 
 ME:Help me out here.Are you suggesting that the dimension in your universe is the same size as all of the dimensions in my Source Entities multiverse? 
 
-我：
+我：帮我一下。你的意思是你们宇宙中的维度和我源实体多维宇宙中的所有维度一样大吗？
 
 SE3:Yes.It must be.We are both the same,so whatever we create,we create within ourselves.As a result we can make things as big or as small as we like,provided they are contained within our own boundaries. 
 
-3号源实体：
+3号源实体：是的，一定是这样。我们都是一样的，所以无论我们创造什么，我们都是在自己体内创造。因此，我们可以随心所欲地把东西做得或大或小，只要它们在我们自己的界限之内。
 
 ME:I find that fascinating. 
 
-我：
+我：我觉得这很吸引人。
 
 SE3:You may,but it is one of the rules we,as Source Entities,have to follow. 
 
-3号源实体：
+3号源实体：你可以，但这是我们作为源实体必须遵守的规则之一。
 
 ME:Getting back to the comparison-if your entities are existing in a single dimension of high frequency,everything that they are in contact with must be the same because energetically speaking,they are based upon this.They must be in conflict with it at all times-like they must be stuck in the ground or a rock,so to speak. 
 
-我：
+我：回到比较-如果你的实体存在于高频率的单一维度中，他们接触的一切都必须是相同的，因为从能量上讲，他们是基于这个的。他们必须与它一直处于冲突中-就像他们必须被卡在地面或岩石中，可以这么说。
 
 SE3:You are thinking in terms of the physical environment thatthat part of you is currently experiencing. 
 
-3号源实体：
+3号源实体：你在思考你身体的某一部分正在经历的物理环境。
 
 ME:I might be.I have to actually.This is the only tangible datum I have as a human being. 
 
-我：
+我：我可能。我必须。这是我作为一个人唯一有形的资料。
 
 SE3:Again,this is a physical consideration.Please understand-physics is the only known constant that can be used to describe that which is Origin,but know this:physics is not a study of the physical.It is a study of the energetic,and the energetic behaves relative to that dimension/frequency that it is part of.As a result,that which is of the same dimension or frequency is not necessarily in conflict.I will use your condition as a descriptor;it is not solid object against solid object.It is like a very rare gas mixing with a very rare gas.Of course,this is a crude example,and even the rare gas example is far too dense to be anywhere near correct,but it will suffice. 
 
-3号源实体：
+3号源实体：再一次，这是一个物理上的考虑。请理解-物理是唯一已知的常数，可以用来描述起源，但要知道这一点：物理学不是物理的研究，它是对能量的研究，能量的行为与其所属的维度/频率有关。因此，具有相同维度或频率的东西不一定是冲突的。我将使用你的条件作为一个描述符；它不是固体对象对固体对象。它就像一种非常稀有的气体与一种非常稀有的气体混合。当然，这是一个粗略的例子，即使是稀有气体的例子也太稠密了，以至于几乎是正确的，但它将足够。
 
 ME:But aren't gases based upon differing frequency levels? 
 
-我：
+我：但是气体不是基于不同的频率水平吗？
 
 SE3:No,they are based upon a different chemical composition,and a chemical composition is a physicality that is not available in my universe.Now consider that the difference in an entity and its environment is based upon energy-energy that is based upon a dimensional condition without actually needing to be part of a particular dimension-and you have the ability for that entity to have energy that is singular to its environment whilst being part of it because it exists within it.That means that the content of the universe is not opaque; it is always clear.An entity can pass through it,any part of it,at will without hindrance or resistance of any sort.I can see that you are having difficulty with this. 
 
-3号源实体：
+3号源实体：不，它们是基于不同的化学成分，而化学成分是一种物质性，在我的宇宙中是不可用的。现在考虑一下，一个实体和它的环境的区别是基于能量的——能量是基于一种维度条件，而实际上不需要成为特定维度的一部分——你有能力让那个实体拥有对它的环境来说是独一无二的能量，同时又成为它的一部分，因为它存在于其中。这意味着宇宙的内容是不透明的；它总是清晰的。一个实体可以穿过它的任何部分，随意地，没有任何阻碍或抵抗。我可以看到你对此有困难。
 
 ME:I am a bit. 
 
-我：
+我：我有点儿。
 
 SE3:Well,think of it in these terms:the entity is one with the universe,and the universe is one with the entity.The only difference is that the universe has a single intelligence/ sentience of its own.Parts of it also have intelligence and sentience.These smaller parts travel around the universe by associating that part of their intelligence where they want it.This causes the loci of their energetic signature-if you want to call it that-to be relocated to that part of the universe where they wanted to be present.Hence,this gives the impression that they have moved without hindrance. 
 
-3号源实体：
+3号源实体：嗯，从这些方面来考虑：实体与宇宙是一体的，宇宙与实体也是一体的。唯一的区别是宇宙只有它自己的单一智能/感知。它的部分也有智能和感知。这些较小的部分通过把它们的智能与它们需要的地方联系起来，在宇宙中旅行。这导致它们的能量特征轨迹——如果你想这么称呼它的话——被重新定位到它们想要出现的宇宙部分。因此，这给人一种它们没有障碍地移动的印象。
 
 ME:Why did you use the word "loci"?It is usually attributed to a number of points a fixed distance from an originating point that creates a curve or that can be related to a specific point on a curve.
 
-我：
+我：为什么你用“轨迹”这个词？它通常指的是距离原点一定距离的若干点，这些点构成了曲线，或者与曲线上的某个特定点相关。
 
 SE3:That would be a good description of my entities.They have an origin point and other points where their intellect is in focus.When a particular point is in more focus than the others-that is,it has more sentience attributed to it-then it could be called the loci or locus of that entity.It is similar to that part of you that is typing this text now is the locus of that part of you that is projected into the physical of your multiverse to create you as a human being.Thus,they have a locus to indicate thatthat is the majority of them in their universe. This is how they maintain their singularity within the universe and how they can become merged-by the joining together of points of their loci-or separated by removing points of their loci. 
 
-3号源实体：
+3号源实体：这将是一个很好的描述我的实体。他们有一个起源点，其他点是他们的智能集中。当一个特定的点比其他点更集中时，也就是说，它有更多的感知属性，那么它可以被称为轨迹或实体的轨迹。它类似于你现在打这段文字的部分，是你投射到你的多维宇宙的物理部分的轨迹，以创造你作为一个人。因此，他们有一个轨迹来表明，这是他们宇宙中的大多数。这就是他们如何在宇宙中保持他们的独特性，以及他们如何通过连接他们的轨迹点而合并，或通过移除他们的轨迹点而分离。
 
 ME:O.K.,so I have established that you have created a singular universe and that it is of a high dimension and frequency.The universe has its own sentience,and it is populated with a single race of entities that have the ability to merge or split themselves up into smaller entities.The planets or areas of local density,if we can call them that,have no more density than a cloud in my planet's atmosphere.The entities evolve by being creative in their own right. 
 
-我：
+我：好的，我已经确定你创造了一个单一的宇宙，而且它具有高维度和高频率。宇宙有它自己的感知能力，它由单一种族的实体构成，这些实体有能力合并或分裂成更小的实体。行星或局部密度的区域，如果我们可以这么称呼它们的话，没有比我行星大气层中的云朵密度更大。实体通过自身的创造力进化。
 
 SE3:That would be a reasonable summary. 
 
-3号源实体：
+3号源实体：那将是一个合理的总结
 
 ### Working Together-A Job for Life! 
 
+**一起工作：终身职业！**
+
 ME:I can't help feeling that I am missing something though.It's like there is a piece of the jigsaw that is necessary before I can finish with my dialogue with you. 
 
-我：
+我：我还是忍不住觉得我缺了点什么。就像拼图里缺了一块，我才能完成和你的对话。
 
 SE3:You want to know what my entities do when they are attracted to work within the vicinity of local density you call planets. 
 
-3号源实体：
+3号源实体：你想知道我的实体被吸引到你称之为行星的局部密度附近工作时会做什么。
 
 ME:Right!
 
-我：
+我：对！
 
 SE3:Then I will tell you as I can see that you want to get down to the coal face/nitty-gritty/ basic levels of existence in my universe. 
 
-3号源实体：
+3号源实体：那么我来告诉你，我看得出你想了解我这个世界里最基本的事物。
 
 ME:Correct. 
 
-我：
+我：正确。
 
 SE3:My entities do not need to have the trappings of life that you have in your universe and,therefore,do not use or create them.In your universe the entities that are incarnate are bound by the need to create objects of technology to help with everyday existence.Good examples are safe areas where you go to regenerate-you call them houses-and various means you use to allow the physical body to travel from one part of the planet or universe to the other.Some of you even have devices that allow inter-dimensional transport.None of these are necessary in my universe. 
 
-3号源实体：
+3号源实体：我的实体不需要你们宇宙中的生命的外壳，因此，不使用或创造它们。在你们的宇宙中，投生的实体被创造技术物体的需求所束缚，以帮助日常生存。好的例子是你们去再生的安全区域--你们称之为房子--以及你们用来让肉体从行星或宇宙的一部分旅行到另一部分的各种方法。你们中的一些人甚至有允许跨维度运输的设备。这些在我的宇宙中都是没有必要的。
 
 As we have recently discussed and you have expressed eloquently,my entities can merge or separate to evolve in the way they choose.When they work together as a team,they do so as a team of merged entities,a team of separated entities,or a mixture of both.When they are working as a team,they sometimes find it advantageous to work within an environment where they are limited in their connectivity with the rest of the universe.To do this,they align themselves to the area of local density you call a planet.Now I have previously stated that the planets in my universe are not solid in nature;as a result,they do not have what you would call physicality.In fact,they are not part of a solar system or a galaxy which are clusters of areas of local density within your own universe,for they do not exist. 
 
+正如我们最近讨论的，你已经雄辩地表达了，我的实体可以合并或分离以他们选择的方式进化。当他们作为一个团队一起工作时，他们这样做是一个合并实体的团队，一个分离实体的团队，或两者的混合体。当他们作为一个团队工作时，他们有时会发现在一个环境中工作是有利的，在那里他们与宇宙的其他部分的连接是有限的。为了做到这一点，他们将自己与你们称之为行星的局部密度区域保持一致。现在我之前已经声明过，我的宇宙中的行星在本质上不是固体的；因此，它们没有你们所说的物质性。事实上，它们不是太阳系或银河系的一部分，它们是你们自己的宇宙中局部密度区域的集群，因为它们不存在。
+
 ME:So the planets are singular and not part of a cluster in any way,shape,or form?
 
-我：
+我：所以行星是单一的，在任何方式、形状或形式上都不是集群的一部分？
 
 SE3:No,but they are spread out fairly equally around my universe.Yes,I see that you have picked up an image of what I am describing.Think of a matrix in what you might call 3D.Then consider my universe as spherical that is filled with this matrix of areas of local density.You will then have a very crude illustration of how my universe is populated with planets.
 
-3号源实体：
+3号源实体：不，但它们在我的宇宙中分布得相当均匀。是的，我看到你已经对我所描述的有了一种印象。想想一个你们可能称之为三维的矩阵。然后把我的宇宙看成一个球体，它充满了这种局部密度的矩阵区域。然后你就会有一个非常粗略的说明，说明我的宇宙是如何被行星所占据的。
+
+（图3：矩阵球）
 
 ![Figure 3: The Matrix Sphere](img/s6-027.png)
 
 ME:So how large are they? 
 
-我：
+我：那么它们有多大呢？
 
 SE3:Some of them are as big as one of your galaxies whereas others are no bigger than your moon.They are all there for the use of my entities in their evolutionary exploits if they so wish to use them. 
 
-3号源实体：
+3号源实体：有些星球和你们的星系一样大，而有些星球比你们的月亮还小。如果我的实体想使用它们的话，它们都可以在进化过程中使用它们。
 
 ME:This is very interesting-a single universe with no galaxies but full of areas of local density or cloud-like planets with some of them as big as a galaxy in my own universe but,nevertheless, a planet.I can hardly think of the possibilities that present themselves in a planet the size of a galaxy.What do the entities do? 
 
-我：
+我：这很有趣——一个没有星系的单一宇宙，但充满了局部密度或云状行星的区域，其中一些像我自己的宇宙中的星系一样大，但无论如何，一个行星。我几乎无法想象在星系大小的行星上出现自己的可能性。这些实体做什么？
 
 SE3:I have explained some of the things they do from a high level already,but I can see that you still want something extra. 
 
-3号源实体：
+3号源实体：我已经从高层次上解释了一些他们所做的事情，但我可以看出你仍然想要一些额外的东西。
 
 ME:I do.I would like to understand what life is like being associated with these planets,even if it is a case that they just mess around with energy for hundreds of years. 
 
-我：
+我：是的，我想要了解与这些行星相关的生命是什么样的，即使他们只是在能量上混了数百年。
 
 SE3:The planets are not solid,and so the entities that associate themselves with the planet work within them,that is,in the area where the planet exists.The entities work with those that they are merged with or are split up as a group.Whilst operating within the confines of these planets,the entities'general objective is to use the available energy within the volume of the planet to create something of evolutionary benefit both to themselves and to those merged or separated but grouped entities at a later point in existence. 
 
-3号源实体：
+3号源实体：行星不是固体，所以与行星相关的实体在行星内部工作，也就是说，在行星存在的区域内。 实体与那些合并或分裂的实体一起工作。在这些行星的范围内运作时，实体的总体目标是利用行星体积内的可用能量来创造一些进化利益，既有利于它们自己，也有利于那些合并或分裂但后来组成团体的实体。
 
 ME:So what do they create?Considering that it is just a level of density that is lower than the surrounding universe,I can't imagine much. 
 
-我：
+我：那它们创造了什么？考虑到它只是比周围宇宙密度低的一个水平，我无法想象太多。
 
 SE3:If they are to work within the planetary confines,then they are restricted to use only the energies that are available within this area.As previously stated,they create things that are of evolutionary importance.Some of these things may be constructs that,in turn,use the surrounding energies and turn them into something else of use that would not have been naturally available using the raw energies. 
 
-3号源实体：
+3号源实体：如果它们要在行星的范围之内工作，那么它们就被限制只能使用该区域内可用的能量。如前所述，它们创造出对进化具有重要意义的东西。其中一些东西可能是构造物，反过来，利用周围的能量，并把它们转化成其他有用的东西，而这些东西是使用原始能量自然无法获得的。
 
 ME:So you are talking about the creation of a new material by creating an energetic alloy of some sort?
 
-我：
+我：所以你说的是通过创造某种高能合金来创造一种新材料？
 
 SE3:In short,yes,but these constructs may even create a finer energy set than that available in the universe. 
 
-3号源实体：
+3号源实体：简而言之，是的，但是这些构造甚至可能创造出比宇宙中可用的更精细的能量集。
 
 ME:Are you suggesting that they can create a better universe than the one where they exist but within the confines of the planet they are working with? 
 
-我：
+我：你是说他们可以在他们所处的星球范围内创造一个比他们现在所处的更好的宇宙吗？
 
 SE3:Yes,this is one of the major reasons for my entities being in existence-to see if they can create something that is an improvement on where they exist-that being the universe and not the planetary environment that is the bliss state. 
 
-3号源实体：
+3号源实体：是的，这是我的实体存在的主要原因之一，看看他们是否能创造出一些东西，对他们所存在的地方有所改善，那便是宇宙，而不是地球环境，那是极乐状态。
 
 ME:Is there not a chance that it would create a hole in your own universe,a hole that is filled with an environment of improved/increased/refined frequency? 
 
-我：
+我：有没有可能它会在你自己的宇宙中创造一个洞，一个充满了改善/增加/精致频率的环境的洞？
 
 SE3:Yes,exciting isn't it?You see,what my entities are doing when they create an area of improvement is creating a new but localized universe.Within this universe they can do whatever they want,and they do!I will give you an example of an area of betterment that was created by one group of merged entities. 
 
-3号源实体：
+3号源实体：是的，很令人兴奋，不是吗？你看，我的实体在创造一个改进区域时，他们正在创造一个新的但局部化的宇宙。在这个宇宙中，他们可以做任何他们想做的事，而且他们确实做到了！我将给你一个由一组合并实体创建的改进区域的例子。
 
 This group created a universe and populated it with entities they created themselves.These were then given the power of creativity themselves and,henceforth,created their own universe and populated it.This created a universe within a universe,which was a part of a planet in the total universe.Each of these universes had a dimension and frequency that was consistent with the total universe whilst being a microcosm of that universe.Within the first level of universe,the creating entities also created entities that were not given the power of creativity but were given purpose-that purpose being an automatic response to the needs of the creating entities.
 
+这个团体创造了一个宇宙，并用他们自己创造的实体填充它。然后这些实体被赋予了创造力，从此，创造了他们自己的宇宙并填充它。这创造了一个宇宙中的宇宙，这是整个宇宙中行星的一部分。每个宇宙都有与整个宇宙一致的维度和频率，同时是那个宇宙的缩影。在宇宙的第一层，创造实体也创造了实体，这些实体没有被赋予创造力，但被赋予了目的——这个目的是对创造实体需求的自动反应。
+
 ME:What was that purpose?Was it similar to the roles that the nature spirits have in my universe,or was it something else? 
 
-我：
+我：这个目的是什么？它类似于我宇宙中自然精灵的角色，还是其他的东西？
 
-SE3:If you are alluding to the need for your nature spirits to maintain the integrity of your earth and its surrounding area,then the answer is yes.The whole point of them being created was to help with the continued existence of the created universe and its contents. These universes or created constructs have a limited period of existence or usefulness if left unattended.As a result,those entities that are created for automatic purposes have but one role:to ensure that the creative intention is maintained. 
+SE3:If you are alluding to the need for your nature spirits to maintain the integrity of your earth and its surrounding area,then the answer is yes.The whole point of them being created was to help with the continued existence of the created universe and its contents. These universes or created constructs have a limited period of existence or usefulness if left unattended. As a result,those entities that are created for automatic purposes have but one role:to ensure that the creative intention is maintained. 
 
-3号源实体：
+3号源实体：如果你暗指你们的自然灵魂需要维持你们的地球及其周围区域的完整性，那么答案是肯定的。 创造它们的全部意义在于帮助创造的宇宙及其内容的持续存在。 如果无人照管，这些宇宙或创造的构造存在或有用的时间是有限的。因此，那些为自动化目的而创建的实体只有一个作用：确保创造意图得以保持。
 
 ### Creative Intention 
 
+**创造意图**
+
 ME:You've lost me.What do you mean by "creative intention"? 
 
-我：
+我：我没听懂你的意思。你说的“创造意图”是什么意思？
 
 SE3:You have this is your own universe;thought is part of your creative intention.The only difference is that when you use your creative intention and create something-whether an object or a situation-that which you have created remains in existence,unless of course it is transposed into another energy for some other reason.Within the universe that my entities have created,they need to create entities that maintain the intention that created the universe where they have been created to exist.In other words,they are the choir that continue the song that is started by the choir leader/s.Their sole purpose is to maintain the field of energy that keeps the universe inflated and maintains all that was created to exist within the universe,including themselves. 
 
-3号源实体：
+3号源实体：你有你自己的宇宙，思想是你的创造意图的一部分。唯一的区别是当你使用你的创造意图并创造一些东西时，不管是一个物体还是一个情景，你所创造的东西仍然存在，除非它因为其他原因转换成另一种能量。在我的实体所创造的宇宙中，它们需要创造实体来维持创造这个宇宙的意图，而它们就是在这个宇宙中被创造出来存在的。换句话说，它们是唱诗班，继续唱着由唱诗班领唱者开始的歌曲。它们唯一的目的是维持能量场，使宇宙膨胀，并维持宇宙中所有被创造出来的东西，包括它们自己。
 
 ME:That must be quite ajob,knowing that if you lose concentration and any part of the creative intention,you might wink out of existence.
 
-我：
+我：那一定是一项相当艰巨的工作，因为如果你失去了专注力和任何一部分的创造意图，你可能会眨眼间消失。
 
 SE3:These entities do not know of that possibility,for they are not sentient.Their existence is infinite or until the creating entities decide to deconstruct the universe they have created, if in fact they do decide to deconstruct it at all. 
 
-3号源实体：
+3号源实体：这些实体不知道这种可能性，因为它们没有知觉。它们的存在是无限的，或者直到创造实体决定解构它们所创造的宇宙，如果事实上它们决定解构它的话。
 
 ME:So if these entities need to create entities to perpetuate their creative intention,what are they doing that means they can't maintain their own intent? 
 
-我：
+我：如果这些实体需要创造实体来延续他们的创造意图，那么他们在做什么，这意味着他们不能维持自己的意图？
 
 SE3:They are creating elsewhere within the planet where they have aligned themselves. Therefore,they need to divorce themselves from the creative intention surrounding their creation of their universe before they can continue to create anew. 
 
-3号源实体：
+3号源实体：他们在地球的其他地方进行创造，在那里他们已经与自己结盟。因此，他们需要在他们能够继续进行新的创造之前，将自己与围绕着他们宇宙创造的创造意图分离。
 
 ME:So these entities are the equivalent of pit props? 
 
-我：
+我：那么这些实体就相当于坑木？
 
 SE3:In a word,yes. 
 
-3号源实体：
+3号源实体：总之，是的。
 
 ME:Are there any other entities created for the maintenance of the "universe within a planet' creations? 
 
-我：
+我：有没有其他实体被创造出来维护“行星中的宇宙”的创造物？
 
 SE3:I can see that you are thinking of the equivalent of animals in your own universe. 
 
-3号源实体：
+3号源实体：我能看出你在想你自己的宇宙中的动物。
 
 ME:Well,I was thinking of both physical and energetic,not just physical. 
 
-我：
+我：嗯，我认为身体和精力都很重要，不仅仅是身体。
 
 SE3:Animals have a role to play in your own physicality,for they exist in order to maintain the ecosphere.The answer is no.The other entities created to help maintain other areas of creative thought are and cannot be considered as animals,for they are created purely for the use that they were created for.Your animals have another important role to play;they are your companions in the depths of low frequency physicality. 
 
-3号源实体：
+3号源实体：动物在你们自己的肉体中扮演着一个角色，因为它们的存在是为了维持生态圈。答案是否定的。其他创造来帮助维持创造性思维的其他领域的实体被认为是，也不能被认为是动物，因为它们被创造纯粹是为了它们被创造的目的。
 
 ME:So in that case would you call them energetic machines because they seem to be doing the job of a machine? 
 
-我：
+我：那么在这种情况下你会称它们为能量机器吗？因为它们似乎在做机器的工作。
 
 SE3:No,they are more than that as well.They are cognizant of the needs of the energies that they work with to maintain the intention that creates the universe they are working with, for intention is energy as well.There has to be a certain level of autonomy in their existence to allow them to work with the ebb and flow of intention energy. 
 
-3号源实体：
+3号源实体：不，他们不止于此。他们认识到他们所使用的能量的需要，以保持创造他们所使用的宇宙的意图，因为意图也是能量。他们的存在必须有一定程度的自主性，以允许他们与意图能量的起伏一起工作。
 
 ME:What do you mean by ebb and flow?Does this energy increase and decrease? 
 
-我：
+我：你说的潮起潮落是什么意思？这个能量是增加和减少吗？
 
 SE3:Of course.The energy of intention is made available by the creating entity each time the creating entity creates the intention to create something,no matter how small it is.Once the creating entity has delivered its intention for the universe it is working with/within,that energy has to be continued,especially if the intention is to create a permanent creation.This is what these entities are for-to continue the intention energy that is required to continue the creation.Now let's get back to the ebb and flow.The intention energy is only required whilst that creation is required to be present.When a creation is no longer required,the intention energy that created it is returned to the creating entity;therefore,the energy of the maintaining entity is reduced as is the workload for continuing the existence of that creation. 
 
-3号源实体：
+3号源实体：当然，每次创造实体产生创造某物的意图时，意图能量就被创造实体提供，无论它有多小。一旦创造实体为它所共事/所处的宇宙传递了意图，那能量就必须被延续，特别是如果意图是创造一个永久的创造物。这就是这些实体的目的-延续继续创造所需的意图能量。现在让我们回到起伏，意图能量只在需要创造存在时才需要。当一个创造不再需要时，创造它的意图能量就返回到创造实体；因此，维持实体的能量减少了，因为继续创造存在的工作量减少了。
 
 ME:Hold on here.Are you suggesting that the maintaining entity has to sustain,hold in the present,the thought supporting the intention? 
 
