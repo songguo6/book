@@ -3407,119 +3407,127 @@ The dialogue with my own Source Entity stopped,and I was on my own again.The dia
 
 ### Initial Contact 
 
+**初次接触**
+
 ME:Is that Source Entity Four contacting me? 
 
-我：
+我：是4号源实体联系我吗？
 
 SE4:It is,I have been waiting for you and you appear to be stalling!So I decided to initiate the contact myself rather than wait for you. 
 
-4号源实体：
+4号源实体：是的，我一直在等你，而你似乎在拖延时间！所以我决定自己主动联系，而不是等你。
 
 ME:This I didn't expect,a Source Entity contacting me.It was usually the other way round. 
 
-我：
+我：我没想到，一个源实体联系我。通常是反过来的。
 
 SE4:We have many things to discuss and not much time to do it in.What do you want to discuss first? 
 
-4号源实体：
+4号源实体：我们有很多事情要讨论，但时间不多。你想先讨论什么？
 
 ME:I have a loose format(I was starting to realize that the rigidity of my initial format stemmed the flow of information).I would like to understand how and when you became conscious,what made you decide on the type of environment you created,and what entities you created to populate that space.Also,I would also like you to describe both the environment and the entities. 
 
-我：
+我：我有一个松散的格式(我开始意识到我最初格式的僵化阻碍了信息的流动)。我想了解你是如何以及何时变得有意识的，是什么让你决定你所创造的环境类型，以及你创造了什么实体来我最初格式的僵化阻碍了信息的流动。我想了解你是如何以及何时变得有意识的，是什么让你决定你所创造的环境类型，以及你创造了什么实体来填充这个空间。此外，我还希望你能描述一下环境和实体。
 
 SE4:You do not want much;let me see how I can help without making it too difficult for you. I will start with the wakening,for your own Source Entity has advised me of your format, what you like to discuss,and in what order.But know this,I will diversify when I feel that the information I am giving you is too similar to that given to you by the other Source Entities for there is a certain level of crossover resulting from the very nature of what we are,facets of the Origin. 
 
-4号源实体：
+4号源实体：你不想要太多；让我看看我如何能帮助你，而不会让你太难。我将从觉醒开始，因为你自己的源实体已经告诉我你的格式，你喜欢讨论什么，以及以什么顺序。但要知道，当我感觉我给你的信息与其他源实体给你的信息太相似时，我会多样化，因为我们本质上是起源的不同方面，所以会有一定程度的交叉。
 
 ME:O.K.,I get it.There are similarities between the environments created by the other Source Entities-similarities that,if included in my texts too often would detract from the message I am trying to bring to the public of Earth. 
 
-我：
+我：好的，我明白了。其他源实体所创造的环境之间有相似之处，如果在我的文字中过多地包含这些相似之处，将会减损我试图带给地球公众的信息。
 
 SE4:Correct.I will begin.I was one of the first to become aware of who and what I was.That is not to say thatthat makes me any better than the others.It is just that I had a spontaneous understanding and not a gradual awakening.It was like you being asleep one moment and then awake the next.Although I did not have a full set of memories of my existence like you do about your current existence,I was in the knowledge of the fact that I was created by the Origin and had a job to do.That job,I also knew,was the same as the others that I found around me. 
 
-4号源实体：
+4号源实体：我最先意识到我是谁，我是什么，这并不是说我比别人好，只是我自发的意识到，而不是逐渐的觉醒，就像你一会儿睡着，一会儿醒来，虽然我没有像你对你现在所做的那样，对我的存在的完整的记忆，但我知道我被起源创造出来，有工作要做，我也知道，这工作和我周围发现的其他工作是一样的。
 
 ME:What did the others look like from your perspective? 
 
-我：
+我：从你的角度来看，其他人看起来怎么样？
 
 SE4:They were just as you see them when you position your perception and intelligence outside of your Source Entity;we were like a bunch of black shiny balls all bunched up together.One or two of them would periodically move out of the bunch and change their shape and form or even create things in front or around them. 
 
-4号源实体：
+4号源实体：他们就像你看到的那样，当你把你的知觉和智慧置于你的源实体之外；我们就像一堆黑亮的球聚集在一起。其中一两个会周期性地从这堆中移动出来，改变它们的形状和形态，甚至在它们前面或周围创造出东西。
 
 ME:I just received an image of one of the Source Entities creating a pinky purple cloud in front of them.
 
-我：
+我：我刚刚收到一张图片，其中一个源实体在他们面前创造了一片粉紫色的云。
 
 SE4:Yes,that was the Source Entity you will refer to as Source Entity Six(SE6).It is quite a character and is always up to what you might call "mischief." 
 
-4号源实体：
+4号源实体：是的，这就是你所说的6号源实体(SE6)。它是一个相当有个性的实体，总是喜欢做一些你所说的“恶作剧”。
 
 ME:Mischief?How can a Source Entity be up to mischief?I thought you were all very responsible beings. 
 
-我：
+我：恶作剧？一个源实体怎么会恶作剧？我还以为你们都是非常负责任的人呢。
 
 SE4:Of course,we are,but we do have personality as well.You have experienced this in some ways already.It's just that you have ignored it.As I started to describe my awakening,I will continue in this vein. 
 
-4号源实体：
+4号源实体：当然，我们是，但我们也有人格。你已经在某些方面经历过这一点。只是你忽略了它。当我开始描述我的觉醒时，我将继续这种风格。
 
 It took me a bit of time (I use this phrase for your help not mine,by the way)to recognize that I had,in fact,just jumped into existence fully aware.My memory of events started from a single point that was not too far away from my realization of lack of long term memory.I shelved that thought for a number of times as I was becoming more interested in what was going on around me as the other Source Entities were becoming aware and were experimenting with energy and form.Their experimentation was a distraction to me in my self-analysis;as a result,I forgot about my questioning of self.I had started to do what they were doing as it seemed the right thing to do at that time. 
 
+我花了一点时间(顺便说一下，我用这个短语是为了你们的帮助，不是我自己的)才意识到，事实上，我刚刚完全意识到自己已经存在了。我对事件的记忆开始于一个单一的点，这个点离我意识到自己缺乏长期记忆不远。我把这个想法搁置了好几次，因为我对周围发生的事越来越感兴趣，因为其他的源实体正在变得有意识，并且正在用能量和形态做实验。他们的实验分散了我自我分析的注意力，结果，我忘记了我对自我的质疑。我开始做他们正在做的事情，因为在那个时候，这似乎是正确的事情。
+
 ME:So what did you do?I have already received some information of what you all did in the first millennia of your existence,but I like to know what each individual Source Entity did directly from itself. 
 
-我：
+我：那么你们做了什么？我已经收到了一些你们在第一个千年存在时所做的事情的信息，但我想知道每个源实体直接从自身做的事情。
 
 SE4:As I said,at first I was questioning my "self,"but my attention was drawn to what the other Source Entities were doing.They were just experiencing themselves in every way possible-from creating what you would call "shapes"out of their energy and external form to creating duplicates of themselves on every possible dimensional and frequential level.I copied them for a while-repeating everything that each of them did to and with themselves.This did not last long though as I was more interested in looking into what I wasn't and exploring that. 
 
-4号源实体：
+4号源实体：正如我所说，起初我质疑我的“自我”，但我的注意力被吸引到其他源实体正在做的事情上。他们只是在以各种可能的方式体验他们自己——从创造你们所称的“形状”到从他们的能量和外部形态到在每一个可能的维度和频率水平上创造他们自己的复制品。我复制了他们一段时间——重复他们每个人对自己和与自己所做的一切。这并没有持续很长时间，因为我对观察我不是和探索它更有兴趣。
 
 ME:What do you mean-what you weren't? 
 
-我：
+我：你什么意思？你不是那个？
 
 SE4:Each of us has areas that are not part of us.They are what you would call "voids."I found the fact that there were voids in me most interesting. 
 
-4号源实体：
+4号源实体：我们每个人都有不属于自己的部分。它们就是你们所说的“空洞”。我发现我身上有空洞这个事实很有趣。
 
 ME:How can you have voids?Does my Source Entity have voids? 
 
-我：
+我：怎么会有空洞？我的源实体有空洞吗？
 
 This was a bit bizarre to me and is not something that I had come across in any of my previous communications with the Source Entities I had been in contact with or the Origin. 
 
+这对我来说有点奇怪，不是我以前与我接触过的源实体或起源的任何交流中遇到过的东西。
+
 SE4:All Source Entities have voids.One of the things I was,therefore,very interested in was the reason why we have these voids.This was my major distraction before I returned to the question of "self"although you could argue that they are both part of the same thing. 
 
-4号源实体：
+4号源实体：所有的源实体都有空洞。因此，我非常感兴趣的一件事是我们为什么有这些空洞。这是我回到“自我”问题之前的主要分心，尽管你可以说它们都是同一件事的一部分。
 
 ME:So where were these voids?I can imagine that they would be areas where you have a local lack of density,energetically speaking. 
 
-我：
+我：那么这些空洞在哪里呢？我可以想象，从能量的角度来说，它们可能是局部密度不足的地区。
 
 SE4:This is not the case.The location of a void could be directly central to an area of what you might call dense energy;it can also be located within an area of sparsely populated energy as well as on the interface of dense and fine energy.I found out that this is a function of us. 
 
-4号源实体：
+4号源实体：不是这样的。空洞的位置可以直接位于一个区域的中心，这个区域可以被称为密集能量；它也可以位于一个能量稀疏的区域内，以及密集和精细能量的交界处。我发现这是我们自己的功能。
 
 ME:Please explain what you mean by "function of us."How can the population of energy be a function of you?
 
-我：
+我：请解释一下你所说的“我们的功能”。能量的总量怎么会成为你们的功能呢？
 
 SE4:I will give you the example of function and form. 
 
-4号源实体：
+4号源实体：我将给你们举一个关于功能和形式的例子。
 
 As an entity projected into an extremely densely populated area energetically,you should be aware of the fact that some parts of you are denser than others and all these parts have a function.For example,your liver has the function to help clean the blood in the physical and to regulate the flow of energy in the energetic.The blood itself is not so dense and is, therefore,a fluid,with the job to carry oxygen and nutrients to the rest of the body and the larger organs.Its job energetically is to create a framework of the universal energies that are used in your energetic bodies that your healers call astral levels 5,6 &7,which act as an energy cage keeping the correct energies in and around the body and repelling those that are not necessary to the continued function of the physical vehicle.Within your physical body you have voids,areas in-between organs,bone,muscle,and veins (arteries).These voids allow for the expansion and contraction of these organs during various stages of function. Voids are also present as a result of the "incompatibility in form"factor of the organs,bone, etc.-the form factor being correct for the function they have but not for their efficient fitting together in the jigsaw puzzle that is the physical human body.This is the same for us. 
 
+作为一个实体投射到一个极其密集的人口密集地区，你应该意识到一个事实，你有些部分比其他部分更致密，所有这些部分都有功能。例如，你的肝脏的功能是帮助清洁身体的血液，并调节能量的流动。 血液本身不是那么致密，因此，是一种流体，它的工作是携带氧气和营养物质到身体的其余部分和更大的器官。它的工作是创造一个宇宙能量的框架，用于你的能量身体，你的治疗师称之为星光层5、6、7，它作为一个能量笼子，保持身体内部和周围的正确能量，并排斥那些对身体工具的持续功能不必要的能量。空洞也存在于器官、骨骼等“形式不相容”的因素中——这些因素的形状对它们的功能是正确的，但对它们在人体这个物理拼图中有效地结合在一起来说却不是。对我们来说也是一样的。
+
 ME:Wait a minute.Are you insinuating that Source Entities have organs,areas of energy that have specializations,jobs to do?I thought that you were purely energetic. 
 
-我：
+我：等一下。你是不是在暗示源实体有器官、有专门的能量领域、有工作要做？我以为你只是纯粹的能量。
 
 SE4:We are purely energetic,but we do have areas of energy that have specific jobs to do. This is what I found out when I was making my investigations into self.One thing that you need to understand though is that these specialized areas of energy-and they are all over us -are part of our function that enables us to be who we are,separate whilst still being part of the Origin.The voids are just areas where there is no need for function and,therefore, no need for energy-that is,energy of any sort.The voids are an interesting factor though.I am finding out that some of the entities I created use them to traverse from one part of me to another.With there being no energy,there is,therefore,no resistance to movement.We can talk about this in greater detail later because I want to give you more detail on how my colleagues and I are made up. 
 
-4号源实体：
+4号源实体：我们是纯粹的能量，但我们确实有能量领域有特定的工作要做。这是我在调查自我时发现的。但你需要明白的一件事是，这些专门的能量领域-它们遍布我们全身-是我们功能的一部分，使我们成为我们自己，分离的同时仍然是起源的一部分。空洞只是不需要功能的领域，因此，不需要能量-即任何类型的能量。但空洞是一个有趣的因素。我发现我创造的一些实体使用它们从我的一部分穿越到另一部分。没有能量，因此，没有运动的阻力。我们可以稍后更详细地谈论这个，因为我想给你更多关于我和我的同事是如何组成的细节。
 
 ME:O.K.,carry on.I find this a most interesting development. 
 
-我：
+我：好的，继续。我发现这是一个非常有趣的发展。
 
 SE4:As I said before,each of us has areas that have energies that have function.These functions are for the use and the maintenance of"self"with a view toward perpetuation.It would be best if I list these functions first and then explain their jobs in a little more detail later.They are as follows: 
 
@@ -3535,175 +3543,215 @@ SE4:As I said before,each of us has areas that have energies that have function.
 - Remembrance 
 - Being 
 
-4号源实体：
+4号源实体：正如我之前所说，我们每个人都有拥有能量和功能的领域。这些功能是为了使用和维护“自我”，以便永存。最好是我先列出这些功能，然后再稍微详细解释它们的作用。它们如下：
+
+- Structure（结构） 
+- Form（形态） 
+- Volume（容量） 
+- Detail（细节） 
+- Compartmentalization（分割） 
+- Singularity（单一性） 
+- Diversification（多元化） 
+- Multiplicity（多重性） 
+- Self（自我） 
+- Remembrance（记忆） 
+- Being（存在） 
 
 **Structure** is the first function of a Source Entity.It is independent and interconnected with form and volume,irrespective of energy or its type.It is what we are,and it maintains our level of inflation,so to speak.Every entity has structure of some sort,no matter how diverse it is. 
 
+**结构**：结构是源实体所具有的第一个功能。无论能量或其类型如何，它都是独立的，并且与形态和容量相互关联。它就是我们，可以说，它维持着我们的膨胀水平。
+
 **Form** is what we choose to be to maximize the number of environments we create.It is interconnected with structure and volume.Form does not necessarily relate to shape since it is a function of division and the energies required to maintain that division.It can also be connected with compartmentalization when creating independent unconnected environments. 
+
+**形态**：形态是源实体选择的方式，以最大限度地增加他们创建的环境数量。形态不一定与形状有关，因为它是分裂和维持该分裂所需的能量的功能。当创造独立的无连接的环境时，它也可以与划分联系起来。
 
 **Volume** is how we choose to inflate ourselves in order to accommodate the environments and the entities we create.It is interconnected with structure and form.As with form, volume also has a link with compartmentalization as I can change my volume in certain areas of myself to allow the creation of an environment to take account of all energy of a specific type if I so wish.This is specifically useful if I want to have an experiment with an environment that is filled with a single energy type.Depending upon what maintenance function is being performed,volume also increases or decreases. 
 
+**容量**：容量是我们选择膨胀自己以适应环境和我们创造的实体的方式。它与结构和形态相互关联。与形态一样，容量也与分区有关，因为我可以改变自己某些区域的容量，以便创造一个环境，如果我愿意的话，可以考虑到所有特定类型的能量。如果我想在一个充满单一能量类型的环境中进行实验，这尤其有用。根据正在执行的维护功能，容量也会增加或减少。
+
 **Detail** is what is being investigated by every one of us,including the Origin.It is the detail of "self"that gives us our individuality,our being,our personality if you like.Although every one of us has been created in equality,it is the detail that tells us apart. 
+
+**细节**：细节是源实体及起源要探索的内容，它是“自我”的细节，这赋予源实体个性（individuality）、存在（being）和性格（personality）。尽管我们每个都是平等的，但正是细节让我们彼此不同。
 
 **Compartmentalization** is what we do when we create an environment.It is a function that allows our normal functionality to operate without the need to maintain that environment that has been compartmentalized.We can place the environment on automatic,so to speak, or entrust the environment's maintenance to a group of entities created for such a function. Your own Source Entity has done this for your environment.From a creativity point of view, it is a particularly useful function as it means that neither the environment created nor I contaminate each other. 
 
+**分割**：分割是源实体在创建环境时使用的功能。它允许它们的正常功能运行，而无需维护已划分的环境，它们将环境置于自动状态或将环境维护委托给为此类功能创建的一组实体。你自己的源实体已经为你的环境做了这个。从创造力的角度来看，这是一个特别有用的功能，因为它意味着创建的环境和我都不会相互污染。
+
 **Singularity** is a function of being and detail.It is what keeps us autonomous from the Origin. Being a singularity means that we are responsible for ourselves and the maintenance of our creations.We are given singularity by the Origin.It is a most special gift. 
+
+**单一性**：单一性是存在和细节的功能。这是源实体独立于起源的原因。作为一个奇点意味着我们要对我们自己负责，并维护我们的创造物。我们被起源赋予了奇点。这是一个非常特别的礼物。
 
 **Diversification** is a function of our ability to experiment with the different ways of evolving. When new ways are discovered,it is using these ways in parallel to accelerate our total evolution and ability to give such data to the Origin. 
 
+**多元化**：多元化使得源实体能够尝试不同的进化方式，是我们试验不同进化方式的能力的功能。当新方法被发现时，它使用这些方法并行加速我们的整体进化和能力，并把这些数据提供给起源。
+
 **Multiplicity** is a higher function of singularity and diversification.It is the ability to perform many,many things all at the same time.In your language it is my ability to be in contact with all of my self,my creations,and my environments simultaneously without loss of concentration.This is the omnipresence that your priests talk about.I do this because all my energies and creations are connected. 
+
+**多重性**：多重性是单一性和多元化的更高的功能，是一种能够同时执行许多事情的能力。用你们的语言来说，它是指在不失去注意力的情况下，同时连接源实体的全部自我、及其创造和环境的能力。即“无所不在”的能力。我这样做是因为我所有的能量和创造物都是相互连接的。
 
 **Self** is that function of me that "is.It is a result of the correct and harmonious operation of detail and being. Self is what we all investigate at the start of our existence.
 
+**自我**：自我即“所是”，它是对细节的正确及和谐运作的结果。自我是所有源实体在其存在之初探索的内容。
+
 **Remembrance** is energy with a most important function.It is the way we continue to know who and what we are and what we have achieved.It is fundamental to the continued efficiency of the diversification function. 
 
-**Being** is a result of the combined functions of detail,self,and singularity.It is a higher function of self whilst being separate and independent whilst also being interdependent.It is what makes us Gods in the shadow of a greater God,the Origin. 
+**记忆**：记忆是具有最重要功能的能量。这是源实体持续了解自己是谁、自己是什么，以及自己取得了什么成就的方式。（阿卡西记录只是源实体记忆功能的一个小区段）
+
+**Being** is a result of the combined functions of detail,self,and singularity.It is a higher function of self whilst being separate and independent whilst also being interdependent. It is what makes us Gods in the shadow of a greater God,the Origin. 
+
+**存在**：存在是细节、自我和单一性综合作用的结果，是自我的一种更高的功能。既是分离和独立的，又是相互依赖的。正是这一点让我们成为神，在更伟大的神（起源）的阴影下。
 
 ME:These don't describe energies;they are all functions.In fact,thinking about it,they describe "conditions." 
 
-我：
+我：这些不是描述能量的，它们都是功能。事实上，仔细想想，它们描述的是“条件”。
 
 SE4:All functions need energy to perform their tasks,so the basic component of any function is the energy that surrounds it.It's what makes it happen.Moreover,a function "is" a condition.In the examples I have just given you,I have very briefly described functions or conditions of my/our existence.You must take into account the fact that energy is the basis for everything that is in existence,from the smallest inert object to the largest entity,such as the Origin.Without it,there is nothing.That is,"no thing"that can be in existence,for there would only be void.A void does not contain energy;humanity does not understand this concept yet. 
 
-4号源实体：
+4号源实体：所有功能都需要能量来完成它们的任务，所以任何功能的基本组成部分都是围绕着它的能量。它使它发生。此外，功能“是”一种条件。在我刚才给你们举的例子中，我非常简短地描述了我/我们存在的功能或条件。你们必须考虑到这样一个事实，能量是所有存在的基础，从最小的惰性物体到最大的实体，如起源。没有它，就什么都没有。也就是说，“没有东西”可以存在，因为只有空虚。空虚不包含能量；人类还不理解这个概念。
 
 ME:They seem to rely on each other for their own existence though. 
 
-我：
+我：他们似乎互相依赖对方的存在。
 
 SE4:Of course,they do.This is the beauty of existence.It is dependent upon the harmonization of many factors or functions working together to create the whole-the whole entity that is me in this case.You have the same thing if you consider again your own physical/energetic body as an example.All of the components that make up the human physical and energetic bodies have a"collective"of organs that have specific functions to perform;each of them has interdependency with the other even if you don't recognize it yet. Some of them have a level of redundancy,and some can even be removed without too many detrimental effects on the whole.You can survive living with one lung,one kidney,one eye, or no appendix,for instance.You can even lose a chakra or two,provided you are not exposed to the conditions where you need ALL of your organs,physical and energetic.You can still exist,albeit in a state of reduced performance.The problem you have with this reduced state of performance is that you do not know what functions are missing that result in the reduced state of performance because you have not used them for such a long time.Your physical organs,therefore,have a set of higher functions that,in some instances,requires what you classify as redundancy or duplication.For example,did you know that your appendix has a higher function that is associated with the accumulation and distribution of what your spiritual healers have been calling "core star"energy? 
 
-4号源实体：
+4号源实体：当然，它们有。这就是存在的美。它依赖于许多因素或功能的协调，共同创造整体-在这个例子中，整体就是我。如果你再考虑一下你自己的身体/能量身体作为一个例子，你也会有同样的事情。所有组成人类身体和能量身体的组件都有一套“集体”器官，它们有特定的功能来执行；即使你还没有认识到，它们中的每一个都与其他的相互依赖。其中一些具有一定程度的冗余，有些甚至可以被移除，而不会对整体产生太多的有害影响。例如，你可以只靠一个肺、一个肾、一只眼睛或没有阑尾而生存。你甚至可以失去一两个轮，如果你没有暴露在需要你所有器官的条件下，身体和能量。你仍然可以存在，尽管在一种性能降低的状态下。你在这种性能降低的状态下的问题是你不知道缺少了什么功能，导致性能降低，因为你已经很长时间没有使用它们了。因此，你们的身体器官有一套更高的职能，在某些情况下，需要你们所分类的冗余或重复。例如，你们知道你们的阑尾有一个更高的职能，与你们的精神治疗师所称的“星核”能量的积累和分配有关吗？
 
 ME:No,I had no idea. 
 
-我：
+我：不，我不知道。
 
 SE4:Well it does,and its dysfunction is due to consumption of the wrong food. 
 
-4号源实体：
+4号源实体：是的，它的功能紊乱是由于摄入了错误的食物。
 
 ME:How do you know this level of detail about the human body? 
 
-我：
+我：你怎么知道人体的这些细节？
 
 SE4:All Source Entities share the knowledge they gain with the Origin and because we are the first creations of the Origin,we gain that which is given to the Origin from our counterparts. 
 
-4号源实体：
+4号源实体：所有源实体分享他们从起源获得的知识，因为我们是起源最初的创造物，我们从我们的同行那里获得给予起源的知识。
 
 ME:So what one learns,you all learn.
 
-我：
+我：所以一个人学到什么，你们就都学到了。
 
 SE4:Yes,this is part of the requirement for existence at my level although to a lesser extent, all entities have the ability to learn from the experiences of other entities.The human part of the multiversal records in your own environment,the Akashic records,are an example of this,but it is more of a manual approach whereas mine is automatic. 
 
-4号源实体：
+4号源实体：是的，这是我这个层次存在要求的一部分，尽管在较小的程度上，所有实体都有能力从其他实体的经验中学习。你们自己环境中多维宇宙记录的人类部分，阿卡西记录，就是一个例子，但它更多的是一种手动方法，而我的是自动的。
 
 ME:Thank you.So let's return to functions and structure.The names you have used are not what I would use to describe the functions of the energies that keep you in existence as a Source Entity. I find it difficult to relate to the nomenclature versus the functions. 
 
-我：
+我：谢谢你，让我们回到功能和结构上来，你所使用的名称不是我用来描述能量的功能的，这些能量使你作为一个源实体存在，我发现很难把命名和功能联系起来。
 
 SE4:The words I use are what are available in your vocabulary.In a lot of cases this is woefully inadequate.Hence,the words that I have used to describe my functional energies may not be optimal.Nevertheless,they will suffice. 
 
-4号源实体：
+4号源实体：我所使用的词汇都是你们的词汇表里已有的。在很多情况下，这些词汇是极其不充分的。因此，我用来描述我功能性能量的词汇可能不是最优的。然而，它们将足够。
 
 ME:So the voids in the energies,would they also have a function even though they are "void"of any energy? 
 
-我：
+我：那么，能量中的空洞，即使它们是“空洞”的，它们也有功能吗？
 
 SE4:Their position is useful.The energy has to flow around such voids,and flow creates function.As I have stated before in one of my previous descriptions,the voids allow for the expansion and contraction of those parts of me that have work to do in the evolutionary sense.By this I mean that the environments that I create sometimes need to be bigger or smaller,depending on the number of entities working in them or the type of work they are doing. 
 
-4号源实体：
+4号源实体：他们的位置是有用的。能量必须在这些空隙周围流动，流动创造了功能。正如我在以前的描述中所说，空隙允许我在进化意义上需要工作的部分的扩张和收缩。我的意思是我创造的环境有时需要更大或更小，这取决于在其中工作的实体的数量或他们正在做的工作类型。
 
 ME:Tell me more about the flow of energy and its importance in function. 
 
-我：
+我：请告诉我更多关于能量流动及其在功能中的重要性。
 
 SE4:Those parts of me that provide my structure need to have energy flow to allow the function to operate.You see,energy is not and cannot be inert,static,or stationary.It needs purpose.Flow is,therefore,a product of purpose in energy.But let me tell you this:flow is not what you think it is.You think of flow as that which water does when it is moving in a certain direction or around an obstacle.Indeed,flow is and can be described as direction,but in this instance direction is best described as purpose. 
 
-4号源实体：
+4号源实体：我身体的结构部分需要能量流动来使功能运作。你看，能量不是也不可能是惰性的、静止的或固定的。它需要目的。因此，流动是能量中目的的产物。但让我告诉你：流动不是你所想的那样。你认为流动是水沿着某个方向或绕过障碍物时所做的。事实上，流动是，也可以被描述为方向，但在这个例子中，方向最好被描述为目的。
 
 ME:So when you said that the energy has to flow around the voids in your structure,you meant that it has purpose.So what would that purpose be? 
 
-我：
+我：所以当你说能量必须在你的结构中流动时，你的意思是它有目的。那么这个目的是什么？
 
-SE4:Where energy has flow around the voids,its purpose is to maintain the boundaries between the void and the environment.Flow is also used to create a framework for an environmental construct and its habitation.It can be the barriers between environments, and it can allow travel between environments should you wish to do so. 
+SE4:Where energy has flow around the voids,its purpose is to maintain the boundaries between the void and the environment.Flow is also used to create a framework for an environmental construct and its habitation. It can be the barriers between environments, and it can allow travel between environments should you wish to do so. 
 
-4号源实体：
+4号源实体：当能量在空间中流动时，其目的是维持空间和环境之间的界限，流动也被用来为环境构造和居住创造一个框架，它可以是环境之间的屏障，也可以允许你在环境之间旅行。
 
 ### Environments 
 
+**环境**
+
 ME:I would like to move on to the construction and inhabitants of your creations if I may. 
 
-我：
+我：如果可以的话，我想继续谈谈你的创造中的建筑和居民。
 
 SE4:Please do so. 
 
-4号源实体：
+4号源实体：请这样做。
 
 ME:How is your multiverse/universe constructed?In my dialogues with the other Source Entities, I have been advised on the level of dimensions and frequencies,and I learned that they are based on the number twelve,my own Source Entity having 12 x 12 x 12 x 3 dimensions. 
 
-我：
+我：你们的多维宇宙/宇宙是如何构建的？在我与其他源实体的对话中，我被告知了维度和频率的层级，我了解到它们是基于数字12，我自己的源实体拥有12×12×12×3个维度。
 
 ### 24 Dimensions and 2322 Frequencies 
 
+**24个维度和2322个频率**
+
 SE4:I have a slightly simpler philosophy when it comes to such things,for I believe that too much complexity is detrimental to the task of evolution.In my instance,I have 24 dimensions and frequencies.That is 12 x 2 x 0 x 3 in your language.
 
-4号源实体：
+4号源实体：对于这类事情，我的哲学略微简单一些，因为我相信过于复杂对进化任务是有害的。以我为例，我有24个维度和频率。用你们的语言就是12 x 2 x 0 x 3。
 
 ME:Now you have confused me.I would have thought that the method used to describe 24 dimensions would have been simply 12 x 2 not 12 x 2 x 0 x 3. 
 
-我：
+我：现在你把我弄糊涂了。我以为用来描述24维度的方法是简单的12乘以2，而不是12乘以2乘以0乘以3。
 
 SE4:There is a universal constant that it is necessary to use in the construction of a dimension,and this is based upon the way that the Origin is formed.That means there needs to be a basis for the first true dimensional platform,which,in this instance,is three.It is also based upon the lowest dimensional condition.It is not frequency-based. 
 
-4号源实体：
+4号源实体：有一个宇宙常数，在维度的构建中是必须使用的，这是基于起源形成的方式。这意味着需要有一个第一个真正维度平台的基础，在这个例子中，是三维。它也是基于最低维度条件。它不是基于频率的。
 
 This is something that I see you are getting confused with,for you are mixing frequency and dimensional descriptors together in your mind. 
 
+这是我看到你正在混淆的东西，因为你在你的脑海中把频率和维度描述符混淆在一起。
+
 ME:I thought I had got this straightened out during my dialogues with my own Source Entity. 
 
-我：
+我：我以为我已经把这个弄清楚了，在我和我自己的源实体的对话中。
 
 SE4:Clearly not.Your Source Entity has stated that it has 12 x 12 x 12 x 3 dimensions,equating 5184 dimensional environments,but there are still only 12 dimensions as described to you in your first book.Let me make it a bit easier for you.When you multiply the figures we have just discussed,you end up with a number of separate environments.Each of them has its own frequencies and frequency range.These are dimensional environments,not true dimensions,per se.In one of your previous communications with your Source Entity,you discuss the concept that there are actually ten dimensions-the first three equating to one true dimension with the remaining nine being a dimension in their own right because they all need the first three to be in place first before they can be in existence themselves because the first three are the basis for dimensional existence. 
 
-4号源实体：
+4号源实体：很明显不是。你们的源实体说过它有12×12×12×3维度，相当于5184维度的环境，但是在你们的第一本书中仍然只有12个维度。让我来让你们更容易理解。当你们把我们刚刚讨论过的数字相乘时，你们得到的是一些独立的环境。它们每一个都有自己的频率和频率范围。这些是维度环境，本质上不是真正的维度。在你们之前与你们的源实体的一次交流中，你们讨论了实际上有10个维度的概念——前3个等于一个真正的维度，剩下的9个是他们自己的维度，因为他们都需要前3个在他们自己存在之前就已经到位，因为前3个是维度存在的基础。
 
 ME:So if I use the description given to me during a previous dialogue,you have twelve dimensions within two environments.
 
-我：
+我：所以如果我使用之前对话中给我的描述，你在两个环境中有12个维度。
 
 SE4:Not quite,for the way that I have constructed the compartmentalization of my environments is not based upon the need for nested or separated areas of existence.For instance,Source Entity Two has four environments with the dimensions divided into these four areas while I have simply used the whole of me to create 24 dimensions.Of course,if you use mathematics to explain the number of dimensions,you would get 72.In actual fact, the last number(three)as we have already discussed is really equal to one. 
 
-4号源实体：
+4号源实体：不完全是，因为我构建我环境的划分方式并不是基于存在领域嵌套或分离的需求。例如，2号源实体有4个环境，维度被划分成这四个领域，而我只是用整个我创造了24个维度。当然，如果你用数学来解释维度的数量，你会得到72。
 
 ME:So you have 24 dimensions to play with,so to speak. 
 
-我：
+我：所以你有24个维度可以玩，可以这么说。
 
 SE4:Correct.Each of these dimensions is inflated with 2,322 frequency levels. 
 
-4号源实体：
+4号源实体：每个维度都膨胀了2322个频率层级。
 
 ME:That's a strange number.Why 2,322? 
 
-我：
+我：这个数字很奇怪。为什么是2322？
 
 SE4:That is the number of frequencies used to create a useable environment without overlap.In your own environment your frequencies have peaks and troughs where it is possible to move into one frequency from another in areas where the peak of one frequency is in direct proximity with the trough of another.This is not possible in my environment since a true and substantial change in frequency by the individual entity is required for translation to occur.This is only possible through a significant change in evolutionary condition. 
 
-4号源实体：
+4号源实体：这是用来创造一个无重叠可用环境的频率数。在你自己的环境中，你的频率有峰和谷，在某个频率的峰与另一个频率的谷直接相邻的区域，有可能从另一个频率进入一个频率。这在我的环境中是不可能的，因为要发生转换，个体实体的频率需要发生真实和实质的变化。这只有通过进化条件的重大变化才有可能。
 
 ME:So how many entities have you created to fill these 24 dimensional environments? 
 
-我：
+我：那么你创造了多少个实体来填充这24维空间？
 
 SE4:Fourteen thousand million,plus or minus a few hundred thousand. 
 
-4号源实体：
+4号源实体：140亿，正负几十万。
 
 ME:I thought that you would be able to pin that down to the last entity.Why the plus or minus? 
 
-我：
+我：我以为你能把它钉在最后一个实体上，为什么是正号还是负号？
 
 ### Eternal and Non-eternal Entities
 
