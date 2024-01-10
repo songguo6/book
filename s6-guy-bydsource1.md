@@ -3755,81 +3755,83 @@ ME:I thought that you would be able to pin that down to the last entity.Why the 
 
 ### Eternal and Non-eternal Entities
 
+**永久和非永久的实体**
+
 SE4:Whereas you have eternal existence,some of mine do not.This was a result of the creation process that I used.Creativity is not always perfect,a condition that your Source Entity is fully knows.As a result,some of them do not exist long and have to be re-created.In doing so,I create more than I previously created.I do this in order to compensate for those who are imperfect.This circle of creation has not yet been completed;eventually they will all be eternal,but that is a task that will be achieved later in my existence. 
 
-4号源实体：
+4号源实体：你们是永久存在的，而我的一些实体不是。这是我所使用的创造过程的结果。创造力并不总是完美的，这是你们的源实体完全知道的。因此，他们中的一些人不能长久存在，必须被重新创造。这样做，我创造的比我以前创造的更多。我这样做是为了补偿那些不完美的人。这个创造的循环还没有完成；最终他们都会是永久的，但这是一项在我存在之后将要完成的任务。
 
 ME:So you created about fourteen thousand million entities with some of them not being eternal. How do you resurrect those that are not eternal when they expire,or do youjust replace them with another entity? 
 
-我：
+我：所以你创造了大约140亿个实体，其中一些不是永恒的。当它们到期时，你如何复活那些不是永恒的实体，或者你只是用另一个实体来代替它们？
 
 SE4:I don't just replace them for I owe them continued existence due to my creation process,so in this instance,I work on the energies that they are made of and re-create them with the energies they should have.I can see that you are confused by my use of your language,so I will explain again.When I re-create these entities,I copy the essence of what they are both energetically and in experience-that is,those experiences and the resultant evolution content leave an impression on the energy that is the entity.In order for me to resurrect them completely,I need to re-create the energy that resulted in eternal beings and imprint the impression that their older energy had-the evolution content and the energetic personality,if you like,into the new energy that I have created in its entirety.This ensures their continued existence. 
 
-4号源实体：
+4号源实体：我并不只是替换他们，因为由于我的创造过程，我欠他们继续存在，所以在这种情况下，我对他们构成的能量进行工作，并用他们应该有的能量重新创造他们。我可以看到我对你们语言的使用使你们感到困惑，所以我将再次解释。当我重新创造这些实体时，我复制了它们在能量和经验上的本质——也就是说，那些经验和由此产生的进化内容在实体的能量上留下了印记。为了让我完全复活他们，我需要重新创造导致永恒存在的能量，并将他们旧能量的印记——进化内容和充满活力的个性，如果你愿意的话，印入我已经完全创造的新能量中。这确保了它们的继续存在。
 
 ME:Do they know that they are substandard compared to the rest? 
 
-我：
+我：他们知道自己和其他人相比是不合格的吗？
 
 SE4:No.In this instance I have withdrawn the memory of longevity from each of my creations until all of them exist in equality.Once I have finished this work,I will allow the knowledge that they are eternal to permeate into their energy field.Right now they don't recognize or,in fact,understand that they are or are not eternal.They just are,and the work that they are doing is interesting as a result. 
 
-4号源实体：
+4号源实体：不，在这个例子中，我已经从我的每个创造物中撤回了长寿的记忆，直到他们都平等地存在。一旦我完成了这项工作，我将允许他们永生的知识渗入他们的能量场。现在他们没有认识到，事实上，他们不明白他们是或不是永生的。他们只是存在，他们所做的工作结果是有趣的。
 
 ME:How can an entity not know that they are not eternal when they clearly are?I am talking about the ones that are actually eternal here. 
 
-我：
+我：一个实体怎么可能在明明是永恒的时候，却不知道自己不是永恒的呢？我这里说的是那些实际上是永恒的实体。
 
 SE4:I am surprised at you,for is not mankind largely unaware of its immortality? 
 
-4号源实体：
+4号源实体：我对你感到惊讶，因为人类不是大多不知道自己的不朽吗？
 
 ME:You're right.At least currently in the physical we are unaware that we are eternal unaware that the majority of us is energetic and only a small part of us is projected into these low frequencies where we exist in a very solid vehicle,the physical human body,to allow us to experience existence in the material part of this universe.But as both/either bystanders and participants in the death process,we experience the demise of the physical body on a regular basis while remaining totally ignorant of the fact that life in the physical is transitory.Your entities must experience this as well to some extent. 
 
-我：
+我：你说得对。至少目前在物质层上，我们没有意识到我们是永恒的，没有意识到我们大多数人是充满活力的，只有一小部分投射到这些低频率，我们存在于一个非常坚固的载体中，也就是物质的人体，让我们体验到在这个宇宙的物质部分的存在。但是作为死亡过程中的旁观者和参与者，我们经常体验到物质身体的死亡，同时完全无视物质生命是短暂的这一事实。你们的实体在某种程度上也必须经历这一点。
 
 SE4:They don't as they do not currently feel the need to experience existence at such low frequencies yet although the do experience physicality. 
 
-4号源实体：
+4号源实体：他们不，因为他们目前还没有感觉到需要在如此低的频率上体验存在，尽管他们确实体验了肉体。
 
 ME:But they must know that they are eternal due to the long time that they have been in existence and the number of memories that they have of their experiences.They must remember these? 
 
-我：
+我：但是他们必须知道他们是永恒的，因为他们已经存在了很长时间，而且他们对自己经历的记忆数量很大。他们必须记住这些？
 
 SE4:As I said before,I remove the memory of longevity from all of my entities so that they do not know that they are eternal.I do this by only allowing them to keep the most recent memories and some other key memories,but I ensure that these key memories have the event location markers removed from them so that the entity cannot place the order or note the event where that knowledge was gained as the result of experience. 
 
-4号源实体：
+4号源实体：正如我之前所说，我从我所有的实体中删除了长寿的记忆，这样他们就不知道自己是永生的。我这样做是通过只允许他们保留最近的记忆和其他一些关键的记忆，但我确保这些关键的记忆已经从它们那里删除了事件位置标记，这样实体就不能按照经验获得知识的地方来排序或记录事件。
 
 ME:So where does that knowledge go to if it is removed from them on what I assume is on a regular basis? 
 
-我：
+我：那么，如果我假设的知识是定期从他们那里拿走的，那么这些知识会去哪里呢？
 
 SE4:I keep it within myself with a view to passing it back to them all when they are all eternal. 
 
-4号源实体：
+4号源实体：我把它保存在自己心里，以便在他们都永生的时候，把它传给他们。
 
 ME:That's an awful lot if information you must be keeping. 
 
-我：
+我：如果你必须保存这么多信息，那真是太可怕了。
 
 SE4:Along with the other Source Entities,I have an area of energy within myself that is just for the retention of experience that is not only my own experiences but all of the experience gained by any of my creations.This is the same energy that passes on experience to the Origin.All I do is provide a level of compartmentalization to occur so that the experiences of each individual entity are assigned to the entity that experienced the experience.It is quite a simple routine and one that is automatically achieved once set-up.You have something similar in your multiversal environment;you call it the Akashic records.The difference between the two records is that in my set of records,the entity will only be able to access them all once I have given all of my entities eternal existence.On top of that,they will only be able to access their own records.They will not be able to access the records of any other entities within any of my environments. 
 
-4号源实体：
+4号源实体：与其他源实体一起，我自己有一个能量区域，它只用于保留经验，不仅仅是我自己的经验，还有我创造的所有实体获得的经验。这是将经验传递到起源的相同能量。我所做的只是提供一个分区级别，以便每个个体实体的经验被分配给经历了经验的实体。这是一个相当简单的例程，一旦设置就自动完成。在你们的多重宇宙环境中，你们也有类似的东西，你们称之为阿卡西记录。这两种记录的区别在于，在我这组记录中，实体只有在我赋予我所有实体永恒存在后，才能访问它们。除此之外，它们只能访问它们自己的记录。它们将无法访问我任何环境中任何其他实体的记录。
 
 ME:I have just seen an image in my mind's eye that suggests that you have compartmentalized your entities into different sections within your twenty four dimensions.Can you explain whatI am seeing here?
 
-我：
+我：我刚刚在脑海中看到一个画面，显示你已经把你的实体划分到24维度的不同部分。你能解释一下我看到的是什么吗？
 
 SE4:Yes,of course,but I can see that you have an expectation I have separated those entities that are eternal and put them into one environment and those that are not eternal into another. 
 
-4号源实体：
+4号源实体：是的，当然，但我可以看出你有一个期望，我已经把那些永恒的实体分开，把它们放在一个环境中，那些不是永恒的实体放在另一个环境中。
 
 ME:That thought had crossed my mind,but I can see that this is not the case from the way that you are leading this conversation. 
 
-我：
+我：我也曾有过这种想法，但是从你引导我们对话的方式来看，情况并非如此。
 
 SE4:You would be right to think in that way.No,I have not separated them in that way and the reason why I haven't is actually quite simple.The reason is that I am gradually changing the energies of those entities that are not eternal to being eternal.If I had them compartmentalized into eternal and non-eternal environments,then I would have to move the entities that I have made eternal from the non-eternal environment into the eternal environment.This would upset the balance of the population of entities within each of my environments,which ultimately would result in the one that was full of non-eternal entities being empty.No,I have not separated them out for this very reason. 
 
-4号源实体：
+4号源实体：你那样想是对的。不，我没有那样把它们分开，我没有那样做的原因其实很简单。原因是我正在逐渐改变那些非永恒的实体的能量，使它们成为永恒的。如果我把它们分成永恒和非永恒的环境，那么我将不得不把我已经使它们成为永恒的实体从非永恒的环境移到永恒的环境中。这将打破我每个环境中实体数量的平衡，最终导致充满非永恒实体的环境变成空的。不，我没有因为这个原因把它们分开。
 
 ME:O.K.,I would like to ask some questions. 
 
@@ -3841,15 +3843,23 @@ ME:O.K.,I would like to ask some questions.
 - How are they evolving? 
 - How are they organized/civilized? 
 
-我：
+我：好的，我想问一些问题。
+
+- 你们的环境是什么样子的？
+- 他们有物理方面吗，比如行星等？
+- 你们的实体是什么样子的，他们是如何组成的，他们会如何出现在我们面前？
+- 你们的实体在做什么？
+- 你们的实体在创造什么？他们需要创造来进化吗？(SE4：创造力是进化的基本和普遍要求)
+- 他们如何进化？
+- 他们如何组织/文明？
 
 SE4:You have a lot of questions.It would be best to work on them one by one,as there may be many questions that come out of each.I think you would call them nested questions? 
 
-4号源实体：
+4号源实体：你有很多问题。最好一个一个来解决，因为每个问题可能会引出很多问题。我想你会把它们称为嵌套问题。
 
 ME:I believe that is correct. 
 
-我：
+我：我相信这是正确的。
 
 ### Constants Involved in Creation 
 
