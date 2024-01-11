@@ -3863,233 +3863,259 @@ ME:I believe that is correct.
 
 ### Constants Involved in Creation 
 
+**创建过程中的常量**
+
 SE4:One thing you need to note here is that there are a number of constants that are involved in the creation of an environment.These constants are what we are given by the Origin to work with and as a result you may find that some of the descriptions I give you may sound similar to those you have already received. 
 
-4号源实体：
+4号源实体：这里需要注意的一件事是，在创建环境时，有许多常量。这些常量是起源给我们的，因此，您可能会发现，我给您的一些描述听起来可能与您已经收到的那些描述相似。
 
 ME:Actually,that is something that I am a bit concerned about.Will the readers of this text not think that this is all made up,that I am using my imagination and that as a result of the magnitude of this task,I am running out of ideas? 
 
-我：
+我：事实上，这是我有点担心的事情。这篇文章的读者不会认为这都是编造的，我在用我的想象力，并且由于这个任务的规模，我已经没有了主意吗？
 
 SE4:They can think what they like.The truth of the matter is that even we have constraints to work within.I will explain further.The energies that we,the Source Entities,work with are essentially energy from the Origin.It IS the Origin's energy,and as such,we all have the same set of energies,the same building blocks,if you like,to work with.As a result,there are bound to be similarities.The similarities are based around the energies we are working with and how we combine them during our creation process.I will give a further example. The similarities that you find in the flora and fauna on your planet are because they are all created by using the same set of building blocks that you call DNA.Using DNA creates a finite set of physical vehicles,some of which are similar,such as humans and apes,rats and mice, all of the fish species,all of the bird species.Commonality is everywhere as a result of the use of the same building blocks.Please note here that I have just been told by your Source Entity that there are many species that you have not catalogued yet,for some of them exist as semi- physical entities,and others have not yet been created as the permutations available are not anywhere near being used up yet.The universe is the limit in this instance.But let's get back to my environments. 
 
-4号源实体：
+4号源实体：他们可以想他们喜欢的东西。事情的真相是，即使我们有约束，我将进一步解释。我们，源实体，使用的能量本质上是来自起源的能量。它是起源的能量，因此，我们都有同样的能量，同样的建筑材料，如果你愿意，去工作。结果，必然有相似性。相似性是基于我们使用的能量以及我们在创造过程中如何结合它们。我将进一步举例，你在你们星球上的动植物中发现的相似性，是因为它们都是由使用同样的建筑材料，即你们称之为DNA的建筑材料所创造的。使用DNA创造了有限的物理载体，其中一些是相似的，如人类和猿，大鼠和小鼠，所有的鱼类物种，所有的鸟类物种。由于使用了同样的建筑材料，共性无处不在。请注意，我刚刚被你们的源实体告知，你们还没有编目很多物种，因为其中一些是作为半物理实体存在的，而其他的还没有被创造出来，因为可用的排列还没有被用完。在这个例子中，宇宙是极限。但让我们回到我的环境。
 
 I have created four main environments or universes,each consisting of the twenty- four dimensions and with 2,322 frequencies.Although Source Entity Two has four environments,this is only a similarity in division.And whereas other Source Entities have allowed all of their entities and their environments to be purely energetic,I have decided that all of my environments have what you would call a physical aspect to their appearance. This means that they have different levels of energetic cohesion,depending upon the dimension and frequency that is being experienced. 
 
+我创造了4个主要的环境或宇宙，每个都由24个维度和2322个频率组成。虽然2号源实体有4个环境，但这只是在划分上的相似性。而其他源实体允许它们所有的实体和它们的环境是纯粹的能量，我决定我所有的环境都有你们所说的物理外观。这意味着它们有不同层次的能量凝聚力，这取决于正在经历的维度和频率。
+
 I see that you are thinking along the lines of your own physicality. 
+
+我看到你在沿着你自己的肉体性思考。
 
 ME:I have to admit that I am thinking along the lines that parts of the environment and its entities have a certain level of solidarity that is based upon frequency. 
 
-我：
+我：我必须承认我沿着环境的各个部分和它的实体有基于频率的某种程度的团结思考。
 
 ### Dimensions and Frequency 
 
+**维度和频率**
+
 SE4:It is a reasonable example,poor but nevertheless useful in description.I will give you the concept in a way that you will be able to understand because there is a difference in how to understand dimension and frequency.
 
-4号源实体：
+4号源实体：这是一个合理的例子，虽然描述不佳，但仍然有用。我会以一种你能够理解的方式来给你们这个概念，因为在如何理解维度和频率方面存在差异。
 
 As you rise through the frequencies,you move away from that which you experience at the previous frequency and start to experience that which is present in the new frequency. Using your own frequencies as an example,things like the desk you sit at (of a slightly lower frequency than you and,therefore,solid)will no longer be part of your new frequentic level.However,you will experience other things that are consistent with your experience or expectation of what a solid object,such as your desk is.This is because frequencies overlap to a certain extent,and you are still within a single dimensional continuum.Now if you consider a change from one dimension to another,then you have to consider a bigger picture -that of the dimension and the frequencies.When you move from dimension to another, you also move from one frequency set-one that is aligned with the former dimension- to the frequency set that is aligned to the new dimension.Although the number of these frequencies is the same(2,322),the characteristics can be different since some frequencies can be bigger or broader even when higher in nature. 
 
+当你通过频率上升，你离开你在以前的频率上所经历的，开始体验出现在新频率上的东西。用你自己的频率为例，像你坐的桌子(比你的频率稍低，因此是固体)将不再是你新频率水平的一部分。然而，你会经历其他与你的经验或预期一致的固体物体，比如你的桌子。这是因为频率在一定程度上重叠，而你仍然在一个单维连续体中。现在如果你考虑从一个维度到另一个维度的变化，那么你必须考虑一个更大的画面——维度和频率的画面。当你从一个维度移动到另一个维度时，你也从一个频率组移动到与前一个维度一致的频率组，到与新维度一致的频率组。虽然这些频率的数量是相同的(2322)，但特征可能不同，因为一些频率可以更大或更宽，即使在自然界中更高。
+
 ME:Hold on.I thought that frequency was just that,frequency. 
 
-我：
+我：等等。我以为频率就是频率。
 
 SE4:No,frequency has more characteristics than just resonance for it also has the properties you would call magnitude,amplitude,and rotation.Your radio engineers know this and use it to some reasonable effect.Frequency also has the characteristics of spatial position,dimensional position,density,interaction-interconnectivity between different frequencies-and event position--time.All of these can change the modality of the frequencies being experienced and how they operate within a specific dimension.One thing is common though.The relationship between what is supposed to be solid-a solid will not pass through another solid if it is of the same frequency and modality-what is supposed to be non-solid but is in interface with solidity,and the energetic-that which is present in two or more frequencies concurrently.Then add that which is energetic and porous energetically -energies mixing will make a new composite energy if so desired. 
 
-4号源实体：
+4号源实体：不，频率不仅仅是共振，它还有振级、振幅和旋转的特性。你们的无线电工程师知道这一点，并将其用于一些合理的效果。 率还具有空间位置、维度位置、密度、不同频率之间的相互作用和事件位置——时间的特性。所有这些都可以改变频率的形态，以及它们在特定维度中如何运作。但有一点是共同的，被认为是固体的东西之间的关系——如果具有相同的频率和形态，一个固体不会穿过另一个固体——被认为是非固体的，但与固体相界面的，以及能量——同时存在于两个或多个频率中的东西。然后加上能量和多孔能量——如果需要，能量混合将产生新的复合能量。
 
 ME:So what you are saying is that what I am experiencing now in the physical would be duplicated in the next dimension to a certain extent-that extent being consistent with the relationships I have with the objects that surround me and the differences we have in frequency However,this is not the case when I move up and down the frequencies because I will perceive objects of different frequencies going in and out of my perception as I move through these frequencies. 
 
-我：
+我：所以你的意思是我现在在物质层的经历会在一定程度上在下一个维度中被复制，这个程度与我与周围物体的关系以及我们在频率上的差异是一致的。然而，当我上下移动频率时，情况就不一样了，因为当我移动这些频率时，我将感知到不同频率的物体进进出出我的感知。
 
 SE4:With what you perceive being consistent with the range of the organs or energies being used as the tools for perception/detection;however,if your tools for perception are wide enough in range,you would still perceive objects of your old frequency even though you are in a new frequency.Yes,that is a reasonable summary and one that can be used in most of your dialogues with the Origin's Source Entities when referring to this subject. 
 
-4号源实体：
+4号源实体：你所感知的范围与你用来感知/探测的器官或能量的范围一致；然而，如果你的感知工具范围足够宽，即使你在一个新的频率，你仍然会感知到旧频率的物体。是的，这是一个合理的总结，当你提到这个主题时，可以用在你与起源的源实体的大多数对话中。
 
 ME:So your environments have what I would call physical aspect to them? 
 
-我：
+我：所以你们的环境有我所说的物理方面？
 
 SE4:Yes. 
 
-4号源实体：
+4号源实体：是的。
 
 ME:Let me get this straight.The environments that you created only allow the entities you created to exist in the physical levels of frequency? 
 
-我：
+我：让我直说吧。你所创造的环境只允许你所创造的实体存在于物理频率的层面上？
 
 SE4:Yes,but don't forget that the physical levels of frequency extend to a level much higher than those that you are currently experiencing.So although there are limitations-physical in nature-imposed on my entities,you in your current physicality would consider them as energy-based beings. 
 
-4号源实体：
+4号源实体：是的，但是不要忘记物理层的频率延伸到一个比你们目前所经历的更高的水平。所以尽管有限制-自然的物理-强加在我的实体上，你们在你们目前的物质性中会认为它们是基于能量的存在。
 
 ME:O.K.,I think I understand what you mean.Then do they in their higher frequency environment have a universe that includes galaxies and solar systems with stars and planets? 
 
-我：
+我：好的，我想我明白你的意思了。那么他们在高频环境中有一个宇宙，包括星系和太阳系，还有恒星和行星吗？
 
 SE4:Not as you would recognize them.In your environment and resultant set of frequencies,you have a predominant shape for energy that has purpose,whether it is sentient or not.That shape is the sphere.In my environments the dominant shape for a large collection of energy is more like what you would call a doughnut. 
 
-4号源实体：
+4号源实体：在你们的环境和频率组合中，你们有一个主导的能量形状，它有目的，不管它是否有意识，这个形状是球形的，在我的环境中，能量的大量聚集的主导形状更像你们所说的甜甜圈。
 
 ### The Doughnut Universe 
 
-ME:A doughnut?Now you are playing with me. 
+**甜甜圈宇宙**
 
-我：
+ME:A doughnut? Now you are playing with me. 
+
+我：甜甜圈？你在和我开玩笑吧。
 
 SE4:Not in the slightest.You see,the level of density in my environments dictates whether or not there is a center to the energy that collects to create what you know as planets.You are brainwashed into thinking that a planet needs to be a certain form.In essence,there is no dominant form for a planet-any form will suffice.Please note though that the form of a planet is based upon many factors that are beyond that which exist in the static frequencies. The doughnut form is common in my environments. 
 
-4号源实体：
+4号源实体：一点也不。你看，我环境中的密度决定了是否存在一个能量中心，能量中心聚集起来创造你们所知的行星。你们被洗脑了，认为行星需要某种特定的形状。本质上，行星没有主导形式，任何形式都行。请注意，行星的形状是基于许多因素的，这些因素超出了静态频率。甜甜圈的形状在我的星球上很常见。
 
 ME:Do the entities that exist in these environments with doughnut ring planets work on the surface or inside the planet?Does it have a surface to live on or are they gaseous in nature? 
 
-我：
+我：存在于这些环绕甜甜圈行星的环境中的实体是在行星表面还是在行星内部活动？它有可以居住的表面还是它们本质上是气体？
 
 SE:They can be anywhere within the energy field that is created by the doughnut.That means they can exist on,within,or in the middle of the void centered within the area you may consider to be a solid mass.This center point would be the origin of the radius of the planet.This void is not truly void for it both contains energy and attractivity-what you might call gravity.It is this attractivity that keeps the planets shape the way they are. 
 
-源实体：
+源实体：他们可以存在于能量场内任何地方，这个能量场就是甜甜圈。这意味着他们可以存在于空洞的表面，内部，或者是空洞的中间，这个空洞的中心点就是行星半径的起点。这个空洞并不是真正的空洞，因为它同时包含了能量和引力，也就是我们所说的重力。正是这种引力使行星保持了它们的形状。
 
 ME:I have just received an image of a ring magnet with the location and shape of the magnetic field superimposed on it.The field is a series of circles that go around the doughnut whilst also touching in the middle.No,they are interlaced in the middle.This appears to create another field that covers the whole doughnut shape.That can't be right.A magnetic field does not do that,at least not to my knowledge.It appears to be the same as both a ring magnet and a standard solid magnet.
 
-我：
+我：我刚刚收到一张环形磁铁的图片，磁场的位置和形状都叠加在上面。磁场是一系列环绕着甜甜圈的圆圈，同时还接触到中间。 不，它们在中间交错。这似乎创造了另一个覆盖整个甜甜圈形状的磁场。
+
+（图5：磁铁环图像）
 
 ![Figure 5: The Ring Magnet Image](img/s6-029.png)
 
 SE4:That's because you are not actually seeing a magnetic field in your image.What you have seen are the dominant lines of attractivity that surround and contain the energies that form the shape of the planet at its level of physicality/frequency.
 
-4号源实体：
+4号源实体：那是因为你并没有在你的图像中看到一个磁场。你所看到的是吸引力的主导线，它围绕并包含了在物质/频率层面上形成行星形状的能量。
 
 ME:So what entities live in the different areas?By this,I mean inside the solid,on the surface,or in the void? 
 
-我：
+我：那么在不同的区域里生活着什么样的实体？我的意思是，在固体内部，表面上，或者在真空中？
 
 SE4:There is only one sort of entity,and it is able to adapt its form to whatever is best for the part of the planet where they like to exist-either in,on,or by it. 
 
-4号源实体：
+4号源实体：只有一种实体，它能够使自己的形态适应于地球上任何他们想要生存的地方——在里面，在上面，或者在旁边。
 
 ME:You said that they are physical.Are they metamorphs? 
 
-我：
+我：你说过它们是物理的。它们是变形的吗？
 
 SE4:As I previously stated,they are physical but not in your level/type/form of density. No,they are not metamorphs as you would describe or has been depicted in your science fiction books and films.They do modify themselves energetically to ensure they function at peak efficiency in the part of the planet they wish to inhabit.By creating their own field of attractivity,they draw those opposing energies that are necessary to allow what you recognize as a tactile response.The field is both personal to the entity and modulated to specifically attract the opposing energies. 
 
-4号源实体：
+4号源实体：正如我之前所说，他们是物质的，但不是你们的密度级别/类型/形式。不，他们不是你们所描述的或在你们的科幻小说和电影中描绘的变形者。他们确实积极地改变自己，以确保他们在他们希望居住的星球上以最高效率运作。通过创造他们自己的吸引力场，他们吸引了那些对抗的能量，这些能量是必要的，以允许你们所认识的触觉反应。这个场对实体来说既是个人的，又被调节以专门吸引对抗的能量。
 
 ME:Can you describe the form or shape of these entities? 
 
-我：
+我：你能描述一下这些实体的形状吗？
 
 SE4:They have no specific form that you would recognize as a physical form because they change themselves to suit their local environment.However,if I was to describe the forms they have in a general sense,would that suffice? 
 
-4号源实体：
+4号源实体：他们没有你能识别的特定的物理形态，因为他们会改变自己以适应当地的环境。然而，如果我从一般意义上描述他们的形态，这样够吗？
 
 ME:Yes,of course. 
 
-我：
+我：是的，当然。
 
 SE4:It would be relative to the doughnut-shaped worlds only. 
 
-4号源实体：
+4号源实体：这只会是相对于甜甜圈形状的世界。
 
 ME:That would be fine.
 
-我：
+我：那太好了。
 
 ### Three Entities,Three Environments
 
+**三个实体，三个环境**
+
 SE4:The form the entities generally assume when in the central void area of the planet would be like a huge butterfly-type shape with the wings as accumulators of energies that allow their translation from point to point by using the lines of attractivity.They are very high in frequency. 
 
-4号源实体：
+4号源实体：实体在行星中央虚空区域通常呈现的形态就像一只巨大的蝴蝶，翅膀是能量的累积器，允许它们通过引力线从一点到另一点的转换。它们的频率非常高。
 
 The form they generally assume when on the surface of the planet is more like a heavier version of the butterfly form but with the wings deflated to the point of uselessness in a void environment.In this instance,however,the wings attract different energies that ensure that the entity is able to operate in a similar condition to you in a gravitational field.Other appendages also become visible for using energies and areas of physicality that cannot be handled by the deflated wings. 
 
+他们在行星表面通常采取的形式更像一个重型版本的蝴蝶形态，但是翅膀在真空环境中被压缩到无用的程度。然而，在这种情况下，翅膀吸引不同的能量，以确保实体能够在类似于你在重力场中的状态下运行。其他附件也变得可见，以使用能量和物理性领域，这些是无法通过压缩翅膀处理的。
+
 The form they generally assume when below the apparent surface of the planet-somewhat similar to the difference in air to water on your earth-is,therefore,a matter of creating a more streamlined form of the butterfly shape that has a repulsive field surrounding it.Its form would be a bit like crossing the surface-based form of the entity with a(Pause).I am thinking of using the word "fish,"but the imagery is wrong.Let me search your memories further.O.K.,I would like to use the word crayfish or crab but with significantly less density. 
+
+他们在行星表面以下通常采取的形式——有点类似于地球上空气和水的区别——因此，这是一个创造一个更流线型蝴蝶形状的问题，它周围有一个排斥场。它的形式有点像与基于表面的实体形式交叉(暂停)。我想用“鱼”这个词，但意象是错误的。让我进一步搜索你的记忆。好的，我想用小龙虾或螃蟹这个词，但密度要小得多。
+
+（图6：重型蝴蝶形态）
 
 ![Figure 6: The Heavier Version of the Butterfly Form](img/s6-030.png)
 
 ME:I am not sure I can get my head around this form factor. 
 
-我：
+我：我不确定我能理解这个外形因素。
 
 SE4:No,I can see that the description is woefully inadequate in your experience and language,but it will have to do.Suffice to say,the form they adapt is the most effective for existing in the environment inside these planets. 
 
-4号源实体：
+4号源实体：不，我能看出你的经验和语言都不足以描述这种情况，但也只能这样了。我只想说，它们适应的这种形式是它们在这些行星内部环境中生存的最有效的方式。
 
 ### The Planets 
 
+**行星**
+
 ME:Do these planets revolve around a sun? 
 
-我：
+我：这些行星是围绕太阳旋转的吗？
 
 SE4:There is no need to have a local gravitational anomaly to attract and burn energies to create light and heat or all the other energies that are created in the combustion process that is the function of a sun. 
 
-4号源实体：
+4号源实体：没有必要有一个地方的引力异常来吸引和燃烧能量来创造光和热，或在燃烧过程中创造的所有其他能量，这是太阳的功能。
 
 ME:Why is this? 
 
-我：
+我：为什么？
 
 SE:We simply don't have the need for suns in my environments because light and heat is not required to either illuminate the universe or provide fuel or energy for those areas of local density that can be classified as planets.What we do have are areas where some of the planets of similar composition cluster together.You may call these galaxies if you like,but we don't have solar systems.In essence,we simply do not have the low frequency level that results in your sort of universal creativity,such as suns with planets rotating around them with solar systems that cluster together and rotate around themselves or create cloud-like formations.In a universe where heat and light are not required to sustain life,there is no need for a fire to create it. 
 
-源实体：
+源实体：我们根本不需要太阳，因为光和热既不需要照亮宇宙，也不需要为那些局部密度大的区域提供燃料或能量，这些区域可以被归类为行星。我们有的只是一些组成相似的行星聚集在一起的区域。如果你愿意，你可以称这些为星系，但我们没有太阳系。本质上，我们根本没有低频率，导致你们那种宇宙创造，比如太阳和围绕它们旋转的行星，太阳系聚集在一起，围绕它们旋转，或者创造云状结构。在一个不需要热和光来维持生命的宇宙中，没有必要用火来创造它。
 
 ME:I have just had another image in my mind of the planet you described to me.It appears to be all dark blue in the area of the doughnut that I would call solid.Would this be water? 
 
-我：
+我：我脑海中刚才有了你给我描述的那个星球的另一个画面。在我看来，那个我称之为固体的甜甜圈区域似乎全是深蓝色的。这是水吗？
 
 SE4:No,these planets do not have water.Water is a by-product of one of the most common elements you have in your universe,hydrogen.It is not available in my environments because the level of physicality is higher in frequency which negates its existence. Remember that material elements are a result of low frequencies.The fundamental law with frequency(across all Source Entity environments)is that the higher up the frequencies you go,the less material elements exist,and the more energetic elements exist. 
 
-4号源实体：
+4号源实体：不，这些行星没有水。水是你们宇宙中最常见的元素之一氢的副产品。在我的环境中是不可用的，因为物质的水平在更高的频率上否定了它的存在。记住，物质元素是低频率的结果。与频率有关的基本法则(跨越所有源实体环境)是，频率越高，物质元素越少，而能量元素越多。
 
 ME:So what is the blue appearance if it is not water? 
 
-我：
+我：如果不是水，那蓝色的外观是什么？
 
 SE4:It is the visible representation of the major energetic element that makes up the planet. 
 
-4号源实体：
+4号源实体：它是构成行星的主要能量元素的可见代表。
 
 ME:Are you suggesting that these planets are primarily made up of one element? 
 
-我：
+我：你的意思是这些行星主要由一种元素组成吗？
 
 SE4:In general,yes,but the planet in your image also has some other elements.Your own planet is currently very physical in nature.As a result,it is made up of many low frequency elements-more,in fact,than any other planet in your universe.
 
-4号源实体：
+4号源实体：一般来说，是的，但是你们的图像中的行星也有一些其他的元素。你们自己的行星目前在本质上是非常物质的。因此，它由许多低频元素组成-事实上，比你们宇宙中的任何其他行星都要多。
 
 The blue color is simply an emanation of that major element.It is also a product of the energies'response to being worked with by the entities that exist on and within its energies. 
 
+蓝色只是主要元素的散发。它也是能量的产物，存在于能量之上和能量之中的实体。
+
 ME:So those three entities you described make the planet the color it is. 
 
-我：
+我：所以你所描述的三个实体使行星变成了现在的颜色。
 
 SE4:As I stated before,it is a product of the major element and its reaction to being used by the entities that work with it. 
 
-4号源实体：
+4号源实体：正如我之前所说，它是主要元素的产物，以及与之合作的实体对其使用的反应。
 
 ME:Does the color change as a result of the purity of the work the entities do with the planet? 
 
-我：
+我：颜色的变化是否是由于实体对行星所做工作的纯粹性而导致的？
 
 SE4:Only in the intensity of the color.You can tell the level of entity and planetary evolution by the intensity of the color of the major element of the planet. 
 
-4号源实体：
+4号源实体：只有颜色的强度，你可以通过行星的主要元素颜色的强度来判断实体的级别和行星的进化。
 
 ME:I have just seen an image of agroup of planets,all glowing in brilliant colors.It is a beautiful sight. 
 
-我：
+我：我刚刚看到一组行星的图片，它们都发出明亮的颜色。那是一个美丽的景象。
 
 SE4:Yes,it is.That particular cluster of planets all have the same entities working with them in group harmony.They are evolving well,in both a planetary level and a group/individual entity level.I am pleased with them and their efforts. 
 
-4号源实体：
+4号源实体：是的，是的。那特定的行星群都拥有相同的实体，在团体和谐中与他们一起工作。他们在行星层面和团体/个体实体层面上进化得很好。我对他们和他们的努力感到高兴。
 
 ME:I get the impression then that the planets are not solid in the sense that I know insomuch as the entities do not feel physical resistance when they work below the surface. 
 
-我：
+我：我得到的印象是，行星不是固体的，因为我知道当实体在地表下工作时，它们不会感到物理阻力。
 
 SE4:No.There is what you call a surface tension that is at the interface between the surface of the planet and the inside part that is contained within the doughnut shape,and this is what some of the entities exist on.This is not to be confused with the crusty surface that your planet has.This is a relatively smooth surface and one that has little opportunity for other entities to exist on,such as trees or bushes.It does have other more mobile entities though,and these are entities created by those that exist in,on,or outside the planet's physicality but still within its energy field. 
 
-4号源实体：
+4号源实体：不，有你们所说的表面张力，在行星表面和内部的界面上，包含在甜甜圈形状中，这是一些实体存在的地方，这不是你们行星的硬壳表面，这是一个相对光滑的表面，没有其他实体存在的机会，如树木或灌木，但它确实有其他更移动的实体，这些实体是由那些存在于行星的物理性质中，或在行星的物理性质上，或在行星的物理性质之外，但仍然在其能量场内的人创造的。
 
 ### Mobile Entities - Living Cities 
 
