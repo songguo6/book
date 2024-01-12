@@ -4119,331 +4119,401 @@ SE4:No.There is what you call a surface tension that is at the interface between
 
 ### Mobile Entities - Living Cities 
 
+**移动实体：活生生的城市**
+
 ME:Tell me a bit about the mobile creations that the entities create that use the surface of the planet. 
 
-我：
+我：请告诉我一些关于移动创造的实体，它们使用地球表面。
 
 SE4:They create areas where they can work together in the manipulation of energies to further create what you might call biological forms.Biological is not the correct term,but the concept is the same.By this I mean that the entities they create are designed to be self- sustaining energetically.To enable them to be self-sustaining,they need to be able to roam the planet's surface,so to speak,seeking areas where the energies they use are at their prime. These entities are singular and collective.The collective ones are usually much larger in size. They are seen as the areas where this planet's entities work within to further interact with the energies of the planet.It is for this reason that they are mobile,for they need to move themselves to the next location that is required energetically to support the work of the higher entities. 
 
-4号源实体：
+4号源实体：他们创造了可以一起操纵能量的区域，以进一步创造你们可能称之为生物形态的东西。生物不是正确的术语，但概念是相同的。我的意思是他们创造的实体被设计成在能量上自给自足的。为了使它们能够自给自足，它们需要能够在行星表面漫游，也就是说，寻找它们所使用的能量处于最佳状态的区域。这些实体是单一的和集体的。集体的通常在尺寸上要大得多。它们被视为这个行星的实体工作的地方，以进一步与行星的能量相互作用。正是由于这个原因，它们是移动的，因为它们需要将自己移动到下一个需要能量的地方，以支持更高实体的工作。
 
 ME:I have just received an image,and I thank you for all these images.They help a lot in my understanding of whole areas of what I can only describe as buildings,moving together to the next location.Wait a minute.The number of these buildings-they are of all shapes and sizes- is massive.It must be as big as a city in earthly terms. 
 
-我：
+我：我刚刚收到了一张图片，谢谢你提供这些图片。它们对我理解整个区域有很大帮助，我只能把它们描述为建筑物，一起移动到下一个位置。等一下。这些建筑物的数量——它们的形状和大小——是巨大的。它一定和地球上的城市一样大。
 
 SE4:If you were to draw a comparison,then you would need to say that they are bigger than your biggest city on Earth.That is a true city,not including suburbs.
 
-4号源实体：
+4号源实体：如果你要作比较的话，那么你得说它们比你们地球上最大的城市还要大。那个城市是真正的城市，不包括郊区。
 
 ME:Can I use the description "living city"here,for that's what it looks like to me?It's as if the entities that created the buildings within the city created living beings within which they exist within,work within,and work with whilst also nurturing them as their own,like they are their children. 
 
-我：
+我：我可以用“生活的城市”这个描述吗？ 因为对我来说，它就是这样的。就好像那些在城市中建造建筑的实体创造了生活在其中的生物，他们在其中生存，工作，并一起工作，同时把它们当做自己的孩子来培养。
 
 SE4:They are their children to some extent,for they have created them.In doing so,they learn all about creation for a purpose and the responsibility of creation.Creation to achieve a purpose is one of the most powerful methods of achieving evolutionary progression.In this instance,the reason for creating the buildings and the resulting size of city is to harness and contain the energies that are being worked with.As each of the energies is refined to the point of requirement and usefulness,it is allowed to be mixed or exposed to the energetic products of another group of entities in another building.When the desired outcome of this larger mixing or manipulation of differing energy products is achieved,then that product is allowed to mix or be part of the product of other mixed or simultaneously exposed energies. This expansion is allowed to continue until all the buildings in the city are involved in creating one complex entity that is created for a larger purpose-that purpose being the final prerequisite for the development of a large,living,energetic organism. 
 
-4号源实体：
+4号源实体：在某种程度上，它们是它们的孩子，因为它们创造了它们。在这样做的时候，它们学习了所有关于为了目的而创造和创造的责任。为了达到目的而创造是实现进化进步的最有力的方法之一。在这种情况下，创造建筑物和由此产生的城市规模的原因是为了驾驭和控制正在使用的能量。当每种能量都被提炼到要求和有用的程度时，它被允许与另一栋建筑物中另一组实体的能量产品混合或接触。当这种更大的混合或不同能量产品的操作达到预期的结果时，那么该产品被允许与其他混合或同时暴露的能量产品混合或成为其一部分。这种扩张被允许继续下去，直到城市中所有的建筑都参与创造一个为了更大目的而创造的复杂实体——这个目的是发展一个大型、活跃、充满活力的有机体的最终前提。
 
 ME:And these large living cities move around the planet's surface to link up with the various energies that surround or are part of the planet's function. 
 
-我：
+我：这些大型的生命城市在行星表面移动，与环绕行星的各种能量相连，或者是行星功能的一部分。
 
 SE4:That's right. 
 
-4号源实体：
+4号源实体：对的。
 
 ME:So what is the overall role of these cities? 
 
-我：
+我：那么这些城市总体上扮演着什么样的角色呢？
 
 SE4:They are used as guinea pigs by the creating entities to understand how to create life other than them.I will elaborate.The most important part of an entity's existence is the experience of creation,especially creation of things that have autonomy from the creator.This is true creativity.My entities work with the creation of structures to house certain energies.These are linked together to create interdependence of the structures and the energies they house.Together they create an entity in its own right,which if created correctly,is capable of continued existence through its own re-creation.During its existence it has to perform certain tasks which results in it gaining experience and ultimately mastery of these tasks.Interaction between the cities is also encouraged.It is the husbandry of these creations that gives my entities experience and evolution. 
 
-4号源实体：
+4号源实体：他们被创造实体用作豚鼠来理解如何创造除他们以外的生命。我会详细说明。一个实体存在最重要的部分是创造的经验，特别是从创造者那里拥有自主权的事物的创造。这是真正的创造力。我的实体与结构的创造一起工作，以容纳某些能量。这些连接在一起，创造结构和它们所容纳的能量的相互依赖性。它们一起创造了一个自身权利的实体，如果创建正确，它能够通过自己的再创造继续存在。在其存在期间，它必须执行某些任务，这导致它获得经验，并最终掌握这些任务。城市之间的互动也受到鼓励。正是这些创造物的管理，给了我的实体经验和进化。
 
 ME:So my question on civilization is pretty meaningless then-because to work together on such projects requires the high level of interaction that is only possible with highly civilized entities. 
 
-我：
+我：所以我关于文明的问题是毫无意义的，因为在这样的项目上合作需要高水平的互动，这只有在高度文明的实体中才可能实现。
 
 SE4:Correct.When you get to that level of civilization,everyone works in a naturally high state of harmony for the benefit of everyone with all working towards the end goal.Nobody is in it for itself,for all benefit equally. 
 
-4号源实体：
+4号源实体：正确。当你达到那种文明水平时，每个人都在自然的高度和谐状态下工作，为了每个人的利益，所有人都朝着最终目标努力。没有人是为了自己，为了所有人的平等利益。
 
 ME:So is that it?Is that all that this version of entities do-just work together to create larger autonomous entities? 
 
-我：
+我：就这样吗？这就是这个版本的实体所做的一切——只是一起工作来创建更大的自治实体？
 
 SE4:By and large,yes.Existence is not as complicated in my environment as it is in yours.Do not get me wrong though.The work that they do is not simple,for it is both a complicated and honorable task in itself.What I mean by your environment being more complicated is that you all operate in separation from each other,and,as a result,you do not work together in harmony.My entities are both separate and joined,and,as a result,they know what their roles are and the level of excellence they have to achieve to make the task they work on successful. 
 
-4号源实体：
+4号源实体：大体上来说，是的。我的环境中的存在不像你们的那么复杂。但是不要误解我的意思。他们所做的工作并不简单，因为它本身就是一个复杂而光荣的任务。我所说的你们的环境更复杂是指你们都各自为政，因此，你们不能和谐地一起工作。我的实体既是独立的又是结合的，因此，他们知道自己的角色是什么，他们必须达到的卓越水平，以使他们所从事的任务成功。
 
 In terms of them being civilized,in their collective harmony,they achieve civilized function by being in harmony,for they work for the good of each other and the projects they work on.The infrastructure that you have for communication,transportation,and manufacturing that creates wealth allows further creation to support that infrastructure, and the individual is,therefore,not necessary. 
 
+就他们文明而言，在他们的集体和谐中，他们通过和谐来实现文明功能，因为他们为彼此和他们所从事的项目而工作。你拥有的用于通信、交通和制造的基础设施创造了财富，允许进一步创造来支持基础设施，因此个人是没有必要的。
+
 ME:Hold on.I thought you said that they have cities,though?Surely you need infrastructure to support cities? 
 
-我：
+我：等等。我以为你说过他们有城市，但是？你肯定需要基础设施来支持城市？
 
 SE4:YOU called them cities,not I.Although cities are a reasonable description of them,they are not born out of the same need for localized trade and accommodation that yours are. They are born out of the need to create,experiment,and evolve so the need for personal properties,such as houses,cars,and trinkets are not required.I can see you frowning so I will explain a little more.Transportation is not needed because they stay within the group that is creating and controlling the project they are working on.Should they need to move from one place to another,they either move the whole city or use the energy lines on the surface of the planet to move.Personal energy is gained by aligning their own energies to those of the planet they are localized to,which,again,for those entities that are on the surface of the planet,is via the energy lines. 
 
-4号源实体：
+4号源实体：你叫它们城市，不是我。虽然城市是对它们的合理描述，但它们不是像你们一样，是出于本地化贸易和住宿的需求。它们是出于创造，实验和进化的需求，所以对个人财产的需求，如房子，汽车，和小饰品是不需要的。我能看到你皱眉，所以我将解释得更多一点。不需要运输，因为他们呆在创造和控制他们正在从事的项目的群体中。如果他们需要从一个地方移动到另一个地方，他们要么移动整个城市，要么使用行星表面的能量线移动。个人能量是通过将他们自己的能量与他们所在行星的能量相一致来获得的，对于那些在行星表面的实体来说，是通过能量线。
 
 ### Inside the Planet 
 
+**行星内部**
+
 ME:What about those entities who are inside or under the planet's surface?
 
-我：
+我：那些在行星内部或表面之下的实体呢？
 
 SE:They have similar tasks as those on the surface,but they use subtly different energies. Remember how I described their difference in form to you? 
 
-源实体：
+源实体：他们和地面上的机器人有类似的任务，但是他们使用的能量略有不同。还记得我之前是怎么向你们描述它们在形式上的差异的吗？
 
 ME:Yes I do.They appeared to be similar in the doughnut's void and on the surface but different when inside or under the surface. 
 
-我：
+我：是的，我知道。它们在甜甜圈的空隙和表面上看起来很相似，但在内部或表面下是不同的。
 
 SE4:Yes,that is correct,but don't forget that they can translate from one form to another relative to the planetary area where they are working.This generally happens at the start or end of a project although some do change mid-project,but this is only when an entity's skills are needed to be updated/upgraded to help in its project.An entity can only get those skills from a period of existence either in the void or below the surface or vice versa. 
 
-4号源实体：
+4号源实体：是的，这是正确的，但不要忘记他们可以从一种形式转换到另一种相对于行星区域，他们正在工作。这通常发生在一个项目的开始或结束，虽然一些改变中间项目，但这只是当一个实体的技能需要更新/升级来帮助其项目。一个实体只能从一段时间的存在，在虚空或表面以下，反之亦然。
 
 ME:When I log into your universal environments,I see lots and lots of these doughnut-shaped planets.Do you have other shapes,and what is the shape relative to? 
 
-我：
+我：当我登录到你们的宇宙环境中，我看到很多很多这种甜甜圈形状的行星。你们有其他形状的吗？这些形状是相对于什么的？
 
 SE4:There are other shapes,but they are not what you would recognize as a physical shape that could be attributed to a planet. 
 
-4号源实体：
+4号源实体：还有其他形状，但它们不是你能认出的行星的物理形状。
 
 ME:Wow!I have just received an image of a spiky ball-type shape.You can't be serious in suggesting that this is a bona fide shape for a planet in your environments?! 
 
-我：
+我：哇！我刚刚收到一张尖尖的球形形状的图片。你不会是认真的，在你们的环境中，这是一个真实的行星形状吧？！
 
 SE4:Ha,ha,ha!You really are a stick in the mud.The shape of a planet or point of physicality for existence with-on or with-in does not need to be spherical like it is in your physical universe.Wait,I need to scan your memory that is that part of you in your real environment of energy.Ah yes,I see where the preconception is.It is based upon the standard form that is available to you in both your current physical environment that is in communication with me and that part of you that is energetic.You all naturally assume the sphere because it is both comfortable and makes the best use of your surface tension energies.Because your energies naturally form into the shape of a sphere,you naturally but incorrectly think that this is a universal standard that is used throughout the Origin's space and is also a dictate or universal law of physicality for the Source Entities as well.It may well be in your Source Entity's multiverses,but it isn't in mine-hence the shapes that you are seeing in your mind's eye.Don't forget that the physicality in my environments is nowhere near the same as what you are experiencing right now. 
 
-4号源实体：
+4号源实体：哈哈哈！你真是一根在泥里的木棍。行星的形状或存在于其中的实体点不需要像在你们的物质宇宙中那样是球形的。等等，我需要扫描你的记忆，那是你在真实能量环境中的一部分。啊，是的，我看到先入为主的地方了。它是基于标准的形式，在你目前的物理环境中，在与我交流时，以及你那充满能量的部分中，都是可以得到的。你们都自然地假设成球形，因为它既舒适又能最大限度地利用你们的表面张力能量。因为你们的能量自然地形成球形，你们自然地但不正确地认为这是一个普遍的标准，在整个起源的空间中都使用，而且也是一个指示或源实体的普遍物理法则。它可能在你们源实体的多维宇宙中，但它不是我的，因此你们在你们的头脑中看到的形状。不要忘记，我环境中的实体与你们现在正在经历的根本不同。
 
 So,to answer your last question,yes,that shape is a bona fide shape for a planet in my environment;therefore,I have shapes other than the doughnut-shaped planet that we have been talking about. 
 
+所以，回答你最后一个问题，是的，在我的宇宙中，这个形状是一个真正的行星形状，因此，除了我们一直在谈论的甜甜圈形状的行星外，我还有其他的形状。
+
 ### The Stickle Brick Planet 
+
+**粘砖星球**
 
 ME:We have only been talking about one universe and one specific planet in one ofyour universes What about the others?You must have many other civilizations doing other things to evolve. 
 
-我：
+我：我们只谈论了一个宇宙和一个特定的星球，在你的宇宙中，那其他的呢？你一定有很多其他的文明做其他的事情来进化。
 
 SE4:Yes,of course.But you would never have enough time to discuss them in any detail as they are far too diverse and are far too different to that which we have just been discussing. In fact,I have selected the best example that I have that correlates to what you are capable of understanding,and I am capable of conveying to you with the language you have. 
 
-4号源实体：
+4号源实体：是的，当然。但是你永远没有足够的时间详细讨论它们，因为它们太多样化了，而且与我们刚刚讨论的太不同了。事实上，我已经选择了最好的例子，我所能理解的，我能用你所拥有的语言传达给你。
 
 One of the things that you need to be aware of is that your existence on planet Earth is totally bizarre compared to almost all other entities in your Source Entity's environment,including what the other Source Entities and I have created.You think that because you exist in what you think is a quantifiable environment,you know it all.The problem is that what you experience is so far off the beaten track of what most entities experience that you have no idea what reality really is or could be.So when individuals,such as yourself,have the honor of being able to contact the greater reality and beyond,you tend to classify it into the pigeon holes that you know,and we have to work with that. 
 
+你需要知道的一件事是，你在地球上的存在与你源实体环境中几乎所有其他实体相比，包括其他源实体和我所创造的实体，是完全奇怪的。你认为，因为你存在于你认为是一个可量化的环境中，你知道一切。问题是，你所经历的与大多数实体所经历的如此不同，以至于你不知道现实到底是什么或可能是什么。所以当个人，比如你自己，有幸能够接触到更大的现实和超越时，你倾向于把它归类到你知道的鸽子洞中，我们必须与之合作。
+
 ME:O.K.,I understand that is a limitation.So I guess that is why you have limited the information you have given me-so I could both understand and be able to convey it to the readers of this text when it is published. 
 
-我：
+我：好的，我明白这是一个限制。所以我想这就是为什么你限制了你给我的信息——这样我既能理解，又能在文章发表时把它传达给读者。
 
 SE4:Correct. 
 
-4号源实体：
+4号源实体：正确。
 
-ME:Taking this in mind and also taking into account that we are probably getting close the end of this dialogue(I was starting to sense that SE4 was starting to pull away now),what would be the evolutionary opportunities surrounding the use of the spiky planet I saw in my mind's eye?To me,it looked like a hedgehog all rolled up. 
+ME:Taking this in mind and also taking into account that we are probably getting close the end of this dialogue(I was starting to sense that SE4 was starting to pull away now),what would be the evolutionary opportunities surrounding the use of the spiky planet I saw in my mind's eye? To me,it looked like a hedgehog all rolled up. 
 
-我：
+我：记住这一点，也考虑到我们可能接近这个对话的结尾(我开始感觉到SE4现在开始脱离)，在我脑海中看到的尖尖的星球周围的进化机会是什么？对我来说，它看起来像一只卷起的刺猬。
 
 SE4:In that particular instance,the entities that associate themselves with it work with the planet in a way that is particular to the needs of that planet.That planet type has a function that is specific to being in a community of planets-they stick together and work together as a whole. 
 
-4号源实体：
+4号源实体：在这种特殊情况下，与之联系的实体以一种特定的方式与行星一起工作，以满足行星的需求。这种行星类型具有一种特定的功能，以便在行星群落中生存，它们粘在一起，作为一个整体一起工作。
 
 ME:Like a"Stickle Brick."[Bristle Blocks-think of Lego with bristles instead of nubs and holes as connectors.] 
 
-我：
+我：就像一块“粘性积木”(刚毛积木——想象一下用刚毛代替圆突和孔作为连接器的乐高积木)。
 
 SE4:Let me see...Yes!Like a Stickle Brick.The function of the entities is a symbiotic one where they guide the planet to the location of other planets of the same form factor.They then "plug"together to form a larger planet.When in this larger planetary configuration, they each have singular and collective functions.These functions affect the energies that exist within and around them.It is these energies that the entities use to create new planets of the same type.These new planets are then cast free for a period to allow them to gain their own energy profiles.They do this by attracting energies from their general environment. Depending upon location within my overall environmental area,the energies are different so the planets are allowed to move or be moved by the entities that assign themselves to the planet to the areas that they are attracted to.Call this their personality if you like.Once they are charged up with the energies they are attracted to and are able to use these energies for their own continued existence,they are then moved into a location where they may "plug in" to a group of similar planets,creating a bigger planetary entity.
 
-4号源实体：
+4号源实体：让我看看... 是的！像粘砖一样。这些实体的功能是共生性的，它们引导行星到其他具有相同形式因素的行星的位置。然后它们“插入”在一起形成一个更大的行星。在这个更大的行星配置中，它们每个都有单一和集体的功能。这些功能影响存在于它们内部和周围的能量。这些实体就是利用这些能量来创造相同类型的新行星。这些新行星然后被释放一段时间，以使它们获得自己的能量分布。它们通过从它们的总体环境中吸引能量来做到这一点。根据我总体环境区域内的位置，能量是不同的，因此行星被允许移动或被那些将自己分配到行星的实体移动到它们被吸引到的地方。如果你愿意，你可以称之为它们的个性。一旦它们被吸引到能量并能够使用这些能量来继续生存，它们就会被移动到一个位置，在那里它们可能“插入”到一组类似的行星，创造一个更大的行星实体。
+
+（图7：粘性砖块星球）
 
 ![Figure 7: The Stickle Brick Planets](img/s6-031.png)
 
 ME:This looks to me very much like a virus,growing by multiplication by division. 
 
-我：
+我：在我看来这很像病毒，通过分裂和繁殖来生长。
+
+4号源实体：
+
+我：我：
+
+4号源实体：
+
+我：我：
+
+
 
 SE4:Yes,I can see how you might think that;the process is somewhat similar,but that is where the similarity ends.
 
-4号源实体：
+4号源实体：是的，我能理解你为什么会这样想；过程多少有些相似，但相似之处仅此而已。
 
 ME:So why do these planets work in this way? 
 
-我：
+我：那么为什么这些行星以这种方式运行呢？
 
 SE4:You mean why do the planets and their entities do what they do? 
 
-4号源实体：
+4号源实体：你是说为什么行星和它们的实体会做它们所做的事？
 
 ME:Yes,that's what I meant. 
 
-我：
+我：是的，这就是我的意思。
 
 SE4:They do it to create planetary communities that have both the components of individual contribution and collective contribution whilst working with the smaller entities that work with them.Working together is one of the highest orders of work any entity can partake in.Within my environments it is an activity that is not reserved to smaller,higher power entities,such as you in your Source Entity's environments.It is there for all to work with,achieve,and experience. 
 
-4号源实体：
+4号源实体：他们这样做是为了创造行星社区，在与较小的实体一起工作时，既有个人贡献的成分，也有集体贡献的成分。一起工作是任何实体可以参与的最高工作之一。在我的环境中，这是一种活动，不是为较小的、更高权力的实体保留的，比如你们在你们的源实体的环境中。它是为所有人工作、实现和体验的。
 
 ### Planetary Cooperation 
 
+**行星合作**
+
 ME:A planetary community!Hold on.I can understand that planets are entities in their own right,but the idea that they can form their own communities is a bit beyond me. 
 
-我：
+我：行星社区！等等，我能理解行星是独立的实体，但是行星能组成自己的社区，这个想法对我来说有点难理解。
 
 SE4:Why should it be?What do you think the galaxies are in your own universe? 
 
-4号源实体：
+4号源实体：为什么会这样？你认为你自己的宇宙中的星系是什么？
 
 ME:My understanding of the function of galaxies in my universe is that they are entities in their own right with planets forming an integral part of them and their function as they have their own individuality. 
 
-我：
+我：我对宇宙中星系功能的理解是，它们是独立的实体，行星是它们不可或缺的组成部分，它们的功能就像它们有自己的个性一样。
 
 SE4:Correct.The difference in your universe is that the galaxies are the major entity with the planets and sun being components of that galaxy.In this particular instance it is the other way around.With the support of the smaller entities as assistants,the planets form communities by linking themselves together,the result is similar to a galaxy in your own universe,but the galaxy is not the entity.The planets are the entities.They are just grouped together.There is an interesting by-product of this linking together of planets though- coadunation,the linking together of smaller individual entities with individuality to create a larger entity that is the sum or exceeds the sum of all of the entities that are linked together.This results in an entity that is significantly more capable than the entity you call a galaxy,for the galaxy is the major entity made up of smaller parts.Whereas in this example the galaxy is a collective entity made up of small but major parts. 
 
-4号源实体：
+4号源实体：正确。你们宇宙的区别是星系是主要的实体，行星和太阳是星系的组成部分。在这个特殊的例子中，情况正好相反。在较小的实体作为助手的支持下，行星通过连接在一起形成社区，结果与你们自己的宇宙中的星系相似，但星系不是实体。行星是实体。它们只是组合在一起。虽然行星的这种连接有一个有趣的副产品——联合，具有个性的较小的个体的连接，创造了一个更大的实体，它是所有连接在一起的实体的总和或超过所有实体的总和。这导致了一个实体，比你们称之为星系的实体更有能力，因为星系是由较小部分组成的主要实体。然而在这个例子中，星系是一个集体实体，由较小但主要的部分组成。
 
 ME:Whilst you were describing this concept to me... 
 
-我：
+我：当你向我描述这个概念时...
 
 SE4:It was not a concept;it is a reality. 
 
-4号源实体：
+4号源实体：这不是一个概念，而是一个现实。
 
 ME:Right.Whilst you were describing this specific example of existence in your environment,I received an image of clusters or groups of planets-vast groups,groups as small as solar systems and groups as large as galaxies-but with them all linking together to form an even bigger entity, a super galaxy. 
 
-我：
+我：是的，当你在描述你环境中存在的这个特定的例子时，我收到了行星群或行星组的图像——巨大的行星组，小到太阳系，大到星系——但它们都连接在一起，形成一个更大的实体，一个超级星系。
 
 SE4:And the super galaxies can merge together to create mega galaxies,and the mega galaxies can merge together to create super mega galaxies. 
 
-4号源实体：
+4号源实体：超级星系可以合并成超级星系，超级星系可以合并成超级超级星系。
 
 ME:Wait,wait,now you're blowing my mind.Are you suggesting that these clusters or groups of planets can get bigger and bigger and bigger with no limit to how large they can get?Wait.I now see an image of an area full of small and large clouds with each cloud being a galaxy of linked planets.Some of these clouds are moving together to make bigger clouds.From my vantage point in this image,they look something like a huge nebula.Recognizing that nebulae are galaxies of a sort,the different parts of the nebula are different colors due to the different galaxies being of differing energies that are being worked with by the planets and the entities that work with each planet. 
 
-我：
+我：等等，等等，你现在让我大吃一惊。你是说这些行星群或行星组可以变得越来越大，没有限制，它们可以变得多大？等等。我现在看到一个充满了大大小小的云的区域的图像，每朵云都是一个相互关联的行星星系。这些云中的一些正在移动在一起，形成更大的云。从我在这个图像中的有利位置来看，它们看起来像一个巨大的星云。认识到星云是一种星系，星云的不同部分是不同的颜色，因为不同的星系有着不同的能量，这些能量是由行星和与每个行星合作的实体共同作用产生的。
 
 SE4:Good summary.There is,of course,a limit to the size that a galaxy can become. 
 
-4号源实体：
+4号源实体：总结得好。当然，星系的大小是有限度的。
 
-ME:What is that?The total size of the environment they exist within and the total amount of energy associated with that environment? 
+ME:What is that? The total size of the environment they exist within and the total amount of energy associated with that environment? 
 
-我：
+我：那是什么？他们生存的环境的总大小和与环境相关的能量总量？
 
 SE4:Well done.There comes a time where either all of the energy is used up,or the volume available is no longer available because it is full of energy created into entity. 
 
-4号源实体：
+4号源实体：很好，总有那么一天，要么所有的能量都用完了，要么可用的体积不再可用，因为它充满了被创造成实体的能量。
 
 ME:So you are not infinite? 
 
-我：
+我：所以你不是无限的？
 
 SE4:No,of course not.I am the size that the Origin gave me when it created me.This is the same for all the environments that I created.These environments have both dimension and the various resources to go with that dimension.These are in the finite,not infinite although what I might call the finite,you might call the infinite;however,that is purely based upon your current perception of the greater reality.The difference is that the smaller entities that work with the planets are fully aware of their part in their greater reality. 
 
-4号源实体：
+4号源实体：不，当然不是。我是起源创造我时给我的尺寸。这对我创造的所有环境都是一样的。这些环境有维度和各种资源与维度相匹配。这些是有限的，不是无限的，虽然我可能称之为有限的，你可能称之为无限的；然而，这纯粹是基于你当前对更大现实的感知。区别是与行星一起工作的较小的实体完全意识到他们在更大现实中的角色。
 
 ME:I find it incredible to think that a whole environment can actually be filled by what would end up being one big nebula or super mega galaxy.What would be the purpose of a collective entity of such a size? 
 
-我：
+我：我发现很难想象整个环境实际上可以被一个大星云或超级巨型星系所填满。这样一个规模的集体实体的目的是什么？
 
 SE4:In this particular instance,the purpose of becoming this size and using either all of the available energies in the creation process or all of the area available is to experience the effect on the greater entity-increased energetic facilities and growth through cooperation. That is,to experience the sudden limitation of such an expansion would be the evolutionary version of hitting a brick wall because with the decision to dissolve the merging,the larger entity would lose all the advantages that come with an entity of this size.The level of dissolution,being a collective decision based upon what level of individuality,is required to start the next set of experiences. 
 
-4号源实体：
+4号源实体：在这个特定的例子中，达到这个规模的目的，或者在创造过程中使用所有可用的能量，或者使用所有可用的面积，是为了体验对更大实体的影响——通过合作增加能量设施和增长。也就是说，体验这种扩张的突然限制将是进化版本的撞墙，因为随着决定解散合并，更大的实体将失去所有与这个规模的实体相伴随的优势。解散的程度，作为基于个体性程度的集体决定，需要开始下一套体验。
 
 ME:I see an image of a smoke cloud expanding to fill a clear balloon of known size.This smoke cloud then divides to become smaller clouds within this balloon.It then divides further to become speckles of dirty air-what I assume are small galaxies or clusters of solar system-sized collections of planets.Then it becomes a whole cloud again and finally becomes invisible.This last part I would guess is where the dissolution of the collective is right down to its lowest level of one planet and is therefore not visible.
 
-我：
+我：我看到一个烟云的图像，它膨胀到填满一个已知大小的透明气球。然后这个烟云在这个气球内分裂成更小的云。然后它进一步分裂成肮脏的空气斑点——我猜这是小星系或太阳系大小的行星群。然后它再次成为一个完整的云，最后变得不可见。我猜这最后的部分是集体的解散正好降到一个行星的最低水平，因此是不可见的。
+
+（图8：气球图像中的烟雾云）
 
 ![Figure 8: The Smoke Cloud in the Balloon Image](img/s6-032.png)
 
 SE4:What you saw there is a very fast visualization of how this type of planetary cooperation develops or could develop.It is only a couple of examples of how it could develop but is good enough for this dialogue. 
 
-4号源实体：
+4号源实体：你们刚才看到的是一个非常快速的视觉化，展示了这种类型的全球合作是如何发展或可能发展的。这只是几个关于它如何发展的例子，但对于这次对话来说已经足够了。
 
 ME:So in a nutshell what you have shown me is that evolution is not just for the smaller entities but for the larger planetary entities as well.They can experience singularity or the various stages and sizes attributable to being linked together and cooperating to achieve a greater level of experience.
 
-我：
+我：简而言之，你向我展示的进化不仅仅是针对较小的实体，也针对较大的行星实体。它们可以经历奇点或各种阶段和大小，这些阶段和大小可以归因于彼此联系和合作，以达到更高的经验水平。
 
 SE4:Yes,that would be a good summary.Remember that experience and evolution does not necessarily need complication.It only needs cooperation. 
 
-4号源实体：
+4号源实体：是的，这是一个很好的总结。记住，经验和进化并不需要复杂。它只需要合作。
 
 You have seen enough of my environments now.You need to rest a while and cleanse your energies before you move onto communicating with my colleague you will call Source Entity Five.Now go in peace and spread the word. 
 
+你已经看到足够多我的环境了。你需要休息一会儿，在你继续与我的同事，你将称之为5号源实体，交流之前净化你的能量。现在平静地去传播这个消息。
+
 And with that my link to Source Entity Four was dissolved. 
+
+随着我与4号源实体的联系被解除。
 
 ### In Closing 
 
+**结束语**
+
 When a Source Entity relinquishes its link with you,it results in a big change (loss) in energy/frequency,and this one was no different.There was,however,a couple of differences.I had been in contact with SE4 for longer than normal,longer than the other SEs to date.I had also been operating at a higher frequency than normal to ensure that the link was maintained,which was,to be perfectly honest,hard work.This was due to the vast differences in the concepts and the energies surrounding these concepts that SE4 was offering me,which ultimately needed to be filtered by SE4 to a level of understanding that I could both deal with and hopefully transcribe.To elaborate further,I had been on a high that was higher than normal,and I was now suffering from energetic cold turkey,especially when around the "everyday"people that I associate with.When I was with my wife and friends who are either spiritual or interested in such abstract metaphysical information, my energies were raised and the cold turkey was not so bad.It was a bit like going into a decompression chamber after a deep (SCUBA)dive.Quite clearly I was no longer grounded and needed to consolidate myself energetically before the next line of communication/dialogue,which would be with the Source Entity that I will refer to as Source Entity Five.As I was having difficulty operating in the physical world,I decided to raise my energies and contact my own Source Entity,the creator of our multiverse on this issue. 
+
+当一个源实体放弃它与你的联系，会导致能量/频率的巨大变化(损失)，这一次也不例外。然而，有几个不同之处。我与SE4的接触比正常时间更长，比迄今为止其他SE更长。我还一直在以比正常更高的频率工作，以确保链接得到维护，这，老实说，是艰苦的工作。这是由于SE4提供给我的概念和围绕这些概念的能量的巨大差异，最终需要由SE4过滤到我既能处理又有望转录的理解水平。更详细地说，我一直处于比正常更高的高位，我现在正遭受着精力充沛的突然戒断，特别是当我与“日常”人交往时。当我和妻子和朋友在一起时，他们要么是精神上的，要么是对这种抽象的形而上学信息感兴趣，我的精力被提升了，突然戒断并没有那么糟糕。这有点像深潜(SCUBA)后进入减压室。很明显，我不再是根植的，需要在下一个交流/对话之前巩固自己的能量，这将是与源实体的联系，我将称之为5号源实体。由于我在物质世界操作有困难，我决定提高我的能量，并联系我自己的源实体，在这个问题上，我们的多维宇宙的创造者。
 
 ME:I need help here. 
 
-我：
+我：我需要帮助。
 
 SE:So I can see.But this was not unforeseen as we discussed this (privately)before we started this series of dialogues. 
 
-源实体：
+源实体：我明白了，但是这并不是我们没有预见到的，因为在我们开始这个系列对话之前我们已经私下讨论过了。
 
 ME:So what is happening? 
 
-我：
+我：那发生了什么？
 
 SE:Simply put,you are being stretched beyond your physically energetic limits.When you enter into a dialogue with another Source Entity,you create a link.This link is maintained throughout the period of time that the communication is planned to be over.That is not the few hours a week that you set aside for transcribing the information from these dialogues whilst in communication with the other SEs.It is the weeks or months that they are spread over.Establishing this link over this period of time is a necessary requirement,ensuring that you can continue the dialogue at a moment's notice without the rigamarole of intense meditative process.During this time you still maintain the link with me,and I have a different energy signature than the other SEs.This causes a conflict in energies,resulting in the tiredness you have been feeling even though I am giving you protection.In essence, your energies and frequencies are being maintained at a level well above the norm you are accustomed to,and,as a result,when you come down to just my energies,which are above your own,you still feel deflated. 
 
+源实体：简而言之，你正在被拉伸到身体能量的极限之外。当你进入与另一个源实体的对话时，你创建了一个链接。这个链接在整个通信计划结束的时间内保持。这不是你每周留出几个小时从与其他SE的对话中转录信息。这是他们分散的几个星期或几个月。在这段时间内建立这个链接是一个必要的要求，确保你可以在瞬间继续对话，而不需要严格的冥想过程。在这段时间内，你仍然保持与我的联系，而我有一个不同的能量特征比其他SE。这导致了能量的冲突，导致了你一直感到疲倦，即使我给你保护。本质上，你的能量和频率被保持在一个水平上，远远高于你所习惯的标准，因此，当你下降到只有我的能量，这高于你自己的，你仍然感到泄气。
+
 ME:So that explains the bags under the eyes.
 
-我：
+我：所以这就解释了眼袋。
 
 SE:Yes,to an extent.In support of this,you need to ensure that you are well rested and get as much sleep as possible. 
 
-源实体：
+源实体：在某种程度上是的。为了支持这一点，你需要确保你休息得很好，尽可能多地睡觉。
 
 ME:Yes,I agree with you here as I have recently started to find that I need to have a quick half hour sleep after work. 
 
-我：
+我：是的，我同意你的观点，因为我最近开始发现我需要在工作后快速睡上半个小时。
 
 SE:That is your physical and energetic bodies telling you that they need to stabilize and balance the energies being accessed and used. 
 
-源实体：
+源实体：你的身体和能量身体告诉你，他们需要稳定和平衡正在被访问和使用的能量。
 
 During the dialogues with the last four Source Entities,I was starting to notice an area of commonality.I was finding this a bit disturbing as a little voice in the back of my mind was saying that all I was doing was talking to the same entity-that I was not really communicating with Source Entities other than my own but simply with one spiritual entity.I decided to offer this thought process to my own Source Entity. 
 
+在与之前的4个源实体对话的过程中，我开始注意到一个共同点，我发现这有点令人不安，因为我脑海中有个声音在说我所做的一切都是在与同一个实体对话，我并不是真的在与我自己的源实体进行交流，而是仅仅与一个精神实体进行交流。
+
 ME:Why do I get this feeling that I am talking to just one entity when I have identified with four to date? 
 
-我：
+我：为什么我感觉到我只是在和一个实体说话，而到目前为止我已经认识了4个实体？
 
 SE:Let me put your mind at rest.You are,indeed,communicating with different Source Entities.That is a fact.What you are experiencing though is the feeling of oneness that results from being so close to the Origin.Remember we are the first and only creations of the Origin.Everything else in the Origin's expanse is a product of Source Entity creativity and that includes your good self.When you consider that the modus operandi that we all have is to experience,create,and evolve,it is hardly surprising that there is a certain amount of continuity between the agendas of each of the Source Entities.If there was not continuity in this way,then there would be no point to our existence.
 
-源实体：
+源实体：让我来让你安心。你确实在与不同的源实体交流。这是事实。你所经历的只是因为如此接近起源而产生的同一感。记住我们是起源最初也是唯一的创造物。起源广阔空间中的一切都是源实体创造力的产物，包括你这个善良的自我。当你考虑到我们所有人都有的操作方式就是体验、创造和进化，那么每个源实体的议程之间存在一定程度的连续性就不足为奇了。如果没有这种连续性，那么我们的存在就没有意义了。
 
 No,do not worry in this way. 
 
+不，不要担心这种方式。
+
 What I can say though is this:the very fact that you are questioning the content that you are receiving gives it value.The process of questioning is both healthy and necessary.It is necessary because there is no way in the physical world you can prove that the content you are receiving is real rather than fiction.It is healthy because it helps you maintain your objectivity and your state of mind.These together validate the work,and validation is a necessary precursor to dissemination.It is validation that brings such information into the domain of the physical worlds. 
+
+我能说的是：你正在质疑你所接收的内容这一事实本身就赋予了它价值。质疑的过程既健康又必要。这是必要的，因为在现实世界中你无法证明你所接收的内容是真实的而不是虚构的。这是健康的，因为它帮助你保持你的客观性和你的心态。这些一起验证了这项工作，而验证是传播的必要先驱。正是验证将这些信息带入了现实世界的领域。
 
 ME:Thank you that helps a lot.So this feeling I have of disappointment resulting in seeing continuity is also based upon the reduction in energies resulting from de-coupling from the other Source Entities. 
 
-我：
+我：谢谢你，这对我帮助很大。所以我看到连续性时失望的感觉也是基于与其他源实体脱钩导致的能量减少。
 
 SE:In some part,yes.The fact that you also have a part of you that requires a certain type of information-an expectation derived from the physical existence you are currently experiencing.That information is either not available or is not relevant in these communications.In your own words,just accept. 
 
-源实体：
+源实体：在某种程度上，是的。事实上，你也有一部分需要某种类型的信息，一种从你目前正在经历的物质存在中衍生出来的期望。这些信息要么是不可用的，要么是与这些交流不相关的。用你自己的话来说，就是接受。
 
 ME:Thank you.You help me a lot.
 
-我：
+我：谢谢你。你帮了我很多。
 
 SE:And I thank you for you have undertaken a most difficult task.Let us move on to the next Source Entity,Source Entity Five. 
 
-源实体：
+源实体：我感谢你们承担了一项最艰巨的任务。让我们继续下一个源实体，5号源实体。
 
 As these words were conveyed to me,I started to feel the change in energies that I had now come to associate with the protective energies that the Source Entity wraps around me when I enter into communication with the other Source Entities.I then felt the energy of the entity that was SE5.It was singular and accompanied with an image of a huge translucent ball of energy. 
 
+当这些话被传达给我时，我开始感觉到能量的变化，我现在开始与保护性能量联系起来，当我与其他源实体进行交流时，源实体包裹着我。然后我感觉到SE5实体的能量。它是奇异的，伴随着一个巨大的半透明能量球的形象。
+
 "I now understand that this is an incorrect statement(see Beyond the Source,Book 2).The structure of SEl's environment is 12 full dimensions each constructed of 3 sub dimensional components,each of which is inflated by 12 frequency bands.Except those which created the foundations (our own universe),where the three sub dimensional components equal 1 sub dimensional composite component and therefore 1 full dimension,which is in turn inflated by 12 frequencies to create the first universal environment (our universe)".I have since recognised that the Source Entities let me be in some error due to the fact that,at a particular point in time,it would be too hard for me to understand the actual correct detail,and that what I understood was close enough to the truth to allow the thought process henceforth projected to mankind's memory to be of some significant use, in variance to receiving no information.GSN 14/04/2012(During final editing)
+
+“我现在明白这是一个不正确的陈述(见源头之外，第二本书)。SE1环境的结构是12个完整的维度，每个维度由3个亚维度组成，每个亚维度由12个频率扩展。除了那些创造了基础(我们自己的宇宙)，其中三个亚维度组成等于1个亚维度复合组件，因此是一个完整的维度，它依次被12个频率膨胀，创造了第一个宇宙环境(我们的宇宙)。”我已经认识到源实体让我在一些错误中，由于事实，在特定的时间点，对我来说理解实际正确的细节太难了，而我所理解的已经足够接近真相，以允许思想过程从此投射到人类的记忆中，以获得一些重要的使用，而不是接收任何信息。 GSN 2012年4月14日(在最终编辑中)
 
 ## Chapter 5 
 
+**第5章**
+
 ### Source Entity Five 
 
-I was wondering why I was getting this image of a singular entity when I felt its presence engulf me.I decided that I had better communicate with this presence as ignoring it would be an insult.It had,after all,made the effort to make contact with me,which it had no obligation to do. ME:Is that Source Entity Five? SE5:It is,and you have permission to refer to me as such,for it will make this communication easier. ME:Thank you.You may have been told by my Source Entity that I have a format that I like to use to start my dialogues,and then I just let the communication go the way it goes.I have been finding that this is the best way because trying to steer the questioning too much inhibits the flow of information,especially if the information is in variance with what I think I should be getting. Basically I have learnt to get myself out of the way and let you explain about you and your creation/s. SE5:That is a very wise thing to do and one that will stand you in good stead in this instance, specifically as I am singular.This is something that you have already sensed. 
+**5号源实体**
+
+I was wondering why I was getting this image of a singular entity when I felt its presence engulf me.I decided that I had better communicate with this presence as ignoring it would be an insult.It had,after all,made the effort to make contact with me,which it had no obligation to do. 
+
+我不知道为什么当我感到它的存在将我吞没时，我得到的是一个单一实体的图像。我决定我最好与这个存在沟通，因为忽视它将是一种侮辱。毕竟，它已经努力与我联系，而它没有义务这么做。
+
+ME:Is that Source Entity Five? 
+
+是5号源实体吗？ 
+
+SE5:It is,and you have permission to refer to me as such,for it will make this communication easier. 
+
+5号源实体：是的，你有权这样称呼我，因为这将使这次交流更容易。
+
+ME:Thank you.You may have been told by my Source Entity that I have a format that I like to use to start my dialogues,and then I just let the communication go the way it goes.I have been finding that this is the best way because trying to steer the questioning too much inhibits the flow of information,especially if the information is in variance with what I think I should be getting. Basically I have learnt to get myself out of the way and let you explain about you and your creation/s. 
+
+我：谢谢。我的源实体可能已经告诉过你，我有一个喜欢用来开始对话的格式，然后我只是让交流顺其自然。我发现这是最好的方法，因为试图过多地控制问题会抑制信息的流动，特别是当信息与我认为我应该得到的信息不同时。基本上，我已经学会让自己离开，让你解释你和你的创造物。
+
+SE5:That is a very wise thing to do and one that will stand you in good stead in this instance, specifically as I am singular.This is something that you have already sensed. 
+
+5号源实体：这是一件非常明智的事情，在这种情况下，这将对你有好处，特别是因为我是单一的。这是你已经感觉到的事情。
 
 ME:Yes,it is.I will,though,ask the standard questions about these items: 
 
@@ -4454,7 +4524,14 @@ ME:Yes,it is.I will,though,ask the standard questions about these items:
 - what you are doing to evolve and help the Origin with its quest to know/understand itself better 
 - what you have created as a result 
 
-我：
+我： 是的，是的。尽管如此，我还是会问一些关于这些项目的标准问题：
+
+- 你的创造物
+- 开始觉知
+- 体验你自己
+- 与起源沟通
+- 你正在做什么来进化，并帮助起源更好地了解自己
+- 你所创造的结果是什么
 
 SE5:I note that they are worded in a different way to the way you have written them in previous dialogues,but the content is still the same.I have already had some advice on what you might ask from my own communications with your Source,so I am aware of what routes you will be taking during our time together.In fact,we have,in essence,already had our dialogue;it's just that the part of you that is on the plane of existence that you are aware of has not yet been able to recognize it as happening.I think you know this aspect of reality, am I correct? 
 
