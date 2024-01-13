@@ -491,7 +491,7 @@ ME:So how did you create the universes?
 
 SE:The big bang theory that your scientists propose as the start of the universe is so far away from the truth it is not even worth considering.I didn't create the universes by igniting a gigantic match and it exploding and expanding,although it does sound like a good idea.No, I created the universes by simply giving the area within myself that energy that I wanted to be a universe,intention and purpose-the purpose being to become what it wanted to be, what it felt was the best form it should undertake in all the frequencies and dimensions that it eventually settled on being.This resulted in the areas that eventually became physical in form moving away from each other to give themselves space,the space to not be influenced by each other in any significant way. 
 
-源实体：你们的科学家提出的宇宙起源的大爆炸理论离真相如此之远，甚至不值得考虑。我不是通过点燃一根巨大的火柴，让它爆炸和膨胀来创造宇宙的，尽管这听起来确实是个好主意。不，我创造宇宙只是通过给我内心的这个区域我想要成为宇宙的能量、意图和目的，目的是成为它想要成为的，它感觉到它应该在所有频率和维度中承担的最佳形式，最终决定成为。这导致最终成为物质形态的区域彼此远离，给自己空间，这个空间不会以任何重要的方式相互影响。
+源实体：你们的科学家提出的宇宙起源的大爆炸理论离真相如此之远，甚至不值得考虑。我不是通过点燃一根巨大的火柴，让它爆炸和广阔来创造宇宙的，尽管这听起来确实是个好主意。不，我创造宇宙只是通过给我内心的这个区域我想要成为宇宙的能量、意图和目的，目的是成为它想要成为的，它感觉到它应该在所有频率和维度中承担的最佳形式，最终决定成为。这导致最终成为物质形态的区域彼此远离，给自己空间，这个空间不会以任何重要的方式相互影响。
 
 ME:Are you suggesting that the galaxies and the universes have sentience,intelligence? 
 
@@ -2041,7 +2041,7 @@ ME:I have just received an image of a dark cloud of energy within the bubble of 
 
 SE2:Good,that is correct.The rest of the environment also gained awareness but at a slower pace.Consider it like when you wake up from being asleep.At first you are aware of just your thoughts,and then you start to feel certain parts of your body,some before others.Finally you are in full awareness of your body,and you move your limbs at will without preconceived thought.This is exactly how Environment 4 became aware.First,it was in the center of the dark energy cloud.Then as awareness of self spread,it became more expansive and started to include the rest of the dark energy spread throughout the environmental bubble.Eventually it also included the other energies that are also present, making it a complete environmental entity in its own right-fully aware of its existence,its composition,its location,and its abilities. 
 
-2号源实体：很好，说对了。环境的其他部分也获得了意识，但速度较慢。想象一下你从睡梦中醒来，起初你只意识到自己的思想，然后你开始感觉身体的某些部分，有些先于其他部分。最后你完全意识到自己的身体，你随意移动四肢而没有先入为主的想法。这正是环境4获得意识的方式。起初，它在黑暗能量云的中心 然后随着自我意识的扩散，它变得更加膨胀，开始包括扩散到整个环境泡泡的其他黑暗能量。最后它还包括了其他存在的能量，使它成为一个完全独立的环境实体，完全意识到自己的存在、组成、位置和能力。
+2号源实体：很好，说对了。环境的其他部分也获得了意识，但速度较慢。想象一下你从睡梦中醒来，起初你只意识到自己的思想，然后你开始感觉身体的某些部分，有些先于其他部分。最后你完全意识到自己的身体，你随意移动四肢而没有先入为主的想法。这正是环境4获得意识的方式。起初，它在黑暗能量云的中心 然后随着自我意识的扩散，它变得更加广阔，开始包括扩散到整个环境泡泡的其他黑暗能量。最后它还包括了其他存在的能量，使它成为一个完全独立的环境实体，完全意识到自己的存在、组成、位置和能力。
 
 ME:How could it be aware of its abilities so early in its existence? 
 
@@ -3023,7 +3023,7 @@ SE3:Well,think of it in these terms:the entity is one with the universe,and the 
 
 ME:Why did you use the word "loci"?It is usually attributed to a number of points a fixed distance from an originating point that creates a curve or that can be related to a specific point on a curve.
 
-我：为什么你用“轨迹”这个词？它通常指的是距离原点一定距离的若干点，这些点构成了曲线，或者与曲线上的某个特定点相关。
+我：为什么你用“轨迹”这个词？它通常指的是距离起源一定距离的若干点，这些点构成了曲线，或者与曲线上的某个特定点相关。
 
 SE3:That would be a good description of my entities.They have an origin point and other points where their intellect is in focus.When a particular point is in more focus than the others-that is,it has more sentience attributed to it-then it could be called the loci or locus of that entity.It is similar to that part of you that is typing this text now is the locus of that part of you that is projected into the physical of your multiverse to create you as a human being.Thus,they have a locus to indicate thatthat is the majority of them in their universe. This is how they maintain their singularity within the universe and how they can become merged-by the joining together of points of their loci-or separated by removing points of their loci. 
 
@@ -3159,7 +3159,7 @@ ME:You've lost me.What do you mean by "creative intention"?
 
 SE3:You have this is your own universe;thought is part of your creative intention.The only difference is that when you use your creative intention and create something-whether an object or a situation-that which you have created remains in existence,unless of course it is transposed into another energy for some other reason.Within the universe that my entities have created,they need to create entities that maintain the intention that created the universe where they have been created to exist.In other words,they are the choir that continue the song that is started by the choir leader/s.Their sole purpose is to maintain the field of energy that keeps the universe inflated and maintains all that was created to exist within the universe,including themselves. 
 
-3号源实体：你有你自己的宇宙，思想是你的创造意图的一部分。唯一的区别是当你使用你的创造意图并创造一些东西时，不管是一个物体还是一个情景，你所创造的东西仍然存在，除非它因为其他原因转换成另一种能量。在我的实体所创造的宇宙中，它们需要创造实体来维持创造这个宇宙的意图，而它们就是在这个宇宙中被创造出来存在的。换句话说，它们是唱诗班，继续唱着由唱诗班领唱者开始的歌曲。它们唯一的目的是维持能量场，使宇宙膨胀，并维持宇宙中所有被创造出来的东西，包括它们自己。
+3号源实体：你有你自己的宇宙，思想是你的创造意图的一部分。唯一的区别是当你使用你的创造意图并创造一些东西时，不管是一个物体还是一个情景，你所创造的东西仍然存在，除非它因为其他原因转换成另一种能量。在我的实体所创造的宇宙中，它们需要创造实体来维持创造这个宇宙的意图，而它们就是在这个宇宙中被创造出来存在的。换句话说，它们是唱诗班，继续唱着由唱诗班领唱者开始的歌曲。它们唯一的目的是维持能量场，使宇宙广阔，并维持宇宙中所有被创造出来的东西，包括它们自己。
 
 ME:That must be quite ajob,knowing that if you lose concentration and any part of the creative intention,you might wink out of existence.
 
@@ -3559,7 +3559,7 @@ SE4:As I said before,each of us has areas that have energies that have function.
 
 **Structure** is the first function of a Source Entity.It is independent and interconnected with form and volume,irrespective of energy or its type.It is what we are,and it maintains our level of inflation,so to speak.Every entity has structure of some sort,no matter how diverse it is. 
 
-**结构**：结构是源实体所具有的第一个功能。无论能量或其类型如何，它都是独立的，并且与形态和容量相互关联。它就是我们，可以说，它维持着我们的膨胀水平。
+**结构**：结构是源实体所具有的第一个功能。无论能量或其类型如何，它都是独立的，并且与形态和容量相互关联。它就是我们，可以说，它维持着我们的广阔水平。
 
 **Form** is what we choose to be to maximize the number of environments we create.It is interconnected with structure and volume.Form does not necessarily relate to shape since it is a function of division and the energies required to maintain that division.It can also be connected with compartmentalization when creating independent unconnected environments. 
 
@@ -3567,7 +3567,7 @@ SE4:As I said before,each of us has areas that have energies that have function.
 
 **Volume** is how we choose to inflate ourselves in order to accommodate the environments and the entities we create.It is interconnected with structure and form.As with form, volume also has a link with compartmentalization as I can change my volume in certain areas of myself to allow the creation of an environment to take account of all energy of a specific type if I so wish.This is specifically useful if I want to have an experiment with an environment that is filled with a single energy type.Depending upon what maintenance function is being performed,volume also increases or decreases. 
 
-**容量**：容量是我们选择膨胀自己以适应环境和我们创造的实体的方式。它与结构和形态相互关联。与形态一样，容量也与分区有关，因为我可以改变自己某些区域的容量，以便创造一个环境，如果我愿意的话，可以考虑到所有特定类型的能量。如果我想在一个充满单一能量类型的环境中进行实验，这尤其有用。根据正在执行的维护功能，容量也会增加或减少。
+**容量**：容量是我们选择广阔自己以适应环境和我们创造的实体的方式。它与结构和形态相互关联。与形态一样，容量也与分区有关，因为我可以改变自己某些区域的容量，以便创造一个环境，如果我愿意的话，可以考虑到所有特定类型的能量。如果我想在一个充满单一能量类型的环境中进行实验，这尤其有用。根据正在执行的维护功能，容量也会增加或减少。
 
 **Detail** is what is being investigated by every one of us,including the Origin.It is the detail of "self"that gives us our individuality,our being,our personality if you like.Although every one of us has been created in equality,it is the detail that tells us apart. 
 
@@ -3731,7 +3731,7 @@ ME:So you have 24 dimensions to play with,so to speak.
 
 SE4:Correct.Each of these dimensions is inflated with 2,322 frequency levels. 
 
-4号源实体：每个维度都膨胀了2322个频率层级。
+4号源实体：每个维度都广阔了2322个频率层级。
 
 ME:That's a strange number.Why 2,322? 
 
@@ -4377,7 +4377,7 @@ SE4:In this particular instance,the purpose of becoming this size and using eith
 
 ME:I see an image of a smoke cloud expanding to fill a clear balloon of known size.This smoke cloud then divides to become smaller clouds within this balloon.It then divides further to become speckles of dirty air-what I assume are small galaxies or clusters of solar system-sized collections of planets.Then it becomes a whole cloud again and finally becomes invisible.This last part I would guess is where the dissolution of the collective is right down to its lowest level of one planet and is therefore not visible.
 
-我：我看到一个烟云的图像，它膨胀到填满一个已知大小的透明气球。然后这个烟云在这个气球内分裂成更小的云。然后它进一步分裂成肮脏的空气斑点——我猜这是小星系或太阳系大小的行星群。然后它再次成为一个完整的云，最后变得不可见。我猜这最后的部分是集体的解散正好降到一个行星的最低水平，因此是不可见的。
+我：我看到一个烟云的图像，它广阔到填满一个已知大小的透明气球。然后这个烟云在这个气球内分裂成更小的云。然后它进一步分裂成肮脏的空气斑点——我猜这是小星系或太阳系大小的行星群。然后它再次成为一个完整的云，最后变得不可见。我猜这最后的部分是集体的解散正好降到一个行星的最低水平，因此是不可见的。
 
 （图8：气球图像中的烟雾云）
 
@@ -4485,7 +4485,7 @@ As these words were conveyed to me,I started to feel the change in energies that
 
 "I now understand that this is an incorrect statement(see Beyond the Source,Book 2).The structure of SEl's environment is 12 full dimensions each constructed of 3 sub dimensional components,each of which is inflated by 12 frequency bands.Except those which created the foundations (our own universe),where the three sub dimensional components equal 1 sub dimensional composite component and therefore 1 full dimension,which is in turn inflated by 12 frequencies to create the first universal environment (our universe)".I have since recognised that the Source Entities let me be in some error due to the fact that,at a particular point in time,it would be too hard for me to understand the actual correct detail,and that what I understood was close enough to the truth to allow the thought process henceforth projected to mankind's memory to be of some significant use, in variance to receiving no information.GSN 14/04/2012(During final editing)
 
-“我现在明白这是一个不正确的陈述(见源头之外，第二本书)。SE1环境的结构是12个完整的维度，每个维度由3个亚维度组成，每个亚维度由12个频率扩展。除了那些创造了基础(我们自己的宇宙)，其中三个亚维度组成等于1个亚维度复合组件，因此是一个完整的维度，它依次被12个频率膨胀，创造了第一个宇宙环境(我们的宇宙)。”我已经认识到源实体让我在一些错误中，由于事实，在特定的时间点，对我来说理解实际正确的细节太难了，而我所理解的已经足够接近真相，以允许思想过程从此投射到人类的记忆中，以获得一些重要的使用，而不是接收任何信息。 GSN 2012年4月14日(在最终编辑中)
+“我现在明白这是一个不正确的陈述(见源头之外，第二本书)。SE1环境的结构是12个完整的维度，每个维度由3个亚维度组成，每个亚维度由12个频率扩展。除了那些创造了基础(我们自己的宇宙)，其中三个亚维度组成等于1个亚维度复合组件，因此是一个完整的维度，它依次被12个频率广阔，创造了第一个宇宙环境(我们的宇宙)。”我已经认识到源实体让我在一些错误中，由于事实，在特定的时间点，对我来说理解实际正确的细节太难了，而我所理解的已经足够接近真相，以允许思想过程从此投射到人类的记忆中，以获得一些重要的使用，而不是接收任何信息。 GSN 2012年4月14日(在最终编辑中)
 
 ## Chapter 5 
 
@@ -4535,895 +4535,971 @@ ME:Yes,it is.I will,though,ask the standard questions about these items:
 
 SE5:I note that they are worded in a different way to the way you have written them in previous dialogues,but the content is still the same.I have already had some advice on what you might ask from my own communications with your Source,so I am aware of what routes you will be taking during our time together.In fact,we have,in essence,already had our dialogue;it's just that the part of you that is on the plane of existence that you are aware of has not yet been able to recognize it as happening.I think you know this aspect of reality, am I correct? 
 
-5号源实体：
+5号源实体：我注意到它们的措辞与你在以前的对话中所写的措辞不同，但内容仍然是一样的。我已经从我与你的源头交流中得到一些关于你可能问的问题的建议，所以我知道在我们在一起的时间里你会采取什么路线。事实上，我们，在本质上，已经有了我们的对话；只是你在存在层面上所意识到的那个部分还没有能够认识到它正在发生。我想你知道现实的这一方面，我没错吧？
 
 ME:Yes.O.K.,let's kick off with the dialogue as I am not aware of what my higher/real self has already done or is currently doing. 
 
-我：
+我：是的，好吧，让我们开始对话，因为我不知道我的更高/真实自我已经做了什么，或者正在做什么。
 
 SE5:Fire away. 
 
-5号源实体：
+5号源实体：请说吧。
 
 ### Self-recognition 
 
+**自我认知**
+
 ME:How and when did you become aware that you had your own thoughts-that you were sentient and had individual thought and recognition of self? 
 
-我：
+我：你是什么时候，怎样开始意识到自己有思想的？你有感觉，有个人的想法，有自我认知。
 
 SE5:It was actually a slow process for me.For a long time,what you would call trillions of your years,I was not fully aware that I was individual.What I was aware of was that I was part of a bigger reality,the Origin,but I did not know what the Origin was and what my relationship to the Origin was either.It was somewhat like what your babies experience during the first days of existence after being born. 
 
-5号源实体：
+5号源实体：对我来说，这其实是一个缓慢的过程。很长一段时间，你们会称之为数万亿年，我没有完全意识到我是个体。我所意识到的是，我是更大的现实的一部分，起源，但我不知道起源是什么，我与起源的关系是什么。这有点像婴儿出生后最初几天的经历。
 
 ME:So what made you become aware?Did the Origin have a hand in making you make the change from unaware to aware,or was it a gradual increase in awareness? 
 
-我：
+我：那么是什么让你变得有意识的呢？起源是否帮助你从无意识到有意识的转变，或者是意识的逐渐增强？
 
 SE5:It was a fully gradual process.My increase in awareness was based upon my increase in what you might call sensory experience. 
 
-5号源实体：
+5号源实体：这是一个完全渐进的过程。我意识的增长是基于我所能称之为感官体验的增长。
 
 ME:What do you call sensory experience?For me,it is touch,taste,sight,and smell.
 
-我：
+我：你认为感官体验是什么？对我来说，是触觉、味觉、视觉和嗅觉。
 
 SE5:For me,it was things that were interfering with my peripheral energies.In fact,it was the effect of the other Source Entities'creations brushing by me that made me realize that I had a periphery.It was a most disturbing experience.From this point onwards,my attention was set upon trying to understand what was causing this disturbance and how I could avoid the sensations that I was experiencing.As a result,I was drawn more and more into understanding that as I thought about not experiencing these sensations,they would go away,or the things that were causing the sensations would steer clear of my periphery or boundary.I even managed to create some thought processes that resulted in my catching those things that would try to invade or brush by my energies and hold them in one place whilst I looked into them with a view to seeing what they were.It was during the investigation into what one particularly interesting creation was doing,and why it was doing it that the realization that I was an entity capable of individual thought in my own right came to mind.This I found to be most interesting and decided to spend the next period of time creating independent thought and seeing if I could rationalize that thought by the justification of my own existence. 
 
-5号源实体：
+5号源实体：对我来说，是那些干扰我外围能量的东西。事实上，是其他源实体创造物擦过我，让我意识到我有一个外围。那是一个非常令人不安的经历。从那一刻起，我的注意力集中在试图理解是什么引起了这种干扰，以及我如何能避免我正在经历的感觉。结果，我越来越理解，当我想到不去经历这些感觉时，它们就会消失，或者引起这些感觉的东西会避开我的外围或边界。我甚至设法创造了一些思维过程，导致我抓住那些试图入侵或擦过我能量的东西，并把它们放在一个地方，同时我观察它们，看看它们是什么。正是在调查一个特别有趣的创造物在做什么，以及为什么它在做的时候，我意识到我是一个能够独立思考的实体，以我自己的权利。我发现这很有趣，决定花下一段时间创造独立的思想，看看我是否能通过我自己的存在来使这种思想合理化。
 
 ME:What do you mean by rationalization of independent thought by the justification of your own existence? 
 
-我：
+我：你说通过为自己的存在辩护来使独立思考合理化是什么意思？
 
 ### The Power of Uncontrolled Thoughts 
 
+**不受控制的思想的力量**
+
 SE5:In my early recognition of self,I was unaware of the consequences of uncontrolled thought and what happens if thought goes unchecked. 
 
-5号源实体：
+5号源实体：在我早期的自我认知中，我没有意识到不受控制的思想的后果，以及如果思想不受控制会发生什么。
 
 ME:Why do you need to check your thoughts? 
 
-我：
+我：为什么你需要检查你的想法？
 
 SE5:In the wider environment we call the Origin,every thought has the ability to lead to creation.As a result of my own unchecked thoughts,I was surrounded by thought junk -things that I had created but was not aware that I had created.Thought junk has an association with the creator of the thought.The association is such that the thought junk sticks to the creator of the thought in a random pattern in and around the energies of the creator.These thoughts are noisy and start to block out any thoughts that are being used in the communication process that I was later to have with the Origin and the other Source Entities. 
 
-5号源实体：
+5号源实体：在更广阔的环境中，我们称之为起源，每个思想都有能力导致创造。由于我自己未经检查的想法，我被思想垃圾包围着——我创造了但没有意识到我创造的东西。思想垃圾与思想的创造者有关联。这种关联是这样的，思想垃圾以随机模式粘在思想的创造者身上，围绕着创造者的能量。这些思想是嘈杂的，并开始阻塞任何在我后来与起源和其他源实体的交流过程中被使用的想法。
 
 ME:How did you work that out? 
 
-我：
+我：你是怎么算出的？
 
 SE5:By noticing that the background thoughts I had been receiving were increasing and were duplicates of the thoughts that I had made before.I was quite literally being bombarded by my own thoughts and was being drained by the energetic associations that these thoughts were making. 
 
-5号源实体：
+5号源实体：通过注意到我接收到的背景想法在增加，并且是我以前想法的复制品。我确实被我自己的思想轰炸了，并且被这些思想所制造的能量关联所耗尽。
 
 ME:How can a thought drain you of energy?
 
-我：
+我：一个想法怎么能耗尽你的能量？
 
 SE5:By the sheer fact that they start to gain an impetus of their own,especially thoughts created out of Source Entity or Origin energy. 
 
-5号源实体：
+5号源实体：通过他们开始获得自己的动力这一事实，特别是源实体或起源能量创造的思想。
 
 ME:Impetus? 
 
-我：
+我：动力？
 
 SE5:A snowball effect that results in the thought gaining more energy the longer it remains in existence.If left unchecked or not recovered by the originating entity,a thought can quite literally become as large as the creating entity and even take it over. 
 
-5号源实体：
+5号源实体：雪球效应，一个想法存在的时间越长，它就会获得越多的能量。如果不加以控制，或者没有被原有实体所恢复，一个想法就会变得和创造它的实体一样大，甚至会把它接管。
 
 ME:Surely this can't happen to an entity as small as me. 
 
-我：
+我：当然这不可能发生在我这样一个渺小的个体身上。
 
 SE5:You are made from your Source Entities energy? 
 
-5号源实体：
+5号源实体：你是从你的源实体能量中制造出来的？
 
 ME:Yes. 
 
-我：
+我：是的。
 
-SE5:Then it can happen to you as well. This was a complete surprise to me-that we as individual and independent entities were capable of literally covering ourselves in stray thoughts that clouded our already limited connectivity to our higher/real selves and further isolated us in the physical existence,one we believe is our only existence.It did,however,made perfect sense.I was even able to recognize some aspects of stray thought junk on my own aura.I cleared them away with a single thought and felt a shiver going down my spine and my skin tingle as my aura's functionality returned as a result of it being clear again. 
+SE5:Then it can happen to you as well. This was a complete surprise to me-that we as individual and independent entities were capable of literally covering ourselves in stray thoughts that clouded our already limited connectivity to our higher/real selves and further isolated us in the physical existence,one we believe is our only existence.It did,however,made perfect sense.I was even able to recognize some aspects of stray thought junk on my own aura. I cleared them away with a single thought and felt a shiver going down my spine and my skin tingle as my aura's functionality returned as a result of it being clear again. 
 
-5号源实体：
+5号源实体：这对我来说是一个完全的惊喜-我们作为个体和独立的实体能够在杂念中掩盖自己，这让我们与更高/真实自我的有限联系变得模糊，并进一步将我们孤立在物质存在中，我们相信这是我们唯一的存在。然而，这确实很有意义。我甚至能够识别我自己的气场中的一些杂念垃圾。我用一个念头把它们清除，感觉到一股寒意从我的脊椎向下延伸，我的皮肤刺痛，因为我的气场的功能又恢复了，因为它又清澈了。
 
 In my mind's eye I saw a crowd of people.All of the people had their auras covered in various types and levels of sticky thought-based stray energy.Due to their own longevity without being cleared out,some were starting to both gain a level of individuality and had gained the ability to suck the energy out of the person that created them from their own stray unchecked thoughts-thoughts that were capable of significant levels of creativity if only the person that owned them knew how to use that facility properly. 
 
+在我的脑海中我看到一群人。所有人的灵气都被各种类型和程度的基于粘性思想的流浪能量所覆盖。由于他们自己的寿命没有被清除，一些人开始获得一种个体性，并获得了从他们自己流浪的未被控制的想法中吸取创造他们的人能量的能力——这些想法能够产生显著的创造力，只要拥有它们的人知道如何正确使用这种设施。
+
 SE5:That's a very good example of what was happening to me.The only issue was that I am significantly bigger than you,and I was also totally covered in these thought forms.As an example,if you were to consider my basic normal form as a sphere,then when I noticed what was happening to me,my external form was that of a sphere covered in random odd- shaped creations. 
 
-5号源实体：
+5号源实体：这是发生在我身上的事情的一个很好的例子。唯一的问题是我比你大得多，我也完全被这些思想形态所覆盖。举个例子，如果你把我基本的正常形态看作一个球体，那么当我注意到发生在我身上的事情时，我的外部形态是一个被随机奇形怪状的创造物覆盖的球体。
 
 ME:I have just seen an image of a dragon-shaped entity slithering over you.What is the significance of that?It seems a strange piece of imagery to have. 
 
-我：
+我：我刚才看到一个龙形的实体从你身上滑过。这有什么意义？这似乎是一个奇怪的意象。
 
 SE5:I sent you that because it illustrates two things:first,that the thought forms are insidious;and second,that they were of such energy that they were able to create their own form at will.They were,in fact,their own entity-individual in every aspect.Except one, that is. 
 
-5号源实体：
+5号源实体：我送你这个是因为它说明了两件事：第一，思想形态是隐密的； 第二，它们有这样的能量，它们能够随意创造自己的形态。事实上，它们是它们自己的实体-在每个方面都是独立的。
 
 ME:What was that? 
 
-我：
+我：那是什么？
 
 SE5:Because they were created by me,they were contained(held)by my energy and,as such, needed to stay with me to continue to exist.They were like... 
 
-5号源实体：
+5号源实体：因为它们是我创造的，它们被我的能量所包含(控制)，因此，它们需要和我在一起才能继续存在。它们就像...
 
 ME:I have just received an image of a snake pit with thousands of snakes crawling over each other,each one looking for its own space. 
 
-我：
+我：我刚刚收到一张图片，上面是一个蛇坑，里面有成千上万条蛇，它们互相爬行，每个蛇都在寻找自己的空间。
 
 SE:I was going to use the words"the entities you call snakes in a bucket,"but you beat me to it.I was literally infested with them. 
 
-源实体：
+源实体：我正要用“桶里的蛇”这个词，但是你抢先说出来了。我确实被它们侵扰了。
 
 ME:Did the Origin offer you some help or advice?
 
-我：
+我：起源给你提供过帮助或建议吗？
 
 SE5:No.At that point,I was not at that level of awareness,and the Origin had not yet decided to make itself known to me.In essence,this part of my existence was fully of my own doing and ultimately was part of my own evolutionary existence.It was essential training in being careful about what I thought and how I thought about what I was thinking. But getting back to the one exception. 
 
-5号源实体：
+5号源实体：不，在那个时候，我还没有达到那个意识水平，起源还没有决定让我知道它自己。本质上，我存在的这部分完全是我自己做的，最终是我自己进化存在的一部分。这是对我的思想和我如何思考我所思考的东西的必要训练。但回到那个例外。
 
 ME:Yes,what was it? 
 
-我：
+我：是的，是什么？
 
 SE5:The fact that I created these thoughts and the thoughts were of my own energy meant that I had ultimate control over their existence.Once I recognized this fact,it took less than a nanosecond to clear them away. 
 
-5号源实体：
+5号源实体：我创造了这些想法，而这些想法是用我自己的能量创造的，这意味着我对它们的存在拥有最终的控制权。一旦我意识到这个事实，我只花了不到一纳秒的时间就把它们清除了。
 
 ME:How did you do that? 
 
-我：
+我：你是怎么做到的？
 
 SE5:By simply re-absorbing their energy back into my own.Don't forget that they are my energy,and,as such,my energy is under my control.As a result I could and can do anything I wanted to do with them. 
 
-5号源实体：
+5号源实体：通过简单地将他们的能量重新吸收到我自己的能量中。不要忘记他们是我的能量，因此，我的能量在我的控制之下。因此，我可以用他们做任何我想做的事。
 
 ME:Including destroying them? 
 
-我：
+我：包括摧毁它们？
 
 SE5:Destroying them would have resulted in me losing the energy. 
 
-5号源实体：
+5号源实体：摧毁它们会导致我失去能量。
 
 ME:I didn't think energy would be lost. 
 
-我：
+我：我认为能量不会损失。
 
 SE5:Energy cannot be lost,per se,but it can be lost by the individual.Lost energy does not mean that it is gone forever;it simply means it is lost from the entity that had it in the first place. 
 
-5号源实体：
+5号源实体：能量本身不会丢失，但它可以被个人丢失。丢失能量并不意味着它永远消失了；它仅仅意味着它从最初拥有它的实体中消失了。
 
 ME:So where does it go?
 
-我：
+我：那么它去哪里？
 
 SE5:Back to the Origin.Don't forget that the Origin created the Source Entities from its own energies;it gave up those energies to create us.Based upon that,any energy that we destroy doesn't actually destroy the energy.It destroys the association of the energy with the entity that was authorized to use it.The association of energy is the link energy has with the entity it was assigned by the Origin. 
 
-5号源实体：
+5号源实体：回到起源，不要忘记起源用自己的能量创造了源实体，它放弃了那些能量来创造我们，基于这一点，我们摧毁的任何能量实际上并不是摧毁了能量，而是摧毁了能量与授权使用它的实体之间的联系，能量的联系是能量与起源指定的实体之间的链接。
 
 ME:So would Ibe right in saying that you would be giving up part ofyourself ifyou destroyed this stray thought energy. 
 
-我：
+我：所以，如果我没说错的话，如果你摧毁了这股流浪的思想能量，你就是放弃了一部分的自己。
 
 SE5:You would,and although it is not what you would call a sin to do so,it is not in our best interests as it ultimately limits our energetic mass and,therefore,our ability to create. 
 
-5号源实体：
+5号源实体：你会的，尽管你不会把这样做称为罪恶，但这并不符合我们的最大利益，因为它最终会限制我们的能量质量，即我们的创造能力。
 
 ME:So what did it feel like to suddenly have all this energy back and have your communicative abilities restored as a result of clearing away your stray energy? 
 
-我：
+我：那么突然间恢复了所有能量，清理了杂散的能量，恢复了沟通能力，感觉怎么样？
 
 SE5:It was like you feel when you return back to your energetic self,when you give up the heavy suit of your physical vehicle.Elation! 
 
-5号源实体：
+5号源实体：就像你回到充满活力的自我，当你放弃了你身体的沉重外套时的感觉。兴高采烈！
 
 What's more,this was part of a defining moment for me,as it was during this time that I realized that I was an entity capable of independent and original thought.The thought forms created by my unchecked thinking were proof of this.This started a period of experimentation in what you call philosophical thinking.This also expanded my consciousness and led me to the later opinion (after my communication with the Origin) that I was best employed in my particular role of helping the Origin understand itself better by remaining in a singular configuration. 
 
+更重要的是，这是我决定性的时刻的一部分，因为在这段时间里，我意识到我是一个能够独立和原创思想的实体。我不受约束的思维创造的思想形式就是证明。这开始了一段实验时期，你们称之为哲学思考。这也扩展了我的意识，并导致我后来的观点(在我和起源沟通后)，我最好被用在我特定的角色上，帮助起源更好地理解自己，通过保持一个单一的结构。
+
 ME:What does that mean?
 
-我：
+我：那是什么意思？
 
 SE5:I meant that I decided that I would not create any other entities to help me perform my task. 
 
-5号源实体：
+5号源实体：我的意思是我决定不创建任何其他实体来帮助我执行我的任务。
 
 ME:Wait a minute.That ties in with the feeling I had when I first logged into you,that you were singular. 
 
-我：
+我：等一下，这和我第一次登录到你这里时的感觉是一致的，你很特别。
 
 SE5:That's right,and that feeling that you had was because you did not detect any other entities that were associated with me-hence,the feeling of singularity. 
 
-5号源实体：
+5号源实体：没错，你有那种感觉是因为你没有发现任何其他与我相关的实体，因此，有一种奇点的感觉。
 
 ### Developing Awareness 
 
+**发展意识**
+
 ME:Let's elaborate on this subject for a bit longer.It is one of the subjects that I have discussed with all of the Source Entities I have contacted so far. 
 
-我：
+我：让我们详细阐述一下这个主题。这是我迄今为止与所有我接触过的源实体讨论过的主题之一。
 
 SE5:As I said,this was a defining moment for me.Suddenly realizing that I WAS,was amazing.Let me put this in context for you.I had just removed all of the thought forms that surrounded me,slowing me down,masking me from the reality of my existence and what was existing around me.I had become used to this condition;I was in it for millennia. It was like being blind and then being able to see.But this was not just being able to see;it was being able to see,understand,and relate to self,myself.This gave me a datum to work from.I recognized myself as an individual entity in my own right.I was surrounded by other entities,entities that were similar to me.Each of these entities was at a different state of realization,of evolution,of experimentation.I felt an affinity with them.We were all the same,and we had a job to do. 
 
-5号源实体：
+5号源实体：正如我所说，这是我人生的决定性时刻。突然意识到我自己，这太不可思议了。让我把这放在上下文中告诉你。我刚刚移除了所有围绕着我的思想形态，它们让我慢下来，掩盖了我的存在现实和我周围存在的东西。我已经习惯了这种状态；我已经在其中生活了千年。这就像瞎了眼，然后能看见了。但这不仅仅是能看见，而是能看见、理解，并与自我联系起来。这给了我一个工作的基础。我认识到我自己是一个独立的个体。我被其他的实体包围着，它们与我相似。每个实体都处于不同的意识、进化和实验状态。我与他们有亲和力。我们都是一样的，我们都有工作要做。
 
 Then there was the Origin. 
 
+然后是起源。
+
 I noticed that one of the entities that I was aware of was in communication with something that I could not perceive.All that I could see,if that is the right word,was a sort of tube linking the entity,a Source Entity with what appeared to be a"skin"that surrounded us all. The tube changed in appearance as the communication progressed. 
+
+我注意到我所意识到的实体之一正在与我无法感知的东西进行交流。我所能看到的，如果这是正确的词，是一种连接实体的管道，一个源实体与我们周围的“皮肤”相连。随着交流的进行，管道的外观发生了变化。
 
 ME:What changes in appearance did you see? 
 
-我：
+我：你看到了外观上的变化吗？
 
 ### First Conscious Contact with the Origin 
 
+**与起源的第一次有意识接触**
+
 SE5:Its size and shape changed as well as the color,dimension,and frequency.It even sparkled at times.It was truly beautiful to behold.The Source Entity being communicated to reciprocated the form,dimension,and frequency in tune with the tube and its communication process.I even noticed that the area of "skin"surrounding the tube also had an appearance similar to that of the tube.I then looked around and saw that,on the odd occasion and over a period of time-I use the word time here just to explain that I saw this happen separately and not altogether or instantaneously-that this tube or a tube connected with several of the other Source Entities for a period of communication after which their appearance changed totally.I queried within myself why this was in separation and not altogether in totality and why the Source Entities changed.At this point I also had a sudden connection with the "skin"via a tube.I had made my first contact with the Origin. 
 
-5号源实体：
+5号源实体：它的大小和形状以及颜色、尺寸和频率都改变了。它甚至有时会闪闪发光。它看起来真的很漂亮。被传送的源实体与管子及其传送过程的形状、尺寸和频率相一致。我甚至注意到管子周围的“皮肤”区域也有类似于管子的外观。然后我环顾四周，看到，在偶尔的场合和一段时间内——我在这里用时间这个词只是为了解释我看到这分开发生，而不是全部或瞬间发生的——这个管子或一个管子与其他几个源实体连接一段时间进行传送后，它们的外观完全改变了。我问自己为什么这是分开的，而不是全部，为什么源实体改变了。在这一点上，我也突然通过一个管子与“皮肤”连接。我已经与起源有了第一次接触。
 
 ME:What did that feel like,the first contact,that is? 
 
-我：
+我：第一次接触的感觉怎么样？
 
 SE5:I can only describe it as awesome.I suddenly knew who and what I was for sure.I was one of the twelve entities that a larger entity,an entity that was energy with sentience, had created in order to fully understand itself better.It had given up part of itself to create us,the twelve Source Entities,and the creation in itself was part of an experiment that it was running within its "self"to see how others would become aware and gain sentience,as indeed it had.It was seeing if a lesser content of energy would result in lesser beings. 
 
-5号源实体：
+5号源实体：我只能用“惊人的”来形容它。我突然间确切地知道我是谁，我是什么。我是一个更大的实体，一个有知觉的能量实体，为了更好地完全了解自己而创造的12个实体之一。它放弃了自己的一部分来创造我们，12个源实体，而创造本身就是一个实验的一部分，它在“自己”中运行，看看其他人如何变得有意识和有知觉，就像它确实做到的那样。它在看较少的能量内容是否会导致较少的存在。
 
 ME:And did it result in the creation of lesser beings? 
 
-我：
+我：那它是否导致了低等生物的诞生？
 
 SE5:No.In fact,one of the conclusions that the Origin came to was that the content of energy did not specifically result in the generation of lesser beings.I learned that we had all of the abilities of the Origin and that was one of the things that the Origin was trying to understand. 
 
-5号源实体：
+5号源实体：不，实际上，起源得出的结论之一是能量的含量并不会导致低等生物的产生。我了解到我们拥有起源的所有能力，而这正是起源试图理解的事情之一。
 
 ME:But surely you cannot be equal to the Origin?You are a creation of the Origin. 
 
-我：
+我：但是你肯定不能和起源相等吧？你是起源的产物。
 
 SE5:That is true,but the Origin gave us exactly the same energies that it was composed of, including all of the interpretations of those energies. 
 
-5号源实体：
+5号源实体：没错，但是起源给了我们完全相同的能量，包括所有这些能量的解释。
 
 ### Interpretation of Energies-A Mobius Loop 
 
+**能量的解释-莫比乌斯环**
+
 ME:Interpretations of energies?That's a new one on me! 
 
-我：
+我：解释能量？这是我第一次听说！
 
 SE5:Energy has a different interpretation depending upon the dimension it is within and the frequency within that dimension,not forgetting,of course,that the energy itself IS the dimension and frequency. 
 
-5号源实体：
+5号源实体：能量有不同的解释，这取决于它所在的维度和该维度内的频率，当然，不要忘记，能量本身就是维度和频率。
 
 ME:What? How can energy be the dimension and the frequency when it is within the dimension and has frequency?You have just turned everything I know,or think I know,upside down. 
 
-我：
+我：什么？能量本身就是维度和频率，它怎么能是维度和频率呢？你把我所知道的，或者我认为我所知道的都颠倒了。
 
 SE5:Yes,maybe,but it is a fundamental piece of physics that energy is within and without dimension and energy.It permeates all that is. 
 
-5号源实体：
+5号源实体：是的，也许，但这是物理学的基本原理，能量在维度和能量之外。它渗透一切。
 
 ME:But that's like saying that the outside of a tennis ball is the inside of a tennis ball and vice versa. 
 
-我：
+我：但是这就像说网球的外边就是网球的内边，反之亦然。
 
 SE5:Correct and everything in between is the surface as well.Everything that IS,IS. 
 
-5号源实体：
+5号源实体：正确，两者之间的一切也是表面。一切存在，皆存在。
 
 ME:O.K.I will have to leave that one for the moment. 
 
-我：
+我：好的，我暂时先把这个放下。
 
 SE5:No,you don't need to.You have a concept that I can show you to help you understand. You have the Mobius loop,do you not? 
 
-5号源实体：
+5号源实体：不，你不需要。你有一个概念，我可以展示给你，帮助你理解。你有莫比乌斯环，不是吗？
 
 ME:We do. 
 
-我：
+我：我们有。
 
 SE5:And the Mobius loop can be used to explain the fact that a surface can be both inside and outside,can it not? 
 
-5号源实体：
+5号源实体：莫比乌斯环可以用来解释一个表面可以同时在里面和外面的事实，不是吗？
 
 ME:Yes,it is quite a good model;it can be explained mathematically as well. 
 
-我：
+我：是的，这是一个很好的模型，它也可以用数学来解释。
 
 SE5:Good.Then you consider that in your representation the Mobius loop is a two- dimensional representation of a surface in a three-dimensional environment. 
 
-5号源实体：
+5号源实体：很好，那么你认为在你的表示中，莫比乌斯环是一个三维环境中的一个二维表面表示。
 
 ME:Go on. 
 
-我：
+我：继续。
 
 SE5:You said that this can be explained mathematically and as such can be used to explain a plane in a space. 
 
-5号源实体：
+5号源实体：你说过这可以用数学来解释，并且可以用来解释空间中的平面。
 
 ME:O.K.,I'm still with you. 
 
-我：
+我：好吧，我还是跟你一起去。
 
 SE5:Then all you need to do is expand your thought process to include the fact that"surface" is merely a representation of form. 
 
-5号源实体：
+5号源实体：那么你需要做的就是扩展你的思维过程，包括“表面”只是形式的一种表现。
 
 [I was going to use "dimension"here,but it didn't make sense.SE5 changed it to "form"as it better represented what it was going to say next].
 
+（我本想在这里用“维度”，但它没有意义。SE5把它改为“形式”，因为它更好地代表了它接下来要说的东西）。
+
 Energy has no form.It just IS,and,as a result,it can be considered as multi/omni-form simply because it has no form.It is formless.As a result,that which can be within a plane or dimension can also be without.The plane or dimension which includes frequency is the energy,and the energy is the plane,dimension,and frequency,all concurrently. 
+
+能量没有形式。它只是存在，因此，它可以被认为是多/全形式的，因为它没有形式。它是无形的。因此，可以在一个平面或维度之内的也可以不在其中。包含频率的平面或维度就是能量，而能量是平面、维度和频率，同时存在。
 
 I wasn't sure whether this explanation of energy being inside and outside of dimension and frequency was correct,especially as it suggested that energy was a fundamental component of itself,a somewhat convoluted conundrum of the chicken and egg variety.I am sure that physicists who read this text may like to disagree.One thing is sure though:this is the explanation I received from Source Entity Five,and I am sure that it may be in total variance to the currently acquired human knowledge on this subject.I welcome anyone to offer a mathematical space model on how this can or cannot be.Undoubtedly,the process of proving such an explanation will expand mankind's understanding of this concept of reality.The glove of challenge is well and truly thrown on the ground. 
 
+我不确定这种关于能量在维度和频率内外的解释是否正确，特别是当它表明能量是自身的基本组成部分时，这是一个有点复杂的鸡和蛋的谜题。我确信读这篇文章的物理学家可能会不同意。但有一点是肯定的：这是我从5号源实体那里得到的解释，我确信它可能与目前人类在这个问题上获得的知识完全不同。我欢迎任何人提供一个数学空间模型来说明这如何可以或不能。毫无疑问，证明这种解释的过程将扩展人类对现实概念的理解。挑战的手套已经完全扔在地上了。
+
 ### Equality in Creation 
+
+**创造中的平等**
 
 ME:So let's get back to the communication you have with the Origin and the creation of beings with lesser energetic content whilst still being equal to the Origin. 
 
-我：
+我：那么让我们回到你与起源的交流，以及在仍然与起源平等的同时，以较少的能量内容创造存有。
 
 I find this a little bit hard to understand.How can an entity that has a smaller volume of energy and energetic content be equal to the Origin?It makes no sense to me.Surely a lesser being,albeit only lesser in content could not be considered equal.Or was I missing something,something fundamental?I would have to see what Source Entity Five had to say on the matter. 
 
+我发现这有点难理解。一个能量和能量含量较小的实体怎么能等于起源？对我来说这毫无意义。一个较小的实体，尽管只是在内容上较小，肯定不能被认为是平等的。或者我错过了什么，一些根本的东西？我必须看看5号源实体在这个问题上要说什么。
+
 SE5:Humanity has a very bad habit-the need to compare others with its self and its own level of understanding. 
 
-5号源实体：
+5号源实体：人类有一个非常坏的习惯——需要用自己和自己的理解水平来比较别人。
 
 ME:I guess we do.I also guess that we are not very good at it either. 
 
-我：
+我：我想是的。我还想我们也不是很擅长。
 
 SE5:You certainly are not,and acceptance is something you should embrace as a race.It will make you calmer. 
 
-5号源实体：
+5号源实体：你当然不是，作为一个种族，你应该接受。这会让你更冷静。
 
 Because I can see that you are chomping at this particular "bit,"I will try to describe to you the fundamentals surrounding creation,especially creation in equality and creation in terms of function.Then we will return to what I discussed with Origin. 
 
+因为我能看到你正在咀嚼这个特别的“点”，我会试着向你描述围绕创造的基本原理，特别是平等的创造和功能的创造。然后我们将回到我与起源讨论的问题。
+
 Creation is one of the most honorable things that an entity can do,for creation is a fundamental platform towards experiencing evolutionary progression.There cannot be evolution without creativity.This is a universal law,one of the first things that the Origin imparts to us when we achieve the level of awareness required to invoke the first communication opportunity with the Origin. 
+
+创造是一个实体可以做的最光荣的事情之一，因为创造是一个经历进化过程的基本平台。没有创造力就没有进化。这是一个普遍的法则，当我们达到与起源进行第一次交流所需的意识水平时，起源会教给我们的第一件事。
 
 To create in equality is to create without fear-fear that the creation will be "better"than the creator.This is nonsense,for the whole objective surrounding creativity is to experience more than is currently being experienced.This is especially so when the creator is creating an autonomous entity,for to create inferiority is to be inferior in creation,and this cannot be so. 
 
+平等的创造是没有恐惧的创造——害怕创造会比创造者“更好”。这是无稽之谈，因为围绕创造力的所有目标都是要经历比现在经历的更多。当创造者创造一个自主实体时尤其如此，因为创造劣等就是在创造中劣等，这是不可能的。
+
 ME:So how can an entity,an autonomous entity,be considered equal if it is not of the same size dimensionally and,therefore,energetically? 
 
-我：
+我：那么一个实体，一个自主实体，如果它在尺寸上，因此在能量上不相同，如何能被认为是平等的？
 
-SE5:It is created in equality and as a result.it is equal.The energetic size,for want of a better word,is not a component of equality,for size does not specifically affect the ability to evolve.Take yourself as an example.Energetically you are smaller than I am by several magnitudes of dimension,frequency,and energy.But you are nevertheless in equality even if you are created by one of my peers.Your abilities may be limited to the constraints resulting from the amount of energy you have currently available to you,but in reality you are able to draw upon all of the energy that is freely available within the environment that your Source Entity has created if you so wanted.If you had enough imagination,you could, in fact,create an environment as large and as capable energy-wise as that created for you all to exist in by your own Source Entity.Your limitation is only in your own thinking,not in your ability.Of course,you do have limitations,and those only exist when you have reached a point that is constrained by the boundaries that the Source Entity has itself,or you simply cannot perceive anything more expansive.Your Source Entity has given you all-that is,the countless billions of you that it has created,the same level of opportunity that it had.I am aware that the Source has given you a figure,but when you incarnate,you don't do it in singularity;you are in multiplicity.In this instance you are all in equality. 
+SE5:It is created in equality and as a result.it is equal.The energetic size,for want of a better word,is not a component of equality,for size does not specifically affect the ability to evolve.Take yourself as an example.Energetically you are smaller than I am by several magnitudes of dimension,frequency,and energy.But you are nevertheless in equality even if you are created by one of my peers.Your abilities may be limited to the constraints resulting from the amount of energy you have currently available to you,but in reality you are able to draw upon all of the energy that is freely available within the environment that your Source Entity has created if you so wanted.If you had enough imagination,you could, in fact,create an environment as large and as capable energy-wise as that created for you all to exist in by your own Source Entity.Your limitation is only in your own thinking,not in your ability.Of course,you do have limitations,and those only exist when you have reached a point that is constrained by the boundaries that the Source Entity has itself,or you simply cannot perceive anything more expansive.Your Source Entity has given you all-that is,the countless billions of you that it has created,the same level of opportunity that it had.I am aware that the Source has given you a figure,but when you incarnate,you don't do it in singularity; you are in multiplicity.In this instance you are all in equality. 
 
-5号源实体：
+5号源实体：它在平等中被创造，因此，它是平等的。能量的大小，为了寻找更好的词，不是平等的组成部分，因为大小并不具体影响进化的能力。以你自己为例。从能量上来说，你比我小几个维度、频率和能量。但即使你是我的同伴之一创造的，你仍然是平等的。你的能力可能受到你目前可用能量数量的限制，但实际上，如果你想的话，你可以利用你源实体创造的环境中所有自由可用的能量。如果你有足够的想象力，事实上，你可以创造一个环境，像你自己的源实体为你们所有人创造的那样大，像你自己的源实体为你们创造的那样有能力。你的局限只是在你自己的思想中，而不是在你的能力中。当然，你确实有局限，而这些局限只存在于你到达一个被源实体本身的边界所限制的点时，或者你只是不能感知到任何更广阔的东西。你们的源实体已经给了你们全部，也就是说，它创造的无数亿万你们，和它拥有同样的机会。我知道源实体给了你们一个数字，但是当你们投生时，你们不是在单一性中做这件事；你们是在多样性中。在这个例子中，你们都是平等的。
 
 What I will say though is that there are entities that are created out of a need for pure functionality.These are also created out of equality,but they are not endowed with the freedom of ability that an entity,such as you/mankind in energetic representation,are given.They are created to perform certain tasks and those tasks alone. 
 
+我想要说的是，有些实体是出于纯粹功能性的需要而创造的。这些实体也是出于平等而创造的，但它们不被赋予能力的自由，而像你/人类这样的实体则被赋予了能量。它们被创造出来执行某些任务，而且只能执行那些任务。
+
 ME:Hold on here.I would classify these entities as lesser beings. 
 
-我：
+我：等等，我认为这些实体是较低等的存在。
 
 SE5:They are not lesser beings.They are beings created in equality with a singular purpose -that purpose being their role within the environment they were created to exist within. 
 
-5号源实体：
+5号源实体：他们不是低等的存在。他们是平等的，被创造出来有一个唯一的目的——这个目的就是他们在被创造出来生存的环境中扮演的角色。
 
 ME:So what would such a role be?
 
-我：
+我：那么这个角色会是什么呢？
 
 SE5:You should know this,for you have already discussed it with your own Source Entity. 
 
-5号源实体：
+5号源实体：你应该知道这个，因为你已经和你自己的源实体讨论过它了。
 
 ME:Are you talking about what we call galaxies? 
 
-我：
+我：你说的是我们所说的星系吗？
 
 SE5:A galaxy would be considered as a large entity in your environment,would it not? 
 
-5号源实体：
+5号源实体：星系在你们的环境中会被认为是一个大的实体，对吗？
 
 ME:Yes.
 
-我：
+我：是的。
 
 SE5:Would you consider a galaxy as an entity of lesser importance or ability? 
 
-5号源实体：
+5号源实体：你认为星系是一个重要性或能力较低的实体吗？
 
 ME:No,how can it be?It's massive compared to my own physical size. 
 
-我：
+我：没有，怎么可能？和我自己的体型比起来，它太大了。
 
 SE5:But it has a singular function.It is not free to access all of the energies that entities of your type can.It does not have the level of creativity that entities of your type have.You have no limits except those that you place on yourself. 
 
-5号源实体：
+5号源实体：但它有一个单一的功能。它不能自由地接触到你们这种类型的实体所能接触到的所有能量。它不具备你们这种类型的实体所具有的创造力水平。除了你们自己给自己设置的限制，你们没有限制。
 
 ME:You're suggesting that a galaxy is a lesser entity then.No,I will re-phrase that.A galaxy is an entity that is of function of singular purpose,whatever that may be. 
 
-我：
+我：你的意思是说星系是一个较小的实体，不，我将重新表述，星系是一个具有单一功能的实体，不管是什么。
 
 SE5:Yes,and in your environment it is to gather stray energy and create areas that can be used for evolutionary experience in the physical and surrounding frequencies or dimensions.That is all they are employed for.They have no other role.Even though they have no other role,they were still created in equality.Equality is given because their role is important. 
 
-5号源实体：
+5号源实体：是的，在你们的环境中，它是为了收集流浪的能量，创造出可以用于在物质和周围频率或维度中进化经验的区域。这就是它们被雇佣的全部。它们没有其他的角色。即使它们没有其他的角色，它们仍然是平等的。平等是由于它们的角色是重要的。
 
 ME:So what you are saying is that in the eyes of the creator,the created is held in equal consideration simply because it has an important job to do.If that job wasn't necessary and important,it would not have been created in the first place.
 
-我：
+我：所以你的意思是在创造者的眼里，被创造的都是平等的，因为它们都有重要的工作要做。如果这份工作不必要也不重要，那么它们一开始就不会被创造出来。
 
 SE5:Correct.And don't forget all things that are created are of equal importance.Whatever its ability,everything in creation is assisting the Origin in its task of furthering its awareness of self.In itself,this ensures evolutionary opportunity for the Origin,for even the Origin needs to evolve. 
 
-5号源实体：
+5号源实体：没错，别忘了所有被创造的事物都是同等重要的，无论其能力如何，所有被创造的事物都在协助起源完成其自我意识的提升任务，这本身就保证了起源的进化机会，因为即使是起源也需要进化。
 
 ### Expansive Oneness with Origin 
 
+**与起源的广阔合一**
+
 Throughout my communications with the Source Entities,I had noticed that on a number of occasions the direction that I wanted to go was ultimately diverted by the Source I was communicating with in order to expose me to another subject.In hindsight,the subject matter was obviously very relevant.This was one of those occasions.Although I was very aware that I should take information as it comes and not over-steer the dialogue,I endeavoured to get back on track. 
+
+在我与源实体的交流中，我注意到很多次我想要去的方向最终被我正在交流的源头转移，为了让我接触另一个主题。事后看来，主题显然是非常相关的。这是其中一个例子。虽然我很清楚我应该接受它来的信息，而不是过度操纵对话，但我努力回到正轨。
 
 ME:So let's get back to the first contact you had with Origin.You were saying that,as with each of the first communications with the Origin you had witnessed,you were suddenly attached to a multi-colored,multi-frequential tube that was also connected to some sort of outer skin.This skin presumably was the Origin itself. 
 
-我：
+我：那么让我们回到你与起源的第一次接触。你说，随着你见证的第一次与起源的交流，你突然被连接到一个多色、多频率的管子上，这个管子也连接到某种外皮上。这个外皮大概就是起源本身。
 
 SE5:Correct.The communication was instantaneous,complete,and concise.As you are already aware,I was given the full suite of information about my/our creation,the need for our creation,and the roles we were about to start.It was fascinating to understand that the Origin itself had been in solitary existence for many,many millennia!I appreciate that you know there is no such thing as time,but I need to give you the information using concepts that you will be able to understand.Therefore,the period that passed during which the Origin had existed in sentience before making the decision to create twelve equal entities as mirror images of itself can only be relayed to you in terms of time.This would be best recorded as billions upon billions of what you call years,the period of existence you use to describe the rotation of the physical aspect of the local density you work with in a three- dimensional condition-the earth around the energy singularity you call the sun. 
 
-5号源实体：
+5号源实体：正确。交流是即时的、完整的、简洁的。正如你已经知道的，我被给予了关于我/我们的创造、我们创造的需要以及我们将要开始的角色的全套信息。理解起源本身已经孤立存在了许多、许多千年，这是令人着迷的！我欣赏你知道没有时间这回事，但我需要用你能够理解的概念来给你信息。因此，在决定创造12个平等的实体作为自身的镜像之前，起源已经在感知中存在的时期，只能用时间来传达给你。这将被最好地记录为数十亿计的你们称之为的年份，你们用来描述你们在三维条件下工作的地方密度的物理方面的旋转的生存时期，地球围绕着你们称之为太阳的能量奇点。
 
 ME:Yes,I guess that the story is the same in terms of the roles you all have to play in the Origin's plan for the understanding of self and the evolution of self.What I would really like to know is what the dialogue was that was specific to you,that only you had with the Origin,and that did not include the other Source Entities and your collective roles. 
 
-我：
+我：是的，我猜这个故事是一样的，你们都必须在起源计划中扮演角色，以理解自我和自我进化。我真正想知道的是，对于你们来说，只有你们与起源的对话是什么，而不包括其他源实体和你们的集体角色。
 
 SE5:There was very little in what you would call dialogue specific to my role because the general rule was that we had freewill to do whatever we wanted to achieve the task at hand. And by freewill,I mean freewill.We had no rules within which to work.It really was "suck it and see."What I did was ask what the other Source Entities were doing or were planning to do to achieve further enlightenment,as I was eager to ensure that I did not do the same thing.You will notice that the other Source Entities you have communicated with have a theme of creating environments and populating those environments with smaller more nimble entities,each with a set of rules or goals to work within.I did not want that as I felt that at that point in my existence I could achieve what I wanted to achieve by being singular in state. 
 
-5号源实体：
+5号源实体：你所说的与我角色相关的对话很少，因为一般的规则是我们有自由意志去做任何我们想完成的任务。而自由意志，我的意思是自由意志。我们没有工作规则。这真的是“吸它然后看”。我所做的就是问其他的源实体正在做什么或者计划做什么来获得进一步的启示，因为我急于确保我没有做同样的事情。你会注意到你与之交流的其他源实体有一个主题，那就是创造环境，并用更小更灵活的实体填充这些环境，每个实体都有一套规则或目标。我不想那样，因为我觉得在我存在的那个时刻，我可以通过单一的状态来实现我想实现的目标。
 
 ME:What was it like to be connected to the Origin in such a positive way? 
 
-我：
+我：以这样积极的方式与起源连接是什么感觉？
 
 SE5:It was like I was the Origin,which essentially we all are.But when you are given the gift of individuality and then are re-exposed to a coadunate state,it is like nothing you have ever experienced before.You experience a similar level of,shall I say elation,when you are back with your prime energies-that which is the real you in totality and not just that which is projected into the physical.You feel whole again. 
 
-5号源实体：
+5号源实体：就像我是起源，本质上我们都是。但当你被赋予个性的礼物，然后重新暴露在一个共同聚集的状态，它就像你以前从未经历过的任何事情。当你回到你的原初能量时，你经历了类似的水平，我应该说兴高采烈，那是真实的你，而不仅仅是投射到物质上的那个。你再次感到完整。
 
 I can see that you are trying to find another example to explain this conditional change. 
 
+我能看出你在试图找到另一个例子来解释这种条件变化。
+
 It would be like living in a 10 x 10 cabin and then suddenly being able to live in the biggest mansion you could ever imagine.It would be like being constrained within a single room- that room representing an aspect of your "self"-and suddenly you have manymany many rooms.Think of each room representing an aspect of you that you have been cut off from and each corridor being a link to an aspect and the functional memory of that aspect.Then think of that aspect having many different corridors that can be used to access it,some of which include the multiple use of aspects to achieve what you need to achieve. 
+
+这就像住在一个10x10的小屋里，然后突然能够住在你能想象到的最大的豪宅里。这就像被限制在一个单一的房间里-那个房间代表了你“自我”的一个方面-突然之间你有很多很多房间。想象每个房间代表了你被切断的一个方面，每个走廊都是一个链接到一个方面和那个方面的功能性记忆。然后想象那个方面有许多不同的走廊可以用来访问它，其中一些包括对多个方面的多次使用，以实现你需要实现的目标。
 
 ME:If I was to associate a room with each of your aspects,how many rooms would you have? 
 
-我：
+我：如果我把你的每个方面都和一个房间联系起来，你会有多少个房间？
 
 SE5:Countless.And this was the problem that the Origin had.It simply did not know how many aspects of self it had.And this was one of the reasons we were created.To establish how many aspects of self the Origin had.We do this by trying to experience and,therefore, establish how many aspects of self we have as Source Entities.This then feeds back in to the task that the origin gave us.You can imagine what that means,can't you?I was suddenly plugged into a resource that was simply too big to even start to comprehend.It was literally awesome to the point of paralysis [ME:That would explain why,in my visualization of the Source Entities communicating with the Origin via the tube,they appeared to "freeze" momentarily].As a result of this revelation,I was also able to understand that the part of the Origin that I was in contact with was but a microcosm of the whole.The Origin had limited that part of itself that was in communication with me to a level where it would not overpower me with pure expansiveness.It would be similar to me giving you access to all that is me.In your current condition,it would send you quite mad.Your consciousness would get lost in the expansiveness. 
 
-5号源实体：
+5号源实体：无穷无尽。这就是起源的问题。它根本不知道它拥有多少自我的方面。而这就是我们被创造的原因之一。为了建立起起源拥有多少自我的方面。我们通过尝试体验来做到这一点，因此，我们作为源实体建立了多少自我的方面。然后这反馈到起源给我们的任务。你可以想象那意味着什么，不是吗？我突然被插入一个资源，它太大了，甚至开始理解都很难。它简直令人敬畏到瘫痪的地步（我：这可以解释为什么，在我想象中，源实体通过管道与起源沟通时，它们似乎暂时“冻结”了）。由于这个启示，我也能够理解我接触到的起源的部分只是整个宇宙的一个缩影。起源限制了它与我沟通的那部分，使它不会以纯粹的广阔压倒我。这将类似于我让你接触到我的全部。在你目前的条件下，它会让你相当疯狂。你的意识会迷失在广阔中。
 
 ME:The Origin must do the same when it is in contact with me then. 
 
-我：
+我：那么当起源与我接触时，它也必须做同样的事情。
 
 SE5:Correct,and in comparison,that part of the Origin that is in contact with you when you communicate with it is a fraction of that which is the Origin that is in contact with me when I contact it.In this instance,it really is all about size and what you can cope with as a result of your size-size being your level of expansiveness in this instance.But don't forget,size is not a measure of equality for we are equal to the Origin. 
 
-5号源实体：
+5号源实体：正确，相比之下，当你与之交流时，与你接触的那部分起源，只是我与之接触时，起源与我接触的那部分起源的一小部分。在这种情况下，它真的只是关于大小，以及你能因你的大小而应付什么。在这种情况下，大小就是你扩张的程度。
 
 ME:I get the impression that you came to some sort of agreement with the Origin in terms of what you wanted to do in your role as Source Entity. 
 
-我：
+我：我得到的印象是，你与起源达成了某种协议，以便你作为源实体的角色能够做些什么。
 
 SE5:No so much an agreement but an understanding.Once I had calibrated myself to the vast wealth of information that was available to me during my connection to the Origin, I was able to understand what was already known by the Origin and those Source Entities that had already contributed to the cause.I was,therefore,able to create my own plan to contribute,the bones of which I shared with the Origin and which I am now in the process of delivering. 
 
-5号源实体：
+5号源实体：与其说是协议，不如说是理解。一旦我校准了自己，以便在与源头连接期间，我能获得大量的信息，我就能理解源头和那些已经为这个事业做出贡献的源实体所知道的。因此，我就能创造我自己的计划来贡献，我与源头分享了计划的要点，而我现在正在传递这个计划。
 
 ME:I would be very honored if you would take the time to share with me that plan and how you have achieved some of its aspects. 
 
-我：
+我：如果您能抽出时间与我分享这个计划，以及您是如何实现其中的一些方面，我将感到非常荣幸。
 
 SE5:That we can start in our next communication.
 
-5号源实体：
+5号源实体：我们可以在下次交流中开始。
 
 ### A Singular Entity 
 
+**一个奇异的实体**
+
 ME:One of the things that I find interesting is that you are a singular entity.Everything I feel about you when I log into your energy is "singular."This is a really strange feeling,specifically because when I compare the feelings I get when I log into the other Source Entities,it is so different. 
 
-我：
+我：我发现一件有趣的事情是，你是一个奇异的实体。当我进入你的能量时，我对你的感觉是“奇异的”。这是一种非常奇怪的感觉，特别是因为当我比较我进入其他源实体时的感觉时，它是如此的不同。
 
 SE5:What you feel with the other Source Entities when you are in communication should not be compared with me.May I explain what you are experiencing when you log into the other Sources? 
 
-5号源实体：
+5号源实体：当你与其他源实体进行交流时，你的感觉不应该与我相比。我可以解释一下当你登录到其他源头时，你所经历的是什么吗？
 
 ME:Yes,please.I would be interested to know. 
 
-我：
+我：好的，我非常想知道。
 
 SE5:The difference is that you feel connectivity through collectivity;I think you know this as coadunation,the creation of a bigger being through the connection of smaller independent beings together in unison with the desire to be in unison.This feeling is like tapping into myriad neurons,each with a job to do that results in a collective output.It's a bit like the transistors in one of your microprocessors.When you connect with me,you do not get this feeling-a feeling of expansion through connection because all you get is me.If I had created a number of smaller beings to help me with my work,you would have received the same feeling as that which you feel when connected to the other Source Entities. 
 
-5号源实体：
+5号源实体：区别在于你通过集体来感受连通性；我想你知道这叫做共聚，通过将较小的独立存在连接在一起，以达到一致的愿望来创造一个更大的存在。这种感觉就像是进入无数的神经元，每个神经元都有一项工作，结果产生一个集体的输出。这有点像你们微处理器中的晶体管。当你与我连接时，你不会得到这种感觉——通过连接而产生的扩张感，因为你得到的只有我。如果我创造了一些较小的存在来帮助我完成我的工作，你就会得到与你与其他源实体连接时所感受到的相同的感觉。
 
-ME:So why did you decide to be a singular entity in your work?Surely it would have been more efficient to maximize your investigation through multiplication? 
+ME:So why did you decide to be a singular entity in your work? Surely it would have been more efficient to maximize your investigation through multiplication? 
 
-我：
+我：那么为什么你决定在你的作品中使用单一的实体？通过乘法来最大化你的调查肯定会更有效率。
 
 SE5:That would have been the common thing to do.Shortly after my first communication with the Origin,I was in full understanding of the work that had been done to date by the other Source Entities with all but one other re-creating themselves.The other you know as Source Entity Twelve,the Source Entity that is still to become fully aware. 
 
-5号源实体：
+5号源实体：那将是一件普通的事情。 在我第一次与起源沟通后不久，我就完全理解了其他源实体迄今为止所做的工作，除了一个，其他的都重新创造了自己。另一个你知道的源实体是12号源实体，那个仍未完全觉醒的源实体。
 
 ME:I was thinking about that Source Entity.Is communication with it possible? 
 
-我：
+我：我在想那个源实体。有可能和它交流吗？
 
 SE5:That is not for me to say,but I will tell you one thing:you will need the help of the Origin to even try to consider such an act.You had best wait until the end of your other communications before starting such an undertaking,for we will all be observing.No-Thing has tried to communicate with it yet,not even the Origin. 
 
-5号源实体：
+5号源实体：这不是我该说的，但我会告诉你一件事：你需要起源的帮助，甚至试着考虑这样一个行为。你最好等到你其他的通讯结束后再开始这样一个任务，因为我们都会观察。还没有任何东西试着与它沟通，甚至是起源。
 
 ME:O.K.,I will leave that to later then.Let's continue to discuss your plan. 
 
-我：
+我：好的，我稍后再做。我们继续讨论你的计划吧。
 
 SE5:The plan I had did not include my division into smaller entities.I had seen that the others had started along this line of self-discovery,but I decided that I would work on a more introspective method.This did not include multiplication or division. 
 
-5号源实体：
+5号源实体：我的计划不包括把东西分成更小的单位。我看到其他人已经开始沿着自我发现的路线，但我决定采用一种更内省的方法。这不包括乘法或除法。
 
 ME:This must slow down your ability to work on what and who you are. 
 
-我：
+我：这肯定会减缓你做事和做人的能力。
 
 SE5:Only in so much as I am not dealing with the minute detail that can be achieved by the creation of smaller entities,such as you. 
 
-5号源实体：
+5号源实体：只有当我没有处理那些可以通过创造像你这样的小实体来实现的微小细节时，我才有能力。
 
 ME:This sounds like you kept your investigations to a higher level of frequency and dimension. 
 
-我：
+我：听起来你把调查提高到了一个更高的频率和维度。
 
 SE5:Indeed.More importantly,I am experiencing things first hand and not through a smaller creation that is designed to represent me. 
 
-5号源实体：
+5号源实体：的确如此。更重要的是，我正在亲身体验事物，而不是通过一个设计来代表我的小创造物。
 
 Now the plan I agreed upon with Origin-my plan was simple:to continue my evolution by introspective evaluation of self through experimentation and creativity on myself. 
 
+现在我同意了起源计划，我的计划很简单：通过对自己的实验和创造性的内省评估来继续我的进化。
+
 ME:That seems a bit like changing yourself and seeing how it feels.
 
-我：
+我：这似乎有点像改变自己，看看感觉如何。
 
 SE5:You are not far from the truth.The objective was and is to create things that directly affect me and to experience/understand how those things that affect me change my function. 
 
-5号源实体：
+5号源实体：你离真相不远了。目标是创造直接影响我的东西，并体验/理解这些东西如何影响我，改变我的功能。
 
 ME:Do/did you ever get to a point where a creation you made was irreversible?For example,did one of the creations you made ever affect you in such a way that you could not reverse the effect? 
 
-我：
+我：你是否曾经遇到过你所创造的某件作品无法逆转的情况？例如，你曾经创造过一件作品，而它对你的影响是无法逆转的？
 
 SE5:No,never.One of the things I do when I create is to put a limit on the existence period of whatever I have created.So in the event that I create a condition that results in me totally losing control,which has happened by the way,I return to full functionality when the life of the creation is over.Even in full loss of control,I am able to record the experience and memorize it.Total loss of control is an interesting thing to experience for a Source Entity. 
 
-5号源实体：
+5号源实体：不，从来没有。当我创造时，我会做一件事，就是给我所创造的任何东西设定一个存在期限。所以，如果我创造了一个导致我完全失去控制的条件，顺便说一下，这种情况已经发生过，当创造物的生命结束时，我会恢复完全的功能。即使完全失去控制，我也能记录并记住这种经历。对于一个源实体来说，完全失去控制是一件有趣的事情。
 
 ME:I am receiving an image of complete mayhem.Was this a result of your experience of being out of control? 
 
-我：
+我：我看到的是一个完全混乱的画面。这是你失控的经历的结果吗？
 
 SE5:Yes,it was.The image you are receiving is things being created and un-created. My extremity being manipulated,stretched,squeezed,warped,dimensionally rotated, manipulated,undulated,and spliced is but a small example of what happened to me in that period of creation.If I were to give you a visual representation,it would appear to be a bucket of snakes with each snake eating,being eaten,or being created (reproduced)by themselves and their counterparts concurrently.As an experience,it was most interesting as environmental conditions-this is me creating an environment within myself-were created that I would never have considered possible to be worthy of creation.Such an example would be the spliced undulation of dimension.This results in dimensions within and without dimension.In your current understanding of dimension,the dimensions are separated and are inflated with frequential energies.In this instance,there was no frequency-based inflation of the dimensions because the dimensions were inflated by dimensions,and these dimensions were also present in other dimensions.It was like everything existed within and without all at the same time.If I were to describe this as an environment,I would only be able to use the word conundrum in its description of function. Furthermore,as an environment that could be used as an area to house smaller entities,it would have failed because no energy would have existed. 
 
-5号源实体：
+5号源实体：是的，是的。你正在接收的图像是被创造和非创造的事物。我的肢体被操纵、拉伸、挤压、扭曲、维度旋转、操纵、波动和拼接只是在那段创造时期发生在我身上的一小部分。如果我给你一个视觉表现，它看起来就像是一桶蛇，每条蛇都在吃、被吃、或同时被它们自己和它们的对手创造(复制)。作为一种经验，它是最有趣的环境条件——这是我在自己体内创造一个环境——创造了我永远不会认为可能值得创造的环境。这样的一个例子将是维度的拼接波动。这导致了在维度内和没有维度的维度。在你目前对维度的理解中，维度是分离的，并以频率能量扩展。在这个例子中，没有基于频率的维度扩展，因为维度被维度扩展，而这些维度也存在于其他维度中。它就像所有事物同时存在于内部和外部。如果我要把它描述成一个环境，我只能用“谜”这个词来描述它的功能。此外，作为一个可以容纳更小实体的环境，它会失败，因为没有能量存在。
 
 ME:Hold on.I thought that energy could not be destroyed,only converted. 
 
-我：
+我：等等，我以为能量是不能被摧毁的，只能被转化。
 
 SE5:Energy needs frequency to exist,and if there is no frequency,there can be no energy.If there is no energy,there can be no entity and without an entity there is no life-at least no life that can be quantified in any descriptive way that you would understand. 
 
-5号源实体：
+5号源实体：能量需要频率才能存在，如果没有频率，就没有能量。如果没有能量，就没有实体，没有实体就没有生命——至少没有任何你能理解的描述性方式可以量化的生命。
 
 ME:Try me.I am very open-minded. 
 
-我：
+我：试试我吧，我思想很开放的。
 
 SE5:O.K.In this instance the dimensions themselves gained sentience.They were intelligence without frequency and energetic content.It was a new form of...material... 
 
-5号源实体：
+5号源实体：好的，在这个例子中，维度本身获得了知觉。它们是没有频率和能量内容的智能。这是一种新的...物质...
 
 ME:[This took a long time to come to me as a descriptive word,for how do you put a word to something that is effectively above and beyond dimension,frequency,and energy?] 
 
-我：
+我：(我花了很长时间才想到这个词，因为你怎么能用一个词来形容某种有效地高于和超越维度、频率和能量的东西呢？)
 
 SE5:...from which to work and create.It was just as well that I have a function that records and memorizes the conditions experienced,so I can reproduce it whenever I require. 
 
-5号源实体：
+5号源实体：我有一个功能，可以记录和记忆我所经历的状况，这样我可以在需要的时候重现它。
 
 ME:Hold on.Are you saying that the dimensions themselves without the energies and frequencies to inflate them became sentient in their own right?
 
-我：
+我：等等，你是说没有能量和频率的维度本身就拥有了知觉？
 
 SE5:Correct.You see,one of the things that you have not been exposed to in your communications is the possibility for dimension to become sentient.You are aware that you,as energy,are sentient. 
 
-5号源实体：
+5号源实体：正确。你看，在你们的交流中，有一件事你们没有接触到，那就是维度有感知的可能性。你们意识到，作为能量，你们是有感知的。
 
 ME:Yes. 
 
-我：
+我：是的。
 
 SE5:Then it should not be a great step forward to understand the simple concept that frequency can also have sentience. 
 
-5号源实体：
+5号源实体：那么，理解频率也可以有知觉这一简单概念应该不是一个巨大的进步。
 
 ME:I take your word for it.In this instance,I would expect that this is entirely possible.Can I offer my level of understanding? 
 
-我：
+我：我相信你的话。在这种情况下，我认为这是完全可能的。我能提供我的理解水平吗？
 
 SE5:You may. 
 
-5号源实体：
+5号源实体：你可以。
 
 ME:Here's my understanding at this point.Energy can have sentience because it has an environment that sustains its existence that is called dimension and frequency and that that inflates dimension.Frequency can also have content,such as the lower frequency content of radio,microwave,light,or radiation.It is this content that humankind has only just managed to exploit and use for the transmission of information. 
 
-我：
+我：这是我对这一点的理解。能量之所以有感觉，是因为它有一个维持其存在的环境，这个环境叫做维度和频率，它使维度扩展。频率也可以有内容，比如无线电、微波、光或辐射的低频内容。人类只是设法开发和使用这种内容来传递信息。
 
 SE5:There are many,many other forms of content that can be used that are not tied down to the physical and that you have not even considered or dreamt of in your science fiction. Many of these would make your existence even easier,I would suspect,than it currently is, by using frequency as a tool. 
 
-5号源实体：
+5号源实体：还有很多很多其他形式的内容可以使用，它们不局限于物理，你甚至在科幻小说中都没有考虑过或梦想过。我怀疑，通过使用频率作为工具，其中很多会使你的存在比目前更容易。
 
 ME:O.K.,because frequency has content,it can also develop sentience.Because it is part of dimension,it is contained.The dimension allows it to grow.I have a problem here though as the only thing I can relate to as dimension given sentience is you,a Source Entity.
 
-我：
+我：好的，因为频率有内容，它也可以发展感知。因为它是维度的一部分，它被包含。维度允许它成长。我有一个问题，虽然我唯一能与给定感知的维度联系起来的是你，一个源实体。
 
 SE5:Although Source Entities are dimension,frequency and energy combined I we can separate them all out to exist as individual content in their own right.If I were to categorise the three then I would suggest that dimension was the highest and energy was the lowest. Dimension can have individualisation and therefore sentience because it is the highest of the components that make us all up,including the Origin. 
 
-5号源实体：
+5号源实体：虽然源实体是维度、频率和能量的结合，但我们可以将它们全部分离出来，以它们自己的权利作为独立的内容存在。如果我将这三者分类，那么我会建议维度是最高的，而能量是最低的。维度可以有个性化，因此有知觉，因为它是组成我们所有人的最高成分，包括起源。
 
 Dimension is very misunderstood in your level of existence,for you think of it as an environment,a continuum,that is purely down to your size and position within the hierarchy that the Origin and your Source Entity have created.Left to its own devices,any object/thing can gain sentience given a long enough period of existence in one state.Yes,I heard your thoughts-so can and do rock and minerals.Dimension is just a higher form of existence and,therefore,sentience.Of course,it is like no-thing you as mankind has ever experienced or will experience in your physical state. 
 
+维度在你们的存在层上被误解了，因为你们认为它是一个环境，一个连续体，纯粹是由于你们的大小和位置在起源和你们的源实体所创造的等级体系中。如果让它自己去做，任何物体/东西在某种状态下存在足够长的时间后，都能获得知觉。是的，我听到了你们的想法——岩石和矿物也能做到这一点。维度只是更高的存在形式，因此，知觉。当然，它不像你们人类在你们的物质状态下经历过或将要经历的任何事物。
+
 ME:But isn't a continuum a low level environment,one that is just above the third dimension, what we call space-time? 
 
-我：
+我：但是连续体不是一个低水平的环境，一个刚好在第三维度之上的环境，我们称之为时空吗？
 
 SE5:Correct.But in this instance there is only one environment that can be called a continuum-one that involves dimension,frequency,energy and the recognition of the passage of events,time-which is where you are right now.A parallel dimension of equal content could be classified as a continuum but only if it has the full complement of the four components specified above.None do in YOUR universe.You need to be in a "multiversal" environment to have this effect take place,and it will only take place if your Source Entity requires it as a function of its environmental creation.This would be classified as a parallel universe and not a continuum.The universe you exist within does not have parallel content, at least not in what you would consider parallel.The only parallel content would be the dimensions,frequencies,and energies-not that which occupies it. 
 
-5号源实体：
+5号源实体：正确。但是在这种情况下，只有一种环境可以被称为连续统一体——一种包含维度、频率、能量和对事件、时间流逝的认识的环境——也就是你现在所在的地方。一个等内容的平行维度可以被归类为连续统一体，但只有当它拥有上述四个组件的完整补充时。在你的宇宙中没有。你需要在一个“多宇宙”环境中才能发生这种效果，而且只有当你的源实体需要它作为其环境创造的一个功能时才会发生。这将被归类为一个平行宇宙而不是连续统一体。你存在于其中的宇宙没有平行内容，至少不是你认为的平行。唯一的平行内容是维度、频率和能量——而不是占据它的内容。
 
 ME:So why do our scientists talk of such possibilities? 
 
-我：
+我：那为什么我们的科学家们谈论这种可能性呢？
 
 SE5:Because they remember memories of their energetic existence or are subconsciously tapping into the multiversal mind that they are part of.As I stated before,a continuum requires a multiverse to exist.There is only one continuum per universe-those that are classified as the physical levels.The content of such continuums would NOT be parallel. There simply is no need for the effects that a parallel continuum could offer since they are finite in comparison to the timeless environment that is the norm of any multi-dimensional universe that is above the first three. 
 
-5号源实体：
+5号源实体：因为他们记得他们能量存在的记忆，或者下意识地进入他们是其中一部分的多维宇宙的意识。正如我之前所说，连续体需要多维宇宙的存在。每个宇宙只有一个连续体——那些被归类为物理层面的。这样的连续体的内容不会是平行的。根本不需要平行连续体所能提供的影响，因为与无时间性的环境相比，它们是有限的，而无时间性的环境是任何高于前三维度的多维宇宙的规范。
 
 Ah!I see the conundrum you have now.You(mankind)are thinking of alternative realities all existing at the same time and getting them mixed up with the word "continuum." Alternative realities are NOT continuums.It is the myriad of events that crisscross each other,depending upon how you may or may not react to a certain set of events.Each minor change to the way you act or react causes a different chain of events to take place.This can only work in the higher dimensions of a multiversal environment,where the majority of your energetic content exists right now.The alternative reality is just that-an alternative to what currently IS,and that involves all of the entities that you are and interact with.Hence, there is possibility of meeting an alternative YOU in an alternative reality if you choose to work on two or more realities at the same time,which incidentally most of you already do.In this instance,each alternative YOU is playing out in a simultaneous fashion each alternative that is possibly available to you given the range of possible actions/reactions to a particular event.This does not happen in a continuum because you are limited to the lowest physical dimensions. 
 
+啊！我明白了你们现在面临的难题。你们(人类)正在思考同时存在的各种不同的现实，并把它们与“连续体”这个词混淆起来。不同的现实不是连续体。它是无数相互交错的事件，取决于你可能或可能不会对某一组事件做出反应。你行动或反应方式的每一个细微变化都会导致一系列不同的事件发生。这只能在多维环境的更高维度中起作用，在那里你们的大部分精力内容现在就存在。不同的现实就是目前现状的替代，它涉及到你所是并与之互动的所有实体。因此，如果你选择同时在两个或更多现实中工作，那么在另一个现实中可能遇到另一个你，而你们大多数人恰巧已经这样做了。在这种情况下，每个替代的你都在以一种同时的方式进行，每个替代都可能对你来说是可行的，因为你对某一特定事件有一系列可能的行动/反应。这不会在一个连续体中发生，因为你们被限制在最低的物理维度中。
+
 I can see that this has not answered your question on how a dimension can have sentience. 
+
+我知道这并没有回答你的问题，关于维度如何有感觉。
 
 ME:No,it doesn't,but it does answer other questions. 
 
-我：
+我：是的，它没有，但它确实回答了其他问题。
 
 SE5:I will try to answer this question in a succinct fashion then.Dimension can develop sentience without the other content of energy and frequency simply because it is a higher function of the Origin's make-up.Dimension is not something that we as Source Entities create.It is something that we can manipulate because it is a higher function of the Origin's make up and is,therefore,a higher function of our own composition.A Source Entity can separate dimension into smaller levels or layers capable of holding and supporting higher and higher energies and frequencies.However,that/those dimension/s can and do become sentient in their own right.Sentience is awareness of self,as you are aware,but sentience does not necessarily mean that you can affect the condition or the environment you are in. Consider the bird you call a parrot.It is aware of self,as is a monkey,but neither of them is fully sentient. 
 
-5号源实体：
+5号源实体：我将试着简洁地回答这个问题。维度可以发展感知，而不需要其他能量和频率的内容，仅仅因为它是起源构成的更高功能。维度不是我们作为源实体创造的东西。它是我们可以操纵的东西，因为它是起源构成的更高功能，因此，是我们自身构成的更高功能。一个源实体可以将维度分成更小的水平或层级，能够容纳和支持越来越高的能量和频率。然而，那个/那些维度可以并且确实以自己的方式变得有感知力。感知力是自我意识，正如你所意识到的，但感知力并不意味着你能影响你所处的条件或环境。考虑到你称之为鹦鹉的鸟。它有自我意识，就像猴子一样，但它们都不是完全有感知力的。
 
 ME:Our scientists would argue that the monkey and the parrot are not sentient. 
 
-我：
+我：我们的科学家会争论说猴子和鹦鹉没有感情。
 
 SE5:They both are sentient,but they are sentient on a low level-one that means that they are not able to change themselves and their environment. 
 
-5号源实体：
+5号源实体：他们都有知觉，但他们的知觉水平很低，这意味着他们无法改变自己和他们的环境。
 
 ME:Are you suggesting that dimensions are on the same level of sentience as the parrot and the monkey?
 
-我：
+我：你是说维度和鹦鹉和猴子的感觉是一样的吗？
 
 SE5:No,they are a quantum leap apart,but in the scale of things,they are in similarity. For instance,the difference in sentience between you (in your current state)and the parrot and the monkey is similar but at a different magnitude to that difference between dimensional sentience and the sentience that a Source Entity has.In dimensional sentience the dimension is aware of itself and its function within the greater environment that it finds itself within.That is all it needs to have.However,a dimension can change itself to a certain extent in order to ensure that it creates the optimal environment for frequency and energy should it desire to be occupied as such. 
 
-5号源实体：
+5号源实体：不，它们之间有量子飞跃的区别，但是在事物的尺度上，它们是相似的。例如，你(在你当前的状态下)和鹦鹉和猴子之间的感知差异是相似的，但是在不同数量级上，在维度感知和源实体的感知之间的差异。在维度感知中，维度意识到它自己和它在更大的环境中的功能，这就是它所需要的。然而，一个维度可以改变自己到一定程度，为了确保它为频率和能量创造最佳环境，如果它希望被占据的话。
 
 ### Reasons to Remain Singular 
 
+**保持单一的理由**
+
 I have to admit to being unprepared to talk to Source Entity Five on the subject of dimensional sentience.This is primarily because I wanted to discuss more about what it has achieved since its creation and awareness of self.In reality though,such a dialogue is interesting in its own right.I am starting to think that any "thing"that is created from the correct material (from the Origin)can become sentient;however,this bit on dimensions being sentient or capable of being sentient throws one off-track a little though.But then again,the whole point of communicating with the Source Entities was to gain as much information as possible whilst keeping it within the realms of what would be considered understandable on the human level.Based upon this,the best and only route forward is to just go with the flow and accept the little diversions in direction as they happen as being both necessary and timely in terms of the information being received.It is wise to note that the communication sessions that any channeler has are not about the channeler but about what is important for the human race to be exposed to at this particular point (in time?).It is also wise to have some limited but healthy challenging of the information being received to assist in the process of validating what has been received.We don't want to over-challenge the entity that we are communicating with since it would both stop the flow of information and make the entity wonder if the channeler is worthy of being used as a channel,but we do want to be certain that what we receive is pure to the purpose.It was at this point that I decided to push on with the task of understanding Source Entity Five's reasons for staying singular.After all,this would be good experience for me,as I was aware that there was one other Source Entity that was still singular,the one that the Origin had told me about whilst I was writing "The History of God"that had not yet become self-aware.On that thought I carried on with the dialogue with Source Entity Five. 
+
+我必须承认，我没有准备好与5号源实体谈论维度感知这个主题。这主要是因为我想讨论更多关于它自从创造和自我意识以来所取得的成就。然而，在现实中，这样的对话本身是有趣的。我开始认为，任何“东西”从正确的材料(来自起源)创造出来都可以变得有知觉；然而，这个维度有知觉或能够有知觉的一点点虽然把一个人扔出轨道。但话又说回来，与源实体沟通的全部要点是获取尽可能多的信息，同时保持它在人类水平上被认为是可以理解的领域内。基于这一点，最好的和唯一的前进路线就是顺其自然，接受方向上的小偏离，因为它们发生时，就所接收到的信息而言，它们既是必要的又是及时的。明智的是，任何通灵者的沟通会议都不是关于通灵者，而是关于在这个特定的点(及时？) 对人类来说什么是重要的。对所接收到的信息进行一些有限但健康的挑战也是明智的，以帮助确认所接收到的信息。我们不想过度挑战我们正在与之沟通的实体，因为这既会阻止信息的流动，也会让实体怀疑通灵者是否值得被用作通灵者，但我们确实想确定我们接收到的信息是纯粹的。正是在这一点上，我决定推进理解第五源实体保持单一性的原因的任务。毕竟，这对我来说将是一个很好的经历，因为我意识到还有另一个源实体仍然是单一的，那个在我写《源头简史》时起源告诉我的尚未变得有自我意识的实体。基于这个想法，我继续与5号源实体进行对话。
 
 ME:O.K.,here's the big question:why or what made you decide to stay singular? 
 
-我：
+我：好的，这里有一个大问题：为什么或是什么让你决定保持单一性？
 
 SE5:I simply saw what was happening around me and decided to create for myself,within myself,that which was necessary for my own evolution and expansion of my knowledge. It was quite clear to me that I was experiencing more than was necessary to sustain my existence from an evolutionary perspective without the need to gain a greater level faster by using the divisional methods used by the others. 
 
-5号源实体：
+5号源实体：我只是看到我周围发生的事情，并决定为自己创造，在我内心，为我自己的进化和知识的扩展所必需的。对我来说很清楚，从进化的角度来看，我所经历的比维持我生存所必需的要多，而不需要使用别人使用的划分方法来更快地获得更高的水平。
 
 ME:Before I home-in on the reasons why it was so clear,can you elaborate on the need to sustain your existence?I thought Source Entities were to all intents and purposes immortal.I mean created for eternal existence. 
 
-我：
+我：在我深入探讨为什么它如此清晰之前，你能详细解释一下维持你存在的必要性吗？我认为源实体实际上是不朽的。我的意思是为永恒的存在而创造。
 
 SE5:We are to a greater extent,but it is a wise entity that notes the fact that the Origin may decide to remove that gift from us if it so chooses.I know for a fact that right now,the Origin is immensely pleased with the performance of all its creations and all that they have created/experienced to further their evolution and,therefore,has no thoughts of changing what it has created in any way,shape,or form. 
 
-5号源实体：
+5号源实体：我们在很大程度上是，但这是一个明智的实体，它注意到了这样一个事实：起源可能会决定从我们身上拿走这份礼物，如果它这样选择的话。我知道一个事实，现在，起源对它所有创造物的表现以及它们为进一步进化所创造/经历的一切都非常满意，因此，它没有任何改变它所创造的任何方式、形状或形式的想法。
 
 ME:But why would the Origin change what it has created to another model of creativity if it is successful in what is happening now? 
 
-我：
+我：但是如果起源在现在所发生的一切中是成功的，那么为什么要改变它所创造的另一个创造性模式呢？
 
 SE5:To see if it would happen the same way again.To some extent though,this has already been done,so it is unlikely to happen again. 
 
-5号源实体：
+5号源实体：为了看看是否会以同样的方式再次发生。尽管在某种程度上，这已经发生过，所以它不太可能再次发生。
 
 ME:What do you mean?Are you suggesting that you are not the first Source Entities to be created?
 
-我：
+我：你的意思是，你们不是第一个被创造的源实体吗？
 
 ### Origin's Second Reinvention of Self 
 
+**起源的第二次自我改造**
+
 SE5:Correct.This is the second time the Origin has reinvented itself.The other Source Entities and I are the result of the second level of creation.We are not the first. 
 
-5号源实体：
+5号源实体：正确。这是起源第二次改造自己。其他的源实体和我都是第二阶段的创造。我们不是第一阶段。
 
 ME:This is getting difficult for me to grasp now.I thought that the twelve current Source Entities were the first.I am sure that I understood this correctly.I am sure that my Source Entity,as well as the Origin itself,told about the moment when the Origin became self-aware and its decision to create the twelve Source Entities.The time (event)line seemed natural. 
 
-我：
+我：这对我来说越来越难理解了。我以为现在的12个源实体是第一个。我确信我理解的是对的。我确信我的源实体，以及起源本身，讲述了起源变得有自我意识并决定创造12个源实体的时刻。时间(事件)线似乎很自然。
 
 SE5:That may be so,but the reality is that we are not the first. 
 
-5号源实体：
+5号源实体：也许是这样，但事实是我们不是第一个。
 
 ME:So enlighten me.What did happen first? 
 
-我：
+我：那请你开导我一下，先发生了什么？
 
 SE5:A prior experiment.The Origin simply duplicated itself.It copied itself a number of times. 
 
-5号源实体：
+5号源实体：先前的实验。起源只是简单地复制了自己。它复制了自己很多次。
 
 ME:I received the word "many times"then.
 
-我：
+我：我收到了“多次”这个词。
 
 SE5:The exact number is irrelevant.In that instance,the difference that it duplicated itself whereas what we have now is a division of self. 
 
-5号源实体：
+5号源实体：确切的数字无关紧要。在那个例子中，区别在于它复制了自己，而我们现在看到的是一个自我分裂。
 
 ME:So where are the other Origins? 
 
-我：
+我：那么其他的起源在哪里？
 
 This was an interesting turn of events as it corroborated an image I had a couple of years ago where I was sure I saw many Origins all huddled together.I had trouble understanding this and translated it into being the Source Entities altogether inside the Origin.Now it seems this image was one of a past event,one that was before the creation of the Source Entities.
+
+这是一件有趣的事情，因为它证实了几年前我所看到的画面，我确信我看到许多起源都挤在一起，我很难理解这个，并把它翻译成起源内部的源实体，现在看来这个画面是一个过去的事件，一个在源实体创造之前的事件。
+
+（图9：起源挤在一起的4个版本）
 
 ![Figure 9: Origins Huddled Together(4 versions)](img/s6-033.png)
 
 SE5:It is highly possible that you saw this image when you were in communication with the Origin during your first reawakened excursions into your higher consciousness,for at that point you had not established any limits to work within. 
 
-5号源实体：
+5号源实体：当你第一次进入你的高意识时，你很有可能看到这个图像，因为在那个时候你还没有建立任何限制。
 
 ME:How could you know that?This is the first time we have communicated,isn't it?
 
-我：
+我：你怎么知道的？这是我们第一次交流，不是吗？
 
 SE5:Yes,it is,but don't forget that I have all your knowledge,experience,and evolution in hand.As with the other Source Entities you have been in communication with,I was given a full history of your existence by your Source Entity before I embarked on this dialogue.We need this to help us understand what you can understand and how to communicate with you.Don't forget that it's hard for us to talk to you because of your limited vocabulary. You are privileged to see such an image. 
 
-5号源实体：
+5号源实体：是的，是这样，但是不要忘记我掌握着你们所有的知识、经验和进化。和你交流过的其他源实体一样，在开始这次对话之前，你们的源实体给了我你们存在的完整历史。我们需要这来帮助我们理解你们能理解的东西，以及如何和你们交流。不要忘记因为你们的词汇量有限，我们很难和你们交流。
 
 ME:So I see. 
 
-我：
+我：我明白了。
 
 Thinking back,this image had given me cause for considerable concern.It was one that was potentially able to completely destroy the foundation of what little understanding I had of the Origin and the sequence of events surrounding its awakening and creation of the twelve Source Entities.It had me thinking along the lines that if there were more entities of the same quality as the Origin,there was something above the Origin that was big enough to contain them and be its own entity.What it didn't explain though was how the Origin could duplicate itself to a point where I could see an image of the duplicates from a distance.SE5 helped me with this conundrum. 
 
+回想起来，这个画面让我相当担心。它有潜力完全摧毁我对起源的一点点理解，以及围绕着它的觉醒和12个源实体的一系列事件。它让我沿着这个思路思考，如果有更多的实体与起源质量相同，那么在起源之上，一定有什么东西大到足以包含它们，并成为它自己的实体。然而它没有解释的是，起源如何能够自我复制到一个我能从远处看到复制品的画面的程度。SE5帮我解决了这个难题。
+
 SE5:The Origin exists within and without itself on all levels.It IS,always has been,and always will be the ALL.As such,to enable it to duplicate itself it created an environment within which it could be the dominant entity and then duplicated itself a dozen times, creating twelve equal entities. 
 
-5号源实体：
+5号源实体：起源在所有层面上都存在于自身和外部。它现在是，一直是，并将永远是全部。因此，为了使它能够自我复制，它创造了一个环境，在这个环境中，它可以成为主导实体，然后自我复制十多次，创造了12个平等的实体。
 
 ME:Hold on.This seems a bit too much like the creation of the Source Entities. 
 
-我：
+我：等等，这看起来有点像源实体的创建。
 
 SE5:Of course.The Origin only changed the process of the strategy it was working on,not the direction it was going.The difference was that the Origin duplicated itself twelve times, not divided half of itself into twelve.This is a big difference in evolutionary thought for the Origin.The first work relied on each of those that were duplicated thinking that IT was ALL there was,instead of being one of twelve with THE Origin,of course,being the only one that knew of the others. 
 
-5号源实体：
+5号源实体：当然。起源只是改变了它所采取的策略的过程，而不是它前进的方向。区别在于起源将自己复制了12次，而不是将自己一分为二。对于起源来说，这是进化思想上的一个巨大差异。 第一个工作依赖于那些被复制的每一个，认为自己就是全部，而不是12个中的一个，当然，起源是唯一知道其他的那个。
 
 ME:So why did the Origin change to its current strategy? 
 
-我：
+我：那么为什么起源改变了它目前的策略？
 
 SE5:Because the others either ran riot or extinguished themselves as a result of not accepting that they were the only one.It drove them quite mad. 
 
-5号源实体：
+5号源实体：因为其他的要么暴动，要么自杀，因为他们不接受自己是唯一的。这让他们很疯狂。
 
 ME:But if THE Origin itself did not go mad or extinguish itself,why did the others? 
 
-我：
+我：但是如果起源本身没有疯掉或者自我消亡，为什么其他的都这样？
 
 SE5:It had something to do with being the true first Origin,something to do with its properties.You will have to discuss this with the Origin yourself. 
 
-5号源实体：
+5号源实体：它与真正的第一起源有关，与它的属性有关。你必须自己与起源讨论这个。
 
 ME:I intend to.I saw this as one of the chapters in a book I was planning,which I expect to title“The Origin Speaks.." 
 
-我：
+我：我打算写。我把这看作我计划写的书中的一章，我打算叫它“起源在说话”。
 
 Wait a bit though,how could an Origin extinguish itself?I thought energy cannot be lost;it only changes form,so to speak. 
 
+等等，一个起源怎么可能自我消亡呢？我认为能量是不会消失的，它只会改变形式，可以这么说。
+
 SE5:It can't.What it does is dissolve its individuality,which means it gets re-absorbed into the Original Origin by default. 
 
-5号源实体：
+5号源实体：它不能。它所做的就是分解它的个体性，这意味着它默认地被重新吸收到起源中。
 
 ME:Let me get this straight.If an Origin that was created by the Origin could not dissolve itselfor remove itself from individual existence,how does it get re-absorbed into the Original Origin?
 
-我：
+我：让我直说吧。如果一个由起源创造的起源不能自我消解，也就是说不能从个体存在中移除自己，那么它如何被重新吸收到起源中呢？
 
 SE5:Because it is part of the natural make up of the Origin.I will explain further.The Origin IS the final frontier.It IS ALL THERE IS.There is NO-THING ELSE.So when the energy that is given sentience decides that it can no longer exist or no longer has the desire to exist for whatever reason,the association given to the energy of individuality and sentience is removed.The energy returns to Original Origin energy and essence.Let me give it to you in a simple format,albeit in a frequency-based example.If you reduce the frequency of the molecules of water to the point where the molecular movement is almost at a standstill (from your perspective),you also reduce its core temperature,creating ice.The ice will assume the form of the vessel that the water was being contained within and maintain it when it is decanted from it.If you consider that in the example given,the form the ice has assumed when its frequency is reduced is equal to the association of individuality and sentience to Origin energy.That association is only maintained whilst the frequency of the molecules is kept at the level necessary for water to become ice.Thus,you will understand that as the removal of the method used to reduce the frequency of the water to form ice results in the ice becoming water,a higher frequency energy.So does the removal of the association of Origin energy to give individuality and sentience make the energy return to that that it really is-Origin energy and essence. 
 
-5号源实体：
+5号源实体：因为它是起源自然组成的一部分。我会进一步解释。起源是最终的边界。它是所有存在的。没有其他的。所以当赋予感知的能量决定它不能再存在或不再有存在的愿望，无论出于什么原因，赋予个性和感知的能量的联系被移除。能量回到原始的起源能量和本质。让我给你们一个简单的格式，尽管是一个基于频率的例子。如果你降低水分子的频率到分子运动几乎停止的点(从你的角度)，你也降低了它的核心温度，创造了冰。冰将采取容器的形式，水被包含在容器中，当它从容器中倒出来时，它会保持它。如果你考虑到给定的例子，当它的频率降低时，冰已经采取的形式等于个性和感知与起源能量的联系。这种联系只有当分子的频率保持在水变成冰的必要水平时才能保持。因此，你将明白，由于去除用来降低水形成冰的频率的方法导致冰变成水，一个更高频率的能量。因此，去除原初能量的关联，赋予个性和感知使能量回归到它真正是的——原初能量和本质。
 
 ME:Are you suggesting that the duplicated Origins are of a lower frequency to the Origin as a result of the Origin giving it individuality and sentience? 
 
-我：
+我：你是否在暗示，由于起源赋予了它们个体性和感知能力，所以复制的起源对起源来说频率更低？
 
 SE5:It is not a matter of a different level of frequency;it's more a matter of a different level of "being"or "existence"of that energy. 
 
-5号源实体：
+5号源实体：这不是一个不同频率水平的问题；这更是一个不同能量“存在”或“存在”水平的问题。
 
 Now that the Origin has its own recognition of self,it cannot remove that level of sentience or individuality from itself.It cannot destroy itself or remove the association of its own sentience from itself,for IT IS ALL THERE IS.However,when the association is removed, energy created from the Original Origin energy,whether duplicated or divided,will always return to what it was originally,Origin.Therefore,should the Origin remove the association to the Origin energy that it used to create the Source Entities,it would also return to the Origin as pure Origin energy essence. 
 
+现在起源有它自己的自我认知，它不能从自身移除那种层次的感知或个性。它不能摧毁自己或从自身移除与自己感知的关联，因为它是一切。然而，当关联被移除时，从原始起源能量创造的能量，无论是复制或分裂，都会永远回到它原来的样子，起源。因此，如果起源移除它用来创造源实体的起源能量的关联，它也会以纯粹的起源能量本质回到起源。
+
 ME:This puts a whole new light on things for me.This means that everything we know could end in an instant should the Origin decide to change its strategy for experience and evolution.It could remove the association to individuality and sentience it has given to the energy used to create you and the other eleven Source Entities.I find that a bit scary! 
 
-我：
+我：这让我对事情有了全新的认识。这意味着如果起源决定改变它的经验和进化战略，我们所知道的一切可能在瞬间结束。它可以移除它给用来创造你和其他11个源实体的能量的个性和感知的关联。我发现这有点可怕！
 
 SE5:The thing you need to know is that this is not about to happen soon or even ever, according to my understanding. 
 
-5号源实体：
+5号源实体：你需要知道的是，根据我的理解，这不会很快发生，甚至永远不会发生。
 
-ME:Isn't thatjust wishful thinking? 
+ME:Isn't that just wishful thinking? 
 
-我：
+我：这难道不是一种一厢情愿的想法吗？
 
 SE5:Not in the slightest.You see,the Source Entity strategy is so successful in terms of the experience and evolutionary opportunities that have been created and experienced that to stop it would be a backward step.There is simply too much momentum gained to warrant such a decision by the Origin.I will give you a classic example of why the Origin will never change its current strategy. 
 
-5号源实体：
+5号源实体：一点也不。你看，源实体的策略在经验和进化机会方面是如此成功，已经创造和经历过，停止它将是一个倒退。有太多的动量获得，以保证起源作出这样的决定。我会给你一个经典的例子，为什么起源永远不会改变它目前的策略。
 
 YOU are not alone. 
 
+你并不孤单。
+
 ME:What!?
 
-我：
+我：什么？！
 
 SE5:You are not alone.There are others like you experiencing existence at the lowest of frequencies that are able to penetrate the thin but almost impenetrable veil of the physical into the higher energetic realms.Some of you are even contacting the Origin directly as you are.This is a monumental experience for that part of you that is projected into the lower physical energies,your creator (your Source Entity),and the Origin.Never before has this happened.And what's more,it is happening in an area of your Source Entity that has been allowed to fall down the frequencies as far it could possibility go.And it is gathering pace. 
 
-5号源实体：
+5号源实体：你并不孤单。还有其他像你一样在最低频率上体验存在的人，他们能够穿透薄薄的但几乎无法穿透的物理层的面纱进入到更高的能量领域。你们中的一些人甚至直接与你们的起源接触。这是你们投射到较低的物理能量中的那部分人的巨大经历，你们的创造者(你们的源实体)和起源。这从来没有发生过。更重要的是，它发生在你们的源实体的一个区域，这个区域已经被允许尽可能地降低频率。而且它正在加快步伐。
 
 Imagine the lowest of the low being in direct contact with the highest of the high.The lowest recognizing what it is communicating with and making interesting,intelligent,and constructive dialogue in the process while recognizing limitation but not being limited by its limitation.In the Origin's mind this is an unbelievable success.This is a level of continuity of expansion of awareness of self and the surrounding environment that is happening at all levels of entity.What's more,it appears to be both sustainable,and, expanding.Why would it destroy that,especially when there is more to come,much more from ALL of the Source Entities?The triangulation effect you have previously discussed with your own Source Entity not only applies to entities that are involved in existence in the physical frequencies associated with the entity you call Earth,it also applies across Source Entities as well. 
 
+想象一下低的最低与高的最高直接接触。最低认识到它在与什么沟通，并在过程中进行有趣的、聪明的、建设性的对话，同时认识到局限性，但没有被局限。在起源的头脑中，这是一个令人难以置信的成功。这是自我意识和周围环境的持续扩展的一个水平，在所有层面的实体中都在发生。更重要的是，它似乎既可持续，又在扩展。为什么要破坏它，特别是当有更多来自所有源实体的时候？你以前与你自己的源实体讨论过的三角效应，不仅适用于与你称之为地球的实体相关的物理频率存在的实体，它也适用于源实体。
+
 ME:Are you suggesting that we are in the throes of an evolutionary expansion of awareness that is,shall I say,unprecedented and unforeseen?Even by the Origin? 
 
-我：
+我：你是在暗示我们正处于意识进化扩张的阵痛中，我应该说，这是前所未有的和不可预见的？即使是起源？
 
 SE5:Correct. 
 
-5号源实体：
+5号源实体：正确。
 
 ME:I am both shocked and surprised that the Origin could not foresee this happening.How could that be?With knowledge like this,Ifeel like I have come to the end of the book right here and now. 
 
-我：
+我：我既震惊又惊讶，起源竟然没有预见到这一切的发生。怎么会这样？有了这样的知识，我觉得我已经到了这本书的结尾了。
 
 SE5:You are not even at the start yet,believe me. 
 
-5号源实体：
+5号源实体：相信我，你甚至还没有开始。
 
 ME:So what happens when this level of expansion in pan-Source consciousness finalizes?Will the Origin start again? 
 
-我：
+我：那么当这种水平的泛源意识扩张最终结束时会发生什么？起源会再次开始吗？
 
-SE5:Who knows?It has no plans. 
+SE5:Who knows? It has no plans. 
 
-5号源实体：
+5号源实体：谁知道呢？它没有计划。
 
 I then gained an image of the Origin.It was full of the Source Entities and other smaller entities of similar stature.The only way I can describe this is that the Origin was smiling a benevolent smile.It was pleased with itself,its creations,and the creations that its creations had made.It was in company with like-minded individual entities of varying sizes and evolutionary status,all stemming from the original entities that were created by the Source Entities.Some had collated together to create a bigger entity of collective individuality Others had maintained their individuality.All were of single status.All had graduated from the need to be contained within the environments that their respective Source Entities had created for them.All were in direct communication with each other,the Source Entities,and the Origin itself.The Origin had created a community,a family,and it was well pleased. 
 
+然后我得到了一个起源的图像。它充满了源实体和其他类似大小的实体。我唯一能描述这个的办法是起源正露出一个善意的微笑。它对自己，它的创造物，以及它的创造物所创造的创造物感到满意。它与志趣相投的个体实体一起，这些的创造物感到满意。它与志趣相投的个体实体一起，这些个体实体有着不同的大小和进化状态，都来自源实体所创造的原始实体。有些已经合并在一起，创造了一个更大的集体个体实体。其他人则保持了他们的个体性。所有的都是单一状态。所有的人都已经从被包含在各自的源实体为他们创造的环境中的需求中毕业了。所有的人都与彼此，源实体，以及源头本身直接沟通。起源创造了一个社区，一个家庭，它非常满意。
+
 ME:What was that all about?Where did that image come from? 
 
-我：
+我：那都是关于什么的？那个图像是从哪里来的？
 
 SE5:That is the echo of what could be should the spark of conscious communication with the Source Entities and the Origin by those entities at its lowest levels of frequency continue. Remember that in your own communications with the Origin and your Source you were party to the fact that when the Origin was singular,it also lost contact with that part of itself that it projected into the lower frequencies.
 
-5号源实体：
+5号源实体：这是与源实体和起源的意识交流的火花在最低频率的实体中继续的回声。记住，在你自己与起源和你的源头的交流中，你参与了当起源是单一时，它也与投射到低频率的自身部分失去了联系的事实。
 
 ME:I do remember that. 
 
-我：
+我：我确实记得。
 
 SE5:Well,this is an image of the Origin and all that has been created in its name that does not have the problem with losing contact with those parts of itself that reside in the lower frequencies,for they no longer exist. 
 
-5号源实体：
+5号源实体：嗯，这是起源的形象，所有以它的名字创造的，没有与自己居住在低频率的那些部分失去联系的问题，因为它们不再存在。
 
 ### Concurrent and Simultaneous Existence 
 
