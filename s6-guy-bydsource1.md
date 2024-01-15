@@ -6037,6 +6037,8 @@ I had noticed that there was a strong image in my mind relating the smaller univ
 
 我注意到，在我脑海中有一个强烈的形象，把较小的宇宙实体与较大的宇宙实体联系起来——一个我无法动摇的形象。随着它而来的是分配给这个形象的知识。起初很慢，但当我开始接受和理解时，信息变得更强更快。较小的宇宙实体，事实上，是较大的宇宙实体——其规模已经调整，以允许在其同伴的范围内参与。当我打这篇文章时，我被纠正了。不是实体的规模被改变，以允许它们在我所描述的较大的宇宙实体(一个大宇宙实体中的大宇宙实体)中工作，而是透视。我理解透视是一种方法，艺术家们用来在他们的绘画/图纸中给出有限的3D效果； 它也被广泛用于建筑图纸，特别是那些用来给新建筑、商场或综合体的“艺术家印象”的图纸。透视怎么能改变规模的外观，使其产生如此巨大的差异？我真的需要问问6号源实体，因为它真的开始让我感到困惑。想象一下，在宇宙范围内的实体不仅能够在不同的层次、维度和频率中工作和存在，而且能够在这种多层次/维度透视状态下相互工作和独立工作。困难这个词在我耳边响起！！！6号源实体来救我。
 
+（图11：6号源实体中的实体）
+
 ![Figure 11: Source Entity Six's Entities](img/s6-035.png)
 
 SE6:Perspective is the only word that I/you could use that would give you the understanding you need here.I will describe it in a different way.I can see that you are already receiving the supporting imagery. 
