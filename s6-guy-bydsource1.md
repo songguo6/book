@@ -6043,49 +6043,51 @@ I had noticed that there was a strong image in my mind relating the smaller univ
 
 SE6:Perspective is the only word that I/you could use that would give you the understanding you need here.I will describe it in a different way.I can see that you are already receiving the supporting imagery. 
 
-6号源实体：
+6号源实体：观点是我/你唯一可以使用的词，它会给你你在这里需要的理解。我将以不同的方式来描述它。我可以看到你已经接收到支持的意象。
 
 ME:Yes,I just received the image of a telescope,zooming out to see the image of what I will now call the "outside"large universal entity and then zooming in to see what I will call the "inside" large universal entity.However,I also know that the "inside"large universal entity also has universal entities associated with it "inside"its perspective and that the larger universal entity is similarly associated with another universal entity in "inside"perspective.Phew,this is all very interrelated. 
 
-我：
+我：是的，我刚刚收到了望远镜的图像，放大去看我现在称之为“外部”大宇宙实体的图像，然后放大去看我称之为“内部”大宇宙实体的图像。然而，我也知道“内部”大宇宙实体也有与它“内部”视角相关的宇宙实体，而更大的宇宙实体也与另一个“内部”视角的宇宙实体类似地相关。啊，这都是非常相互关联的。
 
 SE6:Visually that is a good description but energetically it behaves in an altogether different way.Using the perspective analogy,I will explain further.If YOU were the "inside"entity looking out at the "outside"entity,it would look like it was "inside"you. 
 
-6号源实体：
+6号源实体：从视觉上看，这是一个很好的描述，但从能量上看，它表现得完全不同。用透视的类比，我将进一步解释。如果你是“内部”实体，向外看“外部”实体，它看起来就像在你“内部”。
 
 ME:Are you suggesting that there is a distance component to this description? 
 
-我：
+我：你的意思是这个描述中包含了距离的成分吗？
 
 SE6:No,it is not distance.It is an effect of the perspective. 
 
-6号源实体：
+6号源实体：不，不是距离。这是透视的效果。
 
 ME:But to me that is distance.This is bending my mind like a dimensional pretzel! 
 
-我：
+我：但对我来说，这就是距离。这让我的思维像一个空间椒盐饼干一样弯曲！
 
 SE6:What a good image to use.The pretzel,in some versions,can be considered as a Mobius loop.The effect that you are experiencing/seeing is based upon the interaction of entities when they are nominally based in different levels and locations within the dimensions. Remember that the dimensions in these levels are composite and so are not reliant on the factor of three that you experience in your own environment.In effect the dimensions are blurred together so that there is no demarcation between them.As a result of this "blurring' of the "edges,"an entity can be within and without a,let me say,"dimension within the composite dimension"I will call it a "cimension,"concurrently.The interaction between the entities is such that the cimensions within each of the levels are similarly blurred and relative to the area(volume)of the level and corresponding composite dimension associated with the level of existence being experienced.Everything and every entity is linked in every way as a result,and every entity is reliant on each other for its continued functionality,for they all form the essence of each other on every level.
 
-6号源实体：
+6号源实体：用得好形象。椒盐卷饼，在某些版本中，可以被认为是一个莫比乌斯环。你正在经历/看到的效果是基于实体的相互作用，当它们名义上基于不同层次和维度内的位置时。记住，这些层次中的维度是复合的，因此不依赖于你在自己的环境中所经历的三个因素。实际上，这些维度是模糊在一起的，因此它们之间没有界限。由于这种“边缘”的“模糊”，一个实体可以处于和没有一个，让我说，“复合维度中的维度”，我将称之为“双维度”。实体之间的相互作用是这样的，每个层次内的双维度都是类似的模糊，与层次的面积(体积)和与正在经历的存在层次相关的复合维度有关。结果，每件事和每个实体都以各种方式相互连接，每个实体都依赖于彼此的持续功能，因为它们在每个层次上都形成了彼此的本质。
 
 ME:So how do they achieve singular experience and evolution if they are interconnected in such a way? 
 
-我：
+我：那么如果它们以这种方式相互连接，它们是如何实现单一的体验和进化的呢？
 
 SE6:They achieve singular experience due to the focus of intention by that part of the entity that is designed to assign the experience to the "packet"of energy that can be identified as a specific entity with known signature and direction. 
 
-6号源实体：
+6号源实体：他们实现单一经验，由于意图的焦点，实体的一部分被设计为把经验分配给能量的“包”，可以被识别为一个特定的实体，具有已知的签名和方向。
 
 ME:So individuality is based upon a collective set of energies working together in a collectively agreed way and purpose. 
 
-我：
+我：所以个性是基于集体的能量集合，以集体同意的方式和目的一起工作。
 
 SE6:Yes,but don't forget that because they are all interconnected and related,they are all working on each other's purpose as well. 
 
-6号源实体：
+6号源实体：是的，但是不要忘记，因为它们都是相互联系和相关的，所以它们也都在为彼此的目的而工作。
 
 Just when I was starting to understand a little! 
+
+我刚开始有点明白了！
 
 ### Basic Functions of the Five Levels Created by SE6 
 
