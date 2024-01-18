@@ -6091,111 +6091,133 @@ Just when I was starting to understand a little!
 
 ### Basic Functions of the Five Levels Created by SE6 
 
+**SE6所创造的五个层次的基本功能**
+
 As usual with my work,I had noticed that I had moved away from my agenda of understanding certain principles surrounding the environment that a Source Entity,in this instance,Source Entity Six,had created in its effort to experience,learn,and evolve.The interlude that described in summary the entity's form or lack of it and the interconnectedness between the entities and their environment had been fascinating,if not mind bending to say the least.The images received were of a most interesting quality.I made a mental note to myself to try to draw what I had seen.I was keen though to press on and gain a greater level of detail than already received on the workings behind the five levels.I decided to tackle each one in order,taking into account that the entities themselves can work in more than one level concurrently and that they can be part of each other in a most integral way dimensionally and functionally.I had a feeling that the "one liners"were nowhere near descriptive enough to allow an understanding of their real meaning. 
+
+像往常一样，我注意到我已经离开了我的议程，去理解围绕一个源实体(在这种情况下，6号源实体)在努力体验、学习和进化时所创造的环境的某些原则。在总结实体的形式或缺乏形式以及实体与其环境之间的相互联系时所做的插曲，至少可以说是令人着迷的。 接收到的图像质量非常有趣。我给自己做了一个心理注释，试图画出我所看到的。我渴望继续前进，并获得比已经接收到的五个层次背后工作更详细的水平。我决定按顺序处理每一个，考虑到实体本身可以在不止一个层次上同时工作，并且它们可以在维度和功能上以最完整的方式相互组成部分。我有一种感觉，这些“一行代码”远远不足以描述它们的真正含义。
 
 ME:In a previous dialogue with you,I was given the basic functions in one line for the levels that you created.I would like to expand on these levels and their functions/opportunities for evolution. 
 
-我：
+我：在之前与你的对话中，我只提到了你所创造的关卡的基本功能。我想进一步阐述这些关卡以及它们的演变功能/机会。
 
 SE6:We can discuss this if you like.I warn you though,the descriptions will be basic-just enough for you to understand and convey to your"readers"their function.Where possible I might introduce the physics of them.
 
-6号源实体：
+6号源实体：如果你愿意，我们可以讨论这个问题。不过我得提醒你，这些描述都是基本的，只够你理解并向你的“读者”传达它们的功能。如果可能的话，我可能会介绍它们的物理原理。
 
 ME:That's fine. 
 
-我：
+我：没问题。
 
 #### Level 1-Basic Existence,Understanding Self,Gaining Sentience 
 
+**第1级：基本存在，了解自我，获得感知**
+
 ME:You described the first level as the level of basic existence and understanding of self and sentience.Can you elaborate on what this level means from an environmental perspective? 
 
-我：
+我：你将第1级描述为基本存在和对自我和感知的了解。你能从环境的角度详细说明这个层次的含义吗？
 
 SE6:Remember that each level has its own composite dimension to inflate it and allow its existence and usability,and when an entity has reached a certain level of evolutionary growth,it can re-enter this environment concurrently with the existence within other levels.It does this with a view to experience the wonder of experiencing the "first" awakening process again with the possibility of maybe changing the way it reacted to see if it could have evolved faster as a result. 
 
-6号源实体：
+6号源实体：请记住，每个层次都有自己的复合维度来膨胀它，并允许其存在和可用性，当一个实体已经达到某个进化增长的水平时，它可以重新进入这个环境，同时存在于其他层次中。它这样做的目的是体验“第一次”觉醒过程的奇迹，也许会改变它反应的方式，看看它是否可以进化得更快。
 
 ME:Yes,I do remember. 
 
-我：
+我：是的，我记得。
 
 SE6:Good.Then note that each of the levels has an energetic functionality that is consistent with the objectives of the environmental level being experienced.In the case of the first level,the energetic functionality is rather basic.In this level the entity is considered to be in the first stage of awakening from being raw energy to being energy with sentience.The first level environment has what you would call a "child lock"function on the entity's ability to command and create from the surrounding energies it finds itself in.In essence all that the entity can do is exist and experience its "self"and the others that are also within this level. 
 
-6号源实体：
+6号源实体：很好，然后注意每个层次有一个能量功能，与所经历的环境层次的目标是一致的。在第一层次的情况下，能量功能是相当基本的。在这个层次上，实体被认为处于从原始能量到有知觉的能量的觉醒的第一阶段。第一层次的环境有一种你们称之为“子锁”的功能，对实体的指挥和创造能力，从它发现自己周围的能量中。本质上，实体能做的一切就是存在和体验它的“自我”和其他在这个层次内的实体。
 
 The energies in this level are subtle and supportive of the newly awakened entity,providing it with all its basic needs. 
 
+这个层次的能量是微妙的，对新觉醒的个体提供支持，提供它所有的基本需求。
+
 ME:What needs would those be? 
 
-我：
+我：那些需求是什么？
 
 SE6:At this point the entity is not self-supporting in the generation of its own energies- those needed to continue its own existence. 
 
-6号源实体：
+6号源实体：此时，实体不能自给自足地产生自身所需的能量，以维持自身的存在。
 
 ME:It needs food? 
 
-我：
+我：它需要食物吗？
 
 SE6:In a figure of speech,yes,but not food in the sense that you are considering.Let us consider one of the most sentient beings on your planet as an example,the dolphin in its physical state.As a mammal,when the dolphin is first born,it needs to breathe.This is the most critical part of its short existence in separation from its mother.The female dolphins assist the newborn to the surface of the sea to help it take its first breath.In the time taken to move/be moved from its location of birth to the surface,it learns the fundamentals of controlling its physical body and the rudimentary method of communication used by the females that surround it. 
 
-6号源实体：
+6号源实体：比喻地说，是的，但不是你所考虑的那种意义上的食物。让我们以你们星球上最有感情的生物之一，海豚的生理状态为例。作为一种哺乳动物，当海豚初生时，它需要呼吸。这是它与母亲分开后短暂存在中最关键的部分。雌海豚帮助新生儿到海面，帮助它进行第一次呼吸。在从出生地点到海面移动/被移动的时间里，它学会了控制身体的基本原理，以及周围雌海豚所使用的交流的基本方法。
 
 ME:It's that fast? 
 
-我：
+我：有那么快吗？
 
 SE6:It's that fast.It's a similar process for the newly awakened energies that form the entity in the first level with the exception that it does not need to rise to the surface,and it does not need to breathe air.It does,however,need to be able to use the energies around it,integrate them into its own volume,and further integrate itself into the energies that exist within the composite dimension that is Level 1. 
 
-6号源实体：
+6号源实体：就是这么快。这和在第一层中形成实体的新觉醒的能量的过程相似，除了它不需要上升到表面，也不需要呼吸空气。然而，它确实需要能够利用周围的能量，把它们整合到自己的体积中，并进一步将自己整合到存在于复合维度中的能量中，即第一层。
 
 ME:I have a sudden feeling that they have to do this because if they don't,they get rejected by the energies that make up Level 1.Why would I be receiving this sort of information?Ifind it strange that the energies in the level would reject an entity that it is designed to support. 
 
-我：
+我：我突然感觉到他们必须这么做，因为如果他们不这么做，他们就会被组成第一关的能量所排斥。为什么我会收到这种信息？我发现很奇怪，关卡中的能量会排斥一个它被设计用来支持的实体。
 
 SE6:It is not in the slightest bit strange.The need to be part of the level they are working with is a fundamental function that they have to do in all aspects of their existence.It is the equivalent of the dolphin's need to learn to breathe air and communicate with its female helpers.In this instance,the entity is learning,understanding,and applying the basis for its existence and evolution-integration.It is an important lesson that needs to be learned and understood from the very onset of awakening,for it sustains its very being.You will notice from the previous dialogue that the entities work with and integrate with several levels at the same time,including with each other in a major/macro and minor/micro sense.So the need to integrate with the energies of the level that they find themselves upon awakening is an immediate and urgent requirement.Failure to do so within a specific period results in the energies of the level rejecting the entity as a non-entity,a virus if you like.The speed of integration with the energies of the environment determines the potential speed of evolution of an entity.If you like,it determines how steep the evolution curve is going to be. The steeper the curve,the faster the evolution,and the shorter the time for re-integration with me.This is similar in your Source Entity's environment,for the highly evolved entities can and do have the opportunity to become one with their Source. 
 
-6号源实体：
+6号源实体：这不是一点点奇怪。成为他们正在工作的层面的一部分的需要是一个基本功能，他们在存在的各个方面都必须这样做。这相当于海豚需要学习呼吸空气和与它的女性助手交流。在这个例子中，实体正在学习，理解，并应用其存在和进化整合的基础。这是一个重要的教训，需要从觉醒的开始就学习和理解，因为它维持了它的存在。你会从前面的对话中注意到，实体同时与几个层面合作和整合，包括在大/宏观和小/微观意义上相互整合。因此，与他们觉醒时发现自己的层面的能量整合的需求是一个直接和紧急的需求。如果在特定的时间内不能做到这一点，就会导致该层面的能量将实体作为一个非实体，一个病毒来排斥。与环境能量整合的速度决定了一个实体进化的潜在速度。如果你愿意，它决定了进化曲线将有多陡峭。曲线越陡峭，进化越快，与我重新融合的时间就越短。这与你们的源实体的环境相似，因为高度进化的实体可以而且确实有机会与他们的源头合而为一。
 
 ME:So the basis of basic existence in this example is the full and complete integration of the entity with the energies of the environment they are within. 
 
-我：
+我：所以在这个例子中，基本存在的基础是实体与其所处环境的能量的完全和完整的整合。
+
+SE6：6号源实体：
+
+我：我：
+
+6号源实体：
+
+我：我：
+
+6号源实体：
+
+我：我：
+
+SE6：一旦集成到
 
 SE6:Correct. 
 
-6号源实体：
+6号源实体：正确。
 
 ME:Sounds like it's a very short lesson. 
 
-我：
+我：听起来是一节很短的课。
 
 SE6:It doesn't finish there. 
 
-6号源实体：
+6号源实体：它并没有结束在那里。
 
 ME:Ah,I didn't see that coming. 
 
-我：
+我：啊，我没想到会这样。
 
 SE6:Oh yes,you did. 
 
-6号源实体：
+6号源实体：哦，是的，你说过。
 
 ME:You got me. 
 
-我：
+我：你说对了。
 
 SE6:Once integrated into the environmental energies of the level,they have to prove that they are in control of those energies.They must learn to define the difference between the environmental energies that are part of them and those that are part of the environment, including those that are integrated and de-integrated in a transient fashion.This is the road to the true understanding of self which is a pre-requisite to sentience. 
 
-6号源实体：
+6号源实体：一旦融入到该层次的环境能量中，他们必须证明他们能控制这些能量。他们必须学会定义属于他们的环境能量和属于环境的能量之间的区别，包括那些以短暂的方式整合和解整合的能量。这是通往真正理解自我的道路，这是感知的先决条件。
 
 ME:So it's like a very basic environment where the entity is allowed to develop its most basic autonomous and mental faculties,so to speak. 
 
-我：
+我：所以它就像一个非常基本的环境，在这个环境中，实体可以发展其最基本的自主性和精神能力，可以这么说。
 
 SE6:Correct.The innate knowledge about the need to integrate-you might call it instinct -is accelerated by the even more innate knowledge that lack of integration results in rejection.Level 1 is,therefore,like being in kindergarten (nursery school)where an entity learns,experiences,and evolves on the most basic levels.Recognition of this by the entity is the key to sentience. 
 
-6号源实体：
+6号源实体：正确。关于整合的需要，你可能称之为本能，这种天生的知识被更天生的知识所加速，即缺乏整合会导致排斥。因此，第一级就像幼儿园，实体在最基本的层次上学习、体验和进化。实体对这一点的认识是感知的关键。
 
 #### Level 2-Self-Realization 
 
