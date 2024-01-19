@@ -6221,117 +6221,131 @@ SE6:Correct.The innate knowledge about the need to integrate-you might call it i
 
 #### Level 2-Self-Realization 
 
+**第2级：自我实现**
+
 ME:You described Level 2 as the level of self-realization and awareness of your greater reality. Can you elaborate further because in my mind this is very similar to Level 1's evolutionary opportunities? 
 
-我：
+我：你把第二阶段描述为自我实现和对更大现实的意识的阶段。你能进一步详细说明吗？因为在我看来，这与第一阶段的进化机会非常相似。
 
 SE6:It appears to be similar,but in actuality it is not.If you were to look at the basic descriptions of Level 1 and Level 2,you should notice a familiar similarity with your own environment.Level 1 is where most of humankind is currently,and Level 2 is where some of you are evolving toward or are currently evolved at.Your current "incarnate"state classifies as being within Level 2,but energetically you are much further.Full self-realization and full awareness via constant experience would put an entity in your environment at the end of Level 2's evolutionary opportunities,with entities at this level knocking on the door of level 3 if you were following them in sequence,that is. 
 
-6号源实体：
+6号源实体：它看起来是相似的，但实际上不是。如果你看一下第一级和第二级的基本描述，你应该注意到与你自己的环境有熟悉的相似之处。第一级是大多数人类目前所在的地方，而第二级是你们中的一些人正在进化或目前正在进化的地方。你目前的“化身”状态被归类为在第二级，但从能量上来说，你已经远远超过了。通过不断的经验，完全的自我实现和完全的意识将把你环境中的实体置于第二级进化机会的末端，如果你按顺序跟随它们，那么这个级别的实体会敲响第三级的门。
 
 ME:That's a good comparison,thank you.How does that translate into what you expect your entities to be experiencing? 
 
-我：
+我：这是一个很好的比较，谢谢。你如何把它转化为你期望你的实体经历的？
 
 SE6:The answer to that question is as simple as your own,but I will elaborate because as you have experienced in one of our previous dialogues,my entities cannot in reality be compared to your humankind. 
 
-6号源实体：
+6号源实体：这个问题的答案和你自己的一样简单，但我还是要详细解释一下，因为正如你在我们之前的对话中所经历的，我的实体在现实中无法与你们人类相提并论。
 
 ME:Please carry on.
 
-我：
+我：请继续。
 
 SE6:Self-realization for my entities is a significant step on the evolutionary ladder.Once they have progressed from Level 1 to Level 2,they are considered to be autonomous units of energy,working together with other entities and those energies they find themselves existing within.Self-realization is the absolute knowledge and constant understanding on a very deep down,personal experiential level.It is not a theory or a discussion between entities or even a belief system.It is a working everyday experience where the entity knows and works with the experiences it is having that are outside its normal level of understanding,which would be recognition of self and its environment and contemporaries.A self-realized entity recognizes that it is part of something much bigger than it is currently aware of to the point that its individual experience is enhanced to encompass the greater reality that it was either previously not aware of or chose to ignore for some reason.With my entities,that level of self-realization is the understanding and experiential experience of the way they can be part of other entities in a micro-universal sense or have other entities existing with and within them as part of their micro-universal condition-themselves being the macro-universal entities.Continued development of self- realization results in the entities recognizing that there is a link between some of the entities they are working with and a greater reality.That greater reality at first is the recognition that these "interfacing"entities don't exist in their entirety within the environment supported by the level they are currently working within.Indeed,they are only within the level that they first recognized as the environment that they were existing within in a reduced sense- that is,there is more to the entity,and that it is somewhere else:in another level. 
 
-6号源实体：
+6号源实体：自我实现对于我的实体来说是进化阶梯上的重要一步。 一旦他们从第一级进步到第二级，他们被认为是能量的自主单位，与其他实体和那些他们发现自己存在于其中的能量一起工作。 自我实现是绝对的知识和不断的理解，在一个非常深的个人经验水平上。对于我的实体来说，自我实现的层次是理解和经验体验，它们可以成为微观宇宙意义上其他实体的一部分，或者让其他实体与它们共存并存在于它们之中，作为它们微观宇宙条件的一部分，而它们自己则是宏观宇宙实体。自我实现的持续发展导致实体认识到，它们正在与一些实体合作，而这些实体与一个更大的现实之间存在着联系。这个更大的现实首先是认识到，这些“接口”实体并不在它们目前所处的环境支持下完整存在。 事实上，它们只是在它们最初认识的环境的层次内，它们在一种简化意义上存在于其中——也就是说，对于实体来说，还有更多的东西，它在别处：在另一个层次。
 
 Know this:
 
+要知道：
+
 There is a vast difference in the evolutionary level of an entity that intellectually recognizes the "fact"that there are different levels of existence and different ways of which it as an autonomous entity can be integrated with other entities and one where the entity knows both intellectually and experientially that these levels exist.In fact,they exist in an integrated,autonomous way with their fellow entities and can work and manipulate the energies that are either part of the entity or level that they are part of to enhance their own experience quotient and evolution. 
+
+在进化层面上存在着巨大的差异，一个实体在理智上认识到“事实”，即存在着不同层次的存在，以及作为一个自主实体可以与其他实体整合的不同方式，而实体在理智上和经验上都知道这些层次的存在。事实上，他们以一种整合的、自主的方式与他们的同伴实体存在，并可以工作和操纵那些属于实体或层次的一部分，以增强他们自己的经验商数和进化。
 
 This is the difference between the novice and the master,the chela and the guru.When the chela has reached the master stage and the guru is close to or is a mahavatar,it is time for the mahavatar to be elevated to the next level to be a chela again-albeit one of a much evolved level but nevertheless a beginner at the new level it has ascended to,which in this instance would be Level 3. 
 
+这就是新手和大师之间的区别，门徒和导师之间的区别。当门徒已经达到大师阶段，导师接近或是一个mahavatar，是时候让mahavatar提升到下一个层次，再次成为一个门徒了——尽管是一个进化程度很高的层次，但无论如何，它已经提升到了一个新层次的初学者，在这个例子中将是第三层次。
+
 ME:My understanding is that an entity that was considered to be a mahavatar was one that was in constant communion with Christ and his/its energies. 
 
-我：
+我：我的理解是，一个被认为是一个mahavatar的实体是一个与基督和他/它的能量保持持续交流的实体。
 
 SE6:That is an analogy that works well in your plane of existence.In my environments I would suggest that the mahavatar is an entity that is both aware of the master/guru level and is in frequent or constant dialogue with me (mahavatar level)while on the verge of "universal"creativity.The level of creativity of the mahavatar in your environment is limited to localized creativity,on what you would call the planetary scale.When my entities reach this level of attainment,they are capable of creating vast macro/micro-universes of their own that are interspersed with those universes that are both created by their counterparts and are part of or the whole of themselves.They do this because they are from your perspective universal in nature,volume,and ability.Your own universe created by your Source Entity is an entity in its own right and has its own evolution to consider when working with the smaller entities,such as yourself. 
 
-6号源实体：
+6号源实体：这是一个在你们存在平面上很好的类比。在我的环境中，我建议圣雄阿瓦塔是一个既意识到大师/大师水平，又经常或持续与我(圣雄阿瓦塔水平)对话，同时处于“宇宙”创造力的边缘的实体。在你们的环境中，圣雄阿瓦塔的创造力水平被限制在局部的创造力上，在你们所称的行星尺度上。当我的实体达到这种成就水平时，它们能够创造自己的巨大的宏观/微观宇宙，这些宇宙与那些由它们的对手创造的宇宙交织在一起，它们是它们自身的一部分或整体。它们这样做是因为它们从你们的角度来看，在性质、体积和能力上是宇宙性的。由你们的源实体创造的你们自己的宇宙是一个独立的实体，当与较小的实体(如你自己)一起工作时，要考虑它自己的进化。
 
 ME:Yes.I am aware of that.The Source Entity of my multi-verse discussed this with me in one of my previous dialogues in The History of God:a story of the beginning of everything.We even discussed the hierarchy of the universe,galaxy,solar system,and planetary systems as a physical and energetic function of its creation. 
 
-我：
+我：是的，我知道。我的多重宇宙的源实体在我之前的对话中和我讨论过这个：源头简史：一个关于一切起源的故事。我们甚至讨论了宇宙、银河系、太阳系和行星系统的等级制度，作为其创造的物理和能量功能。
 
 SE6:Good,then note that the entities in my environment do not create such hierarchies per se as they each perform that role themselves within and without each other's boundaries.As we discussed before,they are universal in nature and in creation. 
 
-6号源实体：
+6号源实体：很好，那么请注意，我环境中的实体本身并不创造这样的层次结构，因为它们每个人都在彼此的边界之内或之外扮演着这个角色。正如我们之前讨论的，它们在本质上和创造中都是普遍存在的。
 
 I felt that we had exhausted the dialogue on this particular level,and,as a result,decided that it was time to move on to Level 3.Although,in the back of my mind I did feel that in this particular instance of self-realization and awareness,it was uncannily close to the description that a number of notable spiritual movements use.Maybe it was universal?I decided to ask this one last question whilst in the discussion about Level 2 and its functions in the evolutionary toolbox. 
 
+我觉得我们已经用尽了这个特定层次的对话，因此，决定是时候进入第三层次了。尽管，在我内心深处，我确实感觉到在这个特定的自我实现和意识的实例中，它离一些著名的精神运动所使用的描述非常接近。也许它是普遍的？我决定在讨论第二层次及其在进化工具箱中的功能时问这个最后的问题。
+
 ME:This all sounds too familiar to me.It's as if it is a standard or a constant. 
 
-我：
+我：这一切对我来说太熟悉了。它似乎是一个标准或常数。
 
 SE6:Well perceived.Just as the need to evolve is a constant desire within the framework of all the Origin's creations,so is the need to be in an initial position of so-called ignorance. Striving to be self-aware of position and relationship with the absolute and the creator,the Origin,is a necessary and fundamental route to accelerated evolution.This is why your Source Entity created your physical universe in the frequencies and dimensions it is-in order to experiment in accelerated evolution through the realization of self as a progression from ignorance in the harshest possible environment. 
 
-6号源实体：
+6号源实体：正如进化的需求是所有起源创造的框架内一个持续的愿望，所以需要处于所谓的无知初始位置，努力自我意识到与绝对和创造者，起源的位置和关系，是加速进化的一个必要和基本的途径，这就是为什么你们的源头实体以其频率和维度创造了你们的物质宇宙，为了通过自我实现在最严酷的环境中从无知中前进，进行加速进化实验。
 
 #### Level 3-Creativity 
 
+**第3级：创造力**
+
 ME:As you previously mentioned,Level 3 is the level of creativity.This sounds like a very important level to me as creativity is one of the precursors to evolution. 
 
-我：
+我：正如你之前提到的，第三阶段是创造力的阶段。这对我来说是一个非常重要的阶段，因为创造力是进化的一个前兆。
 
 SE6:Correct.To be creative is quite possibly the most important task that an entity can do.Through creativity an entity learns how to be responsible for the energies used in the creative process and to maximize the experiential opportunities that result from what has been created.Creativity and the experience associated with creativity is what existence is all about. 
 
-6号源实体：
+6号源实体：正确。具有创造性很可能是一个实体能做的最重要的任务。通过创造性，一个实体学会如何对创造过程中使用的能量负责，并最大化从所创造的东西中获得的经验机会。创造力和与创造力相关的经验是存在的全部意义。
 
 ME:Creativity is a big subject to discuss and can lead us anywhere,but what I would like to understand is what area of creativity your entities specialize in and their intention in the learning and subsequent evolutionary opportunity presented to the entity who exists and works within Level 3. 
 
-我：
+我：创造力是一个大话题，可以把我们带到任何地方，但我想要了解的是你们的实体专注于创造力的哪个领域，以及他们在学习和随后的进化机会中呈现给存在和工作在第三级的实体的意图。
 
 SE6:That is more than one question. 
 
-6号源实体：
+6号源实体：那不止是一个问题。
 
 ME:Yes,it is isn't it? 
 
-我：
+我：是的，是的，不是吗？
 
 SE6:O.K.,let's work with it.Level 3 is in existence to provide the entity with all the necessary tools and energies to allow it to reach its maximum potential as a creative entity.Creativity though is not just about making objects or beings.It is about the creation of a framework or a road map in whatever form required to illustrate the possibilities for experience,growth and subsequent evolution of an entity as it approaches the point of opportunity.It is like a sign post along the way,saying,"Come here!Experience this!Evolve in this way!" 
 
-6号源实体：
+6号源实体：好的，让我们开始吧。第三阶段的存在是为了给实体提供所有必要的工具和能量，以使它作为一个创造性实体达到最大潜力。创造性不仅仅是制造物体或生物。它是关于创建一个框架或路线图，无论以何种形式，它都说明了体验、成长和实体在接近机会点时随后进化的可能性。它就像沿途的一个路标，说着：“来这里！体验这个！沿着这个方向进化！”
 
 ME:So how do your entities do this? 
 
-我：
+我：那么你的实体是如何做到这一点的呢？
 
 SE6:They have the ability to inflate themselves dimensionally,creating their own inter- dimensionality whilst in a composite dimensional environment. 
 
-6号源实体：
+6号源实体：他们有能力在维度上膨胀自己，在复合维度环境中创造自己的跨维度。
 
 ME:And that is the way they create? 
 
-我：
+我：这就是他们创造的方式？
 
 SE6:Absolutely.You see,they are in an environment that is constrained to a single composite dimension;it is limiting.The opportunity that presents itself here is for my entities to use their natural abilities to expand the environment presented to them in Level 3 by increasing the number of dimensions from one to as many as they want.This requires the entity to work with its peers on a most fundamental and personal level in a way that benefits all rather than the entity that is creating the opportunity for the new dimensional environment.The image you saw where the entities are within and without each other dimensionally illustrates this. 
 
-6号源实体：
+6号源实体：绝对的。你看，他们在一个环境中，被限制在一个单一的复合维度，这是有限的。这里出现的机会是，我的实体利用他们的自然能力，通过增加维度的数量，从一个到他们想要的任何数量，来扩展在第三级呈现给他们的环境。这要求实体在一个最基本和个人的层面上与其同伴合作，以一种造福所有人而不是为新维度环境创造机会的实体的方式。你看到的实体在内部和没有彼此的维度上，说明了这一点。
 
 When an entity decides to enter into an agreement to work in this way with another entity,it opens up the possibilities for other entities to experience,create,and evolve in an alternative series of dimensions from that offered by Level 3 and the dimensions and environmental constructs offered by other partnerships. 
 
+当一个实体决定与另一个实体签订协议以这种方式合作时，它为其他实体提供了在第三级提供的一系列其他维度以及其他伙伴关系提供的维度和环境构造中体验、创造和进化的可能性。
+
 ME:I just saw an interesting image of clusters of entities working together in this way and then setting up an opportunity where the clusters of entities work with each other creating a multiple in excess of the sum of those dimensions already created by them as independent clusters. It's almost as if each cluster of ten individual entities created the opportunity for ten new dimensional environments,which could be in both the macro and micro scaling.Then adding them together does not create 10+10 dimensions but 10x10 dimensions-that's 100. 
 
-我：
+我：我刚刚看到一个有趣的画面，实体集群以这种方式合作，然后建立一个机会，让实体集群彼此合作，创造出一个多于它们作为独立集群已经创造出的那些维度总和的机会。这几乎就像每个由十个个体实体组成的集群为十个新的维度环境创造了机会，这可以是宏观和微观尺度。然后把它们加在一起，不是创造10+10维度，而是10x10维度，也就是100。
 
 SE6:Interesting,isn't it.A similar calculation is used to identify the useable dimensions available in your own environment,but those have been created for you by your Source Entity.In this example,the two clusters work through individual interactions of the entities, group interaction and intergroup interaction.Can you see the evolutionary opportunities presented here? 
 
-6号源实体：
+6号源实体：很有趣，不是吗？ 一个类似的计算被用来识别你自己的环境中可用的维度，但是那些维度已经被你的源实体为你创建了。 在这个例子中，两个聚类通过实体的个体交互、组交互和组间交互工作。 你能看到这里呈现的进化机会吗？
 
 ME:Let me see.One of the most important lessons I have learnt in my own environment is the ability to work together with someone or something without the need to get something in return -to give myself and/or my services gladly and freely whilst and when I can on a equal level with them,not in competition with them,sharing with them what I have and what I know so that they may learn,experience,and evolve.If this results in them evolving at a faster rate than me,thenI will have been of true service.In doing this I work with people on a most intimate level,the level of full trust and acceptance.When I articulate the feeling Iget when I work in this way,they want to experience it themselves.It's wonderful.This is what humanity should be doing-not trying to out-do each other.Being external to the competitive state is so liberating. 
 
-我：
+我：让我看看。我从自己的环境中学到的最重要的一课就是与人或物一起工作而不求回报的能力——当我能与他们处于平等的水平时，乐意并自由地给予我自己和/或我的服务，而不是与他们竞争，与他们分享我所拥有的和我所知道的，这样他们就可以学习、体验并发展。如果这导致他们比我发展得更快，那么我将提供真正的服务。这样做，我与人们在一个最亲密的水平上工作，完全信任和接受的水平。当我清楚地表达我以这种方式工作时的感觉时，他们想要自己体验。这很棒。这就是人类应该做的——不要试图超越彼此。置身于竞争状态之外是如此自由。
 
 SE6:Well done.Simply put,creating the opportunity to work together for the individual and collective good-that good being experience and evolution-is one of the most creative things an entity can achieve,which leads on to the fourth level.We are due to discuss Level 4 later.
 
