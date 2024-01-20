@@ -6285,7 +6285,7 @@ ME:This all sounds too familiar to me.It's as if it is a standard or a constant.
 
 SE6:Well perceived.Just as the need to evolve is a constant desire within the framework of all the Origin's creations,so is the need to be in an initial position of so-called ignorance. Striving to be self-aware of position and relationship with the absolute and the creator,the Origin,is a necessary and fundamental route to accelerated evolution.This is why your Source Entity created your physical universe in the frequencies and dimensions it is-in order to experiment in accelerated evolution through the realization of self as a progression from ignorance in the harshest possible environment. 
 
-6号源实体：正如进化的需求是所有起源创造的框架内一个持续的愿望，所以需要处于所谓的无知初始位置，努力自我意识到与绝对和创造者，起源的位置和关系，是加速进化的一个必要和基本的途径，这就是为什么你们的源头实体以其频率和维度创造了你们的物质宇宙，为了通过自我实现在最严酷的环境中从无知中前进，进行加速进化实验。
+6号源实体：正如进化的需求是所有起源创造的框架内一个持续的愿望，所以需要处于所谓的无知初始位置，努力自我意识到与绝对和创造者，起源的位置和关系，是加速进化的一个必要和基本的途径，这就是为什么你们的源实体以其频率和维度创造了你们的物质宇宙，为了通过自我实现在最严酷的环境中从无知中前进，进行加速进化实验。
 
 #### Level 3-Creativity 
 
@@ -6349,119 +6349,131 @@ ME:Let me see.One of the most important lessons I have learnt in my own environm
 
 SE6:Well done.Simply put,creating the opportunity to work together for the individual and collective good-that good being experience and evolution-is one of the most creative things an entity can achieve,which leads on to the fourth level.We are due to discuss Level 4 later.
 
-6号源实体：
+6号源实体：干得好。简单地说，创造机会，为个人和集体的利益而共同努力，即良好的存在体验和进化，是一个实体能做到的最有创造性的事情之一，这将导致第四层次。我们稍后将讨论第四层次。
 
 Within each of the entities themselves is the ability to create whole universes within each of the dimensions that they create.They themselves are universal in volume,energy,and ability.This allows them unfathomable levels of creative opportunities,which in linking themselves together dimensionally magnifies the opportunity.The interdependencies required to create,sustain,and improve the environments created by these opportunities are far beyond the opportunities you have available to you.Even so,on a micro scale you have similar opportunities that are in keeping with how you have been created and the limitations of the environments you are designed to exist within.Part of the creativity process allows my entities to also create smaller environments and entities if they so wish. It is the level of responsibility required to maintain these entities and their environments whilst also working on their own level of interaction with their group members and intergroup members that permits them to grow and evolve as potential Source Entities in their own right. 
 
+在每个实体本身中，都有在他们创造的每个维度中创造整个宇宙的能力。他们本身在体积、能量和能力上都是宇宙的。这让他们拥有深不可测的创造性机会，把他们自己连接在一起，在维度上放大了机会。创造、维持和改善这些机会所创造的环境所需的相互依赖性，远远超出了你所拥有的机会。即便如此，在微观尺度上，你也有类似的机会，与你如何被创造以及你被设计存在的环境的局限性保持一致。创造性过程的一部分允许我的实体，如果他们愿意，也可以创造更小的环境和实体。这是需要维护这些实体和它们的环境的责任水平，同时还致力于与它们的组成员和组间成员的互动水平，这允许它们以自己的方式成长和发展为潜在的源实体。
+
 ME:Hold on a minute.Are you suggesting that your levels are a school for budding Source Entities? 
 
-我：
+我：等一下。你是在暗示你的关卡是萌芽中的源实体的学校吗？
 
 SE6:I would have thought that that was obvious from the size of them and what they can do. 
 
-6号源实体：
+6号源实体：我本以为从它们的大小和它们能做的事情来看，这是显而易见的。
 
 ME:Fine,but they are not able to be Source Entities outside of your environment,are they? 
 
-我：
+我：好的，但是他们不能成为你环境之外的源实体，对吗？
 
 SE6:Not currently,but they will. 
 
-6号源实体：
+6号源实体：目前没有，但是他们会的。
 
 My mind went back to the conversation with Source Entity Five and the ultimate plan of the Origin.All entities are destined to be free of their Source Entities and at this point every thing and every entity will ascend to a level of evolution above and beyond what is currently possible,even by the Origin.I wondered what will happen to these smaller Source Entities, the Source Entities of Source Entity Six. 
 
+我的思绪回到与5号源实体的对话和起源的最终计划。所有的实体都注定要从他们的源实体中解脱出来，在这一点上，每件事和每个实体都将提升到一个进化水平，超越目前的可能，甚至超越起源。我想知道这些较小的源实体会发生什么，6号源实体的源实体。
+
 SE6:Oh,they are destined to create the framework for the next level of evolution.You might want to chat to the Origin about it. 
 
-6号源实体：
+6号源实体：哦，他们注定要为下一个进化水平创造框架。你可能想和起源聊聊这个。
 
 I thought further ahead to the work I will be doing after these dialogues,to the communications that will create "The Origin Speaks."That is going to be interesting. I mentally filed that thought and moved on to the next level in Source Entity Six's environment,Level 4. 
 
+我进一步想到了这些对话之后我将要做的工作，想到了创造“起源之声”的交流，那将是很有趣的。 我把这个想法归档，然后进入了源实体六的环境的下一个级别，第四级。
+
 #### Level 4-Learning Discrimination in the Creativity Process 
+
+**第4级：创造过程中学习识别**
 
 ME:Let's move on to the next level then.In our previous dialogue on this subject,Level 4 is the recognition of creativity for evolutionary purposes.This looks a bit self-explanatory to me.Isn't being creative the route to certain evolution? 
 
-我：
+我：让我们进入下一个层次。在我们之前关于这个主题的对话中，第四层次是对进化目的的创造性的认识。这对我来说似乎是不言自明的。创造性不就是通往某种进化的道路吗？
 
 SE6:You would think so,but this is definitely not the case.Although creativity is one of the pre-requisites for evolutionary progression,it is also one that can result in a reduction in evolutionary progression if used incorrectly. 
 
-6号源实体：
+6号源实体：你可能会这么想，但事实绝对不是这样。虽然创造力是进化进步的先决条件之一，但如果使用不当，它也会导致进化进程的减缓。
 
 ME:I wasn't aware that at an energetic level creativity was anything else but educational and evolutional. 
 
-我：
+我：我不知道在能量层面上创造力除了教育和进化之外还有其他方面。
 
 SE6:Within the energetic level it is;however,within the physical realms that you inhabit, creativity can be used for detrimental purposes.it can also be used incorrectly on the energetic levels,resulting in devolution.We will discuss this later.Right now I will advise you on the reasons for the creation of Level 4.
 
-6号源实体：
+6号源实体：在能量层面上是如此； 然而，在你们所居住的物质领域中，创造力可以被用于有害的目的。它也可以被错误地用于能量层面，导致权力下放。我们稍后会讨论这个。现在我将告诉你们创造第四层的原因。
 
 As I stated earlier,Level 4 is for the RECOGNITION of creativity for evolutionary purposes. It is the word "recognition"that I will focus on,as that is the reason for Level 4's existence. Any entity can create,and my entities are no exception to this rule,for creativity is one of the main functions given to us by the Origin.On Level 3 my entities learn about how to create and use creation for creating experiential opportunities.I described this in the last dialogue. What I have here is a level where the entity can experiment with the level and intention of its creativity to understand and recognize what creativity really is,and how it can affect its evolutionary opportunities and the entities that participate in their creations.As I said before,creativity is not only for creating what you would call positive evolution,it can also be used for negative evolution or devolution. 
 
+正如我之前所说，第四级是为了进化目的的创造力的识别。我将重点放在“识别”这个词上，因为这是第四级存在的原因。任何实体都可以创造，我的实体也不例外，因为创造力是起源给我们的主要功能之一。在第三级上，我的实体学习如何创造和使用创造来创造经验的机会。我在上一个对话中描述了这一点。我在这里有一个级别，在这个级别上，实体可以用创造力的水平和意图来进行实验，以了解和认识创造力到底是什么，以及它如何影响其进化机会和参与创造的实体。正如我之前所说，创造力不仅是为了创造你们所说的积极进化，它也可以用于消极进化或下放。
+
 ME:I thought devolution was pretty much impossible as everything we experience,whether we call it good or bad,results in our evolution. 
 
-我：
+我：我认为下放几乎是不可能的，因为我们经历的一切，无论我们称之为好或坏，都导致了我们的进化。
 
 SE6:No,it's very much alive and well,especially in the lower energetic realms.Your own race experiences it on a regular basis.You call it karma. 
 
-6号源实体：
+6号源实体：不，它仍然存在，特别是在能量较低的领域。你们自己的种族经常经历它。你们称之为业力。
 
 ME:But I thought that karma and evolution are mutually exclusive. 
 
-我：
+我：但我认为业力和进化是相互排斥的。
 
 SE6:They are,but karma should really be classified as evolution associated with that part of you that is experiencing the physical levels.It is relative only to your incarnate energies.It can also be called "minor evolution"with the "major evolution"being that which the whole of your energies,YOU,accrue. 
 
-6号源实体：
+6号源实体：它们是，但是业力应该被归类为与你正在经历物质层面的那部分相关的进化。它只与你的化身能量相关。它也可以被称为“小进化”，而“大进化”则是你整个能量，你，累积的进化。
 
 ME:Are you suggesting that evolution is split into separate parts-those parts being associated with those energies that are specific to a certain part of us that is experiencing existence in separation from the whole?That would mean that if we as energetic beings split off,say,twelve segments of our"selves"to experience existence and the various influences that the environments those existences have to offer,then we could potentially gain twelve separate packages of karma to deal with as part of our wholistic (referring to the "whole"of us)evolution.Each of those separate packages of karma may either add to or remove evolutionary progression,resulting in an average level of evolutionary progression. 
 
-我：
+我：你的意思是进化被分成不同的部分，这些部分与那些特定于我们某一部分的能量相关，这些部分正在经历独立于整体的存在吗？这意味着如果我们作为有活力的生命被分成，比如说，十二个部分的“自我”来体验存在和这些存在所提供的环境的各种影响，那么我们可能会获得十二个不同的因缘来处理作为我们整体(指我们“整体”)进化的一部分。这些不同的因缘可能增加或减少进化进程，导致进化进程的平均水平。
 
 SE6:Correct.The opportunity presented to my entities in Level 4,therefore,is to be able to experiment in the creativity process and see what happens when so-called negative creativity is used in the creation process. 
 
-6号源实体：
+6号源实体：正确。 因此，在第四级中呈现给我的实体的机会是能够在创造性过程中进行实验，并看到当所谓的负面创造性被用于创造过程中时会发生什么。
 
 ME:So what experiments do they perform to promote their recognition of the possibility that certain types of creativity can result in evolution vs.devolution? 
 
-我：
+我：那么他们做了什么实验来促进他们对某些类型的创造力可能导致进化或退化的认识？
 
 SE6:They create environments and entities without the use of their previous experience and the experience/common knowledge of their collective memory.Remember they can be in a position where they have already passed through this level before but may be re- experiencing it for"improvement of experience"purposes.In order for them to make the sort of creative mistakes that allow them to learn that certain types of evolution occur with certain types of creativity,they need to either enlist willing entities of their own evolutionary level or create a universal environment within their own energetic boundary to support a group of entities created specifically for the experiment in creativity.They then create that which they want to create and allow those entities who want to be involved in the experimental process to become exposed to the creation,whether it be an environment, entity,energy,or intention.If you also consider that involvement in such an experiment will only result in a "positive"level of evolution for those entities willing to participate (they are shielded from the possible effects of devolution even though they experience the devolutionary effects whilst the experiment is running),you reach a win-win condition where the creating entity can create what it likes and record the outcomes.The participating entities evolve in the process,irrespective of the evolutionary classification resulting from the outcome of the creativity experiment.The experiment's outcome is the recognition of the actions in the creativity process that can,could or will result in the evolution of the participating entities if they participate in the opportunities offered by that which has been created.Additional to this is the recognition of the actions in the creativity process that can, could,or will result in the devolution of the participating entities.In my environments,and I would expect in your own Source Entity's environments as well,creativity is an art that needs to be constantly refined to support the maximum evolutionary capability of what is being created,especially when an entity offers up the creation for use by its peers. 
 
-6号源实体：
+6号源实体：他们创造环境和实体，而不使用他们以前的经验和他们集体记忆的经验/共同知识。记住，他们可能处于一个位置，他们以前已经通过了这个级别，但可能是为了“改善经验”而重新经历它。为了让他们犯那种创造性的错误，让他们学会某些类型的进化发生在某些类型的创造力中，他们需要招募他们自己进化级别的自愿实体，或者在他们自己的能量边界内创造一个普遍的环境，以支持一组专门为创造性实验而创造的实体。然后他们创造他们想要创造的东西，并允许那些想参与实验过程的实体暴露在创造中，无论是环境、实体、能量还是意图。如果你还考虑到参与这样的实验只会给那些愿意参与的实体带来“积极”的进化(他们被保护起来，即使在实验进行时他们也经历了权力下放的影响)，那么你就达到了双赢的条件，创造实体可以创造它喜欢的东西并记录结果。 参与实体在过程中进化，而不考虑创造性实验结果导致的进化分类。 实验的结果是对创造性过程中的行动的认可，如果参与实体参与了已经创造出来的机会，那么这些行动可以、可能或将导致参与实体的进化。在我的环境中，我希望在你自己的源实体的环境中也是如此，创造力是一门艺术，需要不断地改进以支持所创造的最大进化能力，特别是当一个实体为其同伴提供创造时。
 
 So in summary,Level 4 is used not only for the recognition of creativity for evolutionary purposes but for devolutionary purposes.The major lesson here is the discrimination of creativity processes to recognize and select only those that result in positive evolutionary opportunities even when the potential experience could be classified as negative to the entity experiencing the creation. 
 
+总之，第四级不仅用于进化目的的创造性识别，也用于权力下放目的。这里的主要教训是对创造性过程的辨别，以识别和选择那些导致积极进化机会的过程，即使潜在的体验对体验创造的实体来说可能是消极的。
+
 ME:If it's that much of an art form to get it right how did you get it right? 
 
-我：
+我：如果它是那么复杂的艺术形式，你怎么做到的？
 
 SE6:I didn't and I don't.This is the big issue with creativity.Ultimate levels of creativity can create ultimate levels of evolution or devolution.The trick is to understand the rules surrounding the creativity of creation that results only in positive evolutionary opportunities. 
 
-6号源实体：
+6号源实体：我没有，我也不会。这是创造力的一个大问题。极限水平的创造力可以创造极限水平的进化或退化。诀窍是理解围绕创造创造力的规则，这些规则只能带来积极的进化机会。
 
 ME:Hold on.Creativity is created? 
 
-我：
+我：等等，创造力是被创造出来的？
 
 SE6:Yes,even creativity is created. 
 
-6号源实体：
+6号源实体：是的，甚至创造力也是创造出来的。
 
 ME:How is that done? 
 
-我：
+我：那该怎么做呢？
 
 SE6:With great care,thought,and consideration. 
 
-6号源实体：
+6号源实体：小心、周到、考虑周全。
 
 ME:You are fooling with me. 
 
-我：
+我：你在开玩笑吧。
 
 SE6:Not in the slightest.You see,an entity has to experience creativity before it is allowed to be a creator.Creativity is,therefore,created as a natural function of an entity's growth.More frequently though,it is a function manifested by the entity that is fully in control of the power it has and uses it with love and wisdom.Once an entity has mastered its power and uses it in love and wisdom,its creative function is switched on.It's a sort of coming of age. 
 
-6号源实体：
+6号源实体：一点也不。你看，一个实体在被允许成为创造者之前必须经历创造。因此，创造力是一个实体成长的自然功能。更经常的是，它是一个功能，由一个实体完全控制它拥有的力量，并用爱和智慧来使用它。一旦一个实体掌握了它的力量，并用爱和智慧来使用它，它的创造功能就开启了，这是一种成长。
 
 #### Level 5-Evolutionary Experience Through Self-denial(A Prelude to Level 6) 
 
