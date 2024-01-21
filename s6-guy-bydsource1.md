@@ -6477,155 +6477,167 @@ SE6:Not in the slightest.You see,an entity has to experience creativity before i
 
 #### Level 5-Evolutionary Experience Through Self-denial(A Prelude to Level 6) 
 
+**第5级：通过自我否定的进化体验(第6级的前奏)**
+
 ME:Let's move on to the next and final level that you created-the level of evolutionary experience through self-denial,the ultimate sacrifice.This sounds a bit Christ-like to me. 
 
-我：
+我：让我们进入下一个，也是你创造的最后一个关卡-通过自我否定的进化体验，最终的牺牲。这听起来有点像基督。
 
 SE6:The reference is valid to a certain extent although in this instance it does not rely upon the ultimate sacrifice of self-destruction for the perpetuation of others. 
 
-6号源实体：
+6号源实体：这个引用在某种程度上是有效的，尽管在这个例子中它并不依赖于自我毁灭的最终牺牲来使他人永存。
 
 ME:I thought that was the ultimate sacrifice? 
 
-我：
+我：我以为那是终极牺牲？
 
 SE6:It is,but it is not the basis for the function of this level of existence.If you were to observe the text you have just typed,you will notice that it is the use of"self-denial"to create the evolutionary experience and not"self-destruction."
 
-6号源实体：
+6号源实体：是的，但它不是这个层面存在功能的基础。如果你观察你刚刚输入的文本，你会注意到，它是使用“自我否定”来创造进化经验，而不是“自我毁灭”。
 
 ME:Touché. I had better let you get on with the description of Level 5 then. 
 
-我：
+我：说到点子上了，我最好还是让你继续描述第5级吧。
 
 SE6:That would be a good strategy. 
 
-6号源实体：
+6号源实体：那将是一个很好的策略。
 
 ME:Looking at the way your "universe"-sized entities exist and work,I would have thought that they pretty much fulfil the requirements of Level 5 by default? 
 
-我：
+我：看着你“宇宙”大小的实体存在和工作的方式，我认为他们在默认情况下已经很好地满足了5级的要求。
 
 SE6:Not entirely.You see,whilst they are working within and without each other in the other levels,they are working towards their own evolution through the medium of experience in a normal and progressive way.In Level 5 the expectation is that they sacrifice their own evolution for the betterment of their peers. 
 
-6号源实体：
+6号源实体：不完全是。你看，当他们在其他级别中相互合作或单独行动时，他们通过经验以正常和渐进的方式朝着自己的进化前进。在第5级中，期望是他们牺牲自己的进化来改善同伴。
 
 ME:How do they do this? 
 
-我：
+我：他们是怎么做到的？
 
 SE6:By becoming an environment for the evolution of others.They do this without the prerequisite of needing to self-evolve as a result.They are available solely for the use and evolution of others.For a period (of time),they give up their own evolutionary plans and desires for evolution.They are being"of service"in a most fundamental way.Of course,they evolve as a result of such sacrifice,but they are unaware of this "evolutionary bonus"because I keep this from them.None of them realize that they benefit from being and working in Level 5.If they did,it would not serve its purpose. 
 
-6号源实体：
+6号源实体：通过成为他人进化的环境。他们这样做，没有必要的先决条件需要自我进化的结果。他们可以完全用于他人的使用和进化。一段时间(时间)，他们放弃了自己的进化计划和进化的欲望。他们正在以最根本的方式“服务”。当然，他们进化作为这种牺牲的结果，但他们不知道这个“进化奖金”，因为我把它从他们。他们没有人意识到他们从5级的存在和工作中受益。如果他们意识到，它将不会服务其目的。
 
 ME:How many entities are currently in Level 5? 
 
-我：
+我：目前在5级有多少个实体？
 
 SE6:One. 
 
-6号源实体：
+6号源实体：一个。
 
 ME:One,only one? 
 
-我：
+我：一个，只有一个？
 
 SE6:Yes,only one.There can only ever be one.
 
-6号源实体：
+6号源实体：是的，只有一个。只有一个。
 
 ME:Why is that? 
 
-我：
+我：为什么？
 
 SE6:Simply because Level 5 is created from that entity that wishes to work on Level 5. 
 
-6号源实体：
+6号源实体：仅仅因为5级是来自希望在5级上工作的实体。
 
 ME:What?Are you saying that,in actuality,Level 5 does not exist-that it's a virtual level? 
 
-我：
+我：什么？你是说，事实上，第5级是不存在的，它是一个虚拟关卡？
 
 SE6:That is exactly what I am saying. 
 
-6号源实体：
+6号源实体：这正是我所说的。
 
 ME:But that's a...conundrum! 
 
-我：
+我：但这是一个...... 难题！
 
 SE6:Let me explain further.To date I have only ever had one entity achieve Level 5. 
 
-6号源实体：
+6号源实体：让我进一步解释一下，到目前为止我只让一个实体达到5级。
 
 ME:And don't tell me-that entity is currently supporting the Level 5 environment. 
 
-我：
+我：别告诉我这个实体目前支持5级环境。
 
 SE6:Correct.More importantly though,Level 5 is the level that supports the existence of all the other levels used for the experience and personal evolution of my entities. 
 
-6号源实体：
+6号源实体：正确。更重要的是，5级是支持所有其他级别存在的级别，这些级别用于我的实体的体验和个人进化。
 
 ME:This is starting to become very convoluted.Is everything about you and your entities convoluted? 
 
-我：
+我：这开始变得非常复杂。关于你和你的实体的一切都很复杂吗？
 
 SE6:From your perspective you might say so,yes.From my perspective,it's not. 
 
-6号源实体：
+6号源实体：从你的角度来看，你可能会说，是的。从我的角度来看，它不是。
 
 I had the impression that Source Entity Six was smiling.It was the sort of smile that a teacher has when the student finally starts to understand what is being conveyed.My understanding,though,would be very rudimentary and high level with no depth.I don't believe I could get any deeper into the mechanics of how all this was working.Everything about Source Entity Six appeared to be convoluted to the extreme with universal entities within and without each other creating environments for each other to exist and evolve within and without.Now I was being told that this within-and without-ness was continued by the creation of Level 5 as a function of an entity's desire to "give itself up"for the betterment of others by being an environment for ALL of them to exist within and without. 
 
+我感觉到6号源实体在微笑。那是老师在学生终于开始理解所传达的东西时所露出的那种微笑。然而，我的理解是非常初级的，高层次的，没有深度。我不相信我能深入了解所有这些是如何运作的机制。关于6号源实体的一切似乎都极端地复杂，宇宙实体在彼此之间创造环境，让彼此在内部和外部存在和发展。现在我被告知，这种内部和外部性由第5级的创造延续，作为一个实体的愿望，为了他人的改善而“放弃自己”，成为所有它们在内部和外部存在的环境。
+
 I could see it now;the entities could exist within each of the levels below Level 5 simultaneously.Their awareness of being in one of these levels for a second,third or more times was unlimited so that they are able to work out similar experiences with the opportunity to improve upon their actions and responses to situations they created or found themselves in.When one of them is evolved enough to progress to Level 5-i.e.,they would not evolve any further by continuing to use the opportunities offered by Levels 1-4-and to date there has only ever been one entity to progress in its evolution to the point where it could be capable of being elevated to the Level 5 opportunity,it is advised by Source Entity Six that it does this for the evolution of its peers and that there is no benefit to itself.Its choice to progress to and become Level 5 is based upon pure selflessness.It is the mark of an entity that is capable of being a truly benevolent creator.One who expects nothing in return is a universally desirable trait and being prepared to arrest its own evolution for the betterment of others is true self-denial.Level 5 is not only the peak of evolution in Source Entity Six's environment,it is the environment where all the other levels exist within in all its composite dimensionality. 
+
+我现在能看到它了；实体可以同时存在于第5级以下的每一个级别中。他们对第二次、第三次或更多次处于这些级别中的意识是无限的，因此他们能够获得类似的经验，有机会改善他们的行为，并对他们创造或发现自己所处的情况做出反应。当其中一个进化到足以进化到第5级时，也就是说，他们不会继续利用第1级到第4级的机会而进一步进化，到目前为止，只有一个实体在进化中进化到能够被提升到第5级的机会的点，6号源实体建议它这样做是为了同伴的进化，而对自己没有好处。它进化成为第5级的选择是基于纯粹的无私。这是一个实体能够成为一个真正善良的创造者的标志。不期待任何回报是一个普遍可取的特征，准备为他人的改善而阻止自己的进化是真正的自我否定。第5级不仅是6号源实体的环境中进化的顶峰，也是所有其他级别在其复合维度中存在的环境。
 
 That was it!That was the reason for the composite dimensionality.(It had been bugging me for some time.)It was because the whole environment was created by that one entity that had attained enough evolution to allow it to be autonomous,to be Level 5.As a result,its dimensionality was constrained to what it was,a single universal entity stretched to its very limit to allow the existence of the other levels and the entities within it.Indeed,Level 5 was the ultimate sacrifice.In doing so,the entity was almost equal to Source Entity Six in stature. 
 
+就是这样！这就是复合维度的原因。(它已经困扰了我一段时间。) 因为整个环境是由一个实体创造的，它已经达到了足够的进化，使它能够自治，成为第5级。结果，它的维度被限制到它本来的样子，一个单一的宇宙实体被拉伸到极限，以允许其他层次和实体的存在。事实上，第5层次是最终的牺牲。这样做，实体几乎与6号源实体的地位相当。
+
 SE6:Very well done.I was not sure that you would be expansive enough to understand. 
 
-6号源实体：
+6号源实体：做得很好。我不知道你是否足够开阔，能够理解。
 
 ME:I am flabbergasted,to say the least.I have to say that I didn't see that one coming. 
 
-我：
+我：我大吃一惊，至少可以说。我不得不说我没有看到这一幕的到来。
 
 SE6:You almost missed it. 
 
-6号源实体：
+6号源实体：你差点就错过了。
 
 ME:Yes,even now I am receiving images to help to understand further.The entity that has attained/elected to be Level 5 is expansive on an enormous scale.I get the impression that has had to swell itself to a size similar to you but within you.You are like two bubbles,one inside the other, with the outside skin of the inside bubble all but touching the inside skin of the outside bubble. 
 
-我：
+我：是的，甚至现在我正在接收图像来帮助我进一步理解。已经达到/选择成为5级实体的膨胀是一个巨大的规模。我得到的印象是，它必须膨胀到与你相似的大小，但在你里面。你就像两个泡泡，一个在另一个里面，里面泡泡的外皮几乎接触到外面泡泡的内皮。
 
 SE6:Correct.There is very little volume left in me for my self,but that is my sacrifice.In effect,I am Level 6. 
 
-6号源实体：
+6号源实体：正确。我身上只剩下很少的空间留给我自己，但那是我的牺牲。实际上，我是6级了。
 
 ME:No,no,don't confuse me. 
 
-我：
+我：不，不，别把我弄糊涂了。
 
 SE6:I have to be the next level (six)in order to house the entity that is Level 5.It is logical. 
 
-6号源实体：
+6号源实体：我必须是下一个级别(6级)才能容纳5级实体。这是逻辑上的。
 
 ME:And you don't have anything that is without?I know you have everything within. 
 
-我：
+我：你没有任何外在的东西吗？我知道你拥有一切。
 
 SE6:The only thing that is without is the Origin.I might call it Level 7...if you like? 
 
-6号源实体：
+6号源实体：唯一没有的，就是起源。我可以称之为第7级...如果你愿意的话？
 
 ME:No,the Origin is fine. 
 
-我：
+我：不，起源就行了。
 
 SE6:Now you have my secret.You may go.You are released. 
 
-6号源实体：
+6号源实体：现在你知道了我的秘密。你可以走了。你被释放了。
 
 And Source Entity Six was gone.I sat at my computer with a head so full of images(to back up these few words of understanding)that I felt I was on a different level as well.I was fit to burst.
 
+6号源实体消失了。我坐在电脑前，脑子里充满了图像(来支持这几个字的理解)，我觉得自己也处在一个不同的层次。我快要胀破了。
+
 I was stunned.
+
+我被震惊了。
 
 I sat at my computer and meditated for a moment.At this point I was half way through my dialogues with the children of the Origin,the Source Entities.Including our own Source Entity,I had been in contact with six to date.It had taken eighteen months.I have to admit to being more than a little tired.The energies used to both make and maintain the link with these entities were subtle and extremely high frequency,which for a low frequency (in comparison)entity such as myself,was demanding to maintain.The link never actually diminished though.As long as I needed to continue the dialogue,I was in some sort of contact with the Source Entity concerned,which included concurrent links with my own Source Entity.This I feel,was necessary as some of the channeled information and concepts often felt like they took a number of days to come down to my level and be translated within my brain into something that could be used in discussion.I was contemplating this further when my own Source Entity had a few words to say. 
 
