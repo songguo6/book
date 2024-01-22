@@ -12216,7 +12216,7 @@ With loving gratitude for our evolutionary journey together,
 
 Guy Steven Needler 
 
-盖伊·史蒂芬·尼德勒
+盖伊·斯蒂文·尼德勒
 
 1st March 2011
 
@@ -12699,6 +12699,8 @@ Over the days or weeks,slowly progress to higher and higher levels(keeping in mi
 **虫洞**：物理上两个频率相互连接的区域，使用虫洞来跳跃频率是可能的。
 
 ## About the author 
+
+**关于作者**
 
 ![作者](img/s6-021.png)
 

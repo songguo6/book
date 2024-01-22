@@ -6641,161 +6641,247 @@ I was stunned.
 
 I sat at my computer and meditated for a moment.At this point I was half way through my dialogues with the children of the Origin,the Source Entities.Including our own Source Entity,I had been in contact with six to date.It had taken eighteen months.I have to admit to being more than a little tired.The energies used to both make and maintain the link with these entities were subtle and extremely high frequency,which for a low frequency (in comparison)entity such as myself,was demanding to maintain.The link never actually diminished though.As long as I needed to continue the dialogue,I was in some sort of contact with the Source Entity concerned,which included concurrent links with my own Source Entity.This I feel,was necessary as some of the channeled information and concepts often felt like they took a number of days to come down to my level and be translated within my brain into something that could be used in discussion.I was contemplating this further when my own Source Entity had a few words to say. 
 
+我坐在电脑前沉思了一会儿。此时我与起源之子，源实体的对话已经进行了一半。包括我们自己的源实体，迄今为止我已经与六个实体取得了联系。这花了18个月。我不得不承认我已经不止一点点累了。用来制造和维持与这些实体的联系的能量是微妙的，而且频率极高，对于一个低频率(相比较而言)实体，比如我自己，需要维持。尽管如此，联系实际上从未减少。只要我需要继续对话，我就与有关的源实体保持某种联系，其中包括与我自己的源实体的并发联系。我感觉，这是必要的，因为一些通灵信息和概念经常感觉像它们需要几天才能降到我的水平，并在我的大脑中被翻译成可以用于讨论的东西。当我自己的源实体有几句话要说时，我进一步思考了这个问题。
+
 SE:You need to keep the ball rolling. 
 
-源实体：
+源实体：你需要保持球滚动。
 
 ME:What do you mean? 
 
-我：
+我：你什么意思？
 
 SE:Its time to get this information out into the public domain.You should continue these dialogues with a"Part Two"to this book,this one being"Part One." 
 
-源实体：
+源实体：是时候把这些信息公之于众了。你应该为这本书写“第二部分”来继续这些对话，这本书是“第一部分”。
 
 ME:Is that wise?Surely the information should stay together in one book? 
 
-我：
+我：这样明智吗？信息肯定应该集中在一本书里。
 
 SE:It would be too big and too hard to read in one go.The information within this book needs to be available now because the time is right.Also,you need a break from the concentration of using energies that your physical body is not designed to be exposed to. 
 
-源实体：
+源实体：这本书太厚了，一口气读完太难了。现在正是时候，需要把这本书里的信息读完。同时，你需要从集中精力使用那些你身体不适合接触的能量中解脱出来。
 
 ME:Would that explain why I am getting creaky joints that pop and bang all of a sudden?Or am I just getting old? 
 
-我：
+我：这能解释为什么我的关节突然嘎吱嘎吱响吗？还是我老了？
 
 SE:Your frequency level has been elevated as a result of these dialogues,but the speed of elevation has been rapid,not at the same speed as you would normally be experiencing,even with the ascension being as close as it is. 
 
-源实体：
+源实体：你的频率水平已经因为这些对话而提升了，但是提升的速度很快，不像你通常经历的速度，即使提升已经如此接近。
 
 ME:So how will I cope with the dialogues that I plan to have exclusively with the Origin? 
 
-我：
+我：那我该如何处理我计划与起源进行的对话呢？
 
 The Origin answered. 
 
+起源回答。
+
 O:That will not be a problem,for you are linked to me via your Source Entity.I created your Source Entity,and your Source Entity created you.It is a clear lineage.When you communicate with the other Source Entities,you are not within the clear line of lineage and are energetically out of phase as a result.I believe this was explained to you in some way during the start of these dialogues. 
 
-起源：
+起源：那不会是个问题，因为你们通过你们的源实体与我相连。我创造了你们的源实体，你们的源实体创造了你们。这是一个清晰的血统。当你们与其他的源实体交流时，你们不在清晰的血统线之内，结果在能量上脱离了相位。我相信在这些对话开始时，我已经以某种方式向你们解释过。
 
 I looked back at the manuscript;indeed,it was explained to me by my own Source Entity.I checked out the way I felt as I started my first dialogue with Source Entity Two.I felt like I was rubbing my head up and down the bark of an oak tree. 
 
+我回头看了看手稿；确实，这是我自己的源实体向我解释的。我检查了当我开始与2号源实体进行第一次对话时的感受。我感觉自己就像在橡树皮上上下下地摩擦我的头。
+
 O:You will not experience any difficulty communicating with me.Indeed,have you ever experienced any difficulty in communicating with me once you established your method of rising up to the levels necessary to affect a clear unbroken link? 
 
-起源：
+起源：你与我的交流不会有任何困难。事实上，一旦你建立了你提升到必要水平以影响一个清晰无断的联系的方法，你与我的交流有过任何困难吗？
 
 ME:You're right.I haven't. 
 
-我：
+我：你说得对，我没有。
 
 O:Correct.Now you need to rest for a while and allow your energies to re-group,for the next six Source Entities will be more demanding than the last.
 
-起源：
+起源：对。现在你需要休息一会儿，让你的能量重新组合，因为接下来的六个源实体会比上一个更难对付。
 
 ME:Now that's what I call encouragement. 
 
-我：
+我：这就是我所说的鼓励。
 
 O:As you are aware,each of the Source Entities has its own resonant frequency.Your Source Entity has been working with you in the background to help maintain your connectivity and energy levels,and more importantly,your resilience.The first six were chosen for their closeness in frequency to your own Source Entity,each Source having a resonant frequency slightly further away than the previous one.The next six will be progressively further away. 
 
-起源：
+起源：正如你所知，每个源实体都有自己的共振频率。你的源实体一直在后台与你合作，帮助你保持连通性和能量水平，更重要的是，你的恢复力。前6个源实体是根据它们与你自己的源实体的频率接近而选择的，每个源的共振频率比前一个稍微远一些。接下来的6个将逐渐远离。
 
 ME:I have just received an image of me being let out on a lead/rope,like a diver diving under ice.
 
-我：
+我：我刚刚收到一个图像，我被放到一个铅/绳子上，就像一个潜水员在冰下潜水。
 
 O:That is a good analogy.The further away you get from your home frequencies,the more alien the environment and the harder it is to get back-hence,the need for the rope being used to let you out slowly,Source Entity by Source Entity.When you finish the dialogues in the second book,you will be right out of your territory frequency-wise.You will truly have been where no man,of hu-man kind that is,has been before. 
 
-起源：
+起源：这个比喻很贴切。你离自己的频率越远，环境就越陌生，你也越难回到原来的频率。因此，需要一条绳子，一个源实体一个源实体地把你慢慢放出去。当你读完第二本书的对话后，你就会完全离开自己的频率范围。你就会真正到过别人，也就是人类，从未到过的地方。
 
 ME:I can't wait!
 
-我：
+我：我等不及了！
 
 ## Afterword 
 
+**后记**
+
 To say this has been a difficult piece of work to channel would be an understatement(I believe I used the word "easy"somewhere,what a lie!),but I guess that's what gives it its validation.With The History of God I felt comfortable with the information that was being channeled through me.It had a homey feeling about it that was undoubtedly due to the fact that I was only dealing with entities within my Source Entity's multiversal environment and the associated frequencies.As the Origin explained to me in the final paragraphs of the last chapter,the creative energy/frequency lineage was pure.Dialogue with the Origin,the Source Entity,and me is,therefore,easier than the dialogues with the other Source Entities simply because they are of a differing energy/frequency lineage than I am.Had I been created by Source Entity Three,for instance,I would have had a harder time communicating with Source Entity One and an easier time communicating with Source Entity Three and so on.As a result,I am aware that the next series of dialogues with Source Entities Seven through Twelve will be progressively harder.In fact,I have been told it will be in the former text. 
+
+要说这是一件很难通灵的工作将是一个保守的说法(我相信我用过“容易”这个词，真是个谎言！) ，但我猜想这就是它得到验证的原因。有了《源头简史》，我对通过我通灵的信息感到舒适。它有一种家的感觉，这无疑是因为我只是在与我的源实体的多维环境和相关频率中的实体打交道。正如起源在最后一章的最后几段对我解释的那样，创造性的能量/频率谱系是纯粹的。因此，与起源、源实体和我的对话比与其他源实体的对话要容易，因为它们的能量/频率谱系与我不同。例如，如果我是由3号源实体创造的，我将与1号源实体有更难的交流，而与3号源实体的交流则更容易，等等。因此，我意识到与源实体7到12的下一个系列对话将变得越来越难。事实上，我已经被告知它将出现在前文中。
 
 I feel though that I am up for the challenge and that the dialogues are a necessary part of awakening humankind's awareness of the possibility that beyond God (our Source Entity) is the very real greater reality that our God was,indeed,created by the greater God,the Absolute,the Origin.
 
+我感觉我准备好迎接挑战，对话是唤醒人类意识的必要部分，在上帝(我们的源实体)之外，是真正更伟大的现实，我们的上帝确实是由更大的上帝、绝对、起源所创造的。
+ 
 I am fully aware that the information I received during these dialogues has not even scratched the surface of any of the Source Entities,their environments,or the creations that populate their environments,including our own.As a result,I fully welcome any additional information from other channeled sources that helps with both finding the individual parts of the jigsaw that form the greater picture and putting them in the right place.As such, I now recognize that one of my major roles in this physicality is to help in some small way to assemble this picture and progress our collective knowledge,elevating us from this frequency we call the physical universe,returning us to our heritage of higher frequency, self-realized,all knowing,creative,and evolved existence. 
+
+我完全意识到，我在这些对话中收到的信息甚至还没有触及任何源实体、它们的环境，或居住在它们环境中的造物，包括我们自己的表面。因此，我完全欢迎来自其他通灵来源的任何额外信息，这有助于找到形成更大画面的拼图的各个部分，并把它们放在正确的地方。因此，我现在认识到，我在这个物质性中的主要角色之一，是以某种微小的方式帮助组装这幅图画，并推进我们的集体知识，使我们从我们称之为物质宇宙的频率提升，使我们回到更高频率、自我实现、全知、创造和进化的存在遗产。
 
 I therefore give this message to the readers of this book. 
 
+因此，我把这个信息给这本书的读者。
+
 If you believe deep down that these dialogues represent some part,no matter how small, of the greater reality,then you now know what I know and are opening the doors of awareness/self-realization and are,therefore,personally contributing to the effort to elevate the frequencies of Earth and its surrounding universe. 
+
+如果你内心深处相信这些对话代表了某一部分，不管多么小，更大的现实，那么你现在知道我知道的，正在打开意识/自我实现的大门，因此，个人努力提高地球及其周围的宇宙频率。
 
 Your reading this book helps to do this. 
 
+你读这本书有助于做到这一点。
+
 For this I thank you. 
+
+为此我感谢你。
 
 Guy Steven Needler 
 
+盖伊·史蒂文·尼德勒
+
 16th March 2011
+
+2011年3月16日
 
 ## Glossary 
 
+**术语表**
+
 **Accurate "to boot"** - An English way of saying an affirmative "as well" 
+
+**Accurate "to boot"**：表示肯定的“as well”的英语说法。
 
 **Black Hole** - A spiritual explanation is that a black hole is a small galaxy whose role is to collect lower frequency material into one place-within itself. 
 
+**黑洞**：一种精神上的解释是，黑洞是一个小星系，它的角色是将低频物质收集到一个地方——它自身内部。
+
 **Cast-outs** - Entities from Source Entity Two's environment that are ejected from a group association due to underperformance or the entity outgrowing the group. 
+
+**弃儿**：2号源实体的环境中的实体，由于表现不佳或实体超出组的范围而被从组中驱逐出去。
 
 **Chela** - The disciple of a religious teacher. 
 
+**Chela**：宗教老师的门徒。
+
 **Cimension** - A single dimension that has all the faculties of the first three lower dimensions we call up,down,left,right,forwards and backwards(3D),including other dimensions, without them needing to be singularly represented. 
+
+**Cimension**：一个单一维度，它具有我们称之为上、下、左、右、前、后(3D)的三个低维度的所有功能，包括其他维度，而无需单独表示。
 
 **Coadunate** - A collective state where a group of collectives are congregated together as a larger collective. 
 
+**共同聚集**：一种集体主义状态，其中一组集体聚集在一起成为一个更大的集体。
+
 **Fluidic Space** - Space that is constantly changing in every way,from dimension to frequency. 
+
+**流体空间**：从维度到频率，空间在各个方面都在不断变化。
 
 **Guru** - A religious teacher or spiritual guide. 
 
-**Hit the ground running** - To start something new without the need to learn first. 
+**导师**：宗教导师或精神导师。
 
 **Light Particle** - A particle of light is known as a photon.A photon travels at the speed of 186,000 miles per second.The theoretical particle,the tachyon,is supposed to travel faster than the speed of light. 
 
+**光子**：光子被称为光子。光子以每秒186,000英里的速度传播。理论粒子速子被认为比光速还快。
+
 **Loci/Locus** - The center or source of an object/entity.Mathematically speaking,it is the set of all points or lines that satisfy a given requirement.In Source Entity Three's environment it represents the location of the majority of the entities concerned. 
+
+**轨迹/轨迹**：一个对象/实体的中心或源头。从数学上讲，它是满足给定要求的所有点或线的集合。在3号源实体的环境中，它代表了大多数相关实体的位置。
 
 **Magnetosphere** - The outer region of a planet where the magnetic field of the planet controls the motion of certain charged particles. 
 
+**磁层**：行星的外部区域，行星的磁场控制着某些带电粒子的运动。
+
 **Mahavatar** - A divine incarnation.An entity that is incarnate with all memory of its energetic self,together with fully functioning energetic abilities. 
+
+**Mahavatar**：神的化身。一个拥有能量自我所有记忆的实体，以及完全运作的能量能力。
 
 **Master** - One who has mastered his/her subject matter. 
 
+**大师**：掌握他/她主题的人。
+
 **Multipolous** - A multiple of a multiple of a multiple.For instance X cubed,cubed,cubed (X3,3,3). 
+
+**多重**：一个多重的多重的多重。例如 X 的立方，立方，立方(X3,3,3)。
 
 **Nova** - A star that increases in brightness by many thousands of times its usual brightness, gradually fading to its original brightness.The last stages of the life of that star. 
 
+**新星** - 一颗恒星的亮度增加到通常亮度的数千倍，逐渐衰减到最初的亮度。这颗恒星生命的最后阶段。
+
 **Pit Prop** - A pole to reinforce the structure of a roof within a mine. 
+
+**矿井支柱**：矿井内加强屋顶结构的柱子。
 
 **Pure of Heart** - A lack of error in a creative condition. 
 
+**纯净的心灵**：在创造性条件下缺乏错误。
+
 **SCUBA** - An acronym for Self Contained Underwater Breathing Apparatus. 
+
+**SCUBA**：自给式水下呼吸器的首字母缩写。
 
 **Self-realization** - The function of being in full command of all our faculties as an energetic being whilst in the physical. 
 
+**自我实现**：作为一个充满活力的存在，在物质世界里完全控制我们所有官能的功能。
+
 **Spliced Undulation of Dimension** - One or more dimensions linked together as a result of them being close together or overlapping in some part of their areas. 
+
+**维度的拼接波动**：一个或多个维度由于紧密相连或在某些区域重叠而连接在一起。
 
 **Stickle Brick** - A child's building block similar to a Lego block but with spikes to join them together-like a Bristle Block.
 
+**粘性积木**：类似于乐高积木的儿童积木，但有尖刺将它们连接在一起，就像鬃毛积木。
+
 **Supernova** - An exploding star caused by gravitational collapse. 
+
+**超新星**：由引力坍缩引起的爆炸恒星。
 
 **The Big Bang** - The current popular scientific explanation of how the universe started.The Source Entity stated in earlier dialogues with me that it was far from the truth-that it simply created our multiverse and,as such,it "winked"directly into existence.Whether this created a big bang is unclear from my dialogues.
 
+**大爆炸**：当前流行的关于宇宙起源的科学解释。源实体在早些时候与我的对话中表示，这远远不是事实——它只是创造了我们的多维宇宙，因此它“眨眼”就直接存在了。从对话中不清楚这是否会产生大爆炸。
+
 **The Grahoopnik** - A race of entities that exist within the hearts of stars.Their existence depletes the stars'energies.Their leaving sometimes causes the star to go nova or supernova. 
+
+**The Grahoopnik**：存在于恒星中心的实体种族。它们的存在会耗尽恒星的能量。它们的离开有时会导致恒星变成新星或超新星。
 
 **The speed of light** - The speed of light is currently understood as being 186,000 miles per second.
 
+**光速**：目前光速被理解为每秒 186,000 英里。
+
 ## About the author 
+
+**关于作者**
 
 Guy Needler Guy Needler MBA,MSc,CEng,MIET,MCMA initially trained as a mechanical engineer and quickly progressed on to be a chartered electrical and electronics engineer.However,throughout this earthly training he was always aware of the greater reality being around him,catching glimpses of the worlds of spirit.This resulted in a period from his teenage to early twenties where he revelled in the spiritual texts of the day and meditated intensively.Being subsequently told by his guides to focus on his earthly contribution for a period he scaled this back the intensity of spiritual work until his late thirties where he was re-awakened to his spiritual roles.The next six years saw him gaining his Reiki Master and a four year commitment to learn energy and vibrational therapy techniques from Helen Stott,a direct student of the Barbara Brennan School of HealingTM,which also included a personal development undertaking(including psychotherapy)as a course prerequisite using the PathworkTM methodology described by Susan Thesenga with further methodologies by Donovan Thesenga,John and Eva Pierrakos.His training and experience in energy based therapies have resulted in him being a member of the Complementary Medical Association(MCMA). 
 
+盖伊·尼德勒，工商管理硕士，理学硕士，特许工程师，工程技术学会会员，替代医疗协会会员。早期受训成为机械工程师，随即晋升为特许电力电子工程师。不过，在尘世的培训当中，他一直意识到世上有更高的实相，并得以瞥见灵性的世界。这使他从青少年时期到二十多岁的岁月里，沉浸在灵性书籍且勤奋地投入到静心冥想中。随后，指导灵以一种特殊的方式与他沟通，需将重心暂时放在对尘世的贡献上。于是他减少了灵性上的探索，直到将近四十岁时，他又再度被唤醒，重归灵性角色。接下来的六年里，他获得了灵气疗法的导师资格，并用四年的时间向芭芭拉·布南能（Barbara Brennan）的直系学生海伦·斯托特（Helen Stott）学习能量与频率治疗技术。在校期间，他也学习了个人发展与实践，包括心理疗法这一预修课程。该课程使用的道途法由苏珊·赛森格（Susan Thesenga）提出，并由多诺万·赛森格（Donovan Thesenga），约翰（John）与伊娃·皮拉克斯（Eva Pierrakos）等人进一步发展。之后，能量治疗方面的培训和经验，使他成为了替代医疗协会（MCMA）会员。
+
 Along with his healing abilities his spiritual associations include being able to channel information from spirit including constant contact with other entities within our multiverse and his higher self and guides.It is the channelling that has resulted in The History of God,Beyond the Source and is producing further work. 
+
+除了能量疗愈方面的能力，他的灵性能力还包括能够传递灵界信息，以及持续与我们多维宇宙中各种实体及存有、他的高我及指导灵保持接触。《源头简史》正是源于他的深度冥想传导，且他正在带来更多的颠覆传统认知的著作。
 
 As a method of grounding Guy practises and teaches Aikido.He is a sth Dan National Coach with 30 years experience and is currently working on the use of spiritual energy within the physical side of the art. 
 
+盖伊还练习并传授合气道，作为一种接地的方法。在此领域他拥有三十年经验，是五段国家级教练，目前正将灵性能量融入这门艺术当中。
+
 Guy welcomes questions on the subject of spiritual physics and who and what God is. 
+
+盖伊热忱欢迎大家提问有关灵性物理学以及源头是谁、源头是什么的问题。
 
 Website: www.guystevenneedler.com 
 

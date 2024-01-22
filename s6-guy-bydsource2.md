@@ -4,7 +4,11 @@
 
 **Beyond the Source Book 2: Communication with the Co-Creators Continues** 
 
+**超越源头2：与共同创造者的交流继续**
+
 Guy Steven Needler
+
+盖伊·斯蒂文·尼德勒
 
 ---
 
@@ -35,21 +39,41 @@ For my dear wife Anne Elizabeth Milner Now "Ascended"
 
 (10th April 1957 - 24th December 2012)
 
+献给我亲爱的妻子安妮·伊丽莎白·米尔纳 现已“提升”
+
+(1957年4月10日-2012年12月24日)
+
 ---
 
 ## Introduction - Continued Communications with the Origin's Twelve Source Entities 
 
+**引言：与起源的12个源实体的持续交流**
+
 In *The History of God-A Channelled Work*, I gave readers insights into how I started my higher level communications and managed to communicate with spiritual/energetic entities whilst gaining insights into the wonders all around us and the truth about our legends and myths.Through channelling,I also started my identification with The Origin and learned that The Origin created twelve Source Entities.The Origin and one of the Source Entities explained what The Origin is and the mechanics of the universe created by one of The Origin's creations,our Source Entity. 
+
+在《源头简史》中，我向读者介绍了我是如何开始我的更高层次的交流，并设法与精神/能量实体进行交流的，同时深入了解我们周围的奇迹以及我们传说和神话的真相。通过通灵，我也开始了与起源的认同，并了解到起源创造了12个源实体。起源和其中一个源实体解释了起源是什么，以及由起源的创造物之一，我们的源实体创造的宇宙机制。
 
 In the next book Beyond the Source,I continued my dialogue with our universe's Source Entity and commenced dialogue with the first six Source Entities-those that were closer energetically,so to speak,to my own energies.In Beyond the Source I gained insights into the wonders and workings of the multiverses created or not,as the case may be,by the first six Source Entities.I learned what entities inhabited their multiverses and how the multiverses and,indeed,the Source Entities themselves,were constructed. 
 
+在下一本书《超越源头》中，我继续与我们宇宙的源实体进行对话，并开始与前6个源实体进行对话，可以说，这些源实体在能量上更接近我自己的能量。在《超越源头》中，我深入了解了奇迹和工作原理，以及前6个源实体创造或不创造的多维宇宙。我了解到了居住在多维宇宙中的实体是什么，以及多维宇宙，以及源实体本身是如何构建的。
+
 If you've read these two books,then you will be delighted to know that this book,Beyond the Source Book 2,concludes those dialogues by focusing on Source Entities Seven through Twelve.In doing so,I was taken to the very edge of my capabilities! 
+
+我认为，在我们周围的宇宙中，我们应该学会如何与源实体进行交流。如果你已经读过这两本书，那么你会很高兴地知道这本书，《超越源头2》，通过关注源实体7到12来结束这些对话。这样做，我被带到了我能力的边缘！
 
 To say that this was a difficult book to channel would be an understatement.There were times when I wondered whether I was capable of dealing with the information I was receiving and whether I would be able to put it into words that would be understandable without losing the essence of that information offered to me.There were other times when the amount of information I was receiving was so diverse that I had to stop and re-calibrate my own abilities to allow the state of "cosmic knowing"to take over so I could step up a level,take in the vista of a new and bigger picture and accept that I was expansive -capable of being stretched beyond what I felt was my elastic limit.Over and over this happened.In hindsight,the headaches,bags under the eyes and stress of needing to deliver the information resulting from this dialogue was more than worth it-even though I questioned my sanity more than a dozen times whilst in the "thick of it."The world needs to know this information.My dear wife,Anne,has been fantastic in this respect,providing words of encouragement whilst editing text and ensuring I took some essential "down time."Additionally,encouragement from Dolores,Julia and the team at Ozark has been both timely and very well received;for this,I am truly grateful. 
 
+要说这是一本很难通灵的书将是一个保守的说法。有几次当我怀疑我是否有能力处理我正在接收的信息，以及我是否能够把它用可以理解的语言表达出来，而不失去提供给我的信息的本质。还有其他一些时候，当我接收到的信息量是如此多样化，我不得不停下来，重新校准我自己的能力，让“宇宙知识”的状态接管，这样我就可以提升一个层次，看到一个新的和更大的画面，并接受我是膨胀的——能够被拉伸超出我感觉到的弹性极限。这种情况一次又一次地发生。事后看来，头痛、眼袋和需要传递这种对话产生的信息的压力是值得的——尽管我在“最激烈的时候”多次质疑我的理智。世界需要知道这个信息。我亲爱的妻子，安妮，在这方面一直很棒，在编辑文本的同时提供鼓励的话语，并确保我采取了一些必要的“停机时间”。此外，来自多洛雷斯，朱莉娅和欧扎克团队的鼓励已经及时和很好地接受了；为此，我真心感谢。
+
 For those readers who have been following this journey of discovery,those dedicated to wanting to "know the truth,"lifting their personal veil between themselves and the greater reality,I thank them from the bottom of my heart,for in doing so they are helping to raise the base frequencies of the Earth and its population. 
 
+对于那些一直跟随这个发现之旅的读者，那些致力于想要“知道真相”，揭开他们自己和更大的现实之间的个人面纱的人，我从心底感谢他们，因为这样做他们正在帮助提高地球及其人类的基本频率。
+
 Thank you and welcome back!
+
+谢谢你，欢迎回来！
+
+（图1：起源与其源实体第一次接触的概念图像）
 
 ![Figure 1: Conceptual Image of the Origin's First Contact with Its Source Entities](img/s6-036.png)
 
@@ -61,41 +85,61 @@ Indeed,during the weeks after finishing "Beyond the Source,"I had been receiving
 
 SE:As I stated when we signed off from our last dialogue,you are about to go further away from me than you have gone before.The difference in the frequencies are vast,but the work I have done in the background with you will enable you to build upon the protection required to support each step further away you make. 
 
+源实体：
+
 ME:What do you mean each step further away? 
 
 SE:Your memory is bad today. 
+
+源实体：
 
 ME:I have been reading up on the details contained in The History of God,not concentrating on the details of Beyond the Source. 
 
 SE:So I see.Listen,from now on,the frequential and dimensional distance that needs to be spanned by your consciousness will be stretched to its elastic limit every time you make contact with each new Source Entity.You will get further and further away from your incarnate self's base frequency.The period spent with each new Source Entity will be used to ease this level of stretch,allowing you the facility of stretching to the next Source by using your new "current"position as a stepping stone.I will,of course,be with you at all times, monitoring your progress and helping you adjust to the stretch as and when required,but there will be some side effects though. 
 
+源实体：
+
 ME:And what will these side effects be? 
 
 SE:You will feel like you are both tired and highly energized all at the same time.You will also feel physical responses to these very different frequencies.This will last for the whole time you are in communication with the next six Source Entities.I think you would use the terms“"spaced out'"and“arthritic." 
+
+源实体：
 
 ME:You mean the next eighteen or so months? 
 
 SE:Yes.
 
+源实体：
+
 ME:Thank you for the warning. 
 
 SE:It's a pleasure.A word of serious advice here:you need to keep yourself as energetically neutral as possible.This will help with the assimilation of the new energies and frequencies. To do this,drink plenty of water,for it is a "physical"universal energy medium that has a common energy signature across frequencies and dimensions.Reduce the amount of alcohol and coffee that you drink to minimal levels normally and zero levels the day before and on the day of channelling.If you do drink alcohol,cleanse the system directly afterwards with equal amounts of water.You will also need to keep your body exercised and well rested. 
 
-Me:I don't think I am looking forward to feeling arthritic! 
+源实体：
+
+ME:I don't think I am looking forward to feeling arthritic! 
 
 SE:Perhaps I used the wrong word.The feeling will be like you have joints that have a warm glow one day and cold glow the next. 
+
+源实体：
 
 ME:Sounds like rheumatism to me. 
 
 SE:But you will not lose the power in your limbs,and it will disappear directly after disconnection with Source Entity Twelve. 
 
+源实体：
+
 ME:No ramp down? 
 
 SE:No ramp down.It will be instantaneous. 
 
+源实体：
+
 ME:I can't wait! 
 
 SE:Then let us commence with the connection to Source Entity Seven.
+
+源实体：
 
 ### Source Entity Seven-A Source Entity of Three Aspects 
 
@@ -105,13 +149,19 @@ As I sat at the keyboard of my computer,I found myself being drawn to an image I
 
 SE7:G'day! 
 
+7号源实体：
+
 ME:What? 
 
 SE7:G'day!...Is this not the correct way to greet you? 
 
+7号源实体：
+
 ME:It's one way to greet someone but not one that I expected from a Source Entity. 
 
 SE7:No problem then if I access you to understand the best way to communicate? 
+
+7号源实体：
 
 This Source Entity was being very direct for what was essentially a first date!And it had an Australian accent as well!Quite bizarre! 
 
@@ -121,17 +171,25 @@ As Source Entity Seven accessed my energies,I felt like my head was fizzing and 
 
 SE7:Ah,that's better.I now know how to communicate in an appropriate manner with you. 
 
+7号源实体：
+
 I felt a tension in my head and an energy surge/shift.My eyes blurred a little.The accent was still there though.I decided that I had better live with it. 
 
 SE7:Sorry,just adjusting to an acceptable frequency for you.You will attune better as we continue with the dialogue. 
+
+7号源实体：
 
 I have to admit I was a little worried about the Australian accent but decided that the best thing to do was to ignore my preconceptions in its use.As I put this potential block in the clarity of our communication path to one side,I received an image and an understanding of its use by Source Entity Seven.Australia was the Earth's largest single country without a land- based border with its neighbors,and,it's the only country that shares the same border with the borders of the continent it's based on.This was the reason Source Entity Seven had chosen to speak to me with an Australian accent.It had recognized this unique condition and had studied the language and culture in order to communicate with me,thinking that most of Earth's incarnate inhabitants existed on this one large area.I also received the impression that it was a reasonable assumption for it to make as this was a common theme with those of its creations who associated themselves with a "planetary"body of sorts.I also noted that it considered Australia as a center of heightened awareness on this planet.With the reason for Source Entity Seven's method of communication now understood,I commenced the dialogue with renewed vigor and no underlying doubt. 
 
 SE7:Now that you understand the reasons for my choice of verbal communication,we can start if you like. 
 
+7号源实体：
+
 ME:Yes,please.I just found it a little strange at first and wanted to make sure I wasn't being delusional and was inventing the dialogue. 
 
 SE7:You are most definitely not inventing this dialogue.But I can tell you one thing:you are stretched very thin,and this lack of substance is the reason for your lower confidence level. 
+
+7号源实体：
 
 ### The Three Versions of Source Entity Seven
 
@@ -139,49 +197,73 @@ ME:I see.Well,I had better overcome that pretty quickly if I am not going to spo
 
 SE7:What you are seeing is actually two of me at a point in frozen separation. 
 
+7号源实体：
+
 ME:You mean there are two of you? 
 
 SE7:No,there are three.When I was planning how I would best contribute to The Origin's desire to evolve through devolution and separation,I decided to cut myself in half and create two independent but co-existent selves.At the point of separation,I saw the beauty in the possibility presented in constraining the separation to a partial condition.This partial condition-you might call it the "Siamese"section-that which was part of both of me that was separating at that point,developed an independent energetic signature of its own,creating a third version of me.This stopped me from continuing the separation as it provided a number of interesting opportunities. 
+
+7号源实体：
 
 ME:Am I reading this correctly then?You are now three independent but co-joined and coexistent entities,each with different thought processes and different activities? 
 
 SE7:Yes. 
 
+7号源实体：
+
 ME:Then why/how am I able to talk to you as a single entity?Am I just talking to one of you? Say,Source Entity Seven "A"(SE7A) 
 
 SE7:No,you are talking to a combined simulacrum of the three versions of me.This I/we have set up to initiate communication with you so that you didn't get confused with each of me talking at the same time,answering your questions simultaneously in three different ways. 
+
+7号源实体：
 
 ME:I thank you for your concern.Are you able to go back to your original singular condition, to that which you were before the point of separation? 
 
 SE7:No,the change was a permanent change.That is,unless all three of me decide,in fully committed unison,to enlist the help of The Origin to return us to singularity.This permanent change was my singular decision before separation. 
 
+7号源实体：
+
 ME:So you have no over-mind to control you all? 
 
 SE7:No 
+
+7号源实体：
 
 ME:You have no clock ticking in the background,which will re-set you back to singularity after a certain period of time? SE7:No ME:You have no re-set button to press if it all goes horribly wrong,or you want a change of strategy? 
 
 SE7:No
 
+7号源实体：
+
 ME:Fascinating.When I have talked to the other Source Entities,those that had created areas of separation always had a bail-out facility somewhere. 
 
 SE7:Not me/us.The change was personally permanent. 
+
+7号源实体：
 
 ME:But you do have the ability to use The Origin to return you back to the singular should you all so wish. 
 
 SE7:Yes. 
 
+7号源实体：
+
 ME:So that is your collective bail-out. 
 
 SE7:Yes,I suppose it is.I/we hadn't thought of it in that way.We simply think of it as an opportunity for future experience,should we all collectively seek such a change.Such a change would only be sought by The Origin if all three of me desire it together.It cannot take place if only one or two parts of me want it,but one part does not. 
+
+7号源实体：
 
 ME:Can you merge two parts of you together. 
 
 SE7:No,for this would upset the equal balance we currently have. 
 
+7号源实体：
+
 ME:Can I talk to you (SE7A,SE7B SE7C)separately as we progress this dialogue later. 
 
 SE7:If you wish. 
+
+7号源实体：
 
 This was a bit strange and was wonderful all at the same time.Here I was,communicating with what was Source Entity Seven-now in three separate but co-joined and coexistent parts but as a singular entity,this entity or shell being created specifically for communication with me.Ifelt VERY honored.
 
@@ -189,25 +271,37 @@ ME:Can I ask for clarification on why you felt it necessary to communicate with 
 
 SE7:Certainly,but first though,I see I need to give you a short lesson on singularity vs. collectivity vs.singularity through collectivity,for they are three different things,as is why I am able to communicate to you as a singular entity even though I am now three.We have,of course,created many others to assist in our evolution,as your Source Entity has.That is why you exist,but I will continue with defining singularity,collectivity,and singularity through collectivity. 
 
+7号源实体：
+
 ### Singularity 
 
 SE7:Singularity is when you have a unique and individualized entity that is independent of any other entity or group of similar entities.Although created and still part of its creator,it is given individuality as a sub-section of the entity which created it.A singular entity does not need to nor is [it]required to follow rules or conventions or styles of or for existence that may be created by those entities that may be similar to or exist in the same dimensional or frequential environment as the singular entity in question.This includes its creator. Although a singular entity may choose to adopt conformance to rules and conventions of those around it,it is ultimately not bound by them.A singular entity is responsible for its own actions,reactions,creativity,creations and subsequent evolution. 
+
+7号源实体：
 
 ### Collectivity 
 
 SE7:A collectivity is a group or groups of entities who,although have singularity,are bound together by the functionality of their collective existence.Singularly they are unable to function with the innate purpose that a truly singular entity is able to achieve.They achieve significantly more together "collectively"than they would do in one's or two's or even higher numbers.Their purpose is,therefore,achieved together as a collective,and as such,they work as singular,individualized units-each with a role to do that [which]is significant,not to themselves,but as a smaller part of the much,much bigger collective picture.They can be considered as single components on a computer's printed circuit board or the individual cells or atoms in a much larger biological entity.As a collective,all participating entities evolve together at the same time as the whole.No one entity's contribution is such that it can evolve at a faster pace than any other entity within the collective,nor would it desire to do so.An entity that is part of a collective considers only that which is good for or contributes towards the progressive evolution of the whole as a whole. 
 
+7号源实体：
+
 ### Singularity Through Collectivity 
 
 SE7:This occurs or is created when a group of entities are interconnected in a conscious and communicative capacity.They may even be interdependent in other more fundamental ways,ways that result in group connectivity,group thinking and group action.This then, results in a collective mind-each singular mind/entity a function of the whole.When a singularity through collectivity is created,it is due to the desire of a group of conscious entities,who are co-joined and/or coexistent to present themselves in the singular in totality.In doing this they create an "over-mind"allowing a single output/input to those external to their collective state,as a result of their collective reasoning.This provides the ability to communicate collectively or singularly. 
+
+7号源实体：
 
 ME:So the singularity through collectivity version is how you are currently communicating with me. 
 
 SE7:Correct.It was the best way to initiate the communication process,and it is the one we shall use unless you request otherwise.We note that you may wish to engage with us separately at some point in our dialogue. 
 
+7号源实体：
+
 ME:I would.Yes,please. 
 
 SE7:Then we will do so as and when the time is right to do so. 
+
+7号源实体：
 
 ### The Beginning,the Middle and the End 
 
@@ -215,15 +309,23 @@ ME:Can you tell me why you intended to split yourself into two individual entiti
 
 SE7:I will have to start at the beginning of my first communication with The Origin to explain that.As with the other Source Entities,at the point of my becoming self-aware,I was contacted by The Origin to apprise me of the reason for my existence and what I needed to do to assist in the evolution of The Origin.Although I was not advised on what those Source Entities who were already self-aware and "contacted"had chosen to do in their contribution, I was previously and at that point,currently,in a position to know or witness what was being planned or"actioned"by them.The Origin deliberately negated to advise me on what they were doing lest it influence my own unique and individual choice,which The Origin valued above all else. ME:Why did The Origin value your individual choice?
 
+7号源实体：
+
 SE7:To maximize the diversity of evolutionary opportunities,which may not occur if I was influenced by direct and in-depth detail.There would be no use in me covering "existing"or“old”ground. 
+
+7号源实体：
 
 ME:Yes,I can imagine that would be a prerequisite dictate by The Origin,who would want to accelerate it evolution at the fastest and most efficient way possible. 
 
 SE7:That's right,it does,and that was the reason for my choosing to become two,which ended up being three.Apart from the Source Entity you call "Five"and the one that is not yet fully aware,I had noticed that the others divided themselves up internally whilst still maintaining an overall aspect that made them retain their wholeness.As a result of this observation,I decided to become two independent Source Entities with a link between the two.I discussed this and the "bail out"option as you described earlier with The Origin (for it is only The Origin that can return us to wholeness)who agreed with my strategy,and I continued.What happened next is as I have previously described.As I was in the process of separating out into the two versions of me,I noticed that a unique opportunity could be applied.If I maintained the equal overlapping area of the two versions of me and then froze the separation process in one position,this created a third middle option where we would all be separate but co-joined and co-existent.As I froze the separation at the point of equality,my consciousness divided into three and developed into three separate Source Entity personalities.But there was something else that I noticed as well.The periphery of the energies that separated us from each other was permeable,allowing energies that moved from,say,the left to the right or from Source Entity Seven"A"to move into Source Entity Seven "B"to actually cross the periphery or boundary energies.What's more,I noticed that there was a progressive opportunity in passing from one side of Source Entity Seven "A" to the point of interface between Source Entity Seven "A"(SE7A)and Source Entity Seven "B"(SE7B).This was duplicated in a progressive manner from Source Entity Seven "B"to the point of interface between Source Entity Seven "B"and Source Entity Seven "C"(SE7C). 
 
+7号源实体：
+
 ME:Was this dimensional,frequency,or evolutionary based? 
 
 SE7:All three.As with your Source Entity,I have twelve dimensions with each dimension inflated with twelve frequencies.Each of the twelve dimensions is a composite of the three base dimensions,thus allowing expansive form.However,these were duplicated in a whole sense when a certain evolutionary condition was met or could be achieved;this was multiplied by a factor of twelve.So I had in each Source Entity twelve evolutionary levels that were filled with twelve dimensions constructed with three composite dimensions per dimension which were inflated with twelve base frequency levels.That was not all though. The evolutionary opportunities increased as I scanned the progression from Source Entity Seven "A"through to Source Entity Seven "C."The high end of Source Entity Seven "C's" evolutionary levels were as high as an entity,which I/we had not yet created,could go to from an evolutionary perspective.This effectively gave me an evolutionary beginning,an evolutionary middle,and an evolutionary end. 
+
+7号源实体：
 
 ### Progression Between Source Entity Seven's Separate Parts 
 
@@ -231,13 +333,19 @@ ME:So what are you saying is that an entity can travel,no,progress in an evoluti
 
 SE7:Yes,in a manner of speaking.
 
+7号源实体：
+
 ME:But that would mean that if all evolving entities had a progression path from SE7A through SE7C,then wouldn't SE7B and SE7C initially be devoid of evolving entities until such a time when enough entities were evolved enough to progress from say SE7A to SE7B and SE7B to SE7C? 
 
 SE7:If that was the way I/We had planned the progression of the entities we created,I would agree,but this is not the case. 
 
+7号源实体：
+
 ME:I had a suspicion that it wouldn't be as simple as that. 
 
 SE7:It's not,so I will explain.Each Source Entity Seven has an equal number of entities associated with it.They are small entities and number in their billions of quadrupillions. Each Source Entity has its own strategy for evolution and the way/s it constructs its environment for evolution.However,although each Source Entity Seven had this opportunity,the environments are similar in dimensional and frequential construction insomuch that they offer progression that is frequency-based whilst allowing dimensional passage at the will of the individual entity.The environments also have areas of energetic concentration that you would call"density"where they can work with the lower frequencies should they desire to do so.I will leave the explanation of each of the environments to those individual parts of me(SE7A,SE7B SE7C)to explain to you separately,but suffice to say they also have the opportunity to exist in different dimensions concurrently or linearly. 
+
+7号源实体：
 
 When an entity that is based in SE7A has evolved enough,it has the opportunity to progress from,for instance,SE7A to SE7B and later to SE7C.The evolutionary opportunity for that entity is increased as it moves from one Source Entity Seven to another.If an entity that is based in SE7C desires,it may progress from SE7C to SE7B and later to SE7A.Again the evolutionary opportunity is progressive as it moves from one Source Entity Seven to next. 
 
@@ -245,15 +353,21 @@ ME:So what about the progression for those entities that are based within SE7B?W
 
 SE7:Entities that are based within SE7B can progress to either SE7C or SE7A first and then move on to that Source Entity Seven that they have not yet experienced.Simply put,they can progress from SE7B to SE7A to SE7C,or,SE7B to SE7C to SE7A. 
 
+7号源实体：
+
 ME:How do they do that?Do they have to traverse though that Source Entity Seven that they had previously experienced?Does that also still include evolutionary opportunities? 
 
 SE7:They can choose many ways to move from Source Entity Seven to Source Entity Seven, and this is not constrained to those entities who primarily originate in SE7B.Any of the entities in any of the Source Entity Sevens can chose to move to the Source Entity that is either on their closest Source Entity Seven to Source Entity Seven boundary or on the next Source Entity Seven to Source Entity Seven boundary,which is another Source Entity away. 
+
+7号源实体：
 
 An entity may choose to progress though the frequencies offered in a Specific Source Entity Seven's environment in order to transition to the border of the next Source Entity Seven or by-pass it.It may even choose to do this(transition)more than once with the second time potentially being the transitory transition to the Source Entity Seven not yet experienced where the entity may or may not choose to perfect the experiential content of certain experiences during this transitory period by doing one of these:(1)repeating the exercise; (2)just passing through the environment;or (3)conducting the whole evolutionary process again for purposes of perfection.An entity can choose to repeat the whole or part of the process as many times as it wishes.There are no rules in this function of existence nor are there restrictions. 
 
 ME:You mentioned that an entity can by-pass the need to transition through one Source Entity Seven to another.Does this mean that they can pass round the outside of the Source Entity that they would have normally transitioned through? z
 
 SE7:Yes,to a certain extent.You see,the interfacing boundary separating the environments whilst integrating the cohesion of the co-existence of the three Source Entity Sevens are twofold: 
+
+7号源实体：
 
 - 1.One contains the separate structure of the Source Entity specific environment and is dimensionally and frequentially independent of the environment; 
 - 2.The other contains the neutralized energies required to maintain the cohesion and co-existent existence of the three Source Entity Sevens in their integrated state.Because this boundary contains functions that are fully independent of the environments they contain,it creates an environment in its own right,albeit small. 
@@ -262,37 +376,55 @@ ME:I have just gotten the impression that it is like the air in between a double
 
 SE7:In part,yes.This is one of two ways.However,it is possibly the safest and fastest way to traverse between the three Source Entity Sevens.An entity can quite literally use this "air gap"to move to the nearest Source Entity Seven boundary interface and make the transition at this point of contact.It is a bit like the "null space"that you have in your Source Entity's environment to separate the universes from each other. 
 
+7号源实体：
+
 ME:What is the other way and why is the method above the safest? 
 
 SE7:The method I described in summary above is an environment in its own right and, therefore,offers a level of protection or energetic containment that is similar to that offered by a true Source Entity Seven environment but without the rules of evolution assigned to these environments.The second means an entity can use to transfer itself to the next Source Entity is to make the journey outside the boundary by using the inter-Source Entity void or space,i.e.,by using the space that is,in essence,pure Origin energy. 
+
+7号源实体：
 
 ME:You mean they move from and to Source Entity environments by leaving the environment totally and entering into the absolute that is The Origin? 
 
 SE7:Yes. 
 
+7号源实体：
+
 ME:Why is that dangerous? 
 
 SE7:I didn't say it was dangerous.I said the first way was the safest and fastest. 
+
+7号源实体：
 
 ME:OK,so why would the first way be the fastest and safest way? 
 
 SE7:It's fast because its function is limited to what it is with no other complications or opportunities to be affected by the actions of those entities passing through it.It is safer because an entity can become overwhelmed to the point of distraction by being directly associated with the pure energies of The Origin if it is not prepared for them. 
 
+7号源实体：
+
 ME:What do you mean distracted?
 
 SE7:Besotted to the point of being stuck in the bliss-like state of euphoria that is instantaneously experienced and results in a desire to stay in this state and not continue with the task at hand-that of moving to the next Source Entity Seven environment. 
+
+7号源实体：
 
 ME:How can that be?I am not besotted to the point of non-function when I go outside my Source Entity or,in fact,traverse the distances to you. 
 
 SE7:That is because you are being given a level of protection by your own Source Entity during your communications with the twelve Source Entities,and you are beloved of the Om. 
 
+7号源实体：
+
 I had heard this description of being "beloved of the Om"in the context of Hum and me before whilst compiling the text for The History of God book. 
 
 SE7:Being beloved of the Om means that you are part of the absolute fabric of the Source Entity,that which is the fabric of The Origin;hence,you have a certain level of built-in tolerance to these effects and accessibility to its energies,for they are part of you in a more holistic sense. 
 
+7号源实体：
+
 ME:Why would the OM be beloved then?My assumption is that all the entities created by my Source Entity were created out of its own energy,so wouldn't all of these entities be beloved? 
 
 SE7:No.In the instance of creating the entities used for its strategy for evolution,your Source Entity created a level of error during the process.This you know.What you have not been told is that those entities that were created first and were closest to your Source Entity,received a purity of energy that was not perpetuated during the remaining process of creativity.At the end of the process when your Source Entity claimed it was not paying the same level of attention as it had in the primary phase of creativity,it created the level of entity that you recognize as animals,plants,and even the,suns,and galaxies.The Om were simply the first to be created and,therefore,ended up being very close to pure Source Entity energy and,therefore,The Origin energy,as an entity could possibly be.Hence your ability to do what you are doing now.There are many other Om working with the Earth sphere, incarnate and not incarnate.Working in incarnately is a great sacrifice for an Om because of the risk of attracting lower frequencies without protection. 
+
+7号源实体：
 
 ME:I get the feeling that I can achieve a much higher level of connectivity with The Origin's creations whilst in the physical but that it needs working on. SE7:You can,you will,and you will need to work at it. I needed to move on so I changed the track of dialogue back to the space in-between the three parts of Source Entity Seven. 
 
@@ -302,31 +434,45 @@ ME:Let's get back to the space within the boundaries between the three parts of 
 
 SE7:It provides no other function that can be used by an entity,for its function is to be a boundary.It does have the properties of neutrality though.This is required to allow the interface between the different parts of me to exist simultaneously without interference. 
 
+7号源实体：
+
 ### Source Entity Seven's Entities and Flat Planets 
 
 ME:We previously talked about the entities that you created to populate the three environments of yourself.Can you describe them and their roles? 
 
 SE7:As you have been told previously,initially they were distributed equally across the three parts of me that were created.Their transition is a function of evolutionary progress that ultimately results in the number of entities resident in each part of me becoming un-equal.This level of "un-equality of residence"changes as the entities progress at differing speeds of evolution. 
 
+7号源实体：
+
 ME:What is their appearance? 
 
 SE7:Although they are energetic in nature in comparison to your own current physical condition,they have a habit of liking to cluster around areas of local density-what you might call "planets."
+
+7号源实体：
 
 ME:Are these planets spherical as most of the planets are in my physical universe? 
 
 SE7:No,they are flat. 
 
+7号源实体：
+
 ME:Flat? 
 
 SE7:Yes,flat.This is because of the way the energy collects as dense matter.When the matter,energy matter,collects together and becomes dense enough to be used by the entities,it results in it being flat. 
+
+7号源实体：
 
 ME:Why is that? 
 
 SE7:Because when this energy becomes dense,it only becomes dense in what you would call "two dimensions..”
 
+7号源实体：
+
 ME:A flat planet.This is interesting.I thought that planets or areas of local density would be spherical.In fact,my Source Entity advised me that the sphere was the most common and natural shape for a planet to adopt. 
 
 SE7:In a fully physical universe dependent upon the first three dimensional components (tritaves)of the first full dimension,such as the one you exist within,this might be a common occurrence.The flat areas of local density act like islands in the fabric of the energetic environment of the particular Source Entity Seven they are associated with. 
+
+7号源实体：
 
 This would explain the affinity with those living on the Australian continent,I thought,for they see Australia as a large island,and the areas of local density are also considered to be islands rather than planets.
 
@@ -334,61 +480,91 @@ ME:Are they disk-like in shape?
 
 SE7:No,for that would be an association with the dimensional requirements of a low dimensional tritave. 
 
+7号源实体：
+
 ME:So what is the shape of the areas of local density?(I was already receiving an image of a fragmented edge,rather like a coast line on earth.) 
 
 SE7:Fractal,for this is the usual shape adopted by a two-dimensional structure in a lower level dimension. 
+
+7号源实体：
 
 ME:How are your dimensions organized? 
 
 SE7:In a consistent way to The Origin.In fact,they are unchanged.I felt no need to change to a structure of my own design,especially when the separation of self into three separate but co-existent and interdependent Source Entities was decided upon.As a result of this,you will already have a good level of understanding of my/our environmental structure through your communications with The Origin. 
 
+7号源实体：
+
 ME:So you have 12 zones with 12 dimensions,each with 3 tritaves or dimensional components with 12 frequencies,12 x 3 x 12 x 12 permutations of environmental conditions. 
 
 SE7:Yes. 
+
+7号源实体：
 
 ME:With each of them offering a separate and complete environment to exist within, should an entity choose to do so. 
 
 SE7:Yes,and they are also arranged in a way that supports evolutionary progression through the three parts of me. 
 
+7号源实体：
+
 ME:Would I be able to classify each permutation as a universe in its own right? 
 
 SE7:Yes,because a universe is an environment of known energy,frequency and dimension. Please note that matter is not a feature in all universes,for this is a function of lower dimension and frequency,linked together with intentional manifestation of the creator. 
+
+7号源实体：
 
 ME:You mean that a matter based universe has to be created intentionally?It does not exist as a function of its low frequency and dimension? 
 
 SE7:No.Matter-based universes,no matter how dense-and that can range from the super dense to the super sparse (thin,clear,fine)-do not and cannot exist without first being created.This is because the creative intention transmitted by the creating entity is the force by which energy of low frequency,existing in a low dimension,is manifest with or without "form."Only when it is manifest can it become matter "without form,"which can then be translated to matter "with form."When it becomes matter "without form,"it needs to be continually maintained to perpetuate its existence,lest it revert back to pure energy. When it becomes manifest as matter "with form,"it needs to have individual localized maintenance on a continuous and continual basis.Hence,there is a hierarchy of entities within matter-based universes,dedicated to tending to the needs of the galaxies,systems and planets that are entities in their own right. 
 
+7号源实体：
+
 ME:Can I assume then,that evolution results in a progression from the lower frequencies/ dimensions to the higher frequencies/dimensions as in my own multiverse?
 
 SE7:You can,for this is a standard function of all of the frequencies and dimensions and energies associated with The Origin and its creations.This function,therefore,is passed down as an environmental prerequisite from the Source Entities to their/our creations- whether they be the environments themselves,the entities created to exist within them,or entities assigned with the creative capability to create universes within universes. 
+
+7号源实体：
 
 ME:So there is order to The Origin? 
 
 SE7:Very much so,and it is maintained throughout. 
 
+7号源实体：
+
 ME:OK,we have digressed a little here.What more can you tell me of the disk-like world/ planets? 
 
 SE7:They are a matter type that has "form"but not what you would classify as matter "with form."This is simply because it does not have the level of density that you currently experience,and they are manifested in a different frequency and dimensional environment (universe).As a result,they are not consistent in their form factor,for they are constantly changing. 
+
+7号源实体：
 
 ME:What makes them change?Energetic influences or the entities assigned to their maintenance? 
 
 SE7:Both actually.You see,the way in which the entities work with each other and the planet results in a change in frequency of the energy of the matter.This results in a change in the cohesion properties of the planets "form"that results in essential maintenance to reduce the loss of form due to loss of cohesion.The entities maintaining the planet then have to change the functionality of the cohesive content of the energy of the matter to enable its form to be perpetuated.However,the work required to do this is not always achieved in a timely manner because of the amount of work they have to do to stabilize the changes that are happening.This results in minor changes in the planets'overall form factor but major changes to areas of what you would call the topography.Areas of high ground change to areas of low ground;denser areas become finer or totally disappear. 
 
+7号源实体：
+
 ME:Would that explain the earthquakes and volcanoes we get on earth? 
 
 SE7:Yes,for there is no other influence on your earth,which it is exposed to that affects it in a frequential and energetic way,as a direct result of the actions of the entities that exist or work "with-on"and "with-in"it.Your weather patterns are also affected by your frequencies.In fact,changes to the weather patterns are the first level of change that happens as a result in a change in frequency.They are your early warning system of an impending change to the planetary form,directly resulting from a change in frequency. 
+
+7号源实体：
 
 ME:Excuse me.Does this mean that the weird and extreme weather we are experiencing at the moment (April/May 2011)is a direct result of the changes in our frequency and not due to pollution-based global warming? 
 
 SE7:The pollution of and damage to your planet,resulting from your appetite for carbon- based energy does have an influence on your environment.However,the major changes you are experiencing are due to shifts in the earth's frequency,which is up and down like a...yo yo?
 
+7号源实体：
+
 ME:Yo yo would be a good description.I guess this is a result of the critical mass required to assist in the ascension of our planet and its inhabitants actually increasing,but this good work is then being counteracted by local fighting between governments and people in other parts of the world. 
 
 SE7:It would be. 
 
+7号源实体：
+
 ME:Mmmm.We have such a hard time when things like earthquakes happen on the earth, and we suffer a terrible loss of life.Many vehicles for incarnate existence are destroyed in the process.How do entities that are working on or in the disk planets cope?How are they affected?Do they lose their creations or vehicle for existence in lower frequencies? 
 
 SE7:They are not in the need for a vehicle to allow them to exist or experience existence in the lower frequencies that pervade the planet.They also know what they are doing energetically and frequentially and,therefore,how their actions will affect the overall frequency of the matter that the planet is manifest from.Therefore,they have no disasters to run or recover from.They only have modification,relocation and recalibration of their work and how they interface with the planet. 
+
+7号源实体：
 
 ### Communication with the Separate Parts of Source Entity Seven 
 
@@ -400,13 +576,19 @@ I am writing this text whilst I am sitting in a comfortable folding chair on the
 
 Aliens:We could use this [Source Entity]energy;it has a purity not experienced by us before. It would make our travel much quicker,and we would not need to modify the energies as we currently have to do when we need to jump frequencies. 
 
+外星人：
+
 The next day I noticed four of them following me whilst I was cycling up a rather long hill in the Cretan countryside.Initially,they followed me with one on each side and one front and back. They then moved around me to have all four in front of me and later darted in and out to be closer with me.They were interested in my mode of transport initially but had come to answer a question about their form that hadjust surfaced in my immediate memory. 
 
 Aliens:We are not of your dimensional realm and,therefore,cannot be considered as nature spirits assigned to maintain the earth.However,we do recognize that many humans sensitive to our frequencies,as you are,may well have seen us in the past and considered us as nature spirits because our form suits that expected of such entities in the imaginations of these individuals.You would call our form "Fairy"? 
 
+外星人：
+
 ME:That would be a good word to describe the form that you presented to me,yes.Your form is beautiful to behold,so I guess that humankind would prefer to relate you to something that works with nature,Earth's nature,rather than your being of extra-terrestrial (extra- dimensional?)origins. 
 
 Aliens:Yes,this is true.We must go now,for we have duties to attend to. 
+
+外星人：
 
 The comment by the Aliens about the energies associated with my communications with Source Entity Seven was such an interesting comment that I decided to put it to Source Entity Seven as a whole before I continued my communication with its individual parts. 
 
@@ -414,13 +596,19 @@ ME:I have just had a conversation with some entities that are on my planet/area 
 
 SE7:Yes,while we have our communication link I am with you all of the time.I assign a part of myself to recognize when you want to continue communications so that I can continue where we left off.This part of me follows your every move to ensure I can respond to your request for communication in the instant you request it.I agree it is a most interesting comment from your "Aliens,but I can see why they are interested in the energy being used. 
 
+7号源实体：
+
 ME:So why are they? 
 
 SE7:They see that the energy used to create the conduit you have to communicate with me is a mixture of my base energy and your own base energy.We created this together with a little help from your own Source Entity.Because it traverses the frequencies and dimensional states from one Source Entity to another Source Entity via the intermediate energies of The Origin,it spans three environments.This is rare as energies and their frequencies go because they tend to be a product of their universal environment and do not span dimensions or base frequencies.Based upon this,your Aliens see the opportunity to use this as a carrier wave or a fast track/road that can be used to bridge the dimensions without the need to manufacture a process or energetic vehicle that negates the need for evolutionary conditions being met by an entity before travel between the dimensions can be achieved without such constructs.They would only be able to travel between your Source Entity and me in its unrefined state,so they would still need to "work"the energy to use it for the translations they are interested in. 
 
+7号源实体：
+
 ME:Thank you for that answer.I would now like to communicate with that part of you that became what I call Source Entity Seven "A."
 
 SE7:No problem.Please note that the link and the feel of the communication will be the same as it is now.You should experience no difference in energetic signature either. 
+
+7号源实体：
 
 ME:Thank you. 
 
@@ -430,57 +618,85 @@ I had now signed off from the collective that was Source Entity Seven and waited
 
 SE7A:I trust you are at ease? 
 
+7号源实体A：
+
 ME:I certainly am. 
 
 SE7A:Then let us commence communication. 
+
+7号源实体A：
 
 ME:I have received two different images whilst connected to your collective of three versions.The first was of an entity that was moving over the surface of one of the flat planets/areas of local density.Its appearance was,well,I can only describe it as a very flat ameoba.In fact,the more I study the image in my mind's eye,the more it looks like a sentient version of the planet it is traversing.Its shape looks almost identical-right down to the topography of its surface.Why is that? 
 
 SE7A:The entities that work with the "planets"assume their (the planets')basic energy signature when they first become associated with the planet for the work they will be doing with it.The entity itself can assume any form factor required to suit this relationship,for when an entity desires to work with a particular planet,it enters into a relationship with the planet for the duration of the work to be done.In this particular instance,the entity in the image you saw was almost the same size as the planet. 
 
+7号源实体A：
+
 ME:How does that work?Surely an entity that is almost the size of the planet it is associated with would crush or destroy any other entities or life that are part of that planet's normal condition. 
 
 SE7A:Not in this case,for the planets in this particular environment can only have a population of one. 
+
+7号源实体A：
 
 ME:One? 
 
 SE7A:One. 
 
+7号源实体A：
+
 ME:Forgive my confusion.I am making the assumption that all planets have a large number of smaller entities living on,within or with them. 
 
 SE7A:Not all planets in your own universe have entities associated with them,so why would one of my environments be any different? 
+
+7号源实体A：
 
 ME:Very true.So what is the work that this particular entity is doing with this planet? 
 
 SE7A:It is experiencing existence as a planet.That is why it is almost as big as the planet it is associated with.Later,when it has assumed the exact same size and shape and has totally covered the full surface of the planet,it will stabilize its energy signature in totality to that of the planet and will exist and behave like the planet itself.In fact,for all intents and purposes, it will be the planet,right down to accepting another entity to work with it.
 
+7号源实体A：
+
 ME:And that entity would work with the other entity exactly as if it were a solitary planet with no inhabitants or energetic partners? 
 
 SE7A:That's right,the objective being that the new entity seeking a relationship with the planet does not nor will ever know that it is working with another entity and not the real planet. 
+
+7号源实体A：
 
 ME:But could that not be the same for the entity I saw in my perception?Could another entity have already beaten the one I observed to it,so to speak,and achieved the same relationship? 
 
 SE7A:Absolutely.This is the beauty of this type of work. 
 
+7号源实体A：
+
 ME:But I have just seen a scenario where it would be possible to have many multiples of entities all doing the same thing,all-encompassing the planet with which they want to establish a relationship with a none of them knowing that they are really covering or creating a relationship with another entity and not a real planet. 
 
 SE7A:Yes,it can and does happen. 
+
+7号源实体A：
 
 ME:It does?So what is the maximum number of times this has happened with a single planet concurrently? 
 
 SE7A:Four thousand three hundred and twenty two times. 
 
+7号源实体A：
+
 ME:What!?How long did that last? 
 
 SE7A:Approximately two hundred billion,trillion of your solar years before the first (last to create a relationship)entity broke its relationship with the planet/entity it was associated with. 
+
+7号源实体A：
 
 ME:Did this create a cascade of entities breaking their relationships with their "planets"? 
 
 SE7A:No.The eventual reduction of entities breaking relationships took treble the amount of time it did to create it. 
 
+7号源实体A：
+
 ME:Why was that? 
 
 SE7A:Because other entities joined the build-up after others had broken their relationships, and some of them wanted to experience existence as a planet throughout a number of environmental/planetary changes. 
+
+7号源实体A：
 
 ME:What would those changes be,with reference to a relationship with a single entity?I would have expected changes to only be possible with the association of large numbers of entities working with the planet. 
 
@@ -494,51 +710,75 @@ SE7A:One would be evolution as a result of interaction with a single entity.Don'
 - Localized fragmentation of the overall form of the planet,resulting in its fragmentation; 
 - Migration to higher frequencies and dimensions or even to one of the other Source Entity's environments. 
 
+7号源实体A：
+
 ME:So based upon this,the number of entities that associate with a planet is not relative to the evolutionary progression of the planet and what it can achieve during a relationship and the entity/ies it has a relationship with? 
 
 SE7A:No,it's the quality of the relationship that counts. 
+
+7号源实体A：
 
 ME:Thank you.I also received another image/set of images.The sky was full of entities that had the appearance of dandelion seeds being blown with the wind.However,these had purpose,for they were in a strict formation. 
 
 SE7A:Those entities are a collective of gravity pilots.They move around the planets that they are working with looking for gravitational anomalies-areas where the gravity is not as it should be for a specific part of the planet in comparison with its density within its environment. 
 
+7号源实体A：
+
 ME:So do these entities change the gravity in the area where there are anomalies?Do they repair the gravity in the area of the anomaly,creating a stable area? 
 
 SE7A:No,not in the slightest.The reason for them seeking out the gravitational anomalies is to gain energy.They need the energy in the anomalies to allow them to exist,procreate,and maintain their distance from the surface of the planet. 
+
+7号源实体A：
 
 ME:But how can that be working with the planet? 
 
 SE7A:It isn't,it is just perpetuation of their existence. 
 
+7号源实体A：
+
 ME:Mmmm.So what are they doing?How are they working with the planet? 
 
 SE7A:They provide a transport medium for those entities that want to move from planet to planet but are incapable of doing it themselves. 
+
+7号源实体A：
 
 ME:Wait a minute.I thought all of your entities were energetic,and as a result,they would be able to move from planet to planet energetically. 
 
 SE7A:Not all entities in my environment are capable of moving from one planet to another of their own volition. 
 
+7号源实体A：
+
 ME:Why not? 
 
 SE7A:Because they are associated with the planet where they exist.They are tied to that planet's energy signature.Remember what SE7(SE7A,SE7B and SE7C collectively)told you about the planets being like islands and that the entities that exist on them relate to your continent/country of Australia? 
+
+7号源实体A：
 
 ME:Yes.
 
 SE7A:Well,one of the parallels is that most Australians,I see from your memories,stay in Australia.This is the same for most of the entities whose existence is linked with their planet-they stay with it.The parallel is similar.Australians can generally only move to other islands or continents by boat or by airplane.They can't transport themselves by using their own volition or intention.They can only move by using a vehicle of some kind,and in the instance of the entities working with the flat planets,the vehicle is the gravity pilots rather than a boat or an airplane. 
 
+7号源实体A：
+
 ME:How do the gravity pilots transport the flat planet inhabitants?By lifting them up?Or do they have another method? 
 
 SE7A:They use the gravity waves that they create to change their position in relation to the planet to locally warp the space around the entity that desires to move its location to both re-assign its energetic signature to that of the new location,the planet the entity desires to move to,and to instantaneously transport it.In doing this,the gravity pilot also transports itself to the new location. 
 
+7号源实体A：
+
 ME:And it doesn't return to its planet of origin? 
 
 SE7A:No,it remains with the planet it has moved to.Moreover,it is linked to the entity it transported and will transport that entity to the next planet it desires to experience. 
+
+7号源实体A：
 
 ME:I am getting the impression that these gravity pilots exist throughout your environment,move from planet to planet at will,and continue to do so until that point in time when they are associated with one of the entities based on the surface.Once they are associated,they stay together for as long as they feel the need to maintain the association.
 
 I have just received another image of a whole and vast number of these "gravity pilots"moving from planet to planet. 
 
 SE7A:Yes,they move around in what you would call a herd...no,flight...yes,flight... that is a better name.These flights are populated by gravity pilots that are not associated with a land-based entity.As they gain individual associations,they break away from the flight and assume a partnership role with the land-based entity,and as stated above,this continues until the land-based entity feels a need to remain for an indefinite period on the planet it currently sees itself.If it desires to stay for eternity,so to speak,it relinquishes its association with the gravity pilot to allow it to gain a new partner so that it can continue its own evolution.I know that I have not spoken about the experience,learning,and evolution of these entities,so I will elaborate on this now. 
+
+7号源实体A：
 
 There is a symbiotic relationship between an individual land-based entity and its gravity pilot.The gravity pilot itself is not able to generate its own experiences and so needs another entity to do this for it.So the gravity pilot offers its service of transportation to the land-based entity in exchange for access to the experiences,learning,and subsequent evolutionary content generated by the land-based entity itself.In essence,they share the experience,learning and subsequent evolutionary content that is generated as a result of their working together. 
 
@@ -548,29 +788,43 @@ ME:That really is working together.Why are the land-based entities not able to m
 
 SE7A:Because the whole point of this environment is based around the need to work together and share the rewards.In this particular example,two entirely different beings are able to work together for the benefit of each other. 
 
+7号源实体A：
+
 ME:Sounds very harmonious to me. 
 
 SE7A:It is,and it works very well,too. 
+
+7号源实体A：
 
 ME:I have just remembered a question I meant to ask on the energetic content of the land- based entities and what work the gravity pilots do with the planets. 
 
 SE7A:The land-based entities are constructed out of the energies that are used to create the planet it resides on;they are tied to the planet as a result.In essence,they are individualized units of the planet itself and as such the attraction to the planet of their first creation is so strong that there is no way they can separate themselves from the planet without the co- operative help of another entity,one that is not tied down to the energy signature of the planet. 
 
+7号源实体A：
+
 ME:Are you suggesting that the land-based entities are actually the planet itself,localized, individualized units/parts of the planet? 
 
 SE7A:Yes,that is exactly what I am saying.They are fragments of the planet itself that are able to move around the surface of the planet and,if so desired,migrate to the other planets that are part of my environment. 
+
+7号源实体A：
 
 ME:I have just had a thought. 
 
 SE7A:No,you mean the real you,the higher self you,the energetic self you,has had a thought and passed it down the frequencies to that part of you that is participating in this dialogue. 
 
+7号源实体A：
+
 ME:Ok.Ok.Yes,that would be a correct description of the process of me thinking. 
 
 SE7A:You're drinking alcohol. 
 
+7号源实体A：
+
 ME:What?Err... 
 
 SE7A:You are drinking alcohol.
+
+7号源实体A：
 
 I had succumbed to the materialistic desire of half a pint of beer.Ifelt I needed one after the work I had done over the day. 
 
@@ -578,21 +832,31 @@ ME:Yes,err,yes,I have,am,was.It's only a half pint.It's not a lot,honestly.
 
 SE7A:Any alcohol that is introduced into the human body is detrimental,especially when partaking in the activity that you are currently working on.The effect of alcohol is profound. It has an effect on the pineal gland in the human brain,which is associated with the spiritual eye.This means that your ability to receive the imagery that I give you will be warped and distorted and not as accurate as a result. 
 
+7号源实体A：
+
 ME:I am profoundly sorry.I simply did not realize. 
 
 SE7A:You were advised of this by your own Source Entity? 
+
+7号源实体A：
 
 ME:Not in the way you have described it.To be perfectly honest,I thought that because our connection was stable,I would,mmmm,get away with it. 
 
 SE7A:Well,you won't.Let us continue.You need to drink an equal amount of water first. 
 
+7号源实体A：
+
 Considering myself thoroughly reprimanded,I went straight to the kitchen and drank a little over a half pint of water.I hate it when this happens.If I am not able to keep things to myself over the vast distances of The Origin,that distance that is between SE7A and me,then how am I going to keep myself to myself here on Earth?I sighed and continued the dialogue. 
 
 SE7A:That's better.You are able to cope with the energies again now. 
 
+7号源实体A：
+
 I have to say it was true.I suddenly felt the buzz of the alcohol disappear as fast as it had come.
 
 SE7A:The buzz was a frequency-based response.This resulted from a lower frequency interacting with a high frequency that is not native to you or your Source Entity.I used the water to stabilize the chemical process that had started.This helped to correct your frequency change which,in turn,negated the buzz. 
+
+7号源实体A：
 
 ME:Oh,I see.Thank you.So where were we before my reprimand? 
 
@@ -600,73 +864,109 @@ I felt like a school boy caught stealing a sweet from the sweet shop.I was all e
 
 SE7A:Do not dwell on the past.Learn the lesson and move on. 
 
+7号源实体A：
+
 ME:Good advice.Sorry.Where were we?Ah yes,talking about the land-based entities being individualized parts of the planet they are associated with. 
 
 SE7A:Correct.These individualized units or parts are essentially mobile planetary units. You see,the planet has to experience and evolve in its own right.Everything with a level of awareness has this requirement.It is a prerequisite for existence. 
+
+7号源实体A：
 
 ME:So why are they mobile? 
 
 SE7A:To give the larger entity,the planet,the opportunity to experience different things, including existence and experience on other planetary bodies.
 
+7号源实体A：
+
 ME:Are you suggesting that the land-based entities,these mobile units of planet are able to pass on their experience,learning and evolution back to that part of them that is the whole planet?
 
 SE7A:That is exactly what I am saying.What's more,it is entirely possible for a group or, indeed,the whole of the planets indigenous land-based but mobile units to migrate to a different planet in order to allow them to experience more and pass that back to their greater whole,their home planets. 
+
+7号源实体A：
 
 ME:Hold on.Are you saying that the planet,by using the individualized mobile land-based units of itself,can move en-mass to another planet? 
 
 SE7A:Yes. 
 
+7号源实体A：
+
 ME:And,I suppose,they use the gravity pilots to do this? 
 
 SE7A:Yes.You see.The gravity pilots are linked but are not wholly indigenous to their first planet of domicile.They are created elsewhere within my environment. 
+
+7号源实体A：
 
 ME:Sorry,I got the impression that they were born or something on the planets that they were associated with. 
 
 SE7A:No.They are part of the fabric of the environment.They are,if you like,the environment's transport system. 
 
+7号源实体A：
+
 ME:I am getting confused now.I thought you said that they were working with the planets and that they look for (I quickly checked my previous notes)and used the gravitational anomalies to provide them with energy to procreate. 
 
 SE7A:Correct,but they use this energy to multiply in areas away from the planet they are working with.The work they do with the planets and its individualized land-based units is basically one of transportation.Remember that although they pervade the environment, they do not have a natural home or ability to experience,learn or evolve-hence,the association with a planet and its land-based entities or individualized units.They evolve through association;their work is the transportation of the land-based entities to other planets,where both the land-based entity,the planet the land-based entity originates from, and the gravity pilot gain experience,learning and evolution. 
+
+7号源实体A：
 
 ME:And they sometimes do this en-mass. 
 
 SE7A:They sometimes move in smaller numbers or groups.More often,they move to another planet as a singular planetary unit-gravity pilot combination.It is quite possible for a planet to have none of its indigenous land-based units actually resident on its surface if the units themselves are spread or distributed throughout the environment. 
 
+7号源实体A：
+
 ME:I have just had another thought.In the dialogue above,I made this statement:"Are you saying that the planet,by using the individualized mobile land-based units of itself,can move en-mass to another planet?"And you said."Yes." 
 
 SE7A:Yes,I did. 
+
+7号源实体A：
 
 ME:Then,sorry,but I am thinking of the right words to say here.Is it possible for a planet to completely separate itself out into smaller units and experience existence in a totally fragmented way? 
 
 SE7A:Yes,that is one option that the planet can take.It is one that many entities take to experience,learn and evolve in an accelerated manner.In the example that you have just stated though,the planet must create enough of its land-based units in one go,so to speak, to destabilize its inherent planetary structure.This is necessary because it allows the planet to separate its consciousness into smaller but nevertheless co-existent,coadunate existence. The coadunate existence is a necessary requirement for reversing the separation process,for without it,the planet cannot collect its separate parts and recreate the whole planet.The planet MUST at some point recreate itself. 
 
+7号源实体A：
+
 ME:Why must it recreate its whole self? 
 
 SE7A:This is the only way that the planet can assimilate wholistically all of the experiences that its previously existing individual units and those units that were created when the whole was dissolved have accumulated and share them with the re-integrated units.When the planet becomes one again it needs to act and behave as one.In doing so,everything that is or was the planet in both its separated and collective "whole"states needs to be reprogramd,if you like,into a condition that represents a whole planet and not a collective of smaller coadunate parts. 
+
+7号源实体A：
 
 ME:So there is a difference between a "whole"and a "coadunation"? 
 
 SE7A:Yes.Most collectives,although described as a "whole,"are actually a collective of "coadunate"entities-they are co-joined,individualized units that have control over their decisions and evolution whilst sharing their experiences with other members of their coadunate collective.A "whole"is a collective of individualized units that do not have control over their decisions and evolution.In fact,they do not evolve in an individual basis. Instead,they evolve as a"whole." 
 
+7号源实体A：
+
 ME:So the planetary parts are a hybrid.They are given individualized intelligence and evolutionary components when separated from the "whole,"communicating through coadunation but lose this individuality and coadunation when they are re-integrated as a single whole planet. 
 
 SE7A:Correct,well stated and understood. 
+
+7号源实体A：
 
 ME:So how many planets are totally dissolved into a coadunate of individualized planetary land-based units? 
 
 SE7A:Not many.I see that you are going to press me for a number. 
 
+7号源实体A：
+
 ME:You read my mind. 
 
 SE7A:Always.The figure would approximate three hundred thousand million planets that have or are currently experiencing existence in this format. 
+
+7号源实体A：
 
 ME:One thing I haven't asked yet is what the land-based entities look like. 
 
 SE7A:That is not a simple question to answer,for they are not all the same. 
 
+7号源实体A：
+
 ME:You mean they are as diverse as the flora and fauna on Earth? 
 
 SE7A:Not in the slightest.They are created in a form that allows the planet the optimal opportunity to experience itself from a surface-based perspective. 
+
+7号源实体A：
 
 I will give you an example,but I will have to explain this in physical terms to you,for you would not understand it otherwise. 
 
@@ -674,11 +974,15 @@ ME:OK,fire away.
 
 SE7A:They have the characteristics of what I can only describe as rock,a mineral. 
 
+7号源实体A：
+
 ME:How do they function?I got the impression that they move around the surface.Is this right? 
 
 In some of my other dialogues,I have encountered entities that are "PART"of the rock/mineral content of a planet but are not "OF"it.They are "consciousness"associated with the rock and move around the planet by moving their consciousness from one rock structure to another on the sub-atomic level.They literally pervade the planet. 
 
 SE7A:These individualized units of planet and planetary consciousness initially grow out of the surface of the planet,if that is the correct way to portray it,and achieve a form factor that is totally resultant of the minerals that form their body.As an example,if they were composed of the mineral you call quartz,they would initially assume the form factor of quartz.If it was pure carbon,it would be the form factor of pure carbon.The planets are not made of such basic elements,and so this should be used in illustration only because I have no other way to describe it in your language.Nevertheless,I will try. 
+
+7号源实体A：
 
 The land-based entities have the ability to change molecular structure of the mineral to create an alloy of minerals and metals.They move around the surface by rolling themselves. 
 
@@ -686,71 +990,107 @@ ME:I just received an image of them moving rather like the track on a caterpilla
 
 SE7A:That is one way they achieve movement.The motivational force they use is the attractivity that exists between the minerals and metals that they use in their "alloy"and the minerals that are part of the surface or sub-surface of the planet.They literally move by using the forces of molecular attractivity.To achieve this movement on a constant basis,they are continuously modifying their alloy.Continuous modification of their alloy of minerals means that there is a continuous level of motion through attractivity.Once the attractivity has created motion,the area of alloy is changed to a neutral alloy so as not to stop the movement through attractivity with that area of land that has been passed. 
 
+7号源实体A：
+
 SE7A:When they want to create something,they create the tools required to create that which is desired by creating an alloy of themselves relative to the task at hand.This also includes incorporating an alloy of the materials that are in the area of the planet they are currently near.When they want to create something bigger than that which they can achieve on their own,they merge together,creating an alloy of many land-based entities. They also use and incorporate an alloy of the planet's minerals that are found in the area that they are working with or within.When they create a structure or shelter for other entities,they create the form out of this alloy of themselves and the planetary minerals and metals and then change the alloy so that they can move away from the form of their creation.During the leaving process,they program the molecular structure of the alloy of the structure left by leaving part of their collective intention and allowing the structure to perform the tasks it was designed to do.The entities then dissolve their collective alloy and become separate individual units again. 
+
+7号源实体A：
 
 ME:And all this is happening whilst the other entities/planets cover each other to experience existence as another planet?
 
 SE7A:Yes,that and other things with other land-based entities as well.We must end this dialogue here as you need to progress on to your dialogue with Source Entity Seven"B." 
 
+7号源实体A：
+
 ME:Before we finish,I note that there are no galaxies or suns. 
 
 SE7A:No,that's right.The permutation of space that you are observing has no need for entities to be present in the form of galaxies and suns (stars).That is because the energies required to support the entities (including the gravity pilots)that are either the planets or the entities that reside on the surface of the planets are available throughout the environment and are not a function of fission or fusion that your physical universe experiences.Also,the largest size entities in my environment are,in fact,the flat planets themselves.They are evenly dispersed around the volume of the environment rather than in clusters of star systems and galaxies.If they were to group themselves into similar shapes that may be construed as a star system or a galaxy,they would not create a new larger entity, one that has the role of such an entity.Instead,they would merely be in a group of planets that form a shape of some sort. 
+
+7号源实体A：
 
 ME:Why did you not create galaxies or stars? 
 
 SE7A:First,the galaxies and stars that you are referring to are a product of the lower frequencies in your dimension.Within the dimensions in my environment there are no frequencies low enough to result in the manifestation of physical phenomena.Also,because the environment is energetically "in order,"so to speak,there is no need for a larger entity to be in existence to "sweep up"and collect all of the stray energies and materials created by such energies.
 
+7号源实体A：
+
 ME:I keep getting a picture in my mind of a white back drop to your environment. 
 
 SE7A:Yes,that is another reason for not needing the entities you refer to as stars.As you know,stars create heat and light in your physical universe,plus other energies necessary for the continued existence of the human body and other carbon-based entities.As my entities are essentially energetic in nature,they are exempt from the need for such basic elemental fuels.The appearance,in your mind's eye,of my environment is,therefore,a representation of what you would expect to see from your own perspective,should your physical eyes be capable of de-coding the frequencies that inflate this environment. 
+
+7号源实体A：
 
 ME:So essentially,you have a universe that is full of planets and entities,and that's it. 
 
 SE7A:As a very high level summary,you would be correct,but,of course,there is much more to my environment than this short dialogue can expose.One such addition that I will give you before I let you commence communication with Source Entity Seven"B"is that at certain periods in their existence all of the flat planets link up together and make what you would call a hollow sphere. 
 
+7号源实体A：
+
 ME:Like a big 3D jigsaw puzzle(I was thinking of the Wikipedia logo). 
 
 SE7A:Yes,sort of. 
+
+7号源实体A：
 
 ME:Why do they do that? 
 
 SE7A:To share their learning and to identify which entities will be moving on to the next environment. 
 
+7号源实体A：
+
 ME:How often has this happened?
 
 SE7A:Only six times since their creation.It is a very special occasion when it happens, and we are not due such an a event for some time yet,as the entities currently in my environment are a little slow evolution wise. 
+
+7号源实体A：
 
 ME:Any reason for that? 
 
 SE7A:It just happens that way sometimes.Consider your own planet.It went backwards, did it not? 
 
+7号源实体A：
+
 ME:Yes,it did. 
 
 SE7A:Well,it's not a unique occurrence.It happens throughout the environments created by The Origin's Source Entities.Now you need to prepare yourself,for Source Entity Seven“B"is waiting for you. 
+
+7号源实体A：
 
 ### Source Entity Seven B 
 
 SE7B:Hello! 
 
+7号源实体B：
+
 ME:Sorry? 
 
 SE7B:Hello. 
+
+7号源实体B：
 
 ME:Is that Source Entity Seven "A"? 
 
 SE7B:No its Seven“B." 
 
+7号源实体B：
+
 ME:I am sorry.You caught me out a bit there.I didn't expect such a fast change over,and your voice has the same tone as SE7A.Also,I was advised to prepare first. 
 
 SE7B:You did prepare. 
+
+7号源实体B：
 
 ME:Sorry,but I don't recall it. 
 
 SE7B:You,that is,your energetic self,prepared itself to receive my energies.You calibrated your frequencies to that which makes communication easier. 
 
+7号源实体B：
+
 ME:Well,that bit of me that is communicating with you is under the delusion that it is cut off from the rest of me whilst incarnate.Ah,now I understand.My greater self doing the work in the background might explain why certain things happen automatically and so easily.It is preparing me for the work by working in the background to maintain and control the energies that maintain and control the link. 
 
 SE7B:OK,I don't see it that way.All I see is a single entity,one that is not of my creation, communicating with me. 
+
+7号源实体B：
 
 ME:Interesting.Thank you for that clarification.I must take that into consideration when I communicate with the remaining Source Entities. 
 
@@ -758,141 +1098,211 @@ So,you are the intermediate Source Entity Seven,the one that was created out of 
 
 SE7B:Correct.You see,what happened was that when this separation was taking place,that which was Source Entity Seven separated its sentience to become Source Entity Seven A& B.This process took place at the same time as the demarcation of the areas of Source Entity Seven that was to become Seven "A"&"B."As this happened,there was a third temporary entity created,me,which caused that which was still Source Entity Seven (holistically)to hold the process in stasis and reconsider its options based upon what had happened. 
 
+7号源实体B：
+
 ME:Were you self-aware at that point? 
 
 SE7B:Not as a separate entity,but I was as part of that which was holistically Source Entity Seven. 
+
+7号源实体B：
 
 ME:So when did you become self-aware? 
 
 SE7B:My self-awareness only became a function of my individuality after my separation from the holistic aspect of that which was/is Source Entity Seven. 
 
+7号源实体B：
+
 ME:And that aspect is still available as a communication medium because I first made contact with it/you as this collective aspect? 
 
 SE7B:It is.It still functions as the whole and must always function as the whole. 
+
+7号源实体B：
 
 ME:Why is that? 
 
 SE7B:Simply because there may be a point in our evolutionary development where we wish to become fully one again.As a result,we need to keep part of the holistic aspect of Source Entity Seven in reserve,so to speak,as the initiating entity for such a decision to take form and start the process of re-integration.Or,to initiate communication with entities such as yourself. 
 
+7号源实体B：
+
 ME:You expect to re-integrate at some time then? 
 
 SE7B:Not sometime soon,but it could well happen-specifically if the opportunities for evolution are expended in our current configuration,which they are very much not.But let me get back to our discussion on me.You asked about when I became self-aware? 
+
+7号源实体B：
 
 ME:Yes I did.The Source Entities I have contacted to date have all suggested that they became self-aware over a long period,and that when they realized that they were self-aware, that was the point in which The Origin contacted them and advised them of their reason for "being"in existence.Clearly,this would have already happened with the full aspect of Source Entity Seven,which means that you must have gained both individuality and the collective memory/experiences of Source Entity Seven as part of the separation process, including knowledge of the separation process,the reasons for it,and the decision to stop the separation at the point of your creation. 
 
 SE7B:You're good,aren't you? 
 
+7号源实体B：
+
 ME:Errrr!?Well it is logical,isn't it? 
 
 SE7B:Not to everyone.I was told you were good for such a small being. 
+
+7号源实体B：
 
 ME:Thank you for the compliments.I am just doing my job. 
 
 SE7B:Let's continue.
 
+7号源实体B：
+
 ME:It must have been/is strange being both an individualized part of Source Entity Seven and actually being the whole Source Entity Seven concurrently. 
 
 SE7B:No,the separation was instantaneous and that part of us/Source Entity Seven that is/ remains as the whole,as a higher function of us rather like your being a temporarily separate part of your energetic self.You are still one,but you are separate-you are separately together,separately one,and so am I.We are similar in this particular aspect. 
+
+7号源实体B：
 
 ME:The separation program must have contained all the details of the separate aspects of Source Entity Seven,which you would have inherited. 
 
 SE7B:We all did.However,my creation was,as previously stated,a bit of a surprise.As a result,the full aspect of Source Entity Seven stopped the process at that point to both review what had happened and perpetuate my existence. 
 
+7号源实体B：
+
 ME:Perpetuate your existence? 
 
 SE7B:Yes,because if the process was not stopped,the initial plan of a separation into two would have continued,and I would have become non-existent.In this instance,we three are one as we are still joined,the joining being me. 
+
+7号源实体B：
 
 ME:On earth it is always difficult for the supposedly unwanted or unplanned child.That child always feels that they are not loved by their parents.Do you have this thought in the back of your mind? 
 
 SE7B:Not in the slightest.I was always in existence anyway. 
 
+7号源实体B：
+
 ME:How do you mean?
 
 SE7B:I am essentially Source Entity Seven;as a result,I existed before the separation,and I will exist after re-integration whenever that takes place. 
+
+7号源实体B：
 
 ME:And you feel that way because you have inherited all of the memories and functions of Source Entity Seven? 
 
 SE7B:Yes,but know this.From my perspective,there is no difference between being integrated and being separate,at least not now. 
 
+7号源实体B：
+
 ME:Why not now? 
 
 SE7B:Because I am now separate but together.The act of being separate is happening now, not as a possibility or a"what if"scenario.It has happened,is happening,will happen,could have and did happen.There is no issue with that with me as the event is an event in event space.Source Entity Seven stopped the separation process where it is now because it saw the beauty in what happened.In its mind it was a perfect outcome,one that supports the evolutionary requirement. 
+
+7号源实体B：
 
 ME:And that evolutionary requirement that has been supported is? 
 
 SE7B:To experience,learn and evolve. 
 
+7号源实体B：
+
 ME:Of course.OK,I am convinced.Let's talk about what you have created within the period of event space you have been in existence. 
 
 SE7B:I would like that.
+
+7号源实体B：
 
 ME:Your environment is equal in size to Source Entity Seven "A"and Seven "C"from my visual data. 
 
 SE7B:Yes,it is but I have incorporated a set of dimensions within dimensions.Source Entity Seven "A"created an environment that was populated with what you recognized as flat planets.That was only one environmental area,one universe if you want to call it that. 
 
+7号源实体B：
+
 ME:But when I spoke to Source Entity Seven,it said that it copied the structure of The Origin in the 12 x 3 x 12 format,missing,of course,the 12 zones,which Source Entities cannot,I assume create. 
 
 SE7B:It did.However,Source Entity Seven "A"only used one of those dimensional permutations and,as a result,it constructed a single universal environment.I,on the other hand,decided to use the full suite of possible permutations and "add-in"all of these permutations within the permutations of space that were available.Everything is still as it was explained to you by Source Entity Seven from the perspective of the main structure of "US"as separate aspects of Source Entity Seven.It is just that I have split it down further for my environment. 
+
+7号源实体B：
 
 ME:That makes 12 x 3 x 12 x 12 x 3 x 12 different permutations of space(186,624 permutations or different/simultaneous universes). 
 
 SE7B:Yes,but that is not all.The progression from one permutation to another is not linear or indeed logical,for it changes in relation to that which has been experienced by the entity experiencing it.In essence,the universe they move onto next is relevant to that which they need to experience next but in a way that is not so much progressive but transgressive.As a result,they can and do experience as many permutations of space as is necessary for their evolution.The order in which they experience them can either lead them to quickly traverse my environment,allowing them to move on to Source Entity Seven "A"or"C's"environment after the shortest possible exposure to the smallest number of permutations of space,or they can experience all of them,or all of them and some of them more than once or twice, making them take a longer time. 
 
+7号源实体B：
+
 ME:You mean your environment is like an ever changing MAZE,where re-tracing your steps, if you get lost,does not help you get out of the maze or indeed to the center of the maze. 
 
 SE7B:Correct.Fun,isn't it? 
+
+7号源实体B：
 
 ME:I am glad I am not one of your entities! 
 
 SE7B:Why,they enjoy the challenge! 
 
+7号源实体B：
+
 ME:This environment sounds a little like the entities in Source Entity Six's environment where there are universe-sized entities that can exist either singularly or as part of the structure of another universal entity,each having the ability to exist within and without each other simultaneously and in multiples of numbers. 
 
 SE7B:That would be useful only as a thought process to enable you to expand your understanding of what can be.The basics of my environment are such that each permutation of space is capable of holding and does hold all of the permutations of space at what you would understand as being the micro level.So to keep it easy,each permutation of space holds within it 430 permutations of space,each a universe in its own right, with dimensions,tritaves and frequency bands.Whereas the entities in Source Entity Six's environments are entities in their own right,these are purely energetic environments. 
+
+7号源实体B：
 
 ME:But all energy can become a self-aware entity given long enough,can it not? 
 
 SE7B:It can,provided it is allowed to.In this instance the energy in each permutation of space is programmed to do a certain job.Sentience,at whatever level "energy"is allowed to attain,is not necessary in this instance.
 
+7号源实体B：
+
 ME:Thank you for that explanation.One of the things that has been going through my mind whilst we have been discussing the structure of your environment is the mechanism used to identify which universe an entity is allowed to move onto next. 
 
 SE7B:The universes themselves decide what entity can move onto which universe and how long they should stay there. 
+
+7号源实体B：
 
 ME:What?I thought you said they weren't sentient. 
 
 SE7B:They aren't.But they are programmed,so to speak,to do certain functions that allow my/our entities to experience what they need to experience before they move onto the environments that are Source Entity Seven A and C. 
 
+7号源实体B：
+
 ME:Hold on here.How can a universe decide on which entity it accepts,especially when there are so many entities involved? 
 
 SE7B:As an entity progresses through the universes,it gains what you might call a signature or a code relevant to what has been experienced and where.
+
+7号源实体B：
 
 ME:I think I see what you are alluding to.I have just received an image of a multifaceted shape passing through a gateway of equal but opposite facets,sort of the square peg in a square hole imagery except this has lots and lots of different sides,angles and curves to it. 
 
 SE7B:Yes,I see what you are describing is a key;this would be a reasonable method of description even though it is limited. 
 
+7号源实体B：
+
 ME:If it is limited,can you give me a better illustration? 
 
 SE7B:Certainly.You see,when an entity progresses through my environment,each universe they interact with gives them a certain signature or coding.This coding opens the door to various universes that are the best next environment for a particular entity to experience, including the optimal progression permutation. 
+
+7号源实体B：
 
 ME:I thought you said that your environment was a maze. 
 
 SE7B:No,you said that,but the analogy still remains. 
 
+7号源实体B：
+
 ME:How? 
 
 SE7B:Because the entities themselves do not know what those permutations are. 
+
+7号源实体B：
 
 ME:Oh. 
 
 SE7B:Also,the permutation that may next be experienced by the entity that is close to finishing its time in one universe may well change as a result of what it has experienced. 
 
+7号源实体B：
+
 ME:So the code/signature of an entity can change from the potential of accessing one set of universes at the start of experiencing a new universe to a different set of universes at the end of that particular universal experience/set of experiences.Hence,the changing maze imagery I received. 
 
 SE7B:Yes. 
 
+7号源实体B：
+
 ME:Can you give me any more information on this code or signature the entities generate through their experiences in the various universes. 
 
 SE7B:Let me see.The image in your head that I have just sent is illustrative only as it is a difficult subject for you to understand. 
+
+7号源实体B：
 
 I received two images: 
 
@@ -901,69 +1311,103 @@ I received two images:
 
 SE7B:Good summary.Note though that although the entity itself is not aware of the new possible permutations available to it,its personal record has this and travels with the entity at all times.The universes are illustrated by the functions of the "lock"and the "water chute."The entities are illustrated by the "key"and the "person riding"the water chute.
 
+7号源实体B：
+
 ME:Before I ask the inevitable question of what your entities look like if I were able to see them with my physical eyes,that is,I would like to know the work that they do to enable them to traverse the maze that is your environment. 
 
 SE7B:They evolve. 
+
+7号源实体B：
 
 ME:Clearly.Evolution is a prerequisite for sustained existence in my book. 
 
 SE7B:It is one of the reasons why The Origin allowed us to create smaller versions of ourselves.Evolution is an inevitable result of the experiential content of existence. 
 
+7号源实体B：
+
 ME:There are more reasons? 
 
 SE7B:Yes,of course.Although evolution is the prime facia reason for an entity's existence,it is not the only reason for its creation. 
+
+7号源实体B：
 
 ME:Ah!So what would the reason for an entity's creation be? 
 
 SE7B:Entertainment. 
 
+7号源实体B：
+
 ME:What? 
 
 SE7B:Entertainment.Maybe I have this word wrong.Maybe I should have used distraction or even company or help. 
+
+7号源实体B：
 
 ME:From my standpoint,all of those words might describe the reason to create an entity. A creator would no longer be alone in its task,it would have help in working on and completing its task,and/or it would be distracted from its own task/workload,as well as entertained by the efforts of its creations in trying to do those tasks.
 
 SE7B:Diversity would also be a word I would use. 
 
+7号源实体B：
+
 ME:Why? 
 
 SE7B:Because the more entities an entity creates to help it deliver its commitment to the evolution of The Origin,the greater the number of permutations that can be employed to experience,learn and evolve whilst essentially experiencing the same thing,but from different angles.This is the main advantage of diversity and is the result of creating a high number of entities. 
+
+7号源实体B：
 
 ME:Fine.Can we move on to the work they do? 
 
 SE7B:Certainly.There are three types of entity,and they each have different work to do. 
 
+7号源实体B：
+
 ME:The number three seems to be a recurring theme with Source Entity Seven. 
 
 SE7B:Only in so much as we have three environments.I will continue with the work of each entity type. 
+
+7号源实体B：
 
 ME:Can I stop you a moment?When you said there were three entity types,I momentarily picked up the number four,but that quickly changed back to three,actually no,it was three and a half.Why was that? 
 
 SE7B:There was a fourth,but that entity line was terminated.The image of three and a half was primarily because that's exactly what it was doing-the role of an entity that was based upon three and a half,i.e.,it was an in-between entity that was doing half the role of one series of entities and half the role of another.
 
+7号源实体B：
+
 ME:Would this not have been advantageous from an evolutionary perspective. 
 
 SE7B:No,it was surplus to requirements. 
+
+7号源实体B：
 
 ME:Why? 
 
 SE7B:Because once the entities have achieved all that they can achieve whilst doing the work that they are working on,they move on to do the work of one of the other two types of entity.Eventually they gain experience in all three work types. 
 
+7号源实体B：
+
 ME:So what you are suggesting is that the fourth entity type would only experience the diversity of experience that was eventually and inevitability experienced by the other three entities. 
 
 SE7B:Correct. 
+
+7号源实体B：
 
 ME:I also feel another difference in the fourth entity. 
 
 SE7B:Yes,there was one.It was a hybrid of all three,and that was not the point. 
 
+7号源实体B：
+
 ME:Why not? 
 
 SE7B:Because the whole objective was to have three individual entity types that were specialized in some way relative to the work that they do.Once they had experienced all they needed to experience as a result of the work they were essentially designed for,they had to swap roles with another entity,one that had completed all of its work so they could experience what you would call frustration. 
 
+7号源实体B：
+
 ME:What?Experience frustration?
 
 SE7B:Yes,as I have just stated,they are designed for a particular type of work.Once they have,err,graduated from the work that they were designed for,they are then tasked to work on subjects within the new work that they are not designed to work on.This results in the exposure to frustration as they obviously remember the ability to perform tasks in a seamless fashion. 
+
+7号源实体B：
 
 However,frustration and necessity are the birth place of creativity,and it is the need to perform the tasks for the work that they are not designed for that results in the creation of constructs or tools to allow them to perform as required in their new "working" environment. 
 
@@ -971,9 +1415,13 @@ ME:So it's the need to create that helps the entity evolve?
 
 SE7B:Creativity is the other main reason for existence.To be a creator is to be a God whilst being part of God.What's more,it is the most direct route that an entity can take to becoming closer to its creator.Creation is next on the list of the ten most important things an entity must do whilst individualized from its creator.The first,of course,is evolution. 
 
+7号源实体B：
+
 ME:So if evolution and creation were the top two items in a list of ten an entity needs to do whilst being individualized,what are the other eight? 
 
 SE7B:I didn't see that one coming,much!However,it is a universal list,so to speak,and one that must be shared with your readers. 
+
+7号源实体B：
 
 So here is a list of the Top Ten things an entity MUST do whilst individualized: 
 
@@ -996,9 +1444,13 @@ ME:So what I need to know now is what your entities look like,including what the
 
 SE7B:I,and I say I,have created two types of entities. 
 
+7号源实体B：
+
 ME:I had a flash of the number three then.Why would I have received that?Oh,hang on, you mentioned that we have three entities in the last dialogue(there was a one week gap in the generation of the text above compared to that text which was currently being channelled),with a fourth being discarded as it was a hybrid. 
 
 SE7B:Yes,that is correct.I did say"I"created two entities.The third and the discarded fourth are the result of the combined creativity of SE7. 
+
+7号源实体B：
 
 This was starting to get complicated all of a sudden. 
 
@@ -1006,33 +1458,49 @@ ME:Ah,so let's keep this simple then.From my standpoint,you are part of/an aspec
 
 SE7B:I would say so.If it helps you understand,then yes,by all means,use that method of recognition.Although in truth and actuality,"I"created two of them and "I"as part of the whole entity that is Source Entity Seven took part in the creation of the other two entities.However"I"took the decision to remove the fourth hybrid version from individual existence. 
 
+7号源实体B：
+
 ME:Thank you for the clarification.What happened to those entities that were the hybrids? Surely they must have been sentient at that point in their creation. 
 
 SE7B:They had,indeed,gained a level of self-awareness at that point in event space when I decided to terminate their existence. 
+
+7号源实体B：
 
 ME:But would that not be classified as genocide? 
 
 SE7B:No,not in the slightest.
 
+7号源实体B：
+
 ME:Why not? 
 
 SE7B:Because they were not lost.In essence they never existed before they were created,as you never existed before you were created. 
+
+7号源实体B：
 
 ME:You mean existed as an individual unit of the Source Entity (my Source Entity,SE1- God).The energies that I am always existed as part of the Source Entity and,of course,The Origin. 
 
 SE7B:Correct.But they were not simply re-absorbed into my energies.They were modified to allow them to be one of the three remaining types of entities.To re-absorb them would have been a waste of my creativity(not of energy).It was a relatively simple process to modify the energies of the already existing entities into those of another type. 
 
+7号源实体B：
+
 ME:How did you choose which entity they were modified into? 
 
 SE7B:By looking at their attributes to establish what the percentage,if you like,of their hybrid make-up was and whether they had more attributes of one type than another.If they had,say 50%of the attributes of type 1,30%attributes of type 2 and 20%attributes of type 3,then that entity would be modified to be 100%type 1.On the other hand,if there was an equal spread of type 1,type 2 and type 3 attributes within a specific entity,then that entity was either asked to decide what type it would prefer to be,or if it was undecided,it was placed in what you would call a "pool,"a holding area where the total number of entities that were undecided or showed no particular preference would be equally divided into the three entity types and modified accordingly.That way I achieved the best re-distribution possible of individualized Source Entity Seven/Source Entity Seven"B"energy.
+
+7号源实体B：
 
 ME:I thought it would be easy to change the energy that was the entity's back into your core energy? 
 
 SE7B:It is,but as I said earlier,it would have been a waste of my creativity.Not only that, removing life from individualized existence,specifically if it has achieved the sentient state of life,is to remove the opportunity to allow an individual the right to evolve,and my opportunity to benefit from that evolution.What's more,there is an unwritten rule between the Source Entities that states that a sentient entity must make dissolution back into its source its own choice and not the choice of the creating Source Entity. 
 
+7号源实体B：
+
 ME:I thought that an entity sought communion or re-integration with its Source Entity through the route of evolution only.Surely re-integration or dissolution bypasses that function. 
 
 SE7B:No.You see,there is a major difference in the end product that I will explain further. Re-integration as a result of evolutionary progression results in an entity becoming one with its Source Entity,one with its God.It is integral whilst maintaining individualized thought processes and as a result it augments the functionality of the mind of the Source Entity it is fully integrated into.It gives it extra processing power if you like. 
+
+7号源实体B：
 
 However,when an entity,through its own volition decides to end its individuality,it both re- integrates and fully dissolves its energies back into the energies of the Source Entity,giving up its right to individualized existence forever.The bulk energies of the Source Entity are, therefore,increased by the product of the total Source Entity energies,plus those of the individualized entities energies,and that evolutionary content that the entity had already accrued,no matter how small it is/was. 
 
@@ -1040,33 +1508,49 @@ ME:Can this ever be reversed?
 
 SE7B:Of course.The entity itself is not aware of this functionality as it can only be activated by the creating Source Entity. 
 
+7号源实体B：
+
 ME:So how and when does that work? 
 
 SE7B:The signature,structure and accrued functionality of the individualized energies of that entity wishing to lose its individuality and become fully one with its Source Entity are recorded,together with the distributed locations of its energetic components,i.e.,those areas within the Source Entity where they are put to best use.In essence,the re-integrated entity can be spread across the full totality that is the Source Entity they were created by. Each energetic component is able to be put to use in some part of the Source Entity it is re- integrating into because the locations,functions and signatures are known by the Source Entity.In the event that it needs or desires to create an individualized part of itself to perform a certain task,it can take those parts of the integrated entity either in whole or in part and individualize it.It can even re-activate those memories and evolutionary content should it be necessary or advantageous to do so. 
+
+7号源实体B：
 
 ME:Are you suggesting that a new individualized entity can be created either as a whole and perfect re-build of that entity that gave up its individuality?Or it can create a completely new entity that is constructed of the chosen composite parts of several entities who chose to give up their individuality by using separate parts,each composite part specifically chosen because of the speciality of the work the new entity is being assigned to? 
 
 SE7B:Correct. 
 
+7号源实体B：
+
 ME:And this also includes the composite memories and evolutionary content? 
 
 SE7B:Yes,it does. 
+
+7号源实体B：
 
 ME:So what happens to this entity once created? 
 
 SE7B:It performs the task it was created for. 
 
+7号源实体B：
+
 ME:And after that? 
 
 SE7B:It is given the opportunity to either re-integrate into the creating Source Entity or to commence the standard evolutionary journey by identifying which environment it would like to start this within. 
+
+7号源实体B：
 
 ME:Why would you go to all the hassle of re-individualization,either a whole or composite entity,when,as a Source Entity,you could just create a new entity? 
 
 SE7B:There are two reasons for that.First,there is a specific window during the existence of a Source Entity where it is at its best,creativity-wise.This window is specific to the creation of individualized autonomous entities.This is a cyclic function of Source Entity existence, and as such the need to re-individualize an entity may be outside the optimal part of this cycle.Second,once an individualized entity is created it is specialized into autonomous individualized evolutionary energy,and this specialization remains even in dissolution,so it becomes much easier to re-assemble specialized components of evolutionary energy into whatever a Source Entity wants,such as the total re-construction of a previous entity or the creation of a new entity made up of the composite parts of other dissolved entities rather than to create one from scratch. 
 
+7号源实体B：
+
 ME:That is interesting.I wasn't aware that Source Entities have cycles to work within. 
 
 SE7B:Everything has cycles to work within.It is part of the flow of energy around The Origin,and as such we need to work with that flow.Even The Origin does. 
+
+7号源实体B：
 
 I made a mental note to discuss this with The Origin in the next book,which I now know will make the "Beyond the Source"books a trilogy.It will have the subtitle "The Origin Speaks"and will focus fully on dialogue with The Origin.
 
@@ -1074,11 +1558,15 @@ ME:Ok,I will discuss this with The Origin in later dialogues.I would like to dis
 
 SE7B:No problem.As I stated before,each of these entities has a role to play,and its specialized form is relative to the work it does.As such it enjoys the benefit of being a "round peg in a round hole"in the first instance.However,as it progresses,it then moves to an environment where it is not the round peg in the round hole and,therefore,experiences difficulty in performing its new role and even experiences frustration.To progress this dialogue,I will now explain the form of the entity,the work it performs and the advantage of that form. 
 
+7号源实体B：
+
 The first entity is energetic in nature.It has the ability to change its magnetic properties at what you would call the sub-atomic level,allowing it to corral the native energies within the environment and create areas of high nuclear activity.You might call them suns or stars. These areas of nuclear activity are used as energy stores for the other two entities to use and work with,allowing them to create.The only issue here is that they need to be maintained from within the area of activity.In essence,the entity uses its magnetic properties to create a cage effectively stopping the energies being corralled from moving away from each other. What's more,these energies need to be compressed over a period of time to maintain the nuclear process.This requires the magnetic field,the cage,to be reduced in size when required.Don't get me wrong,the magnetic field is not the only medium being used to control this process.There are many more,and the first entity has the ability to use many more.It is just that you would only be able to understand/relate to the use of magnetism. The other mediums would and could only be described by what your science fiction writers call force-fields,but that is a very non-descript and general piece of terminology. 
 
 ME:Is the corralling of energy to create areas of nuclear activity all that they do?How could they learn and evolve by just doing this type of work? 
 
 SE7B:My entities are not as complicated as those created by your Source Entity,so in this instance,learning how to corral the energies,creating the nuclear condition and maintaining that condition relative to the changes in energetic content both inside and outside the cage they have created whilst meeting the demands of those entities that are using the energies for creative purposes is a full-time task-especially as each entity has over a million areas of nuclear activity to maintain.The objective of this form of entity is to create,maintain and serve.
+
+7号源实体B：
 
 The second form is primarily energetic in nature but has the ability to change its density.It has no magnetic or other energetic functionality that is or can be associated with the ability to contain a nuclear condition.However,it can use its ability to change its density to make the tools necessary to use such energies.This entity can assume any form factor required to achieve its goal-being the use of nuclear energies to form materials for the use of the third entity type.The objective of this form of entity is to overcome obstacles,create,and serve. 
 
@@ -1088,6 +1576,8 @@ ME:Between them,I would guess that they work as a team and create the content fo
 
 SE7B:Yes,but they are creators that rely on each other and are limited in what they do.As you can see,each of these works apart from the first entity in a downstream manner-one creating the product for the other to work with.This is why they must each experience each other's work environment and work load. 
 
+7号源实体B：
+
 The additional piece of learning here is,as previously explained,each of them has to experience and perform the other's tasks by using its own ingenuity and specialized skills in order to overcome the difficulties it faces in trying to perform the tasks of the others that are relative to the type of entity and its specialism.This is the learning,appreciation and evolutionary stage.
 
 ![Figure 4: Source Entity 7b's Three Entities](img/s6-039.png)
@@ -1096,13 +1586,19 @@ ME:Re-reading our dialogue,I don't see that you have described the form factor o
 
 SE7B:It would be difficult for you to visualize that which is purely energetic and formless, which,of course,is what the first two are.The third type has a sort of loose form-hence,the net or cloud-like description that has been described to you in the most logical way possible. 
 
+7号源实体B：
+
 ME:Touche.When these flat planets or the materials for these flat planets are created,how are they transported to Source Entity Seven A's environment? 
 
 SE7B:Via the interface at the outside of the three environments.The same one that allows entities to move from Source Entity Seven A's environment to my environment or my entities to [move to]Source Entity Seven C's environment.
 
+7号源实体B：
+
 ME:OK,that's clear.Thank you. 
 
 SE7B:It is now time for you to communicate with Source Entity Seven "C."It is waiting for you and has been observing the communication methods you used to establish a continued dialogue with Source Entity Seven "A"and me.Further and final communication with Source Entity Seven "collectively"will follow directly afterward in order to finalize these dialogues and help with the redirection of the link to the Source Entity you will refer to as "Eight."I bid you farewell as a singular entity and will communicate with you in totality as Source Entity Seven later. 
+
+7号源实体B：
 
 ### Source Entity Seven C 
 
@@ -1118,19 +1614,27 @@ ME:I feel that you have made contact with me.Can we speak?
 
 SE7C:G'day. 
 
+7号源实体C：
+
 Again,said in an Australian accent,the accent used by Source Entity Seven "in totality."I had gotten used to a neutral accent with Source Entity Seven "B"(not commented on in the text),and as a result,it took me by surprise. 
 
 ME:You caught me unawares then.I had become used to "B's"neutral accent.
 
 SE7C:I can adopt a neutral accent if you wish.I was following that communication method used by our "totality.I trust what you are receiving now is to your acceptance. 
 
+7号源实体C：
+
 ME:Sorry,I didn't need you to change your accent to suit my requirements.What you had was fine.It just caught me out,but I do thank you for thinking of me and my limitations. 
 
 SE7C:You are not as limited as you think.In fact,there is quite a crowd forming around the galaxy your earth sphere is manifested in.The beings in the crowd are watching with intense interest the human who is in contact with The Origin and the Source Entities.To travel around a universe where one is existing is one thing.To travel around the multiverse of a Source Entity is another,but to be able to break through the barrier of a Source Entity and its environment,dip into the environments of other Source Entities and communicate directly with The Origin is quite another.You are creating quite a stir.You are a sensation. 
 
+7号源实体C：
+
 ME:You are embarrassing me. 
 
 SE7C:Why would I want to do that?I have no need or desire to.Ah!I see your heritage.Now I see why and how you can do what you are doing.You are OM. 
+
+7号源实体C：
 
 I had been told this before(that I was OM)but had decided to put it to one side.I did not want to promote illusions of grandeur.Instead,I felt very silly that it had come up again,especially as it was suggested that I was drawing a crowd.And not only that,an intergalactic one to boot! 
 
@@ -1140,13 +1644,19 @@ I decided to forge onward with my agenda of questions rather than dwell on such 
 
 SE7C:I will explain to you something about yourself that your own Source Entity has not shared with you yet.You clearly have the ability to move outside of the structure of your Source Entity's multiverse.When you first started to use the rather mechanical means you invented to help you move up the frequencies,you truncated the 430 frequency bands(12 dimensions x 3 dimensional components x 12 frequency bands 432.Taking into account that the first three dimensional components (tritaves)are effectively "one"in the lowest dimension,this makes it 430 frequency bands because the rest of the tritaves are considered individual within the full dimension in which they exist.Also,note that as a frequency band is associated with a particular dimensional component,in actuality it becomes a permutation of space,a universe in its own right)that are associated with your multiverse, to 100-hence,your rather round figure of 100 levels.Your Source Entity did not deny the figure.Because you had traversed the 430 levels in 100 steps and not 430,you missed out certain levels.When you achieved this,you attracted the attention of your Source Entity and The Origin,who commenced dialogue with you in order to encourage you and let your ability grow.They saw your evolutionary opportunities and were/are keen to see you progress. 
 
+7号源实体C：
+
 ME:If that is true then,the levels that mankind's universe exists within also span the lower two frequency bands/levels of the lowest tritave in the second full dimension.That is,humanity can/will occupy the twelve frequency bands/levels in the first full dimension, plus the first two frequency bands of the first tritave in the next full dimension.That equals fourteen and makes sense. 
 
 SE7C:Correct.Mankind is ascending and will soon be able to occupy,in part,those two levels,the ones you call levels thirteen and fourteen,which,to current physical mankind's perspective would be classed as energetic.This is why you established that the physical universe is made up of 14 levels.It is because part of the universe that mankind occupies is moving up the frequencies.At some point in mankind's evolution,the lower frequencies will be closed to mankind because mankind will have ascended beyond the need for interaction with the physical. 
 
+7号源实体C：
+
 ME:Ah,now it makes sense.I was struggling with that one.To me,it just did not add up.I was getting worried that I was getting conflicting information.I was starting the think that I had gotten something totally wrong or was missing something,which I obviously was. 
 
 SE7C:Everything is revealed at the right time.One other thing that you need to be aware of is the way you operate.You effectively cut across the frequencies,tritaves and dimensions in any way you feel fit.You are not limited to the linear progression or dimensional/ tritave/frequential movement that many entities are.You are fully free.This is why you can communicate with the other Source Entities.This is another reason why you grabbed the attention of your Source Entity and The Origin.It is also the main reason why you are being allowed to communicate with me and the other Source Entities. 
+
+7号源实体C：
 
 Know this:Most entities are currently restricted to the confines of their Source Entity and can only communicate with their Source Entity and The Origin as a direct line of communication.Being able to circumnavigate this restriction is an honor.Use it wisely.Use it well. 
 
@@ -1154,45 +1664,67 @@ ME:I will.Thank you.You also seem to know now that I am OM.I have been told this
 
 SE7C:No,you are not delusional nor should you be concerned.You should be honored to know such information.You may recall that in your communications with "B,"you were advised that the fourth set of entities in its environment were either re-assigned to be one of the other three or were assimilated into "B"for use at or in a future event.You may also remember that in the event that an entity chose assimilation where the energy that was the fourth entity type was broken up and used for other purposes-including full and partial integration into that which it was as the previous entity or used to create another entirely new composite entity,it retained the signature of energy that was given individuality, purpose and the ability to experience,learn and evolve.
 
+7号源实体C：
+
 ME:Yes,I do remember that. 
 
 SE7C:Well,when The Origin reintegrated those energies that it had used to create the twelve Origins,the signature of that energy was not lost.It was merely integrated back into use for the creation of the Source Entities.The Source Entities,us,were actually created using some of this energy with "Origin"characteristics.However,when it was amalgamated into the Source Entities,it did not mix very well.It maintained its own boundaries and was difficult to share evenly and equally among all the Source Entities when we were created.It was like mixing oil with water,so to speak.When your Source Entity created the energies it was to use to populate its environment,giving it the signature of the ability to experience,learn and evolve,the energies that were of Original Manifestation energy were the first to be let loose.You(incarnate you)are part of one of those energies. 
+
+7号源实体C：
 
 ME:Why was I not told this by my Source Entity or The Origin? 
 
 SE7C:Quite simply,you were not supposed to know then. 
 
+7号源实体C：
+
 ME:So why are you telling me now? 
 
 SE7C:Because of the need to accelerate your knowledge.You have/are progressing faster than planned in your current state and need to know why you are supposedly breaking the rules.You have no rules.You and the OM are Original Material,and you are part of The Original Manifestation. 
+
+7号源实体C：
 
 ME:Should not my Source Entity have told me this,or at least The Origin.Why you? 
 
 SE7C:It was not important what "Source"was used for your gaining this information;it was all about the timing.You are a child of The Origin with a foster parent of the Source Entity. Your Source Entity set you free in its initial casting out of energy to create the beings that populated its environment.Similar versions of the OM are in other Source entities,but for some reason your Source Entity had the lion's share of the energies.This is possibly because it was the first,by a few nanoseconds,to be created when The Origin created the twelve Source Entities.It is no mistake you call your Source Entity,Source Entity One. 
 
+7号源实体C：
+
 ME:So there are,err,globules of OM everywhere-within and without the Source Entities? 
 
 SE7C:Within the Source Entities,yes.But as I said,your Source Entity seems to have the lion's share of this energy.Without the Source Entities?No,this is not a regular occurrence -hence,why you are causing a bit of a stir.In fact,you are one of five OM to be "re-born" from your Source Entity who have the ability to move outside their fostering Source Entity. The other four-my mind went back to the memory of the four individuals I saw in a waking meditation some thirty odd years ago,telling me that all that I knew and was working on was correct,but it was not the right time for me to progress it further-that are associated with you have not incarnated with you in the physical plane nor will they,for they are supporting you and your work,which I am told goes beyond that which you are currently experiencing. 
+
+7号源实体C：
 
 ME:Can I,should I ask you what that is now? 
 
 SE7C:No,it would be a distraction.You will get plenty of time for that in the extended and exclusive dialogue you are due to have with The Origin in the text you already know will be called "The Origin Speaks."
 
+7号源实体C：
+
 ME:Sorry,I am getting a bit flustered at this information.I have one more question. Shouldn't I be able to do more than I am?I mean,shouldn't I have more faculties/powers? I feel that if I am of the OM,of The Origin's Original Material/Manifestation,should I not be performing miracles?Shouldn't I be a great Yogi materializing this,that and the other?Levitating,teleporting,saving individuals and countries from starvation and strife? Teaching the truth on a grand scale? 
 
 SE7C:No,first I am advised that YOU chose the level of functionality you currently have whilst this small part of you is projected into the physical.I also note that you understand that the lower down the frequencies you go,the less functionality you have.This is very much in "play"here.Second,being OM only really gives you a signature that originates from The Origin's creativity and not directly from your Source Entity's creativity.Your abilities whilst in the energetic are similar to both Source Entity and Origin but majoring on The Origin with,of course,the exception being that you can traverse beyond your Source Entity and the other Source Entities,which is an Origin-based function.Is that not miracle enough for you,especially when such a small part of you is in the physical?You are doing what you signed up to do.On a worldwide scale,your books and your lectures/talks,both in groups and one on one,are starting to help increase mankind's understanding of your Source Entity's multiverse and that which is beyond,The Origin and the other Source Entities.You are also helping to increase the frequencies of the earth.Ah!I see that you have residual memory of your ability;this can be a big distraction and could inhibit you if you dwell on it too long.My advice is that you be content with what you are doing and move on with your purpose.
+
+7号源实体C：
 
 ME:OK,enough of me,or what I currently don't recognize as me.Let's move on,as you say. When I first contacted you,I received an image of your environment as being like a sphere of liquid,rather like water.Is that right?I find it hard to believe that you have an environment made up of,err,water. 
 
 SE7C:It isn't water but the make-up of the energy might give it similar properties to water or any other liquid you have on earth. 
 
+7号源实体C：
+
 ME:What do you mean similar properties to water? 
 
 SE7C:Looking at the way entities in your universe move/transport themselves in this most dense of environments,it would have a similar effect on the entities that exist in my environment.For example,it offers a significant level of resistance to their personal freedom of movement. 
 
+7号源实体C：
+
 ME:I keep getting this picture of an aquarium or huge,universe-sized goldfish bowl. 
 
 SE7C:That is because your information data bank is only able to give you a universe sized goldfish bowl as an example of how the combination of frequencies is constructed in my environment. 
+
+7号源实体C：
 
 I received more conceptual information from Source Entity Seven "C." 
 
@@ -1200,9 +1732,13 @@ ME:I feel that you have just given me a rather radical concept to consider here 
 
 SE7C:Correct.They are all merged together,nothing being separate but everything being together.It makes things compact.That is why you perceived the liquid-like condition of my environment. 
 
+7号源实体C：
+
 ME:Isn't this a bit like the "composite dimensions"that Source Entity Six described to me in Beyond the Source? 
 
 SE7C:No,only in name,and that name is only used to help you understand,which clearly at this point in our dialogue,you don't. 
+
+7号源实体C：
 
 ME:Hold on.Give me chance.I have just received some clarity in the image that I am receiving.The ball or goldfish bowl is not really liquid in appearance;it is more like steel, round shiny and hard.That's it;it looks like a ball bearing!It was the shiny outer surface that took me by surprise.A drop of liquid has some reflective properties in my physical universe, and so does a ball bearing. 
 
@@ -1210,9 +1746,13 @@ I was starting to realize that the sphere was a common shape.It had appeared in 
 
 SE7C:The perceived appearance of my environment is merely metaphorical.That which you are seeing/perceiving is a direct result of the intertwining.Is this the correct word?
 
+7号源实体C：
+
 ME:It will do. 
 
 SE7C:The intertwining of the dimensions,dimensional components and the frequencies provides you with no logical datum point to use.In essence,they are all one.Let me explain further.
+
+7号源实体C：
 
 ![图5](img/s6-040.png)
 
@@ -1222,27 +1762,39 @@ ME:You bet I'm frowning.I can see a headache coming on.
 
 SE7C:Let me give you an example.The area that would be occupied logically in your Source Entity's environment is as follows: 
 
+7号源实体C：
+
 A full dimension is constructed of three dimensional components or tritaves.Each tritave, except the first three tritaves,which are used to create the base full dimension only,are inflated with twelve base frequency sets.This structure is duplicated in what you would recognize as an upward manner. 
 
 ME:Yes,I know this quite well,and we just discussed it.Thank you. 
 
 SE7C:Bear with me.Well,in my environment,one of the tritaves can be substituted with a base frequency or,indeed,a full dimension.Also,a full dimension can be substituted with a base frequency or a tritave.Similarly a base frequency can be substituted with a full dimension or a tritave or both.With all of this happening concurrently,one can see an intricate weave of dimensional component,base frequency and full dimension.Try to imagine it as the biggest knot you have ever seen! 
 
+7号源实体C：
+
 I tried.It was difficult.And,yes,dear reader,my head hurt. 
 
 SE7C:It is best not to try too hard.I see that you are looking from the outside of me/my environment. 
+
+7号源实体C：
 
 ME:Yes,it still looks like a steel ball.But wait,I get the impression that there are,just as you insinuated by the word "Knot"-lots and lots of little loops with each loop being a connection to each of the dimensions,tritaves and frequency bands.It is as if they are all joined together even though they can and do pervade each other's logical"space."As you say, each of the components of frequency dimension or dimensional component(tritave)can replace each other.And again,as you say,this is not restricted in a one for one replacement as,for instance,two or even three full dimensions can sit in the location/position or whatever of say,a single frequency band.Or even a single tritave can be positioned in its logical position,plus that of a full dimension or a frequency band.Just then,I saw the connections between the environmental components twisting and weaving as the locations changed.It is a bit like an ever changing knot.It even looks like a bucket of snakes,except that the snakes are all linked together.It is quite bizarre. 
 
 SE7C:It is not bizarre to me because it has purpose. 
 
+7号源实体C：
+
 ME:OK,that's a good thing to start with.What is the purpose of this ever changing,fully substitutional knot of a ball bearing-looking environment?
 
 SE7C:Its purpose is simply to create confusion in terms of an entity's orientation within the environment. 
 
+7号源实体C：
+
 ME:What do you mean confusion?I would have thought that confusion was a fairly small purpose for an environment with such a complicated structure. 
 
 SE7C:Not in the slightest,for this is a most taxing environment to exist within.The method of evolution is in the functionality of the environment and how the entity works with it.I can see you frowning again,so I will explain further. 
+
+7号源实体C：
 
 The environment changes in a way that is not logical to its representation.Because the individual tritaves can either be next to a frequency band,be a frequency band,or be a full dimension rather than a component of a full dimension,their characteristics are not consistent with the characteristics of a tritave-for example,in its correct and logical structural position.This means that movement from one permutation of space to another is not recognizable as ascension or descension. 
 
@@ -1250,9 +1802,13 @@ ME:So you are suggesting that ascension is not possible in this environment and 
 
 SE7C:That is a very good point.Actually,there is only one level of ascension available to the entity as a result of working with this environment.And as you quite rightly suggested,this is a function of its structure.Please note though that the amount of work undertaken by my entities to work and traverse this environment does not go unrewarded,for the equivalent ascension profile is equal to two of those evolutionary levels attained by existing within Source Entity A B's environments.In actuality,it is equivalent to the evolution gained by working in and graduating from“A"and“B's”combined environments. 
 
+7号源实体C：
+
 ME:Thank you.I have been receiving images and feelings of dual existence whilst in this mixed up evolutionary arena.Can you explain what I am receiving,for it is something that I am having difficulty translating into recognizable imagery. 
 
 SE7C:OK,I can see your difficulty.When an entity that is working in what you would call the frequency band associated with a particular dimensional component and is,in turn, associated with a full dimension,it is able to move on to the next frequency band through its work in experiencing that which it desires to experience.It doesn't just move on to the next logical frequency band. 
+
+7号源实体C：
 
 ME:No,don't explain further;let me see if I can understand what is happening.I think I understand now.It moves into the space that is associated with the dimensional component/full dimension etc.That is,"in the place of"that next frequency band.This means that it occupies and exists within the space between the permutation of space that would be the next logical step if the next step was to be into a frequency band.Not only that, I get the feeling that it ends up in two places at once as a result.Further,the entity,with the space being what it is,what I would classify as a permutation of non-space,does not really occupy it because for the entity,it does not really exist.It leaves a part of itself in the frequency band that it previously occupied whilst the other part,that part that is looking for the next permutation to exist and work within,looks for the frequency band that would logically be next in line.It has to traverse all of the different permutations of non-space to find it,and that may and does include working with those energies that are associated with the non-space before it can progress because progression can only really happen in the frequency bands.The entities can end up being in two environments concurrently on a permanent basis if not careful,space and non-space,because the entity has the possibility of becoming lost.It has to hone its personal multi-dimensional,multi-frequency,multi- dimensional component(tritave)navigation system to the most accurate it can ever be in order to be successful.By learning from its experiences and applying that learning,the entity eventually finds the frequency band that is next in whatever guise it assumes.Once it has done that,the entity can "reel"in that part of itself that remained in the previous frequency band,that part of it that remained in the frequency band that the entity had "grown out of"being used as a sort of life line,a datum to help it recognize where it had been and where to try next in its quest for the next frequency band. 
 
@@ -1264,13 +1820,19 @@ WoW,I just received an image of this environment that illustrated the movement o
 
 SE7C:How very well done.You are getting the hang of this,aren't you?I,of course,hold it together with ease,for the environment is me,and I am the environment.But you knew this. The whole objective of my environment,me,is to teach the entities that either primarily exist within it or that migrate to it from one of the other environments created by Source Entities Seven“A”and“B”how to operate in a multi-dimensional,multi-tritave,multi- frequency environment by not being hung up on the structure of it-to teach the entity the methods and ways of multiversal existence created by a multi-dimensional,multi-tritave, multi-frequency environment and allow them to traverse from one part to another without the need for linear progression whilst having linear progression,if you understand what I mean.Evolution is all about experience and the learning from such experience;as such,it is linear in its progression.The ability for an entity to be truly multiversal in its functionality is a prima facie requirement for existence and its progression towards the return to its creator. An entity cannot truly be a creator if it is not able to function in the same way as ITS creator. This is a fundamental law-one that exists for all entities created by all of the Source Entities who,in turn,were created by The Origin. 
 
+7号源实体C：
+
 ME:So this environment you have created,that you are,seems to be more important than that of the other two Source Entities Seven "A"and "B." 
 
 SE7C:No one Source Entity is more important that the other for we all contribute to the evolution of The Origin.I have simply created a multiversal navigation conundrum,a classroom if you like,for the collective entity population of Source Entity Seven"in totality." This allows them to experience all of the things necessary to operate in the ways a creator should do. 
 
+7号源实体C：
+
 ME:Hold on.I have just picked up something else.All of this work,this teaching your entities to be master multiversal navigators is aligned to the image I picked up when I talked to Source Entity Five.Where all of the entities created by all of the Source Entities become equals with their creating Source Entities,and,the Source Entities all become equals with The Origin.More importantly,they all evolve together up to a level not yet experienced by The Origin,one it needs to move beyond the part of itself that it is currently aware of.The Origin created the Source Entities to help it achieve this "quantum"evolutionary leap. 
 
 SE7C:Again,very well done.
+
+7号源实体C：
 
 I felt Source Entity Seven "C"smile.It was the smile of knowing that I was starting to "get it."There was something very important going on here.I had "tripped up"on something. Something of such importance that it was not only important that mankind understood what was happening through the books created by my limited dialogues with The Origin and the Source Entities,but the word was being spread throughout the Source Entities and their creations by other entities like me.Ifelt very small in the sudden realization of my very limited understanding of this "huge"big picture and mentally logged the need to discuss this in more detail with The Origin directly. 
 
@@ -1278,17 +1840,25 @@ ME:Hold on,this is even more important than I imagined.All of the entities that 
 
 SE7C:Go on. 
 
+7号源实体C：
+
 ME:When all of the entities that have been created by the twelve Source Entities evolve to the point of equality with their creators and the Source Entities evolve to the point of equality with The Origin,everything ascends to the next level.At this point The Origin moves outside of its sphere of understanding of self by a percentage point,so to speak. This movement effectively multiplies the area of awareness of self to a level where the full awareness of self is a smaller part of an area that is both known and unknown.It quadruples the area of awareness to an area of awareness/non-awareness,to an area of knowledge of existence but not of experiential knowledge.It is like we know that we live on a planet in a galaxy in a universe that is part of a multiverse,but we only know a fraction of a percentage of the solar system our planet exists within.In actuality,we don't really know the planet we exist on as physical beings.We know bits of it,but certainly not all of it.But as our understanding of self and our environment grows,together with our technical and spiritual abilities,we detect more of our environment-that which was beyond our previous level of detection.We add it to the map.Well,we try to map it,but unless we experience that which is in those areas of space that is newly mapped,we are not fully aware of its properties.It is there but not there. 
 
 SE7C:What you are trying to say is that The Origin will become aware of that which is a greater part of itself but will need help in expanding its awareness of its expanded self. 
+
+7号源实体C：
 
 ME:Yes.Ok,you seem to have put in two lines what I have taken thirteen or even seventeen lines of text to do. 
 
 SE7C:Naturally.I can explain further if you like. 
 
+7号源实体C：
+
 ME:Please do.This is getting most interesting. 
 
 SE7C:To put it in simple terms my particular environment is designed to train those entities that either begin in my environment or progress to my environment in the art of navigation.I will explain further.The entities that exist in all aspects of Source Entity Seven, including“A”and“B,"Source Entity Seven in“totality,"and me are endeavoring to create a team of entities that contain all of the important aspects of existence necessary to allow them to grow into creators.This will allow them to create their own environments and hence populate that part of The Origin that becomes available for experiential use when the expansion/ascension occurs. 
+
+7号源实体C：
 
 The entities that "graduate"from this environment will be master navigators.They will be able to traverse and exist within and without the energies,frequencies,dimensions,tritaves and zones that make up the known and unknown area of the newly ascended Origin and populate it with newly ascended Source Entities. 
 
@@ -1296,11 +1866,15 @@ ME:Wait.Hold on a moment.What do you mean,newly ascended Source Entities?At the 
 
 SE7C:As you have seen in your visualizations,all entities will eventually become equals.As they become equal to their creators,they attain the same status as their creator and so will become Source Entities in their own right.In essence,the created will become the creator and will adopt the same status and reason for being in existence.They will be different from The Original Source Entities though insomuch as they will be able to find and adapt themselves to a location within The Origin that they feel is in keeping with their plans for experiential creativity and evolution.Each of them will be able to work outside the need to be "static"within The Origin's area. 
 
+7号源实体C：
+
 As you are aware,when The Origin created the twelve Source Entities,we were/are all stationary within The Origin's area of awareness.We do not move.There is no need for us to move,for we occupy that area which The Origin was aware of when it created us.It will expand its area of awareness to a greater level when we all ascend.You used the word "quadruple,"I believe,but this is not a correct word to use to describe The Origin's increase in size.The area of The Origin's awareness of self will increase when it becomes an area of knowledgeable awareness/non-awareness.Everything will expand and multiply:the zones, the dimensions,the tritaves,the frequencies and the energies.The word"quadruple"should be,therefore,explained as being a multiple of a multiple of a multiple of a multiple of the zones,the dimensions,the tritaves,the frequencies and the energies.It will be unbelievably larger than that which we are currently experiencing.And yet,it will still not be a percentage point of the total area of that which is The Origin. 
 
 ME:I am getting an image of a huge sphere,one that has levels within levels within levels.As one's perspective moves further away from the center,the level of intricacy multiplies on a multiple of an exponential scale each time one moves away from the center by a fraction of a percentage point. 
 
 SE7C:Yes,now you are getting it.Now do you understand?
+
+7号源实体C：
 
 ![Figure 7: Conceptual Image of the Levels and Layers of The Origin](img/s6-042.png)
 
@@ -1308,13 +1882,19 @@ ME:I think so.If I can just explain in summary.The anticipated expansion in The 
 
 SE7C:Correct. 
 
+7号源实体C：
+
 ME:That's AWESOME! 
 
 SE7C:Isn't it just?But it's more than that.The area will be so big that the newly ascended Source Entities will not be side to side,so to speak.They can be hidden away from each other in some part of the newly expanded area of awareness/non-awareness of self that The Origin will experience-hence,the need to be master navigators of that which is The Origin. These navigators will be called upon by the newly ascended Source Entities/themselves to guide them through the maze that will be the area of awareness/non-awareness of self that The Origin will be post-ascension.They will need to be able to traverse all conundrums that will be placed before them.That is why my environment is designed the way it is.To allow the entities to experience their environment as a conundrum and learn how to navigate it, to learn how to move outside the maze so to speak,to see the maze as if seeing it from above and drop down to that area required to be experienced.The introduction of these new Source Entities will greatly accelerate The Origin's ability to increase its awareness of self and to evolve.It will be the start of a wondrous time. 
 
+7号源实体C：
+
 ME:What will happen to The Original twelve Source Entities? 
 
 SE7C:We will assist The Origin in its own explorations of self.We will start again but in a different way. 
+
+7号源实体C：
 
 Again,I made a mental note of this discussion as one that I will progress with The Origin in "The Origin Speaks." 
 
@@ -1322,9 +1902,13 @@ ME:I have just noticed that I haven't asked you what your entities look like yet
 
 SE7C:What they look like is of no consequence,for in my environment they need no physical or energetic form.All those entities that come from "A"and "B's"environments are converted to the formlessness required to work in this environment;hence,I cannot give you a form,for they neither need one nor use one,physically or energetically. It is time for you to move on and conclude your dialogue with Source Entity Seven "in totality"before moving on to Source Entity Eight.Go now. 
 
+7号源实体C：
+
 ME:I thank you for your "time"and wisdom. 
 
 SE7C:It was,as you call it,a pleasure. 
+
+7号源实体C：
 
 And with that the third Aspect of Source Entity Seven,Source Entity Seven "C"was gone.Almost immediately,I felt the combined energy signature of Source Entity Seven "in totality"as it approached me to conclude our dialogue. 
 
@@ -1334,25 +1918,37 @@ ME:It is an interesting feeling when you all become one again.I mean,you all hav
 
 SE7:Of course.You see,when I split into two and then recognized the opportunity for a third aspect,the frequencies above and below my base frequency were occupied by the newly individual aspects of myself,the third aspect remained in The Original frequency,which simplistically put is the average of the three separate frequencies.That is,if you added them up together and divided them by three you would return to The Original base frequency. 
 
+7号源实体：
+
 ME:I expect that is because the frequencies above and below the base frequency,those occupied by Source Entities 7A and 7C,are equidistant from The Original base signature. 
 
 SE7:Correct.And that is why it feels like it's the same. 
+
+7号源实体：
 
 ME:I am honored to receive the information from SE7C about what could/will happen when we all ascend and become Source Entities in our own right. 
 
 SE7:You should be.You are the first of your kind to receive such information.It is important that you pass it on for all to recognize and understand,for it will make a difference in the way incarnate mankind interacts with each other,specifically those who are on the path of enlightenment and ascension. 
 
+7号源实体：
+
 ME:How do you know of our ascension?I mean,you are so far removed from my Source Entity and its work,and you have your own work to focus on. 
 
 SE7:You are aware that we are all linked,linked to allow the evolutionary content we collect to be passed on to The Origin? 
+
+7号源实体：
 
 ME:Yes. 
 
 SE7:Well,the Source Entities also benefit from the evolutionary content of each other,and as a result,we all receive each other's experience,learning and evolution so that we can all evolve at the same time.Even the Source Entity that is not yet aware(I will call this Source Entity "Twelve"later in this book.)benefits,as we benefit from its slow road to awareness. As a result of this link I/we know how each other's creations are "doing,"so to speak.That is how and why I and each of the other Source Entities can and do offer you advice. 
 
+7号源实体：
+
 ME:And all of this information is being shared on an instantaneous basis I suppose. 
 
 SE7:You suppose right. 
+
+7号源实体：
 
 What I/we have shared with you these past few weeks is but a minor summary of what we perform and create on an on-going basis.In your current state,you will never be able to comprehend more than the very basics of what your Source Entity achieves,let alone what the other Source Entities are working on.Do not take this as an indication of failure to overcome your limitations but more of a statement of "what is"based upon the limitations you have given yourself currently. 
 
@@ -1372,9 +1968,13 @@ I have to admit that at this point in the dialogue-including those with the othe
 
 SE:I just I wanted to congratulate you on your progress so far.You are progressing with this work faster than expected and improving in all sorts of ways.Your desire to contact and communicate with as many people as possible about God(me)and the greater reality (the other Source Entities and The Origin)is a wonderful sight to behold as is your desire to be seen as an approachable man on the ground,explaining the greater reality in ways that are understandable to the common man,as well as the spiritually adept.This is and will be your greatest strength.To answer one of your own questions-the time is not far away when you will be a full-time teacher of the truth,for the doors are opening in the correct sequence. Enjoy the synchronicity and effortlessness of my multiverse and its function (workings); marvel at its splendor,its simplicity,its grandeur;go with its natural flow of energies and inherent evolutionary opportunities;be at one and at peace with it.See how it interlinks with the works of the other Source Entities and understand your place,your destiny,your inheritance within The Origin's plans,for we are all part of The Origin's great plan. 
 
+源实体：
+
 ME:Wow!That was a bit of a grand speech,wasn't it?What caused that? 
 
 SE:The need for you to recognize the importance that you are doing your "life's work,"for it is not about living what you would call a "normal life."It is about being of service within a most important function of the omniverse. 
+
+源实体：
 
 This was a new word,one that even a humble incarnate as myself recognized as being above,well above,the concept of a multiverse. 
 
@@ -1382,9 +1982,13 @@ ME:Now you have my interest.What is an omniverse?
 
 SE:Simply put,The Origin. 
 
+源实体：
+
 ME:Hold on here.Why did I pick up the word "continuum"then? 
 
 SE:Because The Origin contains all functions with the continuums being a fraction of them. This is something you will discuss at length with Source Entity Eight,for it is entirely composed of continuum.The plural of continuum is continuum-hence,the imagery it just presented to you. 
+
+源实体：
 
 ME:This sounds like a good time to link up with Source Entity Eight. 
 
@@ -1392,19 +1996,29 @@ I made yet another mental note to talk to The Origin on the functions of an omni
 
 SE:There is no time (event space)like the present. 
 
+源实体：
+
 SE8:This sounds like it is the correct event space to check in then.
+
+8号源实体：
 
 ME:That,err,was quick.I expected to perform some preliminary work on my communication link with you first. 
 
 SE8:Why?We have already been in communication. 
 
+8号源实体：
+
 ME:WHAT?Run that one by me again,will you?I think you might have misunderstood. 
 
 SE8:On the contrary,it is you who is the one who misunderstood,for we have spoken before and on many subjects. 
 
+8号源实体：
+
 ME:I can see that it is time for my head to hurt.But wait;just let me think about this for a moment.My Source Entity said you are made up entirely from continuum.Does this mean that we communicated whilst the I part of me that is the energetic was in another continuum? 
 
 SE8:Yes,for I am spread throughout the known omniverse(Origin). 
+
+8号源实体：
 
 In my mind's eye I saw that this was true.Source Entity Eight pervaded the space of the known Origin,that part of it that was within its area of self-awareness.There was one other thing though.(Only one?That will be the day!)How can that last statement relate to the image I saw in my mind's eye,the image of a sphere covered in cone shaped spikes?I decided that there was only one thing to do-ask Source Entity Eight what the image and the statement about Source Entity Eight pervading The Origin as a continuum within a continuum meant.Moreover,how did this relate me having previously communicated with Source Entity Eight?I was dying to know.I do like these conundrums.
 
@@ -1414,31 +2028,45 @@ ME:OK,both the myriad readers/truth seekers out there and I want to know how and
 
 SE8:Of course.Communicating with you again is going to be fun. 
 
+8号源实体：
+
 I was starting to get the impression that there was something going on here and that I really wasn't the new boy in town that I thought I was-at least,not if I included that part of me,the greater part that was still mainly energetic.I decided to use this thought as a springboard for what I hoped would be a logical and quick answer. 
 
 SE8:Quite simply,we have communicated many times whilst you were fully energetic.We planned the communication process we are about to start right down to the finite points of the minute details.This was a very important piece of planning work,for we needed to understand what you were going to be able to both understand and relay back to those who would seek to know more about the greater reality of existence beyond the environment that is your Source Entity.This is because the concepts surrounding my environment that we are going to discuss are difficult at best for incarnate humankind to understand,even in the most basic sense. 
+
+8号源实体：
 
 ME:So,bearing in mind that you "Source Entities"are sharing each other's information and evolutionary growth on an instantaneous and continual basis,can you tell me whether or not I have whilst in the energetic form made a similar level of pre-planning and preparation for the dialogues to date and that I am due to have? 
 
 SE8:Yes,you have.Of course,the level of planning has been varied and dependent upon the level of information you were expecting to work with,including the energies of the Source Entities you have and will communicate with.In this instance you may have noticed a pattern in the level of dialogue and complexity in the concepts increasing in complexity the further away from your own Source Entity you go. 
 
+8号源实体：
+
 ME:Well,I have noticed that the depth of information that I would have liked to extract has been not so much limited as more generalised.I have also noticed that the energies surrounding the Source Entities I have enjoyed dialogue with has been significantly different each time.Although it was significant,it was not insurmountable.I could work with it and even tune into it and get used to working with those energies.I even noticed that the more I continued dialogue with a new Source Entity,the more I could understand the information and receive more conceptual data.I reckon that the Source Entities I have communicated with to date have been in a certain order to allow me to ramp up each time, allowing me to move onwards and upwards in terms of my communicative (energetic link) abilities.Thus,I was able to use each Source Entity communicated with as a stepping stone for the next one.I guess that my going from my own Source Entity to Source Entity Four would have been an impossible task? 
 
 SE8:Correct.You may remember a previous dialogue (see Beyond the Source Book 1)where your progression outwards from your own Source Entity was described as being out on a lanyard,with the lanyard being "let out"the further you go to meet that metaphorical distance needed to travel to meet the next Source Entity in your list. 
+
+8号源实体：
 
 ME:Actually,I do. 
 
 SE8:Well,that was in place to make sure that you did not or could not move out too far or start communication with the wrong Source Entity.It was designed to keep you in the correct sequence.In fact,what you don't know is that metaphorically speaking,the Source Entities have placed themselves in a sort of line or in order set distances away from your start point with your Source Entity to ensure that this strategy worked.WE ARE ALL WORKING WITH YOU TO SUPPORT YOU IN YOUR MOST IMPORTANT TASK. 
 
+8号源实体：
+
 ME:Wow!..Sorry,but that's all I can muster.The suggestion that you are all,err,moving around to suit my communication strategy is just a bit too much for me to handle right now. Specifically,as I am just a small energetic being. 
 
 SE8:Don't malign yourself.You have no idea what you are really like when fully energetic. 
+
+8号源实体：
 
 ME:Clearly not.It's just a bit of a surprise to note the amount of pre-planning even though I am not cognisant of the full details that must have happened to allow all of this to occur. 
 
 Right I now need to refocus and continue the task at hand rather than feeling small in the bigger picture of what is happening in the greater reality. 
 
 SE8:Good,I am raring to go. 
+
+8号源实体：
 
 ### Source Entity Eight-A Continuum of Continuums
 
@@ -1448,7 +2076,11 @@ At this point in the dialogue,dear reader,I knew that this was going to get diff
 
 SE4:"As you rise through the frequencies,you move away from that which you experience at the previous frequency and start to experience that which is present in the new frequency. That is,using your own frequencies as an example,because things like the desk you sit at (of a slightly lower frequency than yourself and therefore solid)will no longer be part of your new frequentic level.You will,however,experience other things that are consistent with your experience or expectation of what a solid object such as your desk is.This is because frequencies overlap to a certain extent,and you are still within a single dimensional continuum.Now if you consider a change from one dimension to another,then you have to consider a bigger picture-that of the dimension and the frequencies.When you move from dimension to dimension you also move from the frequency set that is aligned to the dimension being moved from to the frequency set that is aligned to the dimension being moved to." 
 
+4号源实体：
+
 SE5:"....there is only one environment that can be called a continuum,one that involves dimension,frequency,energy and the recognition of the passage of events and time,which is where you are right now.A parallel dimension of equal content could be classified as a continuum but only if it has the full complement of the four components specified above. None do in YOUR universe.You need to be in a "multiversal"environment to have this effect take place." 
+
+5号源实体：
 
 Below is the Wikipedia description. 
 
@@ -1458,33 +2090,49 @@ Confused?Me too!But the comment about the "body"being continuously distributed,f
 
 SE8:Ah,yes.No,it's woefully inadequate and goes nowhere near explaining any part of a continuum within me or The Origin.In fact,there is no humanly derived mathematics that can be used to model me. 
 
+8号源实体：
+
 Well,that answers that question on definition and our mathematical prowess to explain what a continuum is. 
 
 SE8:So without,so within. 
+
+8号源实体：
 
 ME:What is that supposed to mean? 
 
 SE8:That is the best way to understand a continuum;everything that is within is without as well.You see,the image of the cones on my supposed exterior form are the same in reverse inside the sphere. 
 
+8号源实体：
+
 ME:Now you are losing me. 
 
 SE8:The cone is both a geometric shape and a mathematical constant.It is also one of the shapes used to convey higher information.As a mathematical constant,it can be used in myriad ways. 
+
+8号源实体：
 
 ME:You mean it is like the number associated with Pi(3.14159265,etc.). 
 
 SE8:Yes,with the exception that it is a multi-dimensional,multi-frequential constant and,therefore,is a mathematical cornerstone to the mathematical explanation of my construction,so to speak. 
 
+8号源实体：
+
 ME:So the image I received of you as a sphere-covered in cones,which may or may not be inside out within you is a symbolic representation of the way you are constructed. 
 
 SE8:Bingo!...Is that the right word?
+
+8号源实体：
 
 ME:It will do.We use it as an expletive for the recognition of understanding of something. Eureka!would have been a more appropriate way of expressing your concurrence of my miniscule level of understanding though. 
 
 SE8:Then my use was correct,a diminutive word for the miniscule level of understanding of the concept. 
 
+8号源实体：
+
 ME:I very much don't think that I even understand it on even a miniscule level yet.Can you go into a bit more detail for me? 
 
 SE8:With pleasure.But first let me tell you this.All 3D geometrical shapes are geometric explanation of a mathematical constant.I limit myself here to the use of 3D as there are 4D,5D,6D,7D,etc.,up to 12D geometrical shapes that are also constants,including that which humankind is not currently aware of.Some of your mathematicians are starting to understand this,but they need to include the wider multiversal environment and the energies associated with The Origin before they will start to make any sense of the maths surrounding it.It is the use of such mathematical constants that are the major language of the planets,stars and the galaxies and of whatever presentation,form and function within most of the environments created by the Source Entities that can be classified in some way as the physical representations of energetic constructs,a physical universe if you like. However,a physical universe,such as the one your vehicle(physical body)currently resides in,cannot be classified as a continuum as it does not contain all of the elements required to be classified as one.As Source Entity Five stated in its dialogue with you on the subject,you need to have the "multiversal"content to classify an environment as a continuum.
+
+8号源实体：
 
 The sphere in your image represents all that currently is The Origin with the cones representing the mathematical constants,or pit props if you like,that hold me in my current position within that which is currently The Origin.Each of these has a loci which is in contact with each other at a mathematical point of,err,let's say,absolute zero.I can see you frowning,so let me explain what absolute zero is. 
 
@@ -1492,9 +2140,13 @@ ME:You bet.I thought that zero was zero with a plus and minus component above an
 
 SE8:It is not a concept that mankind has to consider yet in its limited recognition of self,environment and creator.Absolute zero is a zero that is manifest from a group of converging mathematical constants that are individually derived but collectively dependent whilst still being independently calculable.The absolute zero is that point or mathematical location where a locus of the individual loci of a group of constants occurs simultaneously, the physical representation of such a condition not being possible due to the fact that "physicality"is a single universal phenomenon and not multiversal.However,there are instances where a simulacrum of physicality can occur in non-physical universes due to similarity in resonant frequency.But you already know this from previous dialogues. 
 
+8号源实体：
+
 ME:You talk about"that which is currently The Origin."What do you mean by that? 
 
 SE8:I haven't finished yet. 
+
+8号源实体：
 
 ME:I know,but I feel that the readers would like to understand.SE8:Simply put,it is what you have recently been told by Source Entity Seven "in totality.That at some point The Origin will evolve and expand its area of awareness of self further.The expansiveness of The Origin will be multiplied to the point of infinity in your mind,but it will still be a mere fraction of what is possible for The Origin to be.Currently,The Origin is a fraction of one percent aware of itself.The expansion in the area of self-awareness will bring the area of awareness un-mapped experientially to a little under one percent of its totality. 
 
@@ -1502,15 +2154,21 @@ ME:Ah,OK.I was just making sure that there was not anything else happening to Th
 
 SE8:Ha,ha,ha,ha,ha!How naive you are.The Origin is always changing,and for you to say that you don't want to miss anything?Well,I will tell you this.When you have finished all of your current lifetimes'work on the subject of helping mankind understand the truth, and you have some considerable distance to go,you will still know nothing in comparison to what IS. 
 
+8号源实体：
+
 ME:OK.OK.It was a foolish thing to say.I am blushing now.I think it's time for me to let you carry on in your explanation of the relevance of the imagery I received about your structure. 
 
 SE8:Thank you.Please note that I was not trying to put you down.Far from it.It's just that it was a good joke to me.Your comment reflected mankind's self-centered "know it all" arrogance.Even The Origin doesn't know everything;hence,its need to create the Source Entities to help it in its own quest to experience,learn and evolve.I am sorry;I just found it very funny for a moment. 
+
+8号源实体：
 
 ME:That's alright. 
 
 I was starting to chuckle to myself;tears were forming in the corner of my eyes as I,too,saw the joke! 
 
 SE8:It's good to laugh.We Source Entities do it all the time.We have so much fun in doing what we do that we can't help but laugh. 
+
+8号源实体：
 
 I wondered how a Source Entity would laugh.No,don't ask that question! 
 
@@ -1520,17 +2178,25 @@ I failed on that piece of temptation.
 
 SE8:How we laugh is unexplainable to you.But I will tell you this:when a Source Entity laughs the whole of its environment receives unfathomable love.Everything and everyone within its environment/s feels a wonderful sense of "well-being"for a split second. 
 
+8号源实体：
+
 ME:I think I have felt this once or twice in my life. 
 
 SE8:All of mankind has. 
+
+8号源实体：
 
 ME:Thank you.
 
 SE8:It's a pleasure. 
 
+8号源实体：
+
 I mentally logged in to one of those moments that I believed were associated with me having a snippet of full self-awareness and realized that this may have been one of those moments when our Source Entity laughed.It felt wonderful. 
 
 SE8:Now then,let's continue to talk about how the imagery you received explains my form and function.I will repeat what I previously said.
+
+8号源实体：
 
 "The sphere in your image represents all that currently is The Origin with the cones representing the mathematical constants,or pit props if you like,that hold me in the position that I am in within that which is currently The Origin.Each of these has loci which are in contact with each other at a mathematical point of absolute zero."Got it so far? 
 
@@ -1538,9 +2204,13 @@ ME:Yes.
 
 SE8:Good.The cones are on the outside because they represent the number of continuum that I am constructed of.In essence,they are on the inside,figuratively speaking.Therefore, each of the tips of the cones is in contact with each other at the center point of the sphere that represents my epicenter of existence within the area of The Origin that is its current area of self-awareness.If you were to expand your consciousness,you would notice that each of the continuum are placed close enough to one other to allow the exterior surfaces to touch each other,creating an interface between the continuum where an entity could pass from one continuum to another.The gaps in the middle,i.e.,where the continuum do not touch,are those areas where the maintenance of the structure of the continuum can be addressed.These gaps are absolutely necessary and vital to the overall balance of energies as there must be an equal area of non-continuum to continuum to allow the structure to be maintained.Do not,however,be confused by the word non-continuum for the area of non- continuum is a continuum in its own right.Am I making myself clearly understood here? 
 
+8号源实体：
+
 ME:I think so.But I don't understand why you need an equal amount of single non- continuum to multiple continuum. 
 
 SE8:Simply put,there has to be a balance.The sum of the whole has to equal the one,and the one has to equal the sum of the whole.That,my friend,is the basis of continuum mechanics. Everything that exists within,exists without,whilst still being within.That is the only way that a continuum can maintain its structure and independence.That and with a little help from my continuum mechanical maintenance entities. 
+
+8号源实体：
 
 ME:That sounds like the opportunity for a lead in to my next question.Who and what are these continuum mechanical maintenance entities? 
 
@@ -1548,45 +2218,67 @@ ME:That sounds like the opportunity for a lead in to my next question.Who and wh
 
 SE8:They are entities whose sole purpose in existence within my environment is to maintain the stability of the continuum and the continuum within my continuum.Their most important work is to maintain the location of the locus,for this is the lynch pin that holds the continuum together. 
 
+8号源实体：
+
 ME:I would have expected that a locus,especially if it is the locus of a series of loci,would be stable.By the tone of your dialogue above,you are suggesting that this is not the case,and that it needs to be maintained in some way. 
 
 SE8:Your expectation would be correct where the locus in an area of stability.But The Origin,and as a result,I,in my dissemination throughout The Origin,are not stable.We will never be stable. 
+
+8号源实体：
 
 ME:Why is that?I would have thought that The Origin,being the vast expanse that it is would have an inherent level of stability,especially as it is the basis for everything that is.
 
 SE8:You are talking about dimensional stability,I feel. 
 
+8号源实体：
+
 ME:Yeeees! 
 
 SE8:Well,I am talking about evolutionary stability.You see,evolutionary stability has an effect on dimensional stability,specifically where The Origin is concerned. 
+
+8号源实体：
 
 ME:Right!Err,how? 
 
 SE8:You will remember that in previous dialogues you have been told about the ascension of The Origin and that its evolution creates this ascension.That its ascension will allow it to expand its area of self-awareness even though it will not be cognizant of the details of those new areas of self-awareness. 
 
+8号源实体：
+
 ME:Yes,I do. 
 
 SE8:Well,the area of expansion of self-awareness is not even.What I mean by this is that it is not expansion in the spherical sense of the word.It is more uneven,lumpy.It is as result of this lumpiness that the locus of the loci changes location within me,and,therefore, The Origin.Now then,we are not at that point of expansion resulting from ascension yet. However,The Origin is expanding.It's always expanding,and the expansion is in its level of experiential detail of its current area of self-awareness.It is this expansion that creates evolutionary pressure,which results in minor changes in the external perimeter of the area of self-awareness of The Origin and,therefore,the position of the locus. 
+
+8号源实体：
 
 ME:So The Origin has dimensional area? 
 
 SE8:In a sense,yes.You see,its area is unfathomable even to us,as none of us has really been able to calculate what size,if you like,The Origin will be when it reaches recognition of one hundred percent of its area of self-awareness.But please note here that the dimensional area is a function of evolution,not a so-called measureable metric that you would use in the universe that the Earth is within. 
 
+8号源实体：
+
 ME:As I understand it then,these entities whose job it is to maintain the position of the locus must be able to understand or measure in some way the changes to the outer edges of you as a continuum within The Origin,and make adjustments as appropriate. 
 
 SE8:Spot on.Do not think that it is just the locus that they have to work with.The locus is the product of the absolute zero points of the loci. 
+
+8号源实体：
 
 ME:And they have to manipulate the levels of absolute zero to compensate for the changes in The Origin's area of self-awareness,which affects you as a continuum within the totality of that part of The Origin which is known in detail... 
 
 SE8:..And that it is becoming self-aware of. 
 
+8号源实体：
+
 ME:We finish in tandem. 
 
 SE8:We do. 
 
+8号源实体：
+
 ME:Based upon that then,the levels of absolute zero are not,in fact,absolute zero. 
 
 SE8:No,for absolute zero is not a fixed mathematical point.It is dependent upon the area, position (within me)and dimension,dimensional component,frequential and energetic components associated with the continuum it is absolute zero of and,therefore,a loci for. What you are looking for is a fixed point of zero.A fixed point of zero is an altogether different thing. 
+
+8号源实体：
 
 Just when I thought I was on a roller,I score a bogey! 
 
@@ -1594,13 +2286,19 @@ ME:Go on,tell me.What is a fixed point of zero?
 
 SE8:Quite simply the expression of that position or locus that is always collectively achieved by the mathematical representation of all of the possible positions achievable by the locus or collective positions of absolute zero of all of the continuum at any point in the evolution of The Origin.I will give it a word you can understand,a datum.A datum that is always created even though stable rather than being a start or a point of origin. 
 
+8号源实体：
+
 ME:I can imagine a few mathematicians having a field day over discussing that statement. They won't believe a word of it. 
 
 SE8:I would like to see them disprove it.It is what holds everything together.Scientists rarely,if ever,see the fundamental basis for WHAT IS,for they are always working with the PRODUCTS of what is. 
 
+8号源实体：
+
 ME:OK,I would like to go back to the entities who maintain the different continuum.How and what do they do to maintain the overall continuum environment and the point of absolute zero? 
 
 SE8:As explained above.The point of absolute zero for each of the continuum is based upon the evolutionary periphery that the base of the "cone"that represents the continuum and its contact with the outer periphery of the continuum,that is me,and the outer edge of The Origin's area of self-awareness,and its subsequent point of contact with the other continuum cones,so to speak.Simplistically put,the entities are constantly calculating,if you like,the levels of evolutionary pressures in the area of the continuum they are responsible for and noting how it affects their position of absolute zero.This is done concurrently and simultaneously throughout the continuum and its component continuum.This continual calculation results in the constant and consistent movement of the point of absolute zero in conjunction with the movements of the other points of absolute zero that represent the locus of the loci.
+
+8号源实体：
 
 ![Figure 9: Conceptual Image of Source Entity Eight's Internal Structure(the points of the internal cones are the loci of the associated continuum, which are represented by the cone shape)](img/s6-044.png)
 
@@ -1608,13 +2306,19 @@ ME:I just received an image of the points moving in and out and round and round 
 
 SE8:The image you have received would be a correct representation apart from one thing. 
 
+8号源实体：
+
 ME:What's that? 
 
 SE8:Sometimes there is a disconnect,and one of the continuum loci's loses contact with the locus. 
 
+8号源实体：
+
 ME:What?!When does that happen?More importantly,how can it happen,especially if the fixed point of zero is,err,fixed? 
 
 SE8:Very good question.The fixed point of zero is what it is,fixed.So when the odd occasion occurs where the loci,the point of absolute zero of a continuum,either moves away from the locus as a result of incorrect calculative action on the part of the maintaining entities or as the result of a sudden and rapid change in evolution,the loci of the continuum remains in contact by a continuum thread so to speak.Call it a bungee rope if you like,for it allows the loci of the continuum to remain in place whilst the bulk of the continuum is adjusted to be in the correct position from a geometric perspective. 
+
+8号源实体：
 
 The reason this happens is because evolution is not an exact science.It happens in fits and starts.Devolution can also be experienced as can evolutionary compression,evolutionary expansion,evolutionary expression and evolutionary stretch,which by the way is not the same as evolutionary expansion. 
 
@@ -1623,6 +2327,8 @@ ME:I had heard of loss of evolution,devolution,but not the others.Can you explai
 ### How the Different Forms of Evolution Affect Source Entity Eight's Continuum 
 
 SE8:I will split them out and illustrate how they affect the order within my continuum. 
+
+8号源实体：
 
 **Rapid Evolution**
 
@@ -1710,53 +2416,79 @@ ME:I had no idea that there were so many types of evolution.Although it's incred
 
 SE8:Of course.You see,each of the entities in my continuum are powerful creators in their own right,and as such,they are able to accelerate and decelerate the evolutionary content of their environment accordingly.This allows them to moderate (control)how and when they evolve,including what activities and experiences lead to the evolution they want to experience. 
 
+8号源实体：
+
 ME:Hold on a bit.I am getting the impression here that your entities are doing things in reverse to what I and other entities I have encountered. 
 
 SE8:Such as? 
+
+8号源实体：
 
 ME:Well,in the dialogues I have experienced to date,entities experience different things in order to learn and evolve.The evolutionary content is a product of the subsequent experiences and learning undertaken. 
 
 SE8:Go on. 
 
+8号源实体：
+
 ME:Well,reading between the lines,your entities appear to change the evolutionary content,or should I say,"signature,"in this case,of the continuum and the universes contained within the continuum.The objective is to experience the existence opportunities that are only available at certain levels of evolution.This creates a resultant level of"real" evolution as a product of the types of experience required and the evolutionary signature demanded of the continuum necessary to create such experience and subsequent learning and real evolution.Would this be correct? 
 
 SE8:It might be. 
+
+8号源实体：
 
 ME:What do you mean "it might be"? 
 
 SE8:There has to be agreement with those entities who control and maintain the continuum first,including those entities who control and maintain the neighboring continuum,for as you know from the previous communications we have had,the evolutionary content experienced or contrived for the benefit of real evolution,affects those continuum surrounding the continuum in question. 
 
+8号源实体：
+
 ME:So what you are saying to me is that any changes to the evolutionary status of a continuum that are made to enable different experiential learning conditions to be available for experience are agreed upon by basically all the entities concerned before the change is made. 
 
 SE8:Not only that.They have to agree with the need or desire for the change requested. You see,the entities in a particular continuum may be happily working their way through a number of evolutionary experiences at that point in time of the request.The real evolutionary content of which might be of real evolutionary benefit to them,and they may not have completed the work and want to see through.Moreover,the change requested may also affect their continuum in a way that is either limited in evolutionary content for them or even puts them in a position of real evolutionary stasis/devolution.
+
+8号源实体：
 
 ME:Hold on a moment.All this is very well,but what this means to me is that there is not only one evolution,the evolution,real evolution,that is accrued by a continuum and its entities,but there is a sub-evolution that is used to force experiences that would not be available to a continuum or its entities if it stuck to its normal real accrued evolutionary schedule.Not only that,but the opportunity to use the sub-evolutionary opportunities actually has the potential to affect the real evolutionary progression of a continuum and its entities in a negative way. 
 
 SE8:Correct.But the beauty of it is that in accepting the possibility of evolutionary stasis for the benefit of another continuum,a continuum and its occupants can accrue more evolutionary points,so to speak,than it would do normally.In essence,it creates a sort of leapfrog effect. 
 
+8号源实体：
+
 ME:Now you are confusing me.Are you suggesting that modification of what I will now classify as "sub-evolution,"that is,sub-evolution in your environment that affects real evolution in a negative way,results in positive evolution simply because it is related to "self- sacrifice,"and I say "self-sacrifice"in the "collective entity within a multiverse within a continuum"way? 
 
 SE8:In a nutshell,yes.You see,the most powerful evolutionary tool an entity can use is one of self-sacrifice for the benefit of others.This includes the individual and the collective versions,not to forget universal,multiversal and continuum-based evolutionary sacrifice. Any self-sacrifice for the benefit of others results in evolutionary gain above and beyond that gained in normal experiential existence.
+
+8号源实体：
 
 ME:Why is that? 
 
 SE8:Because it requires no knowledge of the outcome of the sacrificial act by those making the decision.It is "the"only decision any entity can make without precognition of the resulting effect of the decision.This includes decisions made by any entity or collective of entities in whatever format,be it singular,universal,multiversal or continuum-based. 
 
+8号源实体：
+
 ME:So you are telling me that there are some decisions that are blind decisions,even at the energetic level? 
 
 SE8:Of course.Evolution wouldn't be the fun it is if there wasn't.
+
+8号源实体：
 
 ME:And every entity that has created or has been created knows this? 
 
 SE8:Yes.And that includes all entities created by all Source Entities,for it is an Origin decreed onmiversal rule. 
 
+8号源实体：
+
 ME:That's amazing. 
 
 SE8:What is? 
 
+8号源实体：
+
 ME:That there is a rule that affects everything and everyone no matter which Source Entity created them,the entity,the universe,the multiverse or continuum.It is the same for everything and everyone. 
 
 SE8:Well,there are many other rules of a similar nature,but now is not the time to discuss them.
+
+8号源实体：
 
 ME:OK,I can live with that.It was getting complicated anyway. Especially the bit about what I call sub-evolution affecting real evolution in a quantum leap sort of way when decisions are made based upon self-sacrifice with no knowledge of the outcome for the entity,universe,multiverse or continuum. 
 
@@ -1764,21 +2496,31 @@ ME:OK,I can live with that.It was getting complicated anyway. Especially the bit
 
 SE8:Good.Let's talk about your next subject. 
 
+8号源实体：
+
 ME:Which is? 
 
 SE8:What the entities do who maintain my continuum.Apart,that is,from coping with the evolutionary conditions discussed,and how and why they maintain the loci's positional relationship with the locus of the continuum that is me. 
+
+8号源实体：
 
 ME:Sounds like a plan to me.I guess the best way to kick this off then is to ask you a rather fundamental question first.What form do your continuum maintenance entities have? What work do they do other than the maintenance of the position of the loci,and are they the same for all continuum? 
 
 SE8:So this is one of your famous nested questions. 
 
+8号源实体：
+
 ME:Famous,I hardly think that my questions or,indeed,the structure of them is famous. 
 
 SE8:You may not,but I can guarantee they are from where I am standing,so to speak.They are so famous they are being counted.
 
+8号源实体：
+
 ME:Counted??!!Good grief,I must remember to ask questions in a linear fashion in the future then,to avoid further infamy. 
 
 SE8:Don't force it,we,the Source Entities that is,greatly enjoy your nested questions.Let's carry on with the first part of your question:what form do my continuum entities take? 
+
+8号源实体：
 
 First of all,let me elaborate a little on the starting point of a maintenance entity's existence shortly after creation. 
 
@@ -1795,33 +2537,49 @@ ME:I thought you said that they had a choice?
 
 SE8:They do to a certain extent,but that extent is only relative to the type of aptitude they have.There are sub-roles you know,and these are filled by entities who have a desire to be involved with the maintenance of the continuum,but who do not desire to be part of the decision process that is required to be adhered to when considering issues of evolutionary concern.These entities may even desire to stay in the service of continuum maintenance for an agreed period only before entering into the continuum as an evolving entity. 
 
+8号源实体：
+
 ME:Hold on,are you suggesting that entities that are of service to the maintenance of the continuum do not evolve? 
 
 SE8:Of course,they evolve.Every entity evolves.It is just that they do not evolve as a result of their own volition,their own work;instead,they evolve as a result of being of service, which is a slower process when compared to working on one's own evolution within the confines of the continuum.Evolutionary progression is always faster if one is at what you call "the coal face."(See glossary for definition.) 
+
+8号源实体：
 
 ME:I would have thought that being of service is a faster evolutionary route than as being an evolving entity. 
 
 SE8:In any Source Entities'environments,the only way that an entity can evolve fast is through being party to their own development by the interaction with other entities and the environment they exist within.If an entity is "being of service"whilst being involved in the process of being in control of their own evolution,and the object of their being of service results in them making a conscious decision to give up items of their own evolutionary opportunities so that they can be of service to the evolutionary opportunities of other entities,then they can enjoy greater levels of evolution than those accrued by simply being of service-that is done without the underlying knowledge of evolutionary law.That law states that an entity who gives up its own evolutionary opportunities for the benefit of others and does this without the possibility of any selfish decision to gain evolutionary progression under the disguise of self-evolutionary gain through initial magnanimous action of self-sacrifice for eventual self-gain,then they will gain progression faster than they would have in a normal existence where they are only concerned with their own evolution.The problem here is that my entities know the omniversal law of evolution and, therefore,have to put themselves into areas of existence and experience where they could,in fact,terminate their existence if they are being of benefit to others.For them,the only way they can be of true service is if they make true self-sacrifice,the ultimate sacrifice of self- termination,where their own termination is achieved in the full knowledge of their own ultimate demise but in the full knowledge that they have achieved an improvement in the evolutionary condition of those entities that the sacrifice is made for. 
 
+8号源实体：
+
 ME:So what happens to them when they make this ultimate self-sacrifice,one that they make in the knowledge that they will be terminated because,and help me out here,they know the omniversal law of evolution of being of service and the resultant opportunities in evolutionary progression?So why would they choose this particular route if it is to all intents and purposes the end of the line in their own individualized existence? 
 
 SE8:Pride. 
+
+8号源实体：
 
 ME:Pride?
 
 SE8:Pride. 
 
+8号源实体：
+
 ME:Go on.You are losing me. 
 
 SE8:My entities experience an immense feeling of pride when they decide to make this level of service,especially when it is to directly benefit another entity-and specifically,if they have been in existence for a long time.You see,these opportunities don't come up very often. In fact,they are quite rare,so when an entity has this sort of opportunity presented to them, they take it. 
+
+8号源实体：
 
 ME:Sorry.I still don't see why self-termination is OK if it's for the benefit of others.It is a foreign concept to me. 
 
 SE8:Would it be so foreign to you if you knew that I and ultimately The Origin benefitted greatly from the evolutionary content of such an act? 
 
+8号源实体：
+
 ME:No,I suppose not,for that is ultimately why we are in existence. 
 
 SE8:Then now you know why they do it.Please note here that they are not totally lost,for once they make this level of sacrifice,they are re-instated and removed from the need to work within the confines of the continuum and can evolve at an accelerated pace purely as a result of being of service to the maintenance of the continuum.In essence,they are elevated in their positional and evolutionary rank,so to speak.Although they made the ultimate sacrifice in the name of being of ultimate service,they have done so without the knowledge of their ultimate survival.These entities are of a rare quality and are best placed in supervisory positions within those teams of entities who choose to maintain the continuum from an external perspective rather than an evolutionary position within the confines of the continuum. 
+
+8号源实体：
 
 ### Continuum Maintenance Entity Form Factors 
 
@@ -1829,15 +2587,21 @@ ME:OK,so can you tell me a little about the form factor,if any,these entities ta
 
 SE8:This may be difficult for you to understand,so I will need to elaborate a little, specifically as neither you nor anyone else in the Earth sphere has any knowledge or experience of true continuum mechanics. 
 
+8号源实体：
+
 ME:OK,we can but try. 
 
 This is the point in these dialogues where I was expecting a conversation where my head would hurt again.Ah well,here we go! 
 
 SE8:As you are aware from previous dialogues on the subject of continuum construction, the construct is created from the components of full dimension,dimensional componentry, frequency and energy that exist outside the frequencies? 
 
+8号源实体：
+
 ME:Yes,I am with you so far. 
 
 SE8:Well,the entities themselves have to be created from a combination of higher factors of those continuum component parts to enable them to manipulate them.In essence, they exist as a composite construct of their own,one not attracted to being part of those components that make up the continuum itself.They are,if you like,slippery.They need to be like the oil in the water.They can be part of the water,but they can never be a component part of the water so to speak.What's more,they also need to be sticky so that they can attract the component parts of the continuum and manipulate them,creating the boundaries that are necessary for the compartmentalization of the continuum,which needs to have a construct that has a structure to it,one that allows the distortion of the geometry of the continuum that results from local and indigenous evolutionary conditions.
+
+8号源实体：
 
 ![Figure 10: Conceptual Image of the Make-Up of SE8's Entities(an alloy)](img/s6-045.png)
 
@@ -1845,29 +2609,43 @@ ME:I have an image in my mind that shows them as an alloy,so to speak,an alloy o
 
 SE8:That would be a good analogy.They have to be capable of working with any possible combination of energies and their relative materials.However,there is another component that needs to be taken into account as well. 
 
+8号源实体：
+
 ME:What's that? 
 
 SE8:The all important component of evolution.Evolution has a significant impact on the energies within and without the continuum.You are aware of how evolution affects the continuum from our previous dialogue,and I can imagine you are able to understand how evolution affects the energies of a continuum and its incumbent entities. 
+
+8号源实体：
 
 ME:Well,yes,I can. 
 
 SE8:Then you will understand that the energies of the maintenance entity are also affected in a way that is consistent but not entirely in synchronization with the evolutionary changes.At least not at first,for they need to learn how to manipulate their own energies by forcing a localized evolutionary condition around themselves that effectively puts them outside of the evolutionary envelope of the continuum. 
 
+8号源实体：
+
 ME:So you are suggesting that they are not only slippery in terms of their energetic content and how it relates to the energies of the continuum but also in terms of their evolutionary content and how that affects or is affected by the evolutionary content within and without the continuum. 
 
 SE8:Correct.They are totally autonomous in every respect. 
+
+8号源实体：
 
 ME:So how do they manipulate the energies,and,I would guess,the evolutionary content of the continuum they are associated with? 
 
 SE8:Simply by becoming one with the whole of the location they are dealing with.They become the area of the location by infiltrating the energies and replacing them with their own of the same type.That type must have frequency,dimension,dimensional componentry,energy and evolutionary content,not to mention positional content relative to the loci. 
 
+8号源实体：
+
 ME:That sounds like they work a bit like a cancer cell in the human body which emulates the characteristics of a certain organ but is not linked to it or able to function like it and has a function all its own. 
 
 SE8:I can see the analogy,but I would suggest it is not a true description of how a maintenance entity works. 
 
+8号源实体：
+
 ME:How would you describe it then,as I thought that it was a reasonable description? 
 
 SE8:It would be better described in terms of a master key that was able to unlock all the doors in all the hotels in your world.And not only that,the key would be able to change the characteristics of the lock that it was inserted into so that only itself and one other could use it at any time in the future.What I must say though is that this analogy suggests a form factor of some kind,and as this is one of the parts of your nested question,I will answer it now. 
+
+8号源实体：
 
 As you may have guessed by now,a physical or energetic form factor is neither necessary nor required in many of the environments that the Source Entities you have communicated with to date.Your own form factor is a very transient state,as you well know.The length of the transience is a factor of the ability to control the decay at the cellular level by use of the incumbent entities'intentions or will.This,however,is not strictly the case in my continuum-based environment. 
 
@@ -1877,19 +2655,27 @@ ME:Go on.You have my attention now.
 
 SE8:Ha,ha,ha,no,no,it's not the sort of form factor that you would ever recognize as a form factor dedicated to the environment that an entity would exist and experience within. 
 
+8号源实体：
+
 ME:I didn't see that one coming.No really,I am joking.It is quite obvious that the level of form factor of one of the maintenance entities would be something that was not only so completely different from anything else expected,that it could not be from my current incarnate perspective anything other than energetic.Even though it has a form of some type,that type is un-recognizable as a form to me. 
 
 SE8:Stop apologizing for your joke.We appreciate humor here,it is an essential part of existence of any being.
 
+8号源实体：
+
 ME:That's OK.Shall we continue? 
 
 SE8:Yes.Mmmm,let me see how I can explain their form factor,for it is not something that you have been exposed to yet. 
+
+8号源实体：
 
 You see,the form that my entities take is based upon the twelfth dimensional geometric form.This is a form that is able to manipulate the very structural fabric of a portion of the continuum an entity works with-that is,both the internal and external structures associated with a particular continuum. 
 
 ME:So how do they do it?How do they manage to manipulate the fabric of a continuum? This seems to be a major role that they play. 
 
 SE8:They do it by becoming that which they intend to change.That which they intend to change could be anything from an external barrier between the environment between the continuum and the continuum itself.It could be or a localized area that is showing promise from an evolutionary perspective,one that would benefit from being manipulated in some way to augment the evolutionary experience through manipulating the evolutionary content of the area being considered for manipulation.I appreciate that this seems a bit convoluted,but that is exactly what it is,convoluted and iterative. 
+
+8号源实体：
 
 I can see that you are a bit lost so I will explain further in terms that you can understand. 
 
@@ -1899,63 +2685,93 @@ ME:So what you are saying is that the maintenance entity creates a sort of bridg
 
 SE8:That's it in a nutshell.You see,there is no point in creating something that will fail, especially if it is to have a medium to long term function. 
 
+8号源实体：
+
 ME:And this is happening all of the time? 
 
 I felt that I was starting to get a grip of what was going on in Source Entity Eight's continuum- based environment. 
 
 SE8:Yes,this happens all the time.In fact,it is happening in a very special way across the whole of my continuum-based environment. 
 
+8号源实体：
+
 ME:Yes,I see what you mean.It is like a patchwork quilt,with each patch in the quilt being representative of a specific continuum. 
 
 SE8:That would be a reasonable way to describe the work that goes on across the continuum and its continuum. 
+
+8号源实体：
 
 This made me think a bit.Although each of the maintenance entities was and worked as an autonomous entity,it quite obviously,in my mind that is,needed to work in some sort of synchronicity with other maintenance entities to ensure that the work they undertook did not upset the work of those maintenance entities surrounding them.Just as I was thinking this though,Source Entity Eight considered it pertinent to correct me in my thought process. 
 
 SE8:It would be worth noting here that the level of a maintenance entity's autonomy is total.This means that it is not part of what you would call a gestalt or hive mind.It decides what to do based upon the level of change required to support the evolutionary quotient necessary to ensure connectivity with the rest of the continuum,the level of compartmentalization,the evolutionary quotient has and the necessary evolutionary level required to maintain an effective interface between the neighboring continuums and the space in-between.This also includes the level of localized change necessary to respond to the evolutionary pressures of the neighboring continuum. 
 
+8号源实体：
+
 ME:We have discussed this before to some extent,and as a result,I feel that we are going over old ground. 
 
 SE8:We are to some extent,but the important thing to note here is that the entities themselves have to become the continuum itself at certain times to enable the changes to be planned and implemented correctly all at the correct change point. 
+
+8号源实体：
 
 ME:OK,this opens up a whole new series of questions.I will,however,limit it to one. 
 
 SE8:Go on. 
 
+8号源实体：
+
 ME:Why does a maintenance entity need to become part of the continuum itself?I can recognize the need to be a framework to build a new continuum-based environment around. This would be rather like the etheric and ketharic templates in the human body.I can also understand being a bridge between the old construction and the new.But why be an actual part of the continuum itself? 
 
 SE8:There are two reasons for this.First,the maintenance entity needs to become part of the continuum,replacing part of the continuum at a component level to understand the interfaces surrounding it,as well as the internal functionality and energetic requirements.It needs to do this before each piece of maintenance work is started.In this instance,the continuum's component is taken "off line,"so to speak,to allow the changes necessary for optimal functionality whilst the entity takes over the functional requirements of that continuum component part in its entirety for the duration of the changes.Second,the continuum itself cannot react fast enough to the changes required to maintain synchronicity with its surrounding continuum,the space between and the greater continuum that is me,so the entity has to "step in"immediately any change is required, whilst the modifications are made. 
+
+8号源实体：
 
 ME:I am getting the impression that they have to do a sort of apprenticeship to qualify as a maintenance entity. 
 
 SE8:Yes,that is true.Before they can be considered autonomous,they must experience every component part of every continuum within the continuum that is me.That includes being the space between the continuum and the very fabric of that which is me.Also,they have to cope with the ever-changing borders between the compartments identified as an entity's area of maintenance responsibility. 
 
+8号源实体：
+
 ME:They have to become you? 
 
 SE8:Correct.What better way to understand the maintenance of a continuum than by being the creating continuum itself? 
+
+8号源实体：
 
 ME:How is that possible?I mean,how can an entity that is as small as a maintenance entity...No,sorry,let me change my line of questioning.How can an entity take over from its creator?I mean,it must be a massive change.
 
 SE8:It doesn't.The entity itself becomes one with me,integrating itself into the very minute energetic detail that is me. 
 
+8号源实体：
+
 ME:But to do that,it would have to spread itself incredibly thin. 
 
 SE8:It does.To enable it to become an overlay of me,it needs to be diluted to the point of insignificance. 
+
+8号源实体：
 
 ME:You mean like a homeopathic dilution? 
 
 SE8:That would be a reasonable analogy,yes.You see,for the entity to experience all that is me,it needs to be "in"all that is me,and the only way it can do that is be diluted to the point of full integration.Consider it like being a rare elemental component in the atmosphere that surrounds the earth.The elemental component may be one part in several trillion,trillion, billion,but in its diluted state,it is still,nevertheless,an important component within the total composition of the element which you classify as air.Because the air is what it is when you take a sample of it,you always gain a sample of all of the elements that make it up so to speak. 
 
+8号源实体：
+
 ME:But that can't possibly be the case because to get a sample of all of the elements,one needs to take a sample from an area that is large enough to capture those elements that are, for instance,one in a trillion,trillion,billion.One sample might not have the element whilst another would.
 
 SE8:That would be correct in the physical world that your "vehicle"exists within,but it is not necessary energetically.You mentioned the example of homeopathics,and as a result,I thought you understood the functionality of such a dilution. 
+
+8号源实体：
 
 ME:Well,I do to a certain extent.The theory surrounding homeopathic medicines is that the surrounding elements take "in"the properties of the element that is most diluted. Hence,the elements'properties are present without the element itself being present. 
 
 SE8:Well,that is the same in this instance.It is a very good analogy as it shows how the maintenance entity learns to absorb that which is me without having a component of itself specifically located in the area of functional learning. 
 
+8号源实体：
+
 ME:I find it really quite bizarre how an entity can learn how to be a Source Entity.... 
 
 SE8:Continuum. 
+
+8号源实体：
 
 ME:OK,a continuum,merely by association. 
 
@@ -1963,15 +2779,21 @@ I have to ask this next question as it may explain how homeopathics work here on
 
 SE8:Quite simply by the communication routes used by the energies separating the energies.I see that I will need to elaborate.Energies that are either attached to an entity-that is,an entity of any kind but specifically those with sentience-or energies that have a purpose use each other as a communication medium.This communication medium is quite special because when the request goes out for communication-and the communication is between energies that are of a very high dilution-the energies in- between change themselves into the same type of energy for as long as necessary,ensuring that the communication or functionality is made in a robust way.However,there is a trade off in this type of communication process.This trade-off is that the energies that require "others""energies to behave like them for the duration of the communication or function, request what you would call "benefit in kind"-the agreement to assume the communicative properties of other nearby energies when they are in the minority.In this way they are given the key characteristics of all of the other energies that they are surrounded by to enable them to return the favor,so to speak,when the request arrives,which it inevitably does.This ability to change into other energies remains once given/received-even when the requesting entity or energy has departed-thus leaving a full set of energetic and function resources available for the use of the remaining energies or entities.This is basically how an entity can be part of me,be me,and experience what I experience-even when my difference in size is so much bigger than the maintenance entity diluted within me-to experience being the parent continuum or a Source Entity.This is a similar process to that used in your homeopathic medicines on your Earth. 
 
+8号源实体：
+
 ME:Well,I do say that does sort out a number of things in my mind.And it explains to some degree how homeopathics work. 
 
 SE8:The methodology of taking on board the characteristics of another energy for communication and functionality is one that is adopted Origin-wide.In fact,it is the primary method of communication and functionality with the exception of the medium you call gravity,which I am told has already been explained to by your own Source Entity. 
+
+8号源实体：
 
 Mmmm,it is almost time for you to move on to the next Source Entity,the One you will call Source Entity Nine. 
 
 ME:Wait.Before you go,can you please describe to me what one of the entities who exists within one of your continuum looks like.I can't finish without at least your description of one entity form factor and evolutionary role within the continuum. 
 
 SE8:I will do this for you before you move on. 
+
+8号源实体：
 
 Before I start though I need to point out that I have over 60 million different types of entities that exist and evolve within my continuum-based environment.Some of the entity types are specific to the continuum they work within,whereas others exist within a continuum that has up to 30 thousand different types.Which one would you like me describe,not that I have given you a choice yet? 
 
@@ -1981,21 +2803,31 @@ Do you have a continuum where there is a main form factor,if they have one,one t
 
 SE8:Now that is a very good question,for there is a continuum where this is the case. I suspect you were tuning in to this particular continuum when you made the choice of question. 
 
+8号源实体：
+
 ME:Not intentionally,at least,not consciously. 
 
 SE8:All of the entities in the continuum I will call continuum 11b are similar,but each of them has a particular function and,therefore,form factor.I will use this nomenclature as it is one that you understand,for their form factor is a multi-dimensional-based derivative of what you might call a rare gas-if,that is,I had to use a description that you would understand. 
+
+8号源实体：
 
 ME:OK,it's good enough for me so far. 
 
 SE8:On its own,this form factor is not useful for any form of continuum-based work or the retention of any evolutionary content,for it has no "purpose"in its raw state.It gains its usefulness and,therefore,purpose when it has a function to perform,so it needs to have a difference to its form factor,no matter how small it may be. 
 
+8号源实体：
+
 ME:I am receiving the image of a series of entities that are sort of similar to a"multipurpose" screw driver without a tip on the end.In this state they are all the same.When it has a tip,for example,a cross head,a blade or torx(a six point star shape pattern),it has a specific purpose and role.The tip is the only thing that is different among the other entities who have "tips" that are specific to their own roles and functions. 
 
 SE8:That would be a good example from your point of view,but you will need to note this as well.In your example,you have assumed that the illustration has but one multifunction screwdriver body.In the continuum,we are talking about other subtler differences between the so called stable sides of the body of the entity. 
 
+8号源实体：
+
 ME:So you have classes or types of entities,different types of multifunction screw driver bodies,so to speak.
 
 SE8:Yes,and purely as an illustration,they may be,long,short,wide,bent at various different angles,flexible under all conditions,and/or flexible under certain conditions.This is not what they are but it gives you an idea of the diversity.Additionally,the tip "family' changes depending upon the body type. 
+
+8号源实体：
 
 As another example using you own methods of manufacturing electronics,such as manufacturing a silicon chip on earth,you need certain tools,computerized tools,to allow you to design,develop,and test these components.You need the tools to create the tools to create the tools,so to speak.This is similar if not the same in certain examples with the entities in this particular continuum. 
 
@@ -2003,9 +2835,13 @@ ME:So this continuum is the only continuum where the entities are similar if not
 
 SE8:In a nutshell,yes. 
 
+8号源实体：
+
 ME:I would like to get back to this description of their form factor from a true sense rather than from a hypothetical sense where we are using earthly examples because I can imagine my readers thinking that we are talking about a bunch of sentient screwdrivers here. 
 
 SE8:You should give your readers more credit,but I do see the humor in that statement. Sentient screwdrivers,indeed! 
+
+8号源实体：
 
 Let's carry on.The entities themselves as I have described in some limited way in the text above,are a"multi-dimensional-based derivative of what you might call a rare gas"-the rare gas being the only way to describe their physicality if they had one.You mentioned "form factor"and the way that a rare gas is constructed would be a better example of how they are presented if they had to be presented in some sort of form.I also recently described the way in which those entities that are destined to be continuum maintenance entities are able to experience being one with me and,therefore,part of the working structure of the continuum they are assigned to during times of substitutional maintenance. 
 
@@ -2013,9 +2849,13 @@ ME:Yes,we considered the example of homeopathic dilution.
 
 SE8:No,I was alluding to the entity becoming the framework of that part of the continuum they were becoming a substitute for whilst the maintenance task was being worked on. 
 
+8号源实体：
+
 ME:Oh.Ok,yes,I see now. 
 
 SE8:I think you do in some small way.I will give you an image to consider. 
+
+8号源实体：
 
 I received an image of the chemical models we create in school/university to explain,in a three dimensional way,the way in which a specific element is composed in its atomic state.This model portrayed a stick model with balls attaching the sticks together.The stick representing the connectivity between the balls,and the balls represented the molecules that made up the element. The molecules had a level of attractivity between certain other molecules whilst having a level of repulsion between others.Other levels of connectivity had both attractivity and repulsion so that the molecules stayed at a known distance from each other,not being able to move closer nor being able to move away.All of this resulted in a form factor,albeit large enough and dense enough to be classified as a form whilst being of a frequency that was high enough to make the form "formless"in all but attractivity and repulsivity-certainly from a physical perspective.It was as if the entity,if this was an example of an entity (Source Entity Eight said it was),was not actually created from a molecular structure but a structure that was created by attractivity and repulsivity of some sort.The attractivity and repulsivity were not between different types of molecules but were between different energies and dimensions. 
 
@@ -2033,9 +2873,13 @@ I zoomed out of the image I was being given and saw a bright blue lattice of spa
 
 SE8:Now you know what one of these entities would look like if it was visible to your physical eyes and a bit about how it is constructed. 
 
+8号源实体：
+
 ME:Yes,it is beautiful.Thank you. 
 
 SE8:Now it is time for you to move on to the entity you will refer to as Source Entity Nine.Go in peace with this expansion in your knowledge. 
+
+8号源实体：
 
 And with those last words the communication link between Source Entity Eight and me dissolved. I still felt its presence but noted that my communicative direction and energetic link with it was no longer attached in an exclusive fashion.With Source Entity Eight's energies no longer linked to my own for communication purposes,I began to take stock of the information I had received during the months I had been directly linked energetically with SE8. 
 
@@ -2062,45 +2906,67 @@ I suddenly had a picture of the Walt Disney cartoon character Goofy in my head.
 
 SE9:Now that I have got your attention,we can start. 
 
+9号源实体：
+
 ME:Hold on.Was that you,the next Source Entity that I am due to have a dialogue with?The Source Entity I am due to call Source Entity Nine?In my head portraying Goofy?! 
 
 SE9:Yes,it was.I had noticed that you had not spotted that the link between us had become operative,so I decided to delve into your mind and use something that would wake you up to my presence.Using the Goofy personality seems to have done the trick. 
+
+9号源实体：
 
 ME:It certainly did.And you are right;I didn't notice that you had linked up with my energies.Your energies must be either very subtle,or you have managed to tune into me in a most perfect way. 
 
 SE9:The truth of the matter is that you are adjusting to the difference in energies in an almost automatic way now.You appear to be able to re-calibrate your energies to those of the entity you are due to communicate with on the point of your relinquishing the link with the previous Source Entity. 
 
+9号源实体：
+
 ME:I don't remember doing this before.In fact,I remember having quite a bit of difficulty during the first couple of dialogues of the last few Source Entities-specifically,as I get further and further away from my home Source Entity. 
 
 SE9:As you move further away from the energies of the Source Entity you now call Source Entity One,your home Source Entity,you start to become more independent.As you were told by Source Entity Eight,you are of The Original Manifestation and,therefore,have an energy set that is not truly created by your home Source Entity.In essence,you were created by The Origin and,therefore,you belong in The Origin and not in the confines of your home Source Entity.As a result of moving your consciousness away from the confines of your Source Entity on an almost regular and consistent basis now,you are losing the attachment to the energies of your home Source Entity.You are gaining your independence and the constraints in your communicative abilities are being broken down as a result.Hence,your automatic re-calibration of your own energies to those of mine,allowing almost perfect integration with me on a most fundamental level.This meant that when I established contact with you,your energies were already calibrated to those of mine and the normal discomfort you experienced in the past was not present.In fact,they were so in tune that you were not even aware of their presence as you considered them to be your own. 
+
+9号源实体：
 
 ME:I am impressed. 
 
 SE9:You should be.Although it's the first time you have achieved such a process,it will become more prevalent later,especially when you complete your dialogues with me and the remaining Source Entities and move on to your communications with The Origin in a level of detail you are not yet even able to comprehend. 
 
+9号源实体：
+
 ME:But I have not had a problem communicating with The Origin in the past.In fact,I expect I will be talking to The Origin more than the Source Entity I will call Source Entity Twelve,the Source Entity that has not yet become self-aware. 
 
 SE9:You know about Source Entity Twelve?Mmmm,you might be surprised to note that things have moved on in that respect.I will not spoil your fun though as it is more important for you to tell that particular story when you have time to dedicate yourself to it.That time is not now.Now getting back to why you have not had any problems communicating with The Origin to date.You have not had any problems with communicating with The Origin because The Origin,as with the previous eight Source Entities you have communicated with modified its own base energy resonance to those of yours,not you adjusting your energies to those of the entity you are about to enter into discourse with.This means that the level of communication will be higher,allowing more information to be passed on to you as your level of understanding is lifted through the more complete level of integration you are able to establish through the modification of your own base energies. 
+
+9号源实体：
 
 ME:So that explains the reason why I didn't notice the link being created.I have apparently re-calibrated my energies so close to yours that you have become me,so to speak. 
 
 SE9:That is one way of saying it,but in reality you have become me. 
 
+9号源实体：
+
 ME:So why do I not get a sense of who you are then?Should I not get a sense of a massively extended memory or ability?
 
 SE9:No,that is not what the link or the communication process that is created by the re- calibration of your base energies is all about.Remember,that part of you that is incarnate is still limited from a functional perspective to what is allowable whilst incarnate and what you are able to command whilst in the low frequencies that you currently occupy.You will gain nothing other than an increased ability to affect a robust and simple communicative link that is not stretching your physicality to its limits.You can't see it now but when you were in communication with the other Source Entities your energies,especially those in the levels 8,9&10 were being twisted all over the place and in every way possible.Now that you have established an automatic method of re-calibrating your energies to those of the entity you want to communicate with,this is no longer a problem. 
+
+9号源实体：
 
 ME:I can assure you I was not aware of being able to do this. 
 
 SE9:And why should you when that part of you that is not incarnate has been doing the work for you?Don't forget the part of you that is incarnate is a very small part of you. Energetically,you are a much larger entity. 
 
+9号源实体：
+
 ME:OK,you have spoken about me more than yourself in the limited time that we have had together.I am very grateful for receiving such knowledge,as it helps me to fill in the gaps about my "self"and how I can do what I do without any formal training as such.At least not in this specific area,for I have taught myself. 
 
 SE9:It is both a pleasure and an honor to do so,for your work will assist in the ascension of mankind in a most unique way.Although right now you are in the starting blocks,so to speak,ready to run down the track,you will later be flying in a fighter jet in comparison. Hold onto your seat,for once you have made your choice in life to be "Gods',"(your Source Entities')willing slave/emissary,you will be at the center of a whirlwind of spiritual work. 
 
+9号源实体：
+
 ME:Well,right now it seems like I have had a bit of a false start. 
 
 SE9:That will pass faster than you think,and you will also make the move/change faster than you think.It is time for us to enlighten your readers about my own accomplishments now. 
+
+9号源实体：
 
 ME:I agree. 
 
@@ -2110,9 +2976,13 @@ ME:I would like to understand about your environment.Is it a multiverse,continuu
 
 SE9:You will notice that the further you move away from your home Source Entity that the more diverse and different the environments become. 
 
+9号源实体：
+
 ME:Yes,I have noticed that. 
 
 SE9:Well,my environment is again a departure from that which you have experienced before.Again,this is planned so that you can make the changes required more easily.Every move outwards is a step further away from that which you can relate to.Each move away from that which you can relate to exposes you to new and more abstract creations,which in turn,build your knowledge and experience base so as to allow you to move on.In this task you are doing very,very well.I will delay no longer.
+
+9号源实体：
 
 My own environment can only be described as a lattice,a spider's web or fully spherical snow flake if you like. 
 
@@ -2122,25 +2992,37 @@ ME:Have I got this right?Is your environment,as I see it in my mind's eye,just l
 
 SE9:Yes,that is how it would appear to your eyes.Each of the"light tubes"that makes up the construct is effectively an environment for a different type of entity. 
 
+9号源实体：
+
 ME:So each light tube is a unique universal environment that accommodates a single entity type? 
 
 SE9:Correct.Every part of me from the aspect of the construction is a separate but integrated universal environment tuned specifically to the requirements of those entities that occupy it.I maintain a centrality where the main branches,central conduits or trunks, if you like,are connected.Consider it a little bit like the loci Source Entity Eight described in your last dialogue.Each of the main branches acts as a conduit where the entities that exist in one of the branches can traverse to the center point,me,and commune with me. 
+
+9号源实体：
 
 ME:What do you mean commune? 
 
 SE9:Exactly that,commune.Consider it like your evolutionary direction.As you rise through the frequencies,a rise resulting from the increase in your evolutionary content,so do you get closer to those frequencies that are associated with the essence of your Source Entity.This allows you to communicate and commune,to be one with,your creator.In your own environment,this is something that all entities strive for.Some achieve it early in their existence whereas others take longer to progress to the level required to allow full communion.Others,on the other hand,are able to achieve communication without communion,as you are right now.In the migration of an entity from its own environment towards me,it has to move away from its own environment to the main conduit and progress in an evolutionary way towards me.It meet its challenges and creates its creations as it goes. 
 
+9号源实体：
+
 ME:Does it not need to go through any other environments to reach you?In some of the other dialogues I have had,the entities concerned progressed from one environment to another with their evolution being affected by their ability to cope with the new challenges encountered in the environments they pass through.Is this not the case with your environmental construct? 
 
 SE9:No.When an entity starts its evolutionary journey and increases its desire for communion,it retains its own environment even when it is,for all intents and purposes, "outside"its environment. 
+
+9号源实体：
 
 ME:I think I understand.I just received an image of a direct line,a line within the conduit and environmental branch the entity originated from that extended to the central conduit and the center point that is you.I also see that there can be many multitudes of entities that can be within the central conduits,each totally unaware of the other entities around them that originate from the other branches. 
 
 SE9:Well done.You may also want to note that in their journey towards communion with me,they are carrying their own universes with them. 
 
+9号源实体：
+
 ME:Hang on.What do you mean "carrying their own universes with them"?You mean the whole lot?What happens to those entities that also exist in the universe occupied by the entity that moves away from the branch? 
 
 SE9:They continue to occupy the same universe.It stays in the same relative space even though it also stays with those entities that are moving towards having enough evolutionary content to allow them the closeness required to commune with me.Imagine you have an entity or group of entities that originate in a certain universal branch.If that entity or those entities move away from the branch and on down the central conduit or trunk that connects a certain contingent of branches or branches of branches,etc.,they take their universe with them. 
+
+9号源实体：
 
 ME:I think I understand.I have a picture in my head of globules of the same universal energy all over the originating branch and the trunk.I also see them in other branches and trunk/branch/sub-branch configurations in other parts of the environmental construct. From what I can see,the globules are connected by universal beingness.That beingness is an immediate and instantaneous connection with the other globules.Let me see if I have got this right. 
 
@@ -2148,13 +3030,19 @@ When an entity moves to the edge of that globule of universe it is currently in 
 
 SE9:Well done and very good.But also note that if the transportation to another part of the universe was a requirement to interact with another entity or group of entities,and that entity or group of entities were themselves away from the original whole universe,the entity would instead be transported to that globule of universe that was elsewhere within the trunk or other trunk/branch/sub-branch configuration that that entity is currently existing within and not the whole original universe. 
 
+9号源实体：
+
 ME:I was going to say awesome,but I am trying to get a grip of what you have just said to me, which I just about have.I have another question. 
 
 SE9:Ask away. 
 
+9号源实体：
+
 ME:How does this work,I mean,with all these globules of universe being split out all over your environmental construct?It must dilute the environmental density of the originating universal branch.
 
 SE9:Not in the slightest.I can see the famous frown! 
+
+9号源实体：
 
 ME:I must stop it. 
 
@@ -2164,17 +3052,25 @@ Go on.
 
 SE9:The universe grows or replicates enough new universal energy to both surround the traversing entity and maintain its own area/density... 
 
+9号源实体：
+
 ME:..And it is this replication of universe that creates the ability for the globules to be in full contact with each other,replicating in a jigsaw-type method the whole universe in globular format even though they are separated from the whole and the other separated universal globules. 
 
 SE9:Well interjected. 
+
+9号源实体：
 
 ME:How can a universe exist outside itself in what I consider as being"totality"whilst being in bits and pieces and part of the original universal environment all at the same time? 
 
 SE9:Simply by maintaining an area or band of frequency that is assigned to a particular universal branch and allowing multiple use of that frequency band. 
 
+9号源实体：
+
 ME:Hold on.Are you suggesting that-now let me get this straight-the frequency bands in existence are all over the structure of your environmental construct,and this allows the bubbles of universe to exist simultaneously and independently whilst still being in contact to the point of instantaneous and autonomous interaction?Is this not similar to us on earth using the same frequencies all over the world for transmissions from separate and independent radio stations?Because they are far apart and-of course,depending upon the signal strength and transmitter power also depends upon how large the radius of transmission is.They have large areas where they cannot interfere with each other whilst being of the same frequency,too,but basically thereby allowing autonomous existence that is linked by a base frequency band.Is this the same? 
 
 SE9:Not an entirely accurate way of explaining how the communication links are maintained between the base universe and those bubbles or pockets of universe that are allowed to exist both separately and together.However,it is a reasonable enough description to use from your position,especially when the mechanics used to allow such interconnectivity is not only well beyond "mankind incarnates""ability to comprehend but is also close to the limits of energetic mankind cognitive abilities. 
+
+9号源实体：
 
 Now I was intrigued.How could something be beyond the comprehension of an energetic entity? Especially when we are supposed to be "all knowing"or at least supposed to be able to access the universal knowledge base when in the energetic.I decided to make a minor detour in my questioning in an effort to bottom this out.Finding out that even energetic entities have limitations in understanding was like a red rag to a bull! ,
 
@@ -2182,21 +3078,31 @@ ME:Now you have me going!I thought that once we,that is mankind incarnate,are ba
 
 SE9:It is not a given that once in the energetic an entity is able to understand all that is.It is not even a given that an energetic entity will understand the mechanics of its own universe, let alone,multiverse or those other environments created by the other Source Entities. 
 
+9号源实体：
+
 ME:I thought that once in the energetic an entity was virtually omnipotent? 
 
 SE9:No.It is a general rule that there has to be a certain level of evolutionary content attached to an entity before it is in a position of beingcapableofunderstandingthefunctionalityofthe multi/universe/multi-frequential/ energetic/continuum-based environment it exists within.Of course,it is aware of what it exists within,but its understanding of the functionality and how to affect or manipulate it is only bestowed upon it when it has graduated to a certain evolutionary level,so to speak.This is a normal progression for all entities,Origin-wide.In essence an entity must be capable of understanding what it can do before it is allowed to do it. 
+
+9号源实体：
 
 ME:OK,that seems reasonable to me.I would,however,like to know how your multiverse works,so that I can pass it on to the readers of this dialogue. 
 
 SE9:Let me start by saying that if any of your readers have problems with understanding the description of the functionality of my environment,they can always fall back on the description you made.It may not be accurate,but it is in the right direction and will provide a reasonable stepping stone as long as it is not taken as being the truth,but as a way to the truth. 
 
+9号源实体：
+
 ME:That's fine by me.I think it is important that the people of Earth are at least given the chance to understand the greater reality,even though they might not all understand what is being given to them. 
 
 SE9:Good.I will progress then. 
 
+9号源实体：
+
 I suddenly felt an energetic block take me over.It was similar to those I feel when I know I am going to have a hard time getting the information through.I did my best to ignore it. 
 
 SE9:Consider your trees on Earth.They are all connected because they are all rooted into the soil that is part of the Earth and as such have a common medium with which they are connected and part of.With this medium,a tree can communicate with other trees of its own kind,no matter how far away they are.So if you have a single tree of a certain type,and it is in a forest full of trees of another type,it is still able to communicate with other trees of its own type because it is connected to the Earth.This connectivity is unique to its type and does not interfere with the communications that are happening between other trees of different types.Now consider that the Earth is also part of a medium that is the physical and energetic universe concurrently.Let us look at one of the trees that is on the Earth but is not indigenous to the Earth but is nevertheless on the Earth-the tree type you call "Aspen" here,as it is not indigenous to the Earth.It was introduced to cope with the ever increasing carbon emissions you have.It is still able to communicate with the other Aspen trees in your universe because it is in contact with the Earth and those elements that the Earth is in contact with in a universal sense. 
+
+9号源实体：
 
 In essence,they occupy an area of specific universal space that is peculiar to their own species of tree.When a tree,on say another planet in this galaxy wants to communicate with other trees of its own species that is not on the same planet,it sends its intention to communicate out to that part of the galaxy where it believes/knows its fellow trees are and then projects its essence to the trees in the planet desired to be communicated with.Its essence,spirit or soul is transported instantaneously by a process of "sentient transference" of the tree's intellect through the energies that bridge the gap between the two locations -the tree's sentient essence is the link between the two locations from a directional perspective. 
 
@@ -2206,17 +3112,25 @@ ME:Are you suggesting that our trees are not only on Earth but on other planets 
 
 SE9:Yes. 
 
+9号源实体：
+
 ME:Then that would mean that the universe and its separated parts are sentient as well. 
 
 SE9:Yes. That is why your description of the localized use of frequency is not particularly accurate enough as a concept to use. 
+
+9号源实体：
 
 ME:I knew that trees on Earth are part of a collective or gestalt mind,but I wasn't aware of that mind spanning the galaxy that my planet exists within. 
 
 SE9:The tree mind spans most of the universe you use currently-hence,my use of it as an illustrative tool,in this instance. 
 
+9号源实体：
+
 ME:You seem to know more about my own environment than I do. 
 
 SE9:As you already know,all Source Entities share their learning with each other,so it is inevitable that I know as much about your overall environment as your creator,your own Source Entity.I also gain a lot of localized information through my interface with you, information which I need to use as a method of gauging your level of understanding of information I have,should I choose to give it to you and how best to illustrate it by using examples of things that you already know. 
+
+9号源实体：
 
 ME:And I thank you for that.I am quite aware that we are only given concepts and information in ways that we can understand and assimilate and ultimately broadcast,even if it is like teaching an infant the "Times Table"to explain the concept of mathematics when the greater reality is the use of mathematics for understanding quantum field theory, which,in itself,may well be kindergarten math when considering the greater reality. 
 
@@ -2236,13 +3150,19 @@ SE9:As a construct,it serves a number of important functions.I will itemize thes
 - Structure does not necessarily mean an amorphous environment filled with a dimensional,frequential,and continuum-based structure system that is within and without itself.It can also be rather linear and logical.That is what I have created.
 - The shape of the construct is designed to be easily expanded and contracted,allowing the universal branches to create universal sub-branches.It also allows clusters of branches and sub-branches to cast off or move away from each other creating their own multiversal structure with a portion of my essence in the center. 
 
+9号源实体：
+
 ME:That's interesting.The image I gained was just that.A chunk/cluster of branch,sub- branch and sub-sub branch,etc.,breaking away from a main branch and forming its own cluster,the center point being there but no other main branches protruding from it.Oh,wait a minute.I now see a progression from this state.In this condition,the break-away cluster cannot grow The Original branch/sub-branch construct anymore because this is its natural limitation. 
 
 SE9:That limitation is one that I have put in place for reasons I may come to later. 
 
+9号源实体：
+
 ME:Yes,I see.Can I continue with what I have seen/am seeing? 
 
 SE9:Do carry on. 
+
+9号源实体：
 
 ME:The universal growth has to continue from the center point,creating a new main branch from which to grow new and subsequent branches and sub-branches.Eventually this process is continued as this cluster of multiverse expands and grows until there is no more room available.That is,there is no room available for universal growth to continue without a "universal"clash or overlap,which is not possible with this construct. 
 
@@ -2250,11 +3170,15 @@ This is interesting.I really would like to know the reason for this ability to c
 
 SE9:I am preparing for the time (event space)when The Origin expands its area of self- awareness. 
 
+9号源实体：
+
 I had come across this "preparation"for The Origin's expansion in area of self-awareness before, with the entities in Source Entity Seven's environment.From my vantage point,it was a very long way away,but the "behind the scenes"preparation that was going on told me that it was either not as far away as I thought,or this was such an important event that prior preparation needed to happen trillions of Earth years in advance.My mind creaked at the thought of all of the work that had happened to date and that which would happen in the event space leading up to The Origin's expansion. 
 
 ME:I get the impression that you are expecting to occupy a larger area within the newly opened area of The Origin than you do currently. 
 
 SE9:Yes,indeed.That is another reason why my entities are undertaking their current work.The need for them to be able to create a universe around themselves,one that is still in contact with their original universe and,of course,me,is to enable them to plan on my behalf for the time when the area of The Origin is expanded to the point there is the need to increase the level of experience opportunities.This must be done in areas of The Origin that are and will be uncharted,so to speak.Each of the clusters will be a part of me and my entities.In order for me to embark upon the work that I am doing,I will need to be separate but still as one. 
+
+9号源实体：
 
 The predicted vastness of this newly opened area of The Origin,although a mere fraction of a percentage point of its totality,was beyond current comprehension until recently.Now we,the Source Entities,know just how big the new area of Origin is,we need to put in a significant amount of preparation work to ensure we,how do you say,"hit the ground running,"In lieu of this,I am using my entities to create localized multiversal and universal constructs-ones that are born from my essence that will allow them and,of course,me,to experience "faster"when the opportunity presents itself. 
 
@@ -2264,37 +3188,55 @@ ME:I certainly do.
 
 SE9:It's to do with the ability to move around The Origin.Believe it or not,The Origin has areas of energetic dimensional and frequential density.The dendritic shape of my multiverse is designed to allow the full integration of my smaller,break-away constructs and myself within these areas of "density."As you can imagine,some of these areas of density are also based upon other areas of Original Material that you are not aware of yet,the material used to create continuum-based environments being one of them. 
 
+9号源实体：
+
 ME:There are a number of other Original Materials then?What are they?Can you describe them to me? 
 
 SE9:I will need to consider this for a moment,for you,mankind incarnate,that is,are not yet ready for such knowledge.
+
+9号源实体：
 
 ME:Why not?Surely one or two new environmental components can't be an issue.It can't be that difficult to pass on the information,can it?
 
 SE9:I see that I will need to elaborate.It's a bit like knowing four elements in the periodic table but not knowing there is a periodic table to relate these elements to.If,for instance, you had the knowledge of those entities who incarnated in human vehicles in what you call the bronze age,you would only have been aware of around four metals,iron,copper,tin and the alloy created by mixing copper and tin,bronze.If I gave you a periodic table when you only had that level of knowledge of the elements and asked you to position these elements on it,you would not have believed that the other elements could or did exist,simply because you wouldn't have had the mental capacity nor,most importantly,the tools to detect and separate out those other elements from the Earth.This "medieval"knowledge level of the elements is basically where you are now.As a result,giving you a name for a few of the materials that are component parts of The Origin would not help you,for they would only be names,names that I have given to you.They would not be able to be detected with your current level of technology or predicted by your current level of mathematics.They would be meaningless words,for you would not be able to experience that which they describe, which incidentally you don't have the words or intellect to describe yet either. 
 
+9号源实体：
+
 ME:I accept that we are pretty un-educated in these matters,but could you describe just one or two to me,please.It would be most beneficial. 
 
 SE9:I see you have a thirst for understanding entity form factor,irrespective of whether they have one or not. 
+
+9号源实体：
 
 ME:I do,not just because it is something that mankind expects to see or experience,but it is something that mankind in its current level of evolution from a physical perspective can recognize and understand relatively easily. 
 
 SE9:I see.Well,then I had better give you an example of what you would call a "physical entity,one that exists in one of the universal branches. 
 
+9号源实体：
+
 ME:Fantastic.Actually,I have already received an image of such an entity.Its rather torpedo shaped! 
 
 SE9:If it is that your torpedoes are flat in shape,I would agree.I will send you more information on the entity you can perceive. 
+
+9号源实体：
 
 ME:Oh,I recognize that shape.It's similar to what we call a "Cuttlefish"here on earth.It is, indeed,torpedo-shaped in terms of it having an oval body that changes into a blunt pointed area.It has that both ends.If fact,it looks a little bit like another device we have here on earth,a "cruise missile." 
 
 SE9:Yes,I see the analogy,a rather horrible little device,I think.Why do you create such devices of destruction?Oh,I see.Physical mankind really is low down on the evolutionary ladder,isn't it? 
 
+9号源实体：
+
 ME:Sorry,it's not a good illustration of those of us who are working for the good of the planet.To be honest,most of the Earth population is abhorred by the use of such devices.I apologize for exposing you to what is our horrible truth,or at least part of it. 
 
 SE9:No need to apologize.It is where you,not YOU,but the collective you,physical mankind, is right now. 
 
+9号源实体：
+
 ME:Thank you for your understanding.
 
 SE9:It's a pleasure.You are not the only civilization to have developed devices of destruction from the powers that have been bestowed upon you primarily for the use of good.Now then, why don't you get back to describing the form factor of the entity I showed you? 
+
+9号源实体：
 
 ### The Cuttlefish Entity 
 
