@@ -79,143 +79,159 @@ Thank you and welcome back!
 
 ## Chapter One - An Introduction to Source Entity Seven 
 
+**第1章：7号源实体介绍**
+
 Having just finished "Beyond the Source,"I was glad of the proposition of a break.That was not to be.Having finished the manuscript for the communications with the first six Source Entities, I was instantly propelled into the generation of presentation material required to support my lecture at the "Awakening to Higher Consciousness Transformation Conference 2011"hosted by Ozark Mountain Publishing.Once I had finished the slides for the lecture,I started to feel the call of the Source Entity,the creator of our multiverse,to continue with the work of communicating with the remaining six Source Entities.Whatever happened to the rest I was advised to take,I will never know.One thing I did know was that I,along with others,was contributing to the inevitable ascension of the Earth and its inhabitants,and that this work could not be stopped for any reason. 
+
+刚刚完成《超越源头》，我很高兴有个休息的提议。那不是。完成与前6个源实体的通讯的手稿后，我立即被推进到演讲材料的生成中，以支持我在由奥扎克山出版社主办的“2011年觉醒到更高意识的转变会议”上的演讲。一旦我完成了演讲的幻灯片，我开始感觉到源实体的召唤，我们的多维宇宙的创造者，继续与其余6个源实体的沟通工作。无论我被建议采取的其他措施发生了什么，我永远不会知道。有一件事我知道的是，我，与其他人一起，正在为地球及其居民的不可避免的提升做出贡献，这项工作不能因为任何原因而停止。
 
 Indeed,during the weeks after finishing "Beyond the Source,"I had been receiving images of how the next Source Entity,Source Entity Seven,was constructed and how it environments had been created.A change is as good as a rest,obviously.I was just contemplating the images I had received and was starting to find myself tuning into Source Entity Seven when my own Source Entity offered some kind words of advice. 
 
+事实上，在完成《超越源头》的几周内，我一直在接收下一个源实体，7号源实体，是如何构建的图像，以及它的环境是如何被创造的。显然，改变就像休息一样好。我只是在思考我收到的图像，开始发现自己调谐到7号源实体，当我自己的源实体提供了一些善意的建议。
+
 SE:As I stated when we signed off from our last dialogue,you are about to go further away from me than you have gone before.The difference in the frequencies are vast,but the work I have done in the background with you will enable you to build upon the protection required to support each step further away you make. 
 
-源实体：
+源实体：正如我上次对话结束时所说的，你们将要比以前离我更远。频率的差异是巨大的，但我在后台为你所做的工作将使你建立所需的保护，以支持你进一步前进的每一步。
 
 ME:What do you mean each step further away? 
 
-我：
+我：你说的每走一步都更远是什么意思？
 
 SE:Your memory is bad today. 
 
-源实体：
+源实体：你今天记性不好。
 
 ME:I have been reading up on the details contained in The History of God,not concentrating on the details of Beyond the Source. 
 
-我：
+我：我一直在阅读《源头简史》中的细节，而不是专注于《超越源头》的细节。
 
 SE:So I see.Listen,from now on,the frequential and dimensional distance that needs to be spanned by your consciousness will be stretched to its elastic limit every time you make contact with each new Source Entity.You will get further and further away from your incarnate self's base frequency.The period spent with each new Source Entity will be used to ease this level of stretch,allowing you the facility of stretching to the next Source by using your new "current"position as a stepping stone.I will,of course,be with you at all times, monitoring your progress and helping you adjust to the stretch as and when required,but there will be some side effects though. 
 
-源实体：
+源实体：我明白了。听着，从现在开始，每次你与每一个新的源实体接触时，你意识需要跨越的频率和维度距离将被拉伸到弹性极限。你将离你化身自我的基本频率越来越远。与每一个新的源实体相处的这段时间将用来缓解这种拉伸程度，让你能够把新的“当前”位置作为垫脚石，以便轻松地拉伸到下一个源实体。当然，我会一直陪着你，监控你的进展，并在需要时帮助你调整拉伸，但这会有一些副作用。
 
 ME:And what will these side effects be? 
 
-我：
+我：这些副作用是什么？
 
 SE:You will feel like you are both tired and highly energized all at the same time.You will also feel physical responses to these very different frequencies.This will last for the whole time you are in communication with the next six Source Entities.I think you would use the terms“"spaced out'"and“arthritic." 
 
-源实体：
+源实体：你将感觉到你同时感到疲倦和高度的精力充沛。你也会感觉到身体对这些非常不同的频率的反应。这将持续你与接下来的6个源实体沟通的整个时间。我想你会用“错位”和“关节炎”这样的术语。
 
 ME:You mean the next eighteen or so months? 
 
-我：
+我：你的意思是接下来的18个月左右？
 
 SE:Yes.
 
-源实体：
+源实体：是的。
 
 ME:Thank you for the warning. 
 
-我：
+我：谢谢你的提醒。
 
 SE:It's a pleasure.A word of serious advice here:you need to keep yourself as energetically neutral as possible.This will help with the assimilation of the new energies and frequencies. To do this,drink plenty of water,for it is a "physical"universal energy medium that has a common energy signature across frequencies and dimensions.Reduce the amount of alcohol and coffee that you drink to minimal levels normally and zero levels the day before and on the day of channelling.If you do drink alcohol,cleanse the system directly afterwards with equal amounts of water.You will also need to keep your body exercised and well rested. 
 
-源实体：
+源实体：很高兴，这里有一条严肃的建议：你需要尽可能保持自己能量中立，这将有助于吸收新的能量和频率，要做到这一点，喝大量的水，因为它是“物质”的宇宙能量媒介，在频率和维度之间有一个共同的能量特征，减少你平时喝的酒精和咖啡的量，在通灵的前一天和当天减少到最低水平，如果喝了酒精，喝完后直接用等量的水清洗系统，你还需要保持身体锻炼和休息好。
 
 ME:I don't think I am looking forward to feeling arthritic! 
 
-我：
+我：我不认为我期待着感觉关节炎！
 
 SE:Perhaps I used the wrong word.The feeling will be like you have joints that have a warm glow one day and cold glow the next. 
 
-源实体：
+源实体：也许我用错了词，感觉就像你的关节今天发热，明天发冷。
 
 ME:Sounds like rheumatism to me. 
 
-我：
+我：听起来像是风湿病。
 
 SE:But you will not lose the power in your limbs,and it will disappear directly after disconnection with Source Entity Twelve. 
 
-源实体：
+源实体：但你不会失去你四肢的力量，它会在与12号源实体断开连接后立即消失。
 
 ME:No ramp down? 
 
-我：
+我：没有减速带？
 
 SE:No ramp down.It will be instantaneous. 
 
-源实体：
+源实体：没有减速，它会立即开始。
 
 ME:I can't wait! 
 
-我：
+我：我等不及了！
 
 SE:Then let us commence with the connection to Source Entity Seven.
 
-源实体：
+源实体：那么让我们开始与7号源实体的连接。
 
 ### Source Entity Seven-A Source Entity of Three Aspects 
 
+**7号源实体：一个三方面的源实体**
+ 
 As I sat at the keyboard of my computer,I found myself being drawn to an image I had seen before.This image,I now know,is the visual representation of the Source Entity I was due to commence dialogue with-Source Entity Seven (SE7).I approached it slowly at first,trying to make the most of the image I was seeing in my mind's eye and the impressions I was getting. For all intents and purposes,it looked like two cells joined together with an overlapping middle section.As I got closer to it,I gained the impression that it had divided itself into essentially two areas/environments with the overlapping section in the middle creating a third "hybrid" environment,a mixture of the two larger areas.I wondered what we would talk about when SE7 made abrupt and direct contact.
+
+当我坐在电脑键盘前时，我发现自己被一个以前见过的图像所吸引。这个图像，我现在知道，是我将要开始对话的源实体的视觉表现-7号源实体(SE7)。 我开始慢慢靠近它，试图充分利用我在脑海中看到的图像和我所获得的印象。无论出于什么目的，它看起来像两个细胞，中间部分重叠在一起。当我靠近它时，我得到的印象是，它已经把自己分成两个区域/环境，中间的重叠部分创造了第三个“混合”环境，两个较大区域的混合物。我想知道当SE7突然和直接接触时，我们会谈论什么！
+
+（图2：7号源实体作为7a、7b和7c）
 
 ![Figure 2: Source Entity Seven as 7a,7b & 7c](img/s6-037.png)
 
-SE7:G'day! 
-
-7号源实体：
-
 ME:What? 
 
-我：
+我：什么？
 
 SE7:G'day!...Is this not the correct way to greet you? 
 
-7号源实体：
+7号源实体：你好！...难道这不是问候你的正确方式吗？
 
 ME:It's one way to greet someone but not one that I expected from a Source Entity. 
 
-我：
+我：这是一种问候别人的方式，但我不希望它来自一个源实体。
 
 SE7:No problem then if I access you to understand the best way to communicate? 
 
-7号源实体：
+7号源实体：那么如果我访问您以了解最佳的沟通方式，没有问题吗？
 
 This Source Entity was being very direct for what was essentially a first date!And it had an Australian accent as well!Quite bizarre! 
 
+这个来源实体对于第一次约会来说非常直接！而且它还有澳大利亚口音！非常奇怪！
+
 ME:Be my guest. 
 
-我：
+我：请便。
 
 As Source Entity Seven accessed my energies,I felt like my head was fizzing and was about to explode.Then it subsided and felt no different than normal. 
 
+当7号源实体吸取我的能量时，我感觉我的头在嘶嘶作响，好像要爆炸了。然后它平息了，感觉和平常没什么不同。
+
 SE7:Ah,that's better.I now know how to communicate in an appropriate manner with you. 
 
-7号源实体：
+7号源实体：啊，这好多了。我现在知道如何用适当的方式和你交流了。
 
 I felt a tension in my head and an energy surge/shift.My eyes blurred a little.The accent was still there though.I decided that I had better live with it. 
 
+我感到头部的紧张和能量的涌动/转移。我的眼睛有点模糊。尽管口音仍然存在。我决定我最好忍受它。
+
 SE7:Sorry,just adjusting to an acceptable frequency for you.You will attune better as we continue with the dialogue. 
 
-7号源实体：
+7号源实体：对不起，只是调整到你能接受的频率。随着我们继续对话，你会调谐得更好。
 
 I have to admit I was a little worried about the Australian accent but decided that the best thing to do was to ignore my preconceptions in its use.As I put this potential block in the clarity of our communication path to one side,I received an image and an understanding of its use by Source Entity Seven.Australia was the Earth's largest single country without a land- based border with its neighbors,and,it's the only country that shares the same border with the borders of the continent it's based on.This was the reason Source Entity Seven had chosen to speak to me with an Australian accent.It had recognized this unique condition and had studied the language and culture in order to communicate with me,thinking that most of Earth's incarnate inhabitants existed on this one large area.I also received the impression that it was a reasonable assumption for it to make as this was a common theme with those of its creations who associated themselves with a "planetary"body of sorts.I also noted that it considered Australia as a center of heightened awareness on this planet.With the reason for Source Entity Seven's method of communication now understood,I commenced the dialogue with renewed vigor and no underlying doubt. 
 
+我必须承认我有点担心澳大利亚口音，但决定最好的办法是忽略我对它的使用偏见。当我把这个潜在的障碍放在我们沟通的道路上时，我收到了来自7号源实体的图像和对它的使用理解。澳大利亚是地球上最大的单一国家，没有与邻国的陆地边界，而且，它是唯一一个与它所基于的大陆边界相同的国家。这就是7号源实体选择用澳大利亚口音和我说话的原因。它已经认识到这种独特的情况，为了与我交流，它研究了语言和文化，认为地球上大多数转世的居民都生活在这个大区域。我也收到了这样的印象，这是一个合理的假设，因为这是一个与其创造物的共同主题，他们与各种各样的“行星”身体联系在一起。我也注意到它认为澳大利亚是这个星球上意识提高的一个中心。现在我明白了7号源实体选择这种交流方式的原因，我开始了对话，充满了活力，没有任何隐藏的疑虑。
+
 SE7:Now that you understand the reasons for my choice of verbal communication,we can start if you like. 
 
-7号源实体：
+7号源实体：既然你已经明白我选择口头交流的原因，如果你愿意，我们可以开始了。
 
 ME:Yes,please.I just found it a little strange at first and wanted to make sure I wasn't being delusional and was inventing the dialogue. 
 
-我：
+我：是的，请。我只是一开始觉得有点奇怪，想确认一下我是不是在妄想，是不是在编对话。
 
 SE7:You are most definitely not inventing this dialogue.But I can tell you one thing:you are stretched very thin,and this lack of substance is the reason for your lower confidence level. 
 
-7号源实体：
+7号源实体：你绝对不是在编这个对话，但我可以告诉你一件事：你太过分了，缺乏实质内容是你信心低落的原因。
 
 ### The Three Versions of Source Entity Seven
 
