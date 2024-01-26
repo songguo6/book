@@ -235,171 +235,199 @@ SE7:You are most definitely not inventing this dialogue.But I can tell you one t
 
 ### The Three Versions of Source Entity Seven
 
+**7号源实体的三个版本**
+
 ME:I see.Well,I had better overcome that pretty quickly if I am not going to spoil this opportunity.Let's move on then.As I started to log into you,I received an image.It looked like you had arranged yourself into two areas that overlapped in the middle-rather like what two cells look like just before the point of divisional separation.Can you explain the reason for this?It looks like you have three environments:a left,a right and a combination of the left and right. 
+
+我：我明白了，如果不想错过这次机会，我最好快点克服这个问题，我们继续吧，当我开始进入你的时候，我收到了一个图像，看起来你把自己安排在两个中间有重叠的区域，就像两个细胞在分区分离之前的样子，你能解释一下原因吗？ 看起来你有三个环境：一个左边，一个右边，还有一个左边和右边的结合。
 
 SE7:What you are seeing is actually two of me at a point in frozen separation. 
 
-7号源实体：
+7号源实体：你看到的实际上是两个我在一个冻结分离点上。
 
 ME:You mean there are two of you? 
 
-我：
+我：你的意思是你们有两个人？
 
 SE7:No,there are three.When I was planning how I would best contribute to The Origin's desire to evolve through devolution and separation,I decided to cut myself in half and create two independent but co-existent selves.At the point of separation,I saw the beauty in the possibility presented in constraining the separation to a partial condition.This partial condition-you might call it the "Siamese"section-that which was part of both of me that was separating at that point,developed an independent energetic signature of its own,creating a third version of me.This stopped me from continuing the separation as it provided a number of interesting opportunities. 
 
-7号源实体：
+7号源实体：不，有三个。当我计划如何最好地为“起源”通过分裂和分离而进化的愿望做出贡献时，我决定将自己切成两半，创造两个独立但共存的自我。在分离的时刻，我看到了将分离限制在部分条件下的可能性之美。这个部分条件——你可能会称之为“Siamese”部分——是我俩的一部分，在那个时刻分离，发展出自己独立的能量特征，创造了第三个版本的我。这阻止了我继续分离，因为它提供了许多有趣的机会。
 
 ME:Am I reading this correctly then?You are now three independent but co-joined and coexistent entities,each with different thought processes and different activities? 
 
-我：
+我：我理解的对吗？你们现在是三个独立但又联合并共存的实体，每个实体都有不同的思维过程和不同的活动？
 
 SE7:Yes. 
 
-7号源实体：
+7号源实体：是的。
 
 ME:Then why/how am I able to talk to you as a single entity?Am I just talking to one of you? Say,Source Entity Seven "A"(SE7A) 
 
+我：那为什么/怎么我能作为一个单一的实体和你们说话？我只是和你们其中的一个说话吗？ 比如，7号源实体“A”(SE7A)
+
 SE7:No,you are talking to a combined simulacrum of the three versions of me.This I/we have set up to initiate communication with you so that you didn't get confused with each of me talking at the same time,answering your questions simultaneously in three different ways. 
 
-7号源实体：
+7号源实体：不，你正在和三个版本的我组合的模拟体说话。这个我/我们已经建立起来，以便开始和你交流，这样你不会因为我同时说话而感到困惑，同时用三种不同的方式回答你的问题。
 
 ME:I thank you for your concern.Are you able to go back to your original singular condition, to that which you were before the point of separation? 
 
-我：
+我：谢谢你的关心。你能回到你最初的单一状态，回到分离之前的你吗？
 
 SE7:No,the change was a permanent change.That is,unless all three of me decide,in fully committed unison,to enlist the help of The Origin to return us to singularity.This permanent change was my singular decision before separation. 
 
-7号源实体：
+7号源实体：不，这个改变是永久的改变。也就是说，除非我三个人决定，完全一致地，寻求起源的帮助，让我们回到奇点。这个永久的改变是我在分离前做出的唯一决定。
 
 ME:So you have no over-mind to control you all? 
 
-我：
+我：所以你没有过度的想法来控制你们所有人？
 
-SE7:No 
+SE7:No.
 
-7号源实体：
+7号源实体：没有。
 
-ME:You have no clock ticking in the background,which will re-set you back to singularity after a certain period of time? SE7:No ME:You have no re-set button to press if it all goes horribly wrong,or you want a change of strategy? 
+ME:You have no clock ticking in the background,which will re-set you back to singularity after a certain period of time? 
 
-我：
+我：你没有在后台的时钟滴答，在一段时间后会重新设置你回到奇点？ 
 
-SE7:No
+SE7:No. 
 
-7号源实体：
+7号源实体：没有。
+
+ME:You have no re-set button to press if it all goes horribly wrong,or you want a change of strategy? 
+
+我：如果一切都出错了，或者你想改变策略，你没有重置按钮可以按吗？
+
+SE7:No.
+
+7号源实体：没有。
 
 ME:Fascinating.When I have talked to the other Source Entities,those that had created areas of separation always had a bail-out facility somewhere. 
 
-我：
+我：太迷人了。当我和其他源实体谈话时，那些制造分离区域的实体总是在某个地方有紧急援助设施。
 
 SE7:Not me/us.The change was personally permanent. 
 
-7号源实体：
+7号源实体：不是我/我们。这个改变是永久的。
 
 ME:But you do have the ability to use The Origin to return you back to the singular should you all so wish. 
 
-我：
+我：但是你们确实有能力使用起源使你们回到单数，如果你们愿意的话。
 
 SE7:Yes. 
 
-7号源实体：
+7号源实体：是的。
 
 ME:So that is your collective bail-out. 
 
-我：
+我：所以这就是你们的集体纾困。
 
 SE7:Yes,I suppose it is.I/we hadn't thought of it in that way.We simply think of it as an opportunity for future experience,should we all collectively seek such a change.Such a change would only be sought by The Origin if all three of me desire it together.It cannot take place if only one or two parts of me want it,but one part does not. 
 
-7号源实体：
+7号源实体：是的，我想是的。我/我们没有那样想过。我们只是简单地认为，如果我们共同寻求这样的改变，那它就是未来体验的一个机会。只有当我三者都共同渴望时，这样的改变才会被原点所寻求。如果我只有一、两个部分想要它，而另外一部分不想要，那么它就不会发生。
 
 ME:Can you merge two parts of you together. 
 
-我：
+我：你能把你的两个部分合并在一起吗？
 
 SE7:No,for this would upset the equal balance we currently have. 
 
-7号源实体：
+7号源实体：不，因为这会破坏我们目前的平衡。
 
 ME:Can I talk to you (SE7A,SE7B SE7C)separately as we progress this dialogue later. 
 
-我：
+我：我能和你们(SE7A,SE7B SE7C)单独谈谈吗？我们稍后会继续这个对话。
 
 SE7:If you wish. 
 
-7号源实体：
+7号源实体：如果你愿意。
 
 This was a bit strange and was wonderful all at the same time.Here I was,communicating with what was Source Entity Seven-now in three separate but co-joined and coexistent parts but as a singular entity,this entity or shell being created specifically for communication with me.Ifelt VERY honored.
 
+这有点奇怪，但同时又很美妙。我在这里，与7号源实体进行交流——现在是三个独立但又联合共存的部分，但作为一个单一的实体，这个实体或外壳是专门为与我交流而创建的。我感到非常荣幸。
+
 ME:Can I ask for clarification on why you felt it necessary to communicate with me in the singular rather than the collective. 
 
-我：
+我：我能请你澄清一下，为什么你觉得有必要以单数而不是集体的方式与我交流。
 
 SE7:Certainly,but first though,I see I need to give you a short lesson on singularity vs. collectivity vs.singularity through collectivity,for they are three different things,as is why I am able to communicate to you as a singular entity even though I am now three.We have,of course,created many others to assist in our evolution,as your Source Entity has.That is why you exist,but I will continue with defining singularity,collectivity,and singularity through collectivity. 
 
-7号源实体：
+7号源实体：当然，但是首先，我需要给你上一节关于单一性vs.集体性vs.通过集体性达到单一性的简短课程，因为它们是三种不同的事物，这也是为什么我能够作为一个单一的实体与你们交流，尽管我现在是三个了。当然，我们创造了许多其他实体来协助我们的进化，就像你们的源实体一样。这就是你们存在的原因，但是我将继续定义单一性，集体性，以及通过集体性达到单一性。
 
 ### Singularity 
 
-SE7:Singularity is when you have a unique and individualized entity that is independent of any other entity or group of similar entities.Although created and still part of its creator,it is given individuality as a sub-section of the entity which created it.A singular entity does not need to nor is [it]required to follow rules or conventions or styles of or for existence that may be created by those entities that may be similar to or exist in the same dimensional or frequential environment as the singular entity in question.This includes its creator. Although a singular entity may choose to adopt conformance to rules and conventions of those around it,it is ultimately not bound by them.A singular entity is responsible for its own actions,reactions,creativity,creations and subsequent evolution. 
+**奇点**
 
-7号源实体：
+SE7:Singularity is when you have a unique and individualized entity that is independent of any other entity or group of similar entities.Although created and still part of its creator,it is given individuality as a sub-section of the entity which created it.A singular entity does not need to nor is (it) required to follow rules or conventions or styles of or for existence that may be created by those entities that may be similar to or exist in the same dimensional or frequential environment as the singular entity in question.This includes its creator. Although a singular entity may choose to adopt conformance to rules and conventions of those around it,it is ultimately not bound by them.A singular entity is responsible for its own actions,reactions,creativity,creations and subsequent evolution. 
+
+7号源实体：奇点是当你有一个独特的和个性化的实体，它是独立于任何其他实体或类似实体的团体。虽然创造和仍然是其创造者的一部分，它被赋予了作为创造它的实体的子部分的个性。一个奇异的实体不需要也不需要遵循规则或惯例或风格或存在，这些可能由那些与这个奇异的实体相似或存在于相同维度或频率环境中的实体所创造。 这包括它的创造者。虽然一个奇异的实体可以选择遵循周围的规则和惯例，但它最终不受它们的约束。一个奇异的实体对自己的行动、反应、创造力、创造和随后的进化负责。
 
 ### Collectivity 
 
-SE7:A collectivity is a group or groups of entities who,although have singularity,are bound together by the functionality of their collective existence.Singularly they are unable to function with the innate purpose that a truly singular entity is able to achieve.They achieve significantly more together "collectively"than they would do in one's or two's or even higher numbers.Their purpose is,therefore,achieved together as a collective,and as such,they work as singular,individualized units-each with a role to do that [which]is significant,not to themselves,but as a smaller part of the much,much bigger collective picture.They can be considered as single components on a computer's printed circuit board or the individual cells or atoms in a much larger biological entity.As a collective,all participating entities evolve together at the same time as the whole.No one entity's contribution is such that it can evolve at a faster pace than any other entity within the collective,nor would it desire to do so.An entity that is part of a collective considers only that which is good for or contributes towards the progressive evolution of the whole as a whole. 
+**集体**
 
-7号源实体：
+SE7:A collectivity is a group or groups of entities who,although have singularity,are bound together by the functionality of their collective existence.Singularly they are unable to function with the innate purpose that a truly singular entity is able to achieve.They achieve significantly more together "collectively"than they would do in one's or two's or even higher numbers.Their purpose is,therefore,achieved together as a collective,and as such,they work as singular,individualized units-each with a role to do that (which) is significant,not to themselves,but as a smaller part of the much,much bigger collective picture.They can be considered as single components on a computer's printed circuit board or the individual cells or atoms in a much larger biological entity.As a collective,all participating entities evolve together at the same time as the whole.No one entity's contribution is such that it can evolve at a faster pace than any other entity within the collective,nor would it desire to do so.An entity that is part of a collective considers only that which is good for or contributes towards the progressive evolution of the whole as a whole. 
+
+7号源实体：集合体是一个或多个实体，尽管它们具有个体性，但它们因其集体存在的功能而联系在一起。个体的它们无法以一个真正单一的实体能够实现的固有目的来运作。它们“集体”在一起比一个或两个或更多个一起能实现更多。因此，它们的目标是作为一个集体来实现，因此，它们作为单一的、个性化的单位工作——每个单位都有重要的角色，不是对它们自己，而是作为一个更大的集体画面的一个较小的组成部分。它们可以被视为计算机印刷电路板上的单个组件，或更大的生物实体中的单个细胞或原子。作为一个集体，所有参与的实体作为一个整体同时共同进化。没有一个实体的贡献可以比集体中的任何其他实体进化得更快，它也不会希望这样做。作为集体一部分的实体只考虑对整体的进步进化有利或有助于整体的进化。
 
 ### Singularity Through Collectivity 
 
+**集体创造的奇点**
+
 SE7:This occurs or is created when a group of entities are interconnected in a conscious and communicative capacity.They may even be interdependent in other more fundamental ways,ways that result in group connectivity,group thinking and group action.This then, results in a collective mind-each singular mind/entity a function of the whole.When a singularity through collectivity is created,it is due to the desire of a group of conscious entities,who are co-joined and/or coexistent to present themselves in the singular in totality.In doing this they create an "over-mind"allowing a single output/input to those external to their collective state,as a result of their collective reasoning.This provides the ability to communicate collectively or singularly. 
 
-7号源实体：
+7号源实体：当一组实体以意识和交流能力相互连接时，这种现象就会发生或产生。它们甚至可能以其他更基本的方式相互依赖，从而导致群体连接、群体思维和群体行动。然后，这会导致集体思维——每个单独的思维/实体都是整体的功能。当通过集体创造出奇点时，这是由于一组有意识的实体的愿望，他们共同加入和/或共存，以整体的单一形式呈现自己。在这样做时，他们创造了一个“超意识”，作为他们集体推理的结果，允许对那些外部于他们的集体状态的输出/输入进行单一的输出/输入。这提供了集体或单独交流的能力。
 
 ME:So the singularity through collectivity version is how you are currently communicating with me. 
 
-我：
+我：所以通过集体版本的奇点，就是你目前和我交流的方式。
 
 SE7:Correct.It was the best way to initiate the communication process,and it is the one we shall use unless you request otherwise.We note that you may wish to engage with us separately at some point in our dialogue. 
 
-7号源实体：
+7号源实体：正确。这是启动沟通过程的最佳方式，除非你有其他要求，否则我们将使用这种方式。我们注意到，你可能希望在对话的某个时刻单独与我们接触。
 
 ME:I would.Yes,please. 
 
-我：
+我：我愿意。是的，请。
 
 SE7:Then we will do so as and when the time is right to do so. 
 
-7号源实体：
+7号源实体：那么，当时机成熟时，我们就会这样做。
 
 ### The Beginning,the Middle and the End 
 
+**开头，中间和结尾**
+
 ME:Can you tell me why you intended to split yourself into two individual entities and then stopped when you saw the beauty in the possibility of the third? 
 
-我：
+我：你能告诉我为什么你打算把自己分裂成两个独立的个体，然后当你看到第三个个体的可能性时，你又停下来了？
 
-SE7:I will have to start at the beginning of my first communication with The Origin to explain that.As with the other Source Entities,at the point of my becoming self-aware,I was contacted by The Origin to apprise me of the reason for my existence and what I needed to do to assist in the evolution of The Origin.Although I was not advised on what those Source Entities who were already self-aware and "contacted"had chosen to do in their contribution, I was previously and at that point,currently,in a position to know or witness what was being planned or"actioned"by them.The Origin deliberately negated to advise me on what they were doing lest it influence my own unique and individual choice,which The Origin valued above all else. ME:Why did The Origin value your individual choice?
+SE7:I will have to start at the beginning of my first communication with The Origin to explain that.As with the other Source Entities,at the point of my becoming self-aware,I was contacted by The Origin to apprise me of the reason for my existence and what I needed to do to assist in the evolution of The Origin.Although I was not advised on what those Source Entities who were already self-aware and "contacted"had chosen to do in their contribution, I was previously and at that point,currently,in a position to know or witness what was being planned or"actioned"by them.The Origin deliberately negated to advise me on what they were doing lest it influence my own unique and individual choice,which The Origin valued above all else. 
 
-7号源实体：
+7号源实体：我必须从我第一次与起源沟通的开始解释这一点。与其他源实体一样，在我变得有自我意识的时候，起源联系我，告诉我我存在的理由，以及我需要做什么来协助起源的进化。虽然我没有被告知那些已经有自我意识和“联系”的源实体选择做什么贡献，但我以前和当时，现在，处于一个位置，知道或目睹他们正在计划或“行动”。起源故意否定了他们正在做什么，以免影响我自己独特的和个人的选择，这是起源高于一切的价值。
+
+ME:Why did The Origin value your individual choice?
+
+我：为什么起源重视你的个人选择？
 
 SE7:To maximize the diversity of evolutionary opportunities,which may not occur if I was influenced by direct and in-depth detail.There would be no use in me covering "existing"or“old”ground. 
 
-7号源实体：
+7号源实体：为了最大限度地增加进化机会的多样性，如果我受到直接和深入的细节影响，这可能不会发生。对我来说，覆盖“现有的”或“旧的”基础将毫无用处。
 
 ME:Yes,I can imagine that would be a prerequisite dictate by The Origin,who would want to accelerate it evolution at the fastest and most efficient way possible. 
 
-我：
+我：是的，我可以想象，这将是一个先决条件，由起源，谁会想加速它的进化在最快和最有效的方式可能。
 
 SE7:That's right,it does,and that was the reason for my choosing to become two,which ended up being three.Apart from the Source Entity you call "Five"and the one that is not yet fully aware,I had noticed that the others divided themselves up internally whilst still maintaining an overall aspect that made them retain their wholeness.As a result of this observation,I decided to become two independent Source Entities with a link between the two.I discussed this and the "bail out"option as you described earlier with The Origin (for it is only The Origin that can return us to wholeness)who agreed with my strategy,and I continued.What happened next is as I have previously described.As I was in the process of separating out into the two versions of me,I noticed that a unique opportunity could be applied.If I maintained the equal overlapping area of the two versions of me and then froze the separation process in one position,this created a third middle option where we would all be separate but co-joined and co-existent.As I froze the separation at the point of equality,my consciousness divided into three and developed into three separate Source Entity personalities.But there was something else that I noticed as well.The periphery of the energies that separated us from each other was permeable,allowing energies that moved from,say,the left to the right or from Source Entity Seven"A"to move into Source Entity Seven "B"to actually cross the periphery or boundary energies.What's more,I noticed that there was a progressive opportunity in passing from one side of Source Entity Seven "A" to the point of interface between Source Entity Seven "A"(SE7A)and Source Entity Seven "B"(SE7B).This was duplicated in a progressive manner from Source Entity Seven "B"to the point of interface between Source Entity Seven "B"and Source Entity Seven "C"(SE7C). 
 
-7号源实体：
+7号源实体：是的，确实如此，这就是我选择成为两个，最后变成三个的原因。除了你称之为5号源实体和那个还没有完全意识到的源实体，我注意到其他源实体内部分裂的同时仍然保持整体的方面，使他们保持完整。由于这个观察的结果，我决定成为两个独立的源实体，在两个之间有一个连接。我讨论了这个和你之前描述的“解救”选项，与原点(因为只有原点可以让我们回到完整)谁同意我的策略，我继续。接下来发生的事情是我之前描述的。当我在分离成两个版本的我的过程中，我注意到一个独特的机会可以被应用。如果我保持两个版本的我相同的重叠区域，然后将分离过程冻结在一个位置，这创造了第三个中间选项，我们都会分离但共同连接和共存。但是我还注意到了其他一些东西。将我们彼此分开的能量的外围是可渗透的，允许能量从左到右或从第七源实体“A”移动到第七源实体“B”中，从而真正地跨越外围或边界能量。更重要的是，我注意到有一个渐进的机会，从第七源实体“A”的一侧通过到第七源实体“A”(SE7A)和第七源实体“B”(SE7B)之间的接口点。这以一种渐进的方式从第七源实体“B”复制到第七源实体“B”和第七源实体“C”(SE7C)之间的接口点。
 
 ME:Was this dimensional,frequency,or evolutionary based? 
 
-我：
+我：这是基于维度、频率还是进化？
 
 SE7:All three.As with your Source Entity,I have twelve dimensions with each dimension inflated with twelve frequencies.Each of the twelve dimensions is a composite of the three base dimensions,thus allowing expansive form.However,these were duplicated in a whole sense when a certain evolutionary condition was met or could be achieved;this was multiplied by a factor of twelve.So I had in each Source Entity twelve evolutionary levels that were filled with twelve dimensions constructed with three composite dimensions per dimension which were inflated with twelve base frequency levels.That was not all though. The evolutionary opportunities increased as I scanned the progression from Source Entity Seven "A"through to Source Entity Seven "C."The high end of Source Entity Seven "C's" evolutionary levels were as high as an entity,which I/we had not yet created,could go to from an evolutionary perspective.This effectively gave me an evolutionary beginning,an evolutionary middle,and an evolutionary end. 
 
-7号源实体：
+7号源实体：全部3种，和你们的源实体一样，我有12个维度，每个维度都膨胀了12个频率，12个维度中的每一个都是3个基本维度的复合体，因此允许膨胀的形式。然而，当某种进化条件满足或能够实现时，这些在整体意义上被复制了，这是乘以12倍的因素。所以我在每个源实体中都有12个进化级别，这些级别由12个维度构成，每个维度由3个复合维度构成，这些维度都膨胀了12个基本频率层级。
 
 ### Progression Between Source Entity Seven's Separate Parts 
 
