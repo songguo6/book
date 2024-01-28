@@ -431,146 +431,161 @@ SE7:All three.As with your Source Entity,I have twelve dimensions with each dime
 
 ### Progression Between Source Entity Seven's Separate Parts 
 
+**7号源实体不同部分之间的进化**
+
 ME:So what are you saying is that an entity can travel,no,progress in an evolutionary way from one part of you to another,say from SE7A through SE7C. 
 
-我：
+我：所以你的意思是一个实体可以旅行，不，以一种进化的方式从你的一个部分到另一个部分，比如从SE7A到SE7C。
 
 SE7:Yes,in a manner of speaking.
 
-7号源实体：
+7号源实体：是的，可以说。
 
 ME:But that would mean that if all evolving entities had a progression path from SE7A through SE7C,then wouldn't SE7B and SE7C initially be devoid of evolving entities until such a time when enough entities were evolved enough to progress from say SE7A to SE7B and SE7B to SE7C? 
 
-我：
+我：但这意味着如果所有进化实体有一个从SE7A到SE7C的进化路径，那么在足够多的实体进化到从SE7A到SE7B和从SE7B到SE7C之前，SE7B和SE7C最初不会缺乏进化实体吗？
 
 SE7:If that was the way I/We had planned the progression of the entities we created,I would agree,but this is not the case. 
 
-7号源实体：
+7号源实体：如果我/我们计划了我们所创造的实体的发展，我将同意，但事实并非如此。
 
 ME:I had a suspicion that it wouldn't be as simple as that. 
 
-我：
+我：我怀疑事情不会那么简单。
 
 SE7:It's not,so I will explain.Each Source Entity Seven has an equal number of entities associated with it.They are small entities and number in their billions of quadrupillions. Each Source Entity has its own strategy for evolution and the way/s it constructs its environment for evolution.However,although each Source Entity Seven had this opportunity,the environments are similar in dimensional and frequential construction insomuch that they offer progression that is frequency-based whilst allowing dimensional passage at the will of the individual entity.The environments also have areas of energetic concentration that you would call"density"where they can work with the lower frequencies should they desire to do so.I will leave the explanation of each of the environments to those individual parts of me(SE7A,SE7B SE7C)to explain to you separately,but suffice to say they also have the opportunity to exist in different dimensions concurrently or linearly. 
 
-7号源实体：
+7号源实体：不是的，所以我将解释。每个源实体7都有相同数量的实体与之相关。他们是小实体，数量在他们的数十亿的四百亿次方。每个源实体7都有自己的进化策略和它构建进化环境的方式。然而，尽管每个源实体7都有这个机会，环境在维度和频率的构建上如此相似，以至于它们提供基于频率的进程，同时允许个体实体的意愿在维度中通行。环境也有能量集中的区域，你们会称之为“密度”，在那里他们可以与低频率一起工作，如果他们希望这样做。我将把每个环境的解释留给我的那些个体部分(SE7A,SE7B SE7C)分别向你们解释，但足以说他们也有机会同时或线性地存在于不同的维度中。
 
 When an entity that is based in SE7A has evolved enough,it has the opportunity to progress from,for instance,SE7A to SE7B and later to SE7C.The evolutionary opportunity for that entity is increased as it moves from one Source Entity Seven to another.If an entity that is based in SE7C desires,it may progress from SE7C to SE7B and later to SE7A.Again the evolutionary opportunity is progressive as it moves from one Source Entity Seven to next. 
 
+当一个基于SE7A的实体已经进化到一定程度时，它有机会从，例如，SE7A到SE7B，然后到SE7C。 当它从一个源实体7移动到另一个时，该实体的进化机会会增加。如果一个基于SE7C的实体有愿望，它可以从SE7C到SE7B，然后到SE7A。再次，当它从一个源实体7移动到下一个时，进化机会是渐进的。
+
 ME:So what about the progression for those entities that are based within SE7B?Which way do they go? 
 
-我：
+我：那么那些基于SE7B的实体的进化过程是怎样的？他们会走哪条路？
 
 SE7:Entities that are based within SE7B can progress to either SE7C or SE7A first and then move on to that Source Entity Seven that they have not yet experienced.Simply put,they can progress from SE7B to SE7A to SE7C,or,SE7B to SE7C to SE7A. 
 
-7号源实体：
+7号源实体：基于SE7B的实体可以先进入SE7C或SE7A，然后再进入它们还没有经历过的源实体7。简单地说，它们可以从SE7B到SE7A到SE7C，或者从SE7B到SE7C到SE7A。
 
 ME:How do they do that?Do they have to traverse though that Source Entity Seven that they had previously experienced?Does that also still include evolutionary opportunities? 
 
-我：
+我：他们是怎么做到的？他们是否必须穿越他们之前经历过的7号源实体？那是否仍然包含进化的机会？
 
 SE7:They can choose many ways to move from Source Entity Seven to Source Entity Seven, and this is not constrained to those entities who primarily originate in SE7B.Any of the entities in any of the Source Entity Sevens can chose to move to the Source Entity that is either on their closest Source Entity Seven to Source Entity Seven boundary or on the next Source Entity Seven to Source Entity Seven boundary,which is another Source Entity away. 
 
-7号源实体：
+7号源实体：他们可以选择许多方法从源实体7移动到源实体7，这并不局限于那些主要起源于SE7B的实体。任何源实体7中的任何实体都可以选择移动到最近的源实体7到源实体7边界或下一个源实体7到源实体7边界上的源实体，这是另一个源实体。
 
 An entity may choose to progress though the frequencies offered in a Specific Source Entity Seven's environment in order to transition to the border of the next Source Entity Seven or by-pass it.It may even choose to do this(transition)more than once with the second time potentially being the transitory transition to the Source Entity Seven not yet experienced where the entity may or may not choose to perfect the experiential content of certain experiences during this transitory period by doing one of these:(1)repeating the exercise; (2)just passing through the environment;or (3)conducting the whole evolutionary process again for purposes of perfection.An entity can choose to repeat the whole or part of the process as many times as it wishes.There are no rules in this function of existence nor are there restrictions. 
 
-ME:You mentioned that an entity can by-pass the need to transition through one Source Entity Seven to another.Does this mean that they can pass round the outside of the Source Entity that they would have normally transitioned through? z
+一个实体可以选择通过特定的源实体7的环境提供的频率来前进，以便过渡到下一个源实体7的边界或绕过它。它甚至可以选择不止一次地这样做(过渡)，第二次可能是到尚未经历的源实体7的过渡，在这个过渡期间，实体可以或不可以选择通过以下方式之一来完善某些经验的经验内容：(1)重复练习； (2)仅仅通过环境； 或(3)为了完善的目的再次执行整个进化过程。一个实体可以选择重复整个过程或部分过程，只要它希望。在这个存在功能中没有规则，也没有限制。
 
-我：
+ME:You mentioned that an entity can by-pass the need to transition through one Source Entity Seven to another.Does this mean that they can pass round the outside of the Source Entity that they would have normally transitioned through? 
+
+我：你提到一个实体可以绕过需要通过一个源实体7过渡到另一个。这是否意味着他们可以绕过通常会通过的源实体的外部？
 
 SE7:Yes,to a certain extent.You see,the interfacing boundary separating the environments whilst integrating the cohesion of the co-existence of the three Source Entity Sevens are twofold: 
-
-7号源实体：
 
 - 1.One contains the separate structure of the Source Entity specific environment and is dimensionally and frequentially independent of the environment; 
 - 2.The other contains the neutralized energies required to maintain the cohesion and co-existent existence of the three Source Entity Sevens in their integrated state.Because this boundary contains functions that are fully independent of the environments they contain,it creates an environment in its own right,albeit small. 
 
+7号源实体：是的，在某种程度上。你看，界面边界分离了环境，同时整合了三个源实体7共存的凝聚力，这是双重的：
+
+- 1、一个包含了源实体特定环境的单独结构，并且在维度和频率上独立于环境；
+- 2、另一个包含了中和能量，需要保持源实体7的三个部分在它们的整合状态下的凝聚力和共存。因为这个边界包含了完全独立于它们所包含的环境的功能，它创造了一个自己的环境，尽管很小。
+
 ME:I have just gotten the impression that it is like the air in between a double glazed window with the inner window being the boundary for the environment that is one of the Source Entity Sevens and the outer window maintaining the cohesion.Is it this air gap that allows the entity to traverse between the Source Entity Sevens without the need to progress though. them?
 
-我：
+我：我刚刚得到的印象是，它就像一个双层玻璃窗之间的空气，内窗是环境的边界，是源实体7的部分之一，外窗保持凝聚力。是这个空气间隙允许实体在源实体7的部分之间穿行，而不需要通过它们吗？
 
 SE7:In part,yes.This is one of two ways.However,it is possibly the safest and fastest way to traverse between the three Source Entity Sevens.An entity can quite literally use this "air gap"to move to the nearest Source Entity Seven boundary interface and make the transition at this point of contact.It is a bit like the "null space"that you have in your Source Entity's environment to separate the universes from each other. 
 
-7号源实体：
+7号源实体：部分是的。这是两种方式之一。然而，这可能是穿越三个源实体7之间最安全和最快的方式。一个实体可以完全使用这个“空气间隙”移动到最近的源实体7边界界面，并在接触点进行转换。这有点像你在源实体环境中拥有的“零空间”，将宇宙彼此分开。
 
 ME:What is the other way and why is the method above the safest? 
 
-我：
+我：另一种方法是什么？ 为什么上面的方法是最安全的？
 
 SE7:The method I described in summary above is an environment in its own right and, therefore,offers a level of protection or energetic containment that is similar to that offered by a true Source Entity Seven environment but without the rules of evolution assigned to these environments.The second means an entity can use to transfer itself to the next Source Entity is to make the journey outside the boundary by using the inter-Source Entity void or space,i.e.,by using the space that is,in essence,pure Origin energy. 
 
-7号源实体：
+7号源实体：我上面总结的方法本身就是一个环境，因此，它提供了一种类似于真实的源实体7环境所提供的保护或能量包容，但没有分配给这些环境的进化规则。实体可以用来转移到下一个源实体的第二种方法是通过使用源实体之间的真空或空间来进行边界外的旅行，即通过使用本质上是纯粹的起源能量的空间。
 
 ME:You mean they move from and to Source Entity environments by leaving the environment totally and entering into the absolute that is The Origin? 
 
-我：
+我：你的意思是他们从源实体环境中移动，完全离开环境，进入绝对的起源？
 
 SE7:Yes. 
 
-7号源实体：
+7号源实体：是的。
 
 ME:Why is that dangerous? 
 
-我：
+我：为什么会危险？
 
 SE7:I didn't say it was dangerous.I said the first way was the safest and fastest. 
 
-7号源实体：
+7号源实体：我没说那很危险。我说第一种方法是最安全和最快的。
 
 ME:OK,so why would the first way be the fastest and safest way? 
 
-我：
+我：好的，那么为什么第一种方法是最快和最安全的方法呢？
 
 SE7:It's fast because its function is limited to what it is with no other complications or opportunities to be affected by the actions of those entities passing through it.It is safer because an entity can become overwhelmed to the point of distraction by being directly associated with the pure energies of The Origin if it is not prepared for them. 
 
-7号源实体：
+7号源实体：它快速是因为它的功能被限制在它本身，没有其他的复杂性或机会被那些通过它的实体的行动所影响。它更安全是因为如果一个实体没有准备好，它可能会因为直接与起源的纯能量相关而被压倒到分心的程度。
 
 ME:What do you mean distracted?
 
-我：
+我：你说分心是什么意思？
 
 SE7:Besotted to the point of being stuck in the bliss-like state of euphoria that is instantaneously experienced and results in a desire to stay in this state and not continue with the task at hand-that of moving to the next Source Entity Seven environment. 
 
-7号源实体：
+7号源实体：被迷醉到陷入瞬间体验到的极乐般的欣快状态，并产生一种想要停留在这种状态的欲望，而不是继续手头的任务——即移动到下一个源实体7的环境。
 
 ME:How can that be?I am not besotted to the point of non-function when I go outside my Source Entity or,in fact,traverse the distances to you. 
 
-我：
+我：怎么可能？当我走出我的源实体，或者，事实上，穿越到你的距离时，我并没有被麻醉到无功能的地步。
 
 SE7:That is because you are being given a level of protection by your own Source Entity during your communications with the twelve Source Entities,and you are beloved of the Om. 
 
-7号源实体：
+7号源实体：那是因为在你与12个源实体的交流过程中，你被你自己的源实体给予了一定程度的保护，而且你是OM的至爱。
 
 I had heard this description of being "beloved of the Om"in the context of Hum and me before whilst compiling the text for The History of God book. 
 
+我曾在HUM和我之前为《源头简史》编写文本时，听到过这种被“OM所爱”的描述。
+
 SE7:Being beloved of the Om means that you are part of the absolute fabric of the Source Entity,that which is the fabric of The Origin;hence,you have a certain level of built-in tolerance to these effects and accessibility to its energies,for they are part of you in a more holistic sense. 
 
-7号源实体：
+7号源实体：被OM所爱意味着你是源实体绝对结构的一部分，这是起源的结构；因此，你对这些影响和对其能量的可及性有一定程度的内在容忍，因为它们在更全面的意义上是你们的一部分。
 
 ME:Why would the OM be beloved then?My assumption is that all the entities created by my Source Entity were created out of its own energy,so wouldn't all of these entities be beloved? 
 
-我：
+我：为什么OM会被爱？我的假设是，所有由我的源实体创造的实体都是由它自己的能量创造的，所以这些实体不是都被爱吗？
 
 SE7:No.In the instance of creating the entities used for its strategy for evolution,your Source Entity created a level of error during the process.This you know.What you have not been told is that those entities that were created first and were closest to your Source Entity,received a purity of energy that was not perpetuated during the remaining process of creativity.At the end of the process when your Source Entity claimed it was not paying the same level of attention as it had in the primary phase of creativity,it created the level of entity that you recognize as animals,plants,and even the,suns,and galaxies.The Om were simply the first to be created and,therefore,ended up being very close to pure Source Entity energy and,therefore,The Origin energy,as an entity could possibly be.Hence your ability to do what you are doing now.There are many other Om working with the Earth sphere, incarnate and not incarnate.Working in incarnately is a great sacrifice for an Om because of the risk of attracting lower frequencies without protection. 
 
-7号源实体：
+7号源实体：不。在创造用于进化策略的实体的实例中，你们的源实体在过程中创造了一个级别的错误。这个你们知道。你们没有被告知的是那些最先被创造的实体，最接近你们的源实体，接受了一种在创造过程的剩余阶段没有被永久保留的纯净能量。在过程的最后，当你们的源实体声称它没有付出与创造最初阶段相同的关注时，它创造了你们所认识的动物、植物，甚至太阳和银河系的实体。OM只是第一个被创造的，因此，最终非常接近纯净的源实体能量，因此，作为一个实体，起源能量。因此你们有能力做你们现在正在做的事情。还有许多其他OM在地球上工作，化身和非化身。化身工作对OM来说是一个巨大的牺牲，因为在没有保护的情况下吸引低频率的风险。
 
-ME:I get the feeling that I can achieve a much higher level of connectivity with The Origin's creations whilst in the physical but that it needs working on. SE7:You can,you will,and you will need to work at it. I needed to move on so I changed the track of dialogue back to the space in-between the three parts of Source Entity Seven. 
+ME:I get the feeling that I can achieve a much higher level of connectivity with The Origin's creations whilst in the physical but that it needs working on. 
 
-我：
+我：我感觉我可以实现与起源创造物更高层次的连接，同时在物质上，但它需要工作。
+
+SE7:You can,you will,and you will need to work at it. I needed to move on so I changed the track of dialogue back to the space in-between the three parts of Source Entity Seven. 
+
+7号源实体：你可以，你会，你需要努力。我需要继续前进，所以我把对话的轨道改回了7号源实体的三个部分之间的空间。
 
 ME:Thank you for that extra information about the Om.I wasn't aware that the Om were that close to my Source Entity and,therefore,The Origin. I made a mental note to discuss this further with my own Source Entity when the opportunity presented itself.
 
-我：
+我：谢谢你提供额外的关于OM的信息。我没有意识到OM离我的源实体如此之近，因此，源头。我做了个心理记录，当机会来临时，我会和我自己的源实体进一步讨论这个问题。
 
 ME:Let's get back to the space within the boundaries between the three parts of you. Other than being the functional boundaries between your environments and providing a back door for entities to use as a faster method of moving from one Source Entity Seven to another,what other function does it provide? 
 
-我：
+我：让我们回到你们三个部分之间的边界空间。除了作为你们环境之间的功能边界，并为实体提供一个后门，作为从一个源实体7移动到另一个的更快方法，它还提供什么其他功能？
 
 SE7:It provides no other function that can be used by an entity,for its function is to be a boundary.It does have the properties of neutrality though.This is required to allow the interface between the different parts of me to exist simultaneously without interference. 
 
-7号源实体：
+7号源实体：它不提供任何其他可以被实体使用的功能，因为它的功能是作为一个边界。尽管它具有中立性，这是为了允许我不同部分之间的接口同时存在而没有干扰。
 
 ### Source Entity Seven's Entities and Flat Planets 
 
