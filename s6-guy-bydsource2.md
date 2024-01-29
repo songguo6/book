@@ -589,175 +589,179 @@ SE7:It provides no other function that can be used by an entity,for its function
 
 ### Source Entity Seven's Entities and Flat Planets 
 
+**7号源实体的实体和扁平行星**
+
 ME:We previously talked about the entities that you created to populate the three environments of yourself.Can you describe them and their roles? 
 
-我：
+我：我们之前谈论过你创造的实体，这些实体填充了你自己的三个环境。你能描述一下它们和它们的角色吗？
 
 SE7:As you have been told previously,initially they were distributed equally across the three parts of me that were created.Their transition is a function of evolutionary progress that ultimately results in the number of entities resident in each part of me becoming un-equal.This level of "un-equality of residence"changes as the entities progress at differing speeds of evolution. 
 
-7号源实体：
+7号源实体：正如你之前所知道的，最初他们被平均分配到我被创造的三个部分中。他们的转变是进化过程的一个功能，最终导致我每个部分中的实体数量变得不平等。这种“居住不平等”的程度随着实体进化速度的不同而变化。
 
 ME:What is their appearance? 
 
-我：
+我：它们是什么样子的？
 
 SE7:Although they are energetic in nature in comparison to your own current physical condition,they have a habit of liking to cluster around areas of local density-what you might call "planets."
 
-7号源实体：
+7号源实体：虽然他们与你目前的身体状况相比，在本质上是精力充沛的，他们有喜欢聚集在当地密度的习惯-你可能会称之为“行星”。
 
 ME:Are these planets spherical as most of the planets are in my physical universe? 
 
-我：
+我：这些行星和我物质宇宙中的大多数行星一样是球形的吗？
 
 SE7:No,they are flat. 
 
-7号源实体：
+7号源实体：不，它们是平的。
 
 ME:Flat? 
 
-我：
+我：平的？
 
 SE7:Yes,flat.This is because of the way the energy collects as dense matter.When the matter,energy matter,collects together and becomes dense enough to be used by the entities,it results in it being flat. 
 
-7号源实体：
+7号源实体：是的，平坦。这是因为能量聚集成密集物质的方式。当物质，能量物质，聚集在一起，变得足够密集，可以被实体使用，它导致了它的平坦。
 
 ME:Why is that? 
 
-我：
+我：为什么？
 
 SE7:Because when this energy becomes dense,it only becomes dense in what you would call "two dimensions..”
 
-7号源实体：
+7号源实体：因为当这种能量变得密集时，它只会在你们所谓的“二维空间”中变得密集。
 
 ME:A flat planet.This is interesting.I thought that planets or areas of local density would be spherical.In fact,my Source Entity advised me that the sphere was the most common and natural shape for a planet to adopt. 
 
-我：
+我：一个扁平的行星。这很有趣。我认为行星或局部密度的区域应该是球形的。事实上，我的源实体建议我，球形是行星最常见和最自然的形状。
 
 SE7:In a fully physical universe dependent upon the first three dimensional components (tritaves)of the first full dimension,such as the one you exist within,this might be a common occurrence.The flat areas of local density act like islands in the fabric of the energetic environment of the particular Source Entity Seven they are associated with. 
 
-7号源实体：
+7号源实体：在一个完全依赖于第一个完整维度中第一个三维组件(三维)的完全物理宇宙中，比如你们所存在的那个，这可能是一个常见的现象。局部密度的平坦区域就像是与之相关的特定7号源实体的能量环境结构中的岛屿。
 
 This would explain the affinity with those living on the Australian continent,I thought,for they see Australia as a large island,and the areas of local density are also considered to be islands rather than planets.
 
+我想这可以解释为什么他们和澳大利亚大陆上的人很亲近，因为他们把澳大利亚看成一个大岛，而且当地人口密集的地区也被认为是岛屿而不是行星。
+
 ME:Are they disk-like in shape? 
 
-我：
+我：它们的形状像圆盘吗？
 
 SE7:No,for that would be an association with the dimensional requirements of a low dimensional tritave. 
 
-7号源实体：
+7号源实体：不，因为那将是与低维三维空间的维度要求有关。
 
 ME:So what is the shape of the areas of local density?(I was already receiving an image of a fragmented edge,rather like a coast line on earth.) 
 
-我：
+我：那么局部密度的形状是什么呢？(我已经接收到一个碎片边缘的图像，很像地球上的海岸线。)
 
 SE7:Fractal,for this is the usual shape adopted by a two-dimensional structure in a lower level dimension. 
 
-7号源实体：
+7号源实体：分形，因为这是二维结构在低维度中通常采用的形状。
 
 ME:How are your dimensions organized? 
 
-我：
+我：你们的维度是如何组织的？
 
 SE7:In a consistent way to The Origin.In fact,they are unchanged.I felt no need to change to a structure of my own design,especially when the separation of self into three separate but co-existent and interdependent Source Entities was decided upon.As a result of this,you will already have a good level of understanding of my/our environmental structure through your communications with The Origin. 
 
-7号源实体：
+7号源实体：以与起源一致的方式。事实上，它们没有改变。我认为没有必要改变我自己设计的结构，特别是当自我分离成三个独立但共存和相互依赖的源实体被决定时。因此，通过你们与起源的交流，你们将已经对我的/我们的环境结构有很好的理解。
 
 ME:So you have 12 zones with 12 dimensions,each with 3 tritaves or dimensional components with 12 frequencies,12 x 3 x 12 x 12 permutations of environmental conditions. 
 
-我：
+我：所以你有12个带有12个维度的区域，每个区域有3个八度或12个频率的维度分量，12 x 3 x 12 x 12 的环境条件的排列。
 
 SE7:Yes. 
 
-7号源实体：
+7号源实体：是的。
 
 ME:With each of them offering a separate and complete environment to exist within, should an entity choose to do so. 
 
-我：
+我：每个实体都可以选择一个独立而完整的环境来生存。
 
 SE7:Yes,and they are also arranged in a way that supports evolutionary progression through the three parts of me. 
 
-7号源实体：
+7号源实体：是的，它们的排列方式也支持我这三部分的进化进程。
 
 ME:Would I be able to classify each permutation as a universe in its own right? 
 
-我：
+我：我能把每个排列都归类为一个宇宙吗？
 
 SE7:Yes,because a universe is an environment of known energy,frequency and dimension. Please note that matter is not a feature in all universes,for this is a function of lower dimension and frequency,linked together with intentional manifestation of the creator. 
 
-7号源实体：
+7号源实体：是的，因为宇宙是一个已知能量、频率和维度的环境。请注意，物质并不是所有宇宙的特征，因为这是一个较低维度和频率的功能，与造物主的有意显现联系在一起。
 
 ME:You mean that a matter based universe has to be created intentionally?It does not exist as a function of its low frequency and dimension? 
 
-我：
+我：你的意思是物质基础的宇宙必须被有意地创造？它不作为其低频率和维度的功能而存在？
 
 SE7:No.Matter-based universes,no matter how dense-and that can range from the super dense to the super sparse (thin,clear,fine)-do not and cannot exist without first being created.This is because the creative intention transmitted by the creating entity is the force by which energy of low frequency,existing in a low dimension,is manifest with or without "form."Only when it is manifest can it become matter "without form,"which can then be translated to matter "with form."When it becomes matter "without form,"it needs to be continually maintained to perpetuate its existence,lest it revert back to pure energy. When it becomes manifest as matter "with form,"it needs to have individual localized maintenance on a continuous and continual basis.Hence,there is a hierarchy of entities within matter-based universes,dedicated to tending to the needs of the galaxies,systems and planets that are entities in their own right. 
 
-7号源实体：
+7号源实体：不。基于物质的宇宙，无论多么密集——范围从超密集到超稀疏(薄、清澈、细腻)——没有首先被创造，它不存在，也不可能存在。这是因为由创造实体传递的创造意图是存在于低维度的低频能量的动力，它有或没有“形式”。只有当它被显现时，它才能成为“无形”物质，然后可以转化为“有形”物质。当它成为“无形”物质时，它需要持续地被维护以使其存在永存，以免它恢复为纯粹的能量。当它成为“有形”物质时，它需要在持续和连续的基础上进行个体的局部维护。因此，在基于物质的宇宙中存在着实体的等级制度，致力于照顾那些本身就是实体的星系、系统和行星的需求。
 
 ME:Can I assume then,that evolution results in a progression from the lower frequencies/ dimensions to the higher frequencies/dimensions as in my own multiverse?
 
-我：
+我：那么我可以假设，进化的结果是，就像在我自己的多维宇宙中一样，从低频率/维度到高频率/维度的进展？
 
 SE7:You can,for this is a standard function of all of the frequencies and dimensions and energies associated with The Origin and its creations.This function,therefore,is passed down as an environmental prerequisite from the Source Entities to their/our creations- whether they be the environments themselves,the entities created to exist within them,or entities assigned with the creative capability to create universes within universes. 
 
-7号源实体：
+7号源实体：你可以，因为这是所有与起源及其创造物相关的频率、维度和能量的标准功能。 因此，这个功能作为环境的先决条件从源实体传递到它们/我们的创造物中——无论是环境本身，还是被创造出来存在于其中的实体，或者被赋予创造能力来创造宇宙中的宇宙的实体。
 
 ME:So there is order to The Origin? 
 
-我：
+我：所以说起源是有顺序的？
 
 SE7:Very much so,and it is maintained throughout. 
 
-7号源实体：
+7号源实体：非常正确，而且始终保持。
 
 ME:OK,we have digressed a little here.What more can you tell me of the disk-like world/ planets? 
 
-我：
+我：好吧，我们有点离题了。你能告诉我关于圆盘状的世界/行星吗？
 
 SE7:They are a matter type that has "form"but not what you would classify as matter "with form."This is simply because it does not have the level of density that you currently experience,and they are manifested in a different frequency and dimensional environment (universe).As a result,they are not consistent in their form factor,for they are constantly changing. 
 
-7号源实体：
+7号源实体：他们是一种有“形式”的物质类型，但不是你们所分类的“有形式”的物质。这只是因为它不具有你们目前所经历的密度水平，它们表现在不同的频率和维度环境(宇宙)中。因此，它们在它们的形式因子中是不一致的，因为它们在不断地变化。
 
 ME:What makes them change?Energetic influences or the entities assigned to their maintenance? 
 
-我：
+我：是什么让它们改变？能量的影响还是分配给它们维护的实体？
 
 SE7:Both actually.You see,the way in which the entities work with each other and the planet results in a change in frequency of the energy of the matter.This results in a change in the cohesion properties of the planets "form"that results in essential maintenance to reduce the loss of form due to loss of cohesion.The entities maintaining the planet then have to change the functionality of the cohesive content of the energy of the matter to enable its form to be perpetuated.However,the work required to do this is not always achieved in a timely manner because of the amount of work they have to do to stabilize the changes that are happening.This results in minor changes in the planets'overall form factor but major changes to areas of what you would call the topography.Areas of high ground change to areas of low ground;denser areas become finer or totally disappear. 
 
-7号源实体：
+7号源实体：实际上两者都有。你看，实体之间以及行星之间的相互作用方式导致了物质能量频率的变化。这导致了行星“形式”的凝聚力属性的变化，从而导致了必要的维护，以减少由于凝聚力的丧失而导致的形式丧失。维护行星的实体然后必须改变物质能量凝聚内容的功能，以使其形式得以永存。然而，所需的工作并不总是能及时完成，因为他们必须做大量的工作来稳定正在发生的变化。这导致了行星整体形式因素的微小变化，但对你们所称的地形区域有重大变化。高地区域变成低地区域；密度更大的区域变得更细或完全消失。
 
 ME:Would that explain the earthquakes and volcanoes we get on earth? 
 
-我：
+我：那能解释地球上的地震和火山吗？
 
 SE7:Yes,for there is no other influence on your earth,which it is exposed to that affects it in a frequential and energetic way,as a direct result of the actions of the entities that exist or work "with-on"and "with-in"it.Your weather patterns are also affected by your frequencies.In fact,changes to the weather patterns are the first level of change that happens as a result in a change in frequency.They are your early warning system of an impending change to the planetary form,directly resulting from a change in frequency. 
 
-7号源实体：
+7号源实体：是的，因为没有其他对你们地球的影响，它暴露在以频率和能量的方式影响它，作为存在或工作在“内在”和“内在”的实体的行动的直接结果。你们的天气模式也受到你们频率的影响。事实上，天气模式的变化是频率变化的结果发生的第一层次的变化。
 
 ME:Excuse me.Does this mean that the weird and extreme weather we are experiencing at the moment (April/May 2011)is a direct result of the changes in our frequency and not due to pollution-based global warming? 
 
-我：
+我：请问，这是否意味着我们目前(2011年4月/5月)经历的奇怪和极端天气是由于我们频率变化的直接结果，而不是由于基于污染的全球变暖？
 
 SE7:The pollution of and damage to your planet,resulting from your appetite for carbon- based energy does have an influence on your environment.However,the major changes you are experiencing are due to shifts in the earth's frequency,which is up and down like a...yo yo?
 
-7号源实体：
+7号源实体：你们对碳基能源的贪婪导致了对你们星球的污染和破坏，这确实对你们的环境产生了影响。 然而，你们正在经历的主要变化是由于地球频率的改变，它就像一个...溜溜球？
 
 ME:Yo yo would be a good description.I guess this is a result of the critical mass required to assist in the ascension of our planet and its inhabitants actually increasing,but this good work is then being counteracted by local fighting between governments and people in other parts of the world. 
 
-我：
+我：溜溜球是一个很好的描述。我猜这是由于我们星球的提升和它的居民实际上增加所需要的临界质量的结果，但这项好的工作随后被世界其他地方政府和人民之间的局部战斗所抵消。
 
 SE7:It would be. 
 
-7号源实体：
+7号源实体：会的。
 
 ME:Mmmm.We have such a hard time when things like earthquakes happen on the earth, and we suffer a terrible loss of life.Many vehicles for incarnate existence are destroyed in the process.How do entities that are working on or in the disk planets cope?How are they affected?Do they lose their creations or vehicle for existence in lower frequencies? 
 
-我：
+我：嗯。当地球上发生地震之类的事情时，我们有一段如此艰难的时期，我们遭受了可怕的生命损失。许多化身存在的载体在这个过程中被摧毁了。在圆盘行星上工作的实体如何应对？他们如何受到影响？他们在低频率上失去了他们的创造物或存在载体吗？
 
 SE7:They are not in the need for a vehicle to allow them to exist or experience existence in the lower frequencies that pervade the planet.They also know what they are doing energetically and frequentially and,therefore,how their actions will affect the overall frequency of the matter that the planet is manifest from.Therefore,they have no disasters to run or recover from.They only have modification,relocation and recalibration of their work and how they interface with the planet. 
 
-7号源实体：
+7号源实体：他们不需要一个载体来让他们存在或体验遍布地球的低频率的存在。他们也知道他们正在积极和频繁地做什么，因此，他们的行为将如何影响地球所显化的整体频率。因此，他们没有灾难要逃离或从中恢复。他们只有对他们的工作以及他们如何与地球相连的修改，重新安置和重新校准。
 
 ### Communication with the Separate Parts of Source Entity Seven 
 
