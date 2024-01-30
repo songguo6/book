@@ -765,59 +765,71 @@ SE7:They are not in the need for a vehicle to allow them to exist or experience 
 
 ### Communication with the Separate Parts of Source Entity Seven 
 
+**与7号源实体的分离部分的沟通**
+
 Beginning in my book "Beyond the Source,"I began using the word "environment"(a more general and higher level description)in place of the word "universe"!This was a deliberate act to put the reader at ease with the possibly difficult concept of understanding a completely different multiversal structure than the one described by Source Entity One,the creator of our multiverse and the physical universe/environment humankind exists within-specifically,if the reader is using Source Entity One's multiverse as a datum to work from whilst reading about Source Entities Two through Twelve.Suffice to say that is the reason for the switch in nomenclature,and I apologize if it has caused any confusion. 
+
+从我的书《超越源头》开始，我开始使用“环境”(更一般和更高层次的描述)来代替“宇宙”！ 这是一个有意的行为，让读者轻松地理解一个可能困难的概念，即一个完全不同的多维宇宙结构，而不是1号源实体（我们的多维宇宙和人类存在的物理宇宙/环境的创造者）所描述的，——具体地说，如果读者在阅读2号到12号源实体时，使用源实体一的多维宇宙作为一个数据来工作。 足以说明这是命名上的转换的原因，如果它引起了任何困惑，我道歉。
 
 A quick author's note here. 
 
+这里有一个快速的作者注释。
+
 I am writing this text whilst I am sitting in a comfortable folding chair on the back patio of our little cottage in Crete.The energy here is so calm and clear compared even to our rural life in the UK that I wonder why I don't stay here all the time instead of coming from time to time. The aliens are here.Dare I say that now?They are our brothers in energetic existence.See "The History of God"for the story of my introduction to them.I see them all around me as I sit here. They have shown themselves to me in their true sprite-like forms as they hover around me.Before you ask,dear reader,they are not nature spirits for they have a completely different energy signature.They are interested in the energies I am working with whilst tuned into the collective that is Source Entity Seven.They say: 
+
+我写这篇文章的时候，正坐在我们克里特小木屋后院一张舒适的折叠椅上。这里的能量甚至比我们在英国的乡村生活还要平静和清晰，我不知道为什么我不是一直呆在这里，而不是偶尔来。外星人在这里。我现在敢说吗？他们是我们充满活力的兄弟。请参阅《源头简史》中我介绍他们的故事。我坐在这里时，我看到他们在我周围。他们以他们真正的精灵般的形式向我展示自己，因为他们在我周围徘徊。亲爱的读者，在你问之前，他们不是自然精灵，因为他们有完全不同的能量特征。他们对我正在使用的能量感兴趣，同时调谐到集体，即7号源实体。他们说：
 
 Aliens:We could use this [Source Entity]energy;it has a purity not experienced by us before. It would make our travel much quicker,and we would not need to modify the energies as we currently have to do when we need to jump frequencies. 
 
-外星人：
+外星人：我们可以使用这个（源实体）能量；它具有我们以前从未经历过的纯净。它将使我们的旅行更快，而且我们不需要修改能量，因为当我们需要跳跃频率时，我们目前必须这样做。
 
 The next day I noticed four of them following me whilst I was cycling up a rather long hill in the Cretan countryside.Initially,they followed me with one on each side and one front and back. They then moved around me to have all four in front of me and later darted in and out to be closer with me.They were interested in my mode of transport initially but had come to answer a question about their form that hadjust surfaced in my immediate memory. 
 
+第二天，当我在克里特乡村骑车上一个相当长的山坡时，我注意到有四个人跟着我。起初，他们每边一个，前后各一个跟着我。然后他们绕着我移动，四个人都在我前面，后来他们窜进窜出，离我更近。他们起初对我乘车的方式感兴趣，但后来他们来回答我脑海中突然出现的一个关于他们形体的问题。
+
 Aliens:We are not of your dimensional realm and,therefore,cannot be considered as nature spirits assigned to maintain the earth.However,we do recognize that many humans sensitive to our frequencies,as you are,may well have seen us in the past and considered us as nature spirits because our form suits that expected of such entities in the imaginations of these individuals.You would call our form "Fairy"? 
 
-外星人：
+外星人：我们不是你们这个维度领域的人，因此，不能被认为是被派来维护地球的大自然精灵。然而，我们确实认识到许多像你们一样对我们的频率敏感的人类，可能在过去已经看到过我们，并把我们当作大自然精灵，因为我们的形体符合这些人想象中对这种实体的期望。你们称我们为“仙女”吗？
 
-ME:That would be a good word to describe the form that you presented to me,yes.Your form is beautiful to behold,so I guess that humankind would prefer to relate you to something that works with nature,Earth's nature,rather than your being of extra-terrestrial (extra- dimensional?)origins. 
+ME:That would be a good word to describe the form that you presented to me,yes.Your form is beautiful to behold,so I guess that humankind would prefer to relate you to something that works with nature,Earth's nature,rather than your being of extra-terrestrial (extra-dimensional?)origins. 
 
-我：
+我：那将是一个好词来描述你呈现给我的形态，是的。你的形态看起来很美，所以我猜人类更愿意把你与自然，地球的自然联系起来，而不是你的外星(外维度？) 起源。
 
 Aliens:Yes,this is true.We must go now,for we have duties to attend to. 
 
-外星人：
+外星人：是的，这是真的。我们现在必须走了，因为我们有责任去照顾。
 
 The comment by the Aliens about the energies associated with my communications with Source Entity Seven was such an interesting comment that I decided to put it to Source Entity Seven as a whole before I continued my communication with its individual parts. 
 
+外星人关于我与7号源实体通讯的能量的评论是如此有趣，我决定在我继续与其个别部分的通讯之前，把它作为一个整体放在7号源实体上。
+
 ME:I have just had a conversation with some entities that are on my planet/area of local density,the Earth,about the purity of the energies that are a result of the communication system (conduit?)set up to allow my temporary link with you whilst conducting this dialogue.Did you catch what they said? 
 
-我：
+我：我刚刚与一些在我行星/当地密度区域的实体进行了一次对话，地球，关于通讯系统(管道？) 建立的能量纯净的结果，以允许我在进行这次对话的同时与你们建立临时联系。你听到他们说什么了吗？
 
 SE7:Yes,while we have our communication link I am with you all of the time.I assign a part of myself to recognize when you want to continue communications so that I can continue where we left off.This part of me follows your every move to ensure I can respond to your request for communication in the instant you request it.I agree it is a most interesting comment from your "Aliens,but I can see why they are interested in the energy being used. 
 
-7号源实体：
+7号源实体：是的，当我们有通讯链接时，我一直与你在一起。我分配自己的一部分来识别你什么时候想继续通讯，这样我就可以继续我们停下的地方。我的这部分跟随你的一举一动，以确保我能在你要求通讯的瞬间作出回应。我同意这是来自你的“外星人”最有趣的评论，但我能理解为什么他们对正在使用的能量感兴趣。
 
 ME:So why are they? 
 
-我：
+我：那为什么呢？
 
 SE7:They see that the energy used to create the conduit you have to communicate with me is a mixture of my base energy and your own base energy.We created this together with a little help from your own Source Entity.Because it traverses the frequencies and dimensional states from one Source Entity to another Source Entity via the intermediate energies of The Origin,it spans three environments.This is rare as energies and their frequencies go because they tend to be a product of their universal environment and do not span dimensions or base frequencies.Based upon this,your Aliens see the opportunity to use this as a carrier wave or a fast track/road that can be used to bridge the dimensions without the need to manufacture a process or energetic vehicle that negates the need for evolutionary conditions being met by an entity before travel between the dimensions can be achieved without such constructs.They would only be able to travel between your Source Entity and me in its unrefined state,so they would still need to "work"the energy to use it for the translations they are interested in. 
 
-7号源实体：
+7号源实体：他们看到用来创造你必须与我沟通的管道的能量是我的基础能量和你自己的基础能量的混合物。我们一起创造了这一点，从你自己的源实体得到一点帮助。 因为它通过源头的中间能量穿越频率和维度状态从一个源实体到另一个源实体，它跨越了三个环境。这是罕见的能量和它们的频率，因为它们往往是它们的宇宙环境的产物，并不跨越维度或基础频率。基于这一点，你们的外星人看到了利用这个作为载波或快速轨道/道路的机会，可以用来架设维度桥梁，而不需要制造一个过程或能量车辆，否定了在维度之间旅行之前实体满足进化条件的需求，而不需要这样的构造。他们只能在未经提炼的状态下在你的源实体和我之间旅行，所以他们仍然需要“工作”能量，以便使用它们感兴趣的翻译。
 
 ME:Thank you for that answer.I would now like to communicate with that part of you that became what I call Source Entity Seven "A."
 
-我：
+我：谢谢你的回答。我现在想和你变成我称之为7号源实体A的那部分你交流。
 
 SE7:No problem.Please note that the link and the feel of the communication will be the same as it is now.You should experience no difference in energetic signature either. 
 
-7号源实体：
+7号源实体：没问题。请注意，连接和通信的感觉将与现在一样。您在能量签名上也应该没有任何差异。
 
 ME:Thank you. 
 
-我：
+我：谢谢。
 
 ### Source Entity Seven A 
 
