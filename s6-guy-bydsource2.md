@@ -833,117 +833,123 @@ ME:Thank you.
 
 ### Source Entity Seven A 
 
+**源实体7A**
+
 I had now signed off from the collective that was Source Entity Seven and waited with eager anticipation to commence dialogue with the "first"part of Source Entity Seven.I did not have to wait long. 
+
+我现在已经从源实体7的集体中签字离开，并满怀期待地等待着与源实体7的“第一部分”开始对话。我没有等太久。
 
 SE7A:I trust you are at ease? 
 
-7号源实体A：
+7号源实体A：我相信你很自在？
 
 ME:I certainly am. 
 
-我：
+我：我当然很自在。
 
 SE7A:Then let us commence communication. 
 
-7号源实体A：
+7号源实体A：那么让我们开始交流。
 
 ME:I have received two different images whilst connected to your collective of three versions.The first was of an entity that was moving over the surface of one of the flat planets/areas of local density.Its appearance was,well,I can only describe it as a very flat ameoba.In fact,the more I study the image in my mind's eye,the more it looks like a sentient version of the planet it is traversing.Its shape looks almost identical-right down to the topography of its surface.Why is that? 
 
-我：
+我：我已经接收到两个不同的图像，同时连接到你的三个版本的集合。第一个是一个实体，它在一个扁平的行星/局部密度区域的表面移动。它的外观是，嗯，我只能把它描述成一个非常扁平的变形虫。事实上，我越研究我脑海中的图像，它越像它正在穿越的行星的有知觉的版本。它的形状看起来几乎相同-直至它的表面地形。为什么？
 
 SE7A:The entities that work with the "planets"assume their (the planets')basic energy signature when they first become associated with the planet for the work they will be doing with it.The entity itself can assume any form factor required to suit this relationship,for when an entity desires to work with a particular planet,it enters into a relationship with the planet for the duration of the work to be done.In this particular instance,the entity in the image you saw was almost the same size as the planet. 
 
-7号源实体A：
+7号源实体A：与“行星”一起工作的实体，当他们第一次与行星联系起来，准备与行星一起工作时，会假定它们(行星)的基本能量特征。实体本身可以假定任何适合这种关系的形状因素，因为当一个实体想要与一个特定的行星一起工作时，它会进入与行星的工作关系。在这个特殊的例子中，你在图像中看到的实体几乎与行星一样大。
 
 ME:How does that work?Surely an entity that is almost the size of the planet it is associated with would crush or destroy any other entities or life that are part of that planet's normal condition. 
 
-我：
+我：那怎么行呢？当然一个几乎与行星一样大的实体，会碾碎或摧毁任何其他实体或生命，这些都是行星正常条件的一部分。
 
 SE7A:Not in this case,for the planets in this particular environment can only have a population of one. 
 
-7号源实体A：
+7号源实体A：不是这样的，因为在这种特殊环境下的行星只能有一个种群。
 
 ME:One? 
 
-我：
+我：一个？
 
 SE7A:One. 
 
-7号源实体A：
+7号源实体A：一个。
 
 ME:Forgive my confusion.I am making the assumption that all planets have a large number of smaller entities living on,within or with them. 
 
-我：
+我：请原谅我的困惑。我假设所有的行星都有大量的小型实体居住在上面、里面或与它们一起。
 
 SE7A:Not all planets in your own universe have entities associated with them,so why would one of my environments be any different? 
 
-7号源实体A：
+7号源实体A：不是你们自己的宇宙中所有的行星都有实体与之关联，那么为什么我的环境会有所不同呢？
 
 ME:Very true.So what is the work that this particular entity is doing with this planet? 
 
+我：非常正确。那么这个特殊的实体在这个行星上做什么工作呢？
+
 SE7A:It is experiencing existence as a planet.That is why it is almost as big as the planet it is associated with.Later,when it has assumed the exact same size and shape and has totally covered the full surface of the planet,it will stabilize its energy signature in totality to that of the planet and will exist and behave like the planet itself.In fact,for all intents and purposes, it will be the planet,right down to accepting another entity to work with it.
 
-7号源实体A：
+7号源实体A：它正在经历作为行星的存在。这就是为什么它几乎和它关联的行星一样大。后来，当它已经有了完全相同的大小和形状，并完全覆盖了行星的整个表面时，它将稳定其能量特征，使其完全与行星一致，并像行星本身一样存在和表现。事实上，从所有意图和目的来看，它将是行星，直到接受另一个实体与它合作。
 
 ME:And that entity would work with the other entity exactly as if it were a solitary planet with no inhabitants or energetic partners? 
 
-我：
+我：这个实体会与另一个实体合作，就像它是一个没有居民或精力充沛的伙伴的孤立行星一样？
 
 SE7A:That's right,the objective being that the new entity seeking a relationship with the planet does not nor will ever know that it is working with another entity and not the real planet. 
 
-7号源实体A：
+7号源实体A：是的，目标是寻求与行星建立关系的新实体不知道也永远不会知道它在与另一个实体合作，而不是真正的行星。
 
 ME:But could that not be the same for the entity I saw in my perception?Could another entity have already beaten the one I observed to it,so to speak,and achieved the same relationship? 
 
-我：
+我：但是对于我在感知中看到的实体来说，情况会不会不一样？可以说，另一个实体是否已经打败了我观察到的实体，并取得了同样的关系？
 
 SE7A:Absolutely.This is the beauty of this type of work. 
 
-7号源实体A：
+7号源实体A：绝对是。这就是这类工作的美妙之处。
 
 ME:But I have just seen a scenario where it would be possible to have many multiples of entities all doing the same thing,all-encompassing the planet with which they want to establish a relationship with a none of them knowing that they are really covering or creating a relationship with another entity and not a real planet. 
 
-我：
+我：但我刚刚看到一个场景，它可能有许多多个实体都在做同样的事情，都包含了他们想要建立关系的行星，但他们都不知道他们实际上是在覆盖或与另一个实体建立关系，而不是一个真正的行星。
 
 SE7A:Yes,it can and does happen. 
 
-7号源实体A：
+7号源实体A：是的，它可以而且确实发生。
 
-ME:It does?So what is the maximum number of times this has happened with a single planet concurrently? 
+ME:It does? So what is the maximum number of times this has happened with a single planet concurrently? 
 
-我：
+我：真的吗？那么一个行星同时发生这种情况的最大次数是多少？
 
 SE7A:Four thousand three hundred and twenty two times. 
 
-7号源实体A：
+7号源实体A：4322次。
 
 ME:What!?How long did that last? 
 
-我：
+我：什么？持续了多久？
 
 SE7A:Approximately two hundred billion,trillion of your solar years before the first (last to create a relationship)entity broke its relationship with the planet/entity it was associated with. 
 
-7号源实体A：
+7号源实体A：大约在你们太阳系的2000亿，万亿年之前，第一个(最后一个建立关系的)实体打破了它与其相关的行星/实体的关系。
 
 ME:Did this create a cascade of entities breaking their relationships with their "planets"? 
 
-我：
+我：这是否创造了一个实体瀑布，打破了它们与“行星”的关系？
 
 SE7A:No.The eventual reduction of entities breaking relationships took treble the amount of time it did to create it. 
 
-7号源实体A：
+7号源实体A：不，最终减少实体之间的关系花费了创建它的三倍时间。
 
 ME:Why was that? 
 
-我：
+我：为什么？
 
 SE7A:Because other entities joined the build-up after others had broken their relationships, and some of them wanted to experience existence as a planet throughout a number of environmental/planetary changes. 
 
-7号源实体A：
+7号源实体A：因为其他实体在其他实体断绝关系后加入了这个组织，其中一些实体希望通过一系列环境/行星变化来体验作为一个行星的存在。
 
 ME:What would those changes be,with reference to a relationship with a single entity?I would have expected changes to only be possible with the association of large numbers of entities working with the planet. 
 
-我：
+我：那些变化是什么？与单个实体的关系有关？我曾期望这些变化只可能与大量实体与行星合作有关。
 
 SE7A:One would be evolution as a result of interaction with a single entity.Don't forget that the size of the entity compensates for the lack of a lot of much smaller entities.Some of the changes experienced by the planet might be these: 
 
@@ -955,375 +961,403 @@ SE7A:One would be evolution as a result of interaction with a single entity.Don'
 - Localized fragmentation of the overall form of the planet,resulting in its fragmentation; 
 - Migration to higher frequencies and dimensions or even to one of the other Source Entity's environments. 
 
-7号源实体A：
+7号源实体A：其中之一是与单一实体互动的结果。不要忘记，实体的大小弥补了许多小实体的缺失。行星经历的一些变化可能是这些：
+
+- 行星范围或局部频率的增加；
+- 行星范围或局部频率的降低；
+- 行星结构的能量变化导致了形态的以下变化；
+- 不同能量功能的局部区域；
+- 与其他实体的能量特征不相容，导致行星拒绝进入一种关系；
+- 行星整体形态的局部碎片，导致其碎片化；
+- 向更高的频率和维度迁移，甚至到另一个源实体的环境中。
 
 ME:So based upon this,the number of entities that associate with a planet is not relative to the evolutionary progression of the planet and what it can achieve during a relationship and the entity/ies it has a relationship with? 
 
-我：
+我：基于这一点，与一个行星相关的实体的数量与行星的进化进程无关，与它在与某个实体的关系中所能达到的成就无关。
 
 SE7A:No,it's the quality of the relationship that counts. 
 
-7号源实体A：
+7号源实体A：不，关系的质量才是重要的。
 
 ME:Thank you.I also received another image/set of images.The sky was full of entities that had the appearance of dandelion seeds being blown with the wind.However,these had purpose,for they were in a strict formation. 
 
-我：
+我：谢谢。我还收到了另一幅图像/一组图像。天空中充满了实体，它们看起来像被风吹动的蒲公英种子。然而，这些是有目的的，因为它们是严格的队形。
 
 SE7A:Those entities are a collective of gravity pilots.They move around the planets that they are working with looking for gravitational anomalies-areas where the gravity is not as it should be for a specific part of the planet in comparison with its density within its environment. 
 
-7号源实体A：
+7号源实体A：这些实体是重力飞行员的集合体。他们在行星周围移动，寻找重力异常--与其环境密度相比，行星特定部分的重力不应如此的区域。
 
 ME:So do these entities change the gravity in the area where there are anomalies?Do they repair the gravity in the area of the anomaly,creating a stable area? 
 
-我：
+我：那么这些实体会改变有异常区域的重力吗？他们会修复异常区域的重力，创造一个稳定的区域吗？
 
 SE7A:No,not in the slightest.The reason for them seeking out the gravitational anomalies is to gain energy.They need the energy in the anomalies to allow them to exist,procreate,and maintain their distance from the surface of the planet. 
 
-7号源实体A：
+7号源实体A：不，一点也不。他们寻找引力异常的原因是为了获得能量。他们需要异常中的能量来让他们生存、繁衍，并保持与行星表面的距离。
 
 ME:But how can that be working with the planet? 
 
-我：
+我：但这怎么能与行星有关呢？
 
 SE7A:It isn't,it is just perpetuation of their existence. 
 
-7号源实体A：
+7号源实体A：不是，只是他们存在的延续。
 
 ME:Mmmm.So what are they doing?How are they working with the planet? 
 
-我：
+我：嗯，他们在做什么？他们是如何与行星合作的？
 
 SE7A:They provide a transport medium for those entities that want to move from planet to planet but are incapable of doing it themselves. 
 
-7号源实体A：
+7号源实体A：他们为那些想要从一个星球移动到另一个星球，但却没有能力自己完成的实体提供一种运输媒介。
 
 ME:Wait a minute.I thought all of your entities were energetic,and as a result,they would be able to move from planet to planet energetically. 
 
-我：
+我：等一下。我以为你所有的实体都是充满活力的，因此，他们能够充满活力地从一个星球移动到另一个星球。
 
 SE7A:Not all entities in my environment are capable of moving from one planet to another of their own volition. 
 
-7号源实体A：
+7号源实体A：并非我所处环境中的所有实体都能够自主地从一个星球移动到另一个星球。
 
 ME:Why not? 
 
-我：
+我：为什么不可以？
 
 SE7A:Because they are associated with the planet where they exist.They are tied to that planet's energy signature.Remember what SE7(SE7A,SE7B and SE7C collectively)told you about the planets being like islands and that the entities that exist on them relate to your continent/country of Australia? 
 
-7号源实体A：
+7号源实体A：因为他们与他们所在的星球相关。他们与那个星球的能量特征紧密相连。还记得SE7(SE7A,SE7B和SE7C的总称)告诉你们关于行星就像岛屿，存在于岛屿上的实体与你们的大陆/国家澳大利亚有关吗？
 
 ME:Yes.
 
-我：
+我：是的。
 
 SE7A:Well,one of the parallels is that most Australians,I see from your memories,stay in Australia.This is the same for most of the entities whose existence is linked with their planet-they stay with it.The parallel is similar.Australians can generally only move to other islands or continents by boat or by airplane.They can't transport themselves by using their own volition or intention.They can only move by using a vehicle of some kind,and in the instance of the entities working with the flat planets,the vehicle is the gravity pilots rather than a boat or an airplane. 
 
-7号源实体A：
+7号源实体A：嗯，其中一个相似点是，我从你的记忆中看到，大多数澳大利亚人呆在澳大利亚。这对大多数存在与他们的星球相连的实体来说是一样的——他们呆在星球上。这个相似点是类似的。澳大利亚人通常只能通过船或飞机去其他岛屿或大陆。他们不能通过自己的意志或意图来移动自己。他们只能通过使用某种交通工具来移动，而在与平坦星球合作的实体的例子中，交通工具是重力飞行员而不是船或飞机。
 
 ME:How do the gravity pilots transport the flat planet inhabitants?By lifting them up?Or do they have another method? 
 
-我：
+我：重力飞行员如何运送平坦星球的居民？通过把他们举起来吗？或者他们有其他的方法？
 
 SE7A:They use the gravity waves that they create to change their position in relation to the planet to locally warp the space around the entity that desires to move its location to both re-assign its energetic signature to that of the new location,the planet the entity desires to move to,and to instantaneously transport it.In doing this,the gravity pilot also transports itself to the new location. 
 
-7号源实体A：
+7号源实体A：他们利用他们制造的引力波来改变他们与行星的关系，在当地扭曲想要移动位置的实体周围的空间，以便重新分配其能量特征到新位置，实体想要移动的行星，并立即将其运送。在这样做的时候，引力飞行员也将自己运送到新位置。
 
 ME:And it doesn't return to its planet of origin? 
 
-我：
+我：它不会返回它的原行星吗？
 
 SE7A:No,it remains with the planet it has moved to.Moreover,it is linked to the entity it transported and will transport that entity to the next planet it desires to experience. 
 
-7号源实体A：
+7号源实体A：不，它会留在它移动到的星球上。而且，它与它所运送的实体相连，并将把那个实体运送到它想去的下一个星球。
 
 ME:I am getting the impression that these gravity pilots exist throughout your environment,move from planet to planet at will,and continue to do so until that point in time when they are associated with one of the entities based on the surface.Once they are associated,they stay together for as long as they feel the need to maintain the association.
 
-我：
+我：我得到的印象是，这些重力飞行员存在于你们的环境中，随意地从一个星球移动到另一个星球，并继续这样做，直到它们与一个基于表面的实体相关联。一旦它们相关联，它们会一直呆在一起，直到它们觉得有必要维持这种联系。
 
 I have just received another image of a whole and vast number of these "gravity pilots"moving from planet to planet. 
 
+我刚刚收到了另一张图片，上面是一整群数量庞大的“重力飞行员”在行星间穿梭。
+
 SE7A:Yes,they move around in what you would call a herd...no,flight...yes,flight... that is a better name.These flights are populated by gravity pilots that are not associated with a land-based entity.As they gain individual associations,they break away from the flight and assume a partnership role with the land-based entity,and as stated above,this continues until the land-based entity feels a need to remain for an indefinite period on the planet it currently sees itself.If it desires to stay for eternity,so to speak,it relinquishes its association with the gravity pilot to allow it to gain a new partner so that it can continue its own evolution.I know that I have not spoken about the experience,learning,and evolution of these entities,so I will elaborate on this now. 
 
-7号源实体A：
+7号源实体A：是的，它们在你所称的一群中移动...不，是飞行...是的，飞行...这个名字更好。这些飞行由与陆基实体无关的重力飞行员组成。当它们获得个体关联时，它们从飞行中分离出来，并与陆基实体建立伙伴关系。如上所述，这种情况会持续下去，直到陆基实体觉得有必要在当前所看到的行星上无限期地停留。如果它希望永远停留，那么它就放弃与重力飞行员的关联，以便获得新的伙伴，这样它就可以继续自己的进化。我知道我还没有谈到这些实体的经验、学习和进化，所以我现在将详细说明这一点。
 
 There is a symbiotic relationship between an individual land-based entity and its gravity pilot.The gravity pilot itself is not able to generate its own experiences and so needs another entity to do this for it.So the gravity pilot offers its service of transportation to the land-based entity in exchange for access to the experiences,learning,and subsequent evolutionary content generated by the land-based entity itself.In essence,they share the experience,learning and subsequent evolutionary content that is generated as a result of their working together. 
 
+在单个陆基实体和它的重力飞行员之间存在一种共生关系。重力飞行员本身无法产生自己的经验，因此需要另一个实体为它做这件事。所以重力引导者为陆基实体提供运输服务，以换取陆基实体自身的经验、学习和后续进化内容。本质上，他们分享了共同努力产生的经验、学习和后续进化内容。
+
 ME:That really is working together.Why are the land-based entities not able to move from one planet to another on their own?
 
-我：
+我：这真的是共同努力。为什么陆基实体不能自己从一个星球移动到另一个星球？
+
+（图3：重力飞行员）
 
 ![Figure 3: A Gravity Pilot](img/s6-038.png)
 
 SE7A:Because the whole point of this environment is based around the need to work together and share the rewards.In this particular example,two entirely different beings are able to work together for the benefit of each other. 
 
-7号源实体A：
+7号源实体A：因为这个环境的全部意义在于需要一起工作和分享回报。在这个特殊的例子中，两个完全不同的存在能够为了彼此的利益而一起工作。
 
 ME:Sounds very harmonious to me. 
 
-我：
+我：听起来很和谐。
 
 SE7A:It is,and it works very well,too. 
 
-7号源实体A：
+7号源实体A：是的，它运行得很好。
 
 ME:I have just remembered a question I meant to ask on the energetic content of the land- based entities and what work the gravity pilots do with the planets. 
 
-我：
+我：我刚想起一个问题，我想问关于陆基实体的能量含量，以及重力飞行员与行星的工作。
 
 SE7A:The land-based entities are constructed out of the energies that are used to create the planet it resides on;they are tied to the planet as a result.In essence,they are individualized units of the planet itself and as such the attraction to the planet of their first creation is so strong that there is no way they can separate themselves from the planet without the co- operative help of another entity,one that is not tied down to the energy signature of the planet. 
 
-7号源实体A：
+7号源实体A：陆基实体是由用来创造它所居住的行星的能量所构建的； 因此它们与行星紧密相连。本质上，它们是行星本身的个体化单元，因此它们对最初创造的行星的吸引力如此强大，如果没有另一个实体的合作帮助，它们无法将自己从行星分离出来，而另一个实体没有被绑定到行星的能量特征。
 
 ME:Are you suggesting that the land-based entities are actually the planet itself,localized, individualized units/parts of the planet? 
 
-我：
+我：您是否在暗示陆基实体实际上是行星本身，是行星的局部化、个体化单元/部分？
 
 SE7A:Yes,that is exactly what I am saying.They are fragments of the planet itself that are able to move around the surface of the planet and,if so desired,migrate to the other planets that are part of my environment. 
 
-7号源实体A：
+7号源实体A：是的，这正是我所说的。它们是行星本身的碎片，能够在行星表面移动，如果需要的话，可以迁移到属于我环境的其他行星。
 
 ME:I have just had a thought. 
 
-我：
+我：我刚刚有一个想法。
 
 SE7A:No,you mean the real you,the higher self you,the energetic self you,has had a thought and passed it down the frequencies to that part of you that is participating in this dialogue. 
 
-7号源实体A：
+7号源实体A：不，你的意思是真实的你，更高的自我你，充满活力的自我你，有一个想法，并把它传递到频率下，到你参与这个对话的那一部分。
 
 ME:Ok.Ok.Yes,that would be a correct description of the process of me thinking. 
 
-我：
+我：好的，好的，是的，这是对我思考过程的正确描述。
 
 SE7A:You're drinking alcohol. 
 
-7号源实体A：
+7号源实体A：你在喝酒。
 
 ME:What?Err... 
 
-我：
+我：什么？呃...
 
 SE7A:You are drinking alcohol.
 
-7号源实体A：
+7号源实体A：你在喝酒。
 
 I had succumbed to the materialistic desire of half a pint of beer.Ifelt I needed one after the work I had done over the day. 
 
+我屈服于半品脱啤酒的物质欲望。我觉得在工作了一整天后我需要一杯。
+
 ME:Yes,err,yes,I have,am,was.It's only a half pint.It's not a lot,honestly. 
 
-我：
+我：是的，呃，是的，我喝了，是的，是的。这只是半品脱。说实话，这并不多。
 
 SE7A:Any alcohol that is introduced into the human body is detrimental,especially when partaking in the activity that you are currently working on.The effect of alcohol is profound. It has an effect on the pineal gland in the human brain,which is associated with the spiritual eye.This means that your ability to receive the imagery that I give you will be warped and distorted and not as accurate as a result. 
 
-7号源实体A：
+7号源实体A：任何进入人体的酒精都是有害的，特别是当你正在从事的活动。酒精的影响是深远的。它对人脑中的松果体有影响，这与灵眼有关。这意味着你接收我给你的图像的能力将被扭曲和扭曲，而不是准确的结果。
 
 ME:I am profoundly sorry.I simply did not realize. 
 
-我：
+我：我非常抱歉。我只是没有意识到。
 
 SE7A:You were advised of this by your own Source Entity? 
 
-7号源实体A：
+7号源实体A：你被你自己的源实体告知了这件事？
 
 ME:Not in the way you have described it.To be perfectly honest,I thought that because our connection was stable,I would,mmmm,get away with it. 
 
-我：
+我：不是你所说的那种。说实话，我以为因为我们的联系很稳定，我就可以，嗯，侥幸成功。
 
 SE7A:Well,you won't.Let us continue.You need to drink an equal amount of water first. 
 
-7号源实体A：
+7号源实体A：好吧，你不会的。让我们继续。你需要先喝等量的水。
 
 Considering myself thoroughly reprimanded,I went straight to the kitchen and drank a little over a half pint of water.I hate it when this happens.If I am not able to keep things to myself over the vast distances of The Origin,that distance that is between SE7A and me,then how am I going to keep myself to myself here on Earth?I sighed and continued the dialogue. 
 
+考虑到自己被彻底地斥责了，我直接去了厨房，喝了半品脱多一点水。我讨厌这种情况发生。如果我不能在源头那遥远的距离上，在SE7A和我之间的距离上，把事情留给自己，那么我怎么能让自己在地球上保持自我呢？我叹了口气，继续对话。
+
 SE7A:That's better.You are able to cope with the energies again now. 
 
-7号源实体A：
+7号源实体A：好多了。你现在又能应对能量了。
 
 I have to say it was true.I suddenly felt the buzz of the alcohol disappear as fast as it had come.
 
+我不得不说这是真的。我突然感觉到酒精的嗡嗡声消失得像它来得一样快。
+
 SE7A:The buzz was a frequency-based response.This resulted from a lower frequency interacting with a high frequency that is not native to you or your Source Entity.I used the water to stabilize the chemical process that had started.This helped to correct your frequency change which,in turn,negated the buzz. 
 
-7号源实体A：
+7号源实体A：嗡嗡声是一种基于频率的反应。这是由于低频与高频的相互作用，而高频不是你或你的源实体的本源。我用水来稳定已经开始的化学过程。这有助于纠正你的频率变化，反过来，否定了嗡嗡声。
 
 ME:Oh,I see.Thank you.So where were we before my reprimand? 
 
-我：
+我：哦，我明白了。谢谢你！那么在我的斥责之前我们讲到哪儿了？
 
 I felt like a school boy caught stealing a sweet from the sweet shop.I was all embarrassed. 
 
+我感觉自己像个从糖果店偷糖果被抓的小学生，我感到非常尴尬。
+
 SE7A:Do not dwell on the past.Learn the lesson and move on. 
 
-7号源实体A：
+7号源实体A：不要沉湎于过去。吸取教训，继续前进。
 
 ME:Good advice.Sorry.Where were we?Ah yes,talking about the land-based entities being individualized parts of the planet they are associated with. 
 
-我：
+我：好建议。抱歉，我们说到哪儿了？啊，是的，谈论陆地实体作为与之相关的星球的个性化部分。
 
 SE7A:Correct.These individualized units or parts are essentially mobile planetary units. You see,the planet has to experience and evolve in its own right.Everything with a level of awareness has this requirement.It is a prerequisite for existence. 
 
-7号源实体A：
+7号源实体A：正确。这些个体化单位或部分本质上是移动的行星单位。你看，行星必须以自己的方式经历和进化。任何有意识的物体都有这个要求。这是存在的先决条件。
 
 ME:So why are they mobile? 
 
-我：
+我：那么它们为什么是移动的呢？
 
 SE7A:To give the larger entity,the planet,the opportunity to experience different things, including existence and experience on other planetary bodies.
 
-7号源实体A：
+7号源实体A：给更大的实体，这个星球，机会去体验不同的东西，包括在其他行星上的存在和体验。
 
 ME:Are you suggesting that the land-based entities,these mobile units of planet are able to pass on their experience,learning and evolution back to that part of them that is the whole planet?
 
-我：
+我：你是说陆基实体，这些移动的星球单位能够把他们的经验、学习和进化传回他们的一部分，即整个星球？
 
 SE7A:That is exactly what I am saying.What's more,it is entirely possible for a group or, indeed,the whole of the planets indigenous land-based but mobile units to migrate to a different planet in order to allow them to experience more and pass that back to their greater whole,their home planets. 
 
-7号源实体A：
+7号源实体A：这正是我所说的。更重要的是，一个团体，或者，事实上，整个行星的本土陆基移动单位完全有可能迁移到另一个行星，以便让他们体验更多，并把这些经验传回他们的更大整体，他们的母星球。
 
 ME:Hold on.Are you saying that the planet,by using the individualized mobile land-based units of itself,can move en-mass to another planet? 
 
-我：
+我：等等。你是说这个行星，通过使用它自身的个性化移动陆基单位，可以大规模迁移到另一个行星吗？
 
 SE7A:Yes. 
 
-7号源实体A：
+7号源实体A：是的。
 
 ME:And,I suppose,they use the gravity pilots to do this? 
 
-我：
+我：我想，他们使用重力飞行员来做这件事？
 
 SE7A:Yes.You see.The gravity pilots are linked but are not wholly indigenous to their first planet of domicile.They are created elsewhere within my environment. 
 
-7号源实体A：
+7号源实体A：是的，你看，重力飞行员是相关的，但并不是完全来自他们第一个居住星球。他们是在我的环境中其他地方创造的。
 
 ME:Sorry,I got the impression that they were born or something on the planets that they were associated with. 
 
-我：
+我：抱歉，我得到的印象是他们出生或与他们相关的星球上的一些东西。
 
 SE7A:No.They are part of the fabric of the environment.They are,if you like,the environment's transport system. 
 
-7号源实体A：
+7号源实体A：不，它们是环境结构的一部分。如果你愿意，它们是环境的运输系统。
 
 ME:I am getting confused now.I thought you said that they were working with the planets and that they look for (I quickly checked my previous notes)and used the gravitational anomalies to provide them with energy to procreate. 
 
-我：
+我：我现在有点困惑了。我以为你说过他们与行星合作，他们寻找(我迅速检查了我以前的笔记)并利用引力异常来为他们提供生育所需的能量。
 
 SE7A:Correct,but they use this energy to multiply in areas away from the planet they are working with.The work they do with the planets and its individualized land-based units is basically one of transportation.Remember that although they pervade the environment, they do not have a natural home or ability to experience,learn or evolve-hence,the association with a planet and its land-based entities or individualized units.They evolve through association;their work is the transportation of the land-based entities to other planets,where both the land-based entity,the planet the land-based entity originates from, and the gravity pilot gain experience,learning and evolution. 
 
-7号源实体A：
+7号源实体A：正确，但是他们利用这种能量在远离他们所工作的行星的地区繁殖，他们与行星及其个性化的陆基单位所做的工作基本上是一种运输，记住，尽管他们遍布环境，他们没有一个自然的家或能力去体验，学习或进化，因此，与一个行星及其陆基实体或个性化的单位的联系，他们通过联系进化，他们的工作是将陆基实体运输到其他行星，在那里，陆基实体，陆基实体起源的行星，以及重力飞行员都获得经验，学习和进化。
 
 ME:And they sometimes do this en-mass. 
 
-我：
+我：他们有时会集体做这件事。
 
 SE7A:They sometimes move in smaller numbers or groups.More often,they move to another planet as a singular planetary unit-gravity pilot combination.It is quite possible for a planet to have none of its indigenous land-based units actually resident on its surface if the units themselves are spread or distributed throughout the environment. 
 
-7号源实体A：
+7号源实体A：它们有时以较小的数量或群体移动。更经常的是，它们作为一个单一的行星单位-重力飞行员组合移动到另一个行星。如果单位本身在环境中分散或分布，那么一个行星很可能没有任何本地的陆基单位实际居住在它的表面。
 
 ME:I have just had another thought.In the dialogue above,I made this statement:"Are you saying that the planet,by using the individualized mobile land-based units of itself,can move en-mass to another planet?"And you said."Yes." 
 
-我：
+我：我刚有另一个想法。在上面的对话中，我做了这个陈述：“你是说这个行星，通过使用它自己的个性化移动陆基单位，可以大规模移动到另一个行星吗？” 你说：“是的。”
 
 SE7A:Yes,I did. 
 
-7号源实体A：
+7号源实体A：是的，我知道。
 
 ME:Then,sorry,but I am thinking of the right words to say here.Is it possible for a planet to completely separate itself out into smaller units and experience existence in a totally fragmented way? 
 
-我：
+我：那么，抱歉，但我正在思考这里应该说什么。一个行星有可能完全把自己分成更小的单元，并以一种完全分裂的方式存在吗？
 
 SE7A:Yes,that is one option that the planet can take.It is one that many entities take to experience,learn and evolve in an accelerated manner.In the example that you have just stated though,the planet must create enough of its land-based units in one go,so to speak, to destabilize its inherent planetary structure.This is necessary because it allows the planet to separate its consciousness into smaller but nevertheless co-existent,coadunate existence. The coadunate existence is a necessary requirement for reversing the separation process,for without it,the planet cannot collect its separate parts and recreate the whole planet.The planet MUST at some point recreate itself. 
 
-7号源实体A：
+7号源实体A：是的，这是行星可以采取的一种选择。这是许多实体采取的一种以加速的方式去体验、学习和进化的方式。在你刚才所说的例子中，行星必须一次性创造足够多的陆地单位，可以说，去破坏它固有的行星结构。这是必要的，因为它允许行星将它的意识分裂成更小但却共存的、共聚的存在。共聚的存在是逆转分离过程的必要条件，因为没有它，行星就不能收集它分裂的部分并重建整个行星。行星必须在某个时刻重建它自己。
 
 ME:Why must it recreate its whole self? 
 
-我：
+我：为什么它必须重建它整个自己？
 
 SE7A:This is the only way that the planet can assimilate wholistically all of the experiences that its previously existing individual units and those units that were created when the whole was dissolved have accumulated and share them with the re-integrated units.When the planet becomes one again it needs to act and behave as one.In doing so,everything that is or was the planet in both its separated and collective "whole"states needs to be reprogramd,if you like,into a condition that represents a whole planet and not a collective of smaller coadunate parts. 
 
-7号源实体A：
+7号源实体A：这是唯一的方式，这个星球可以整体地吸收所有它以前存在的个体单位和那些当整体被分解时所创造的单位积累的经验，并与重新整合的单位分享它们。当这个星球再次成为一个时，它需要作为一个整体来行动和表现。在这样做的时候，所有现在或曾经是这个星球的，无论是在分离的还是集体的“整体”状态下，都需要被重新编程，如果你愿意的话，进入一个代表整个星球而不是一个较小的共同聚集部分的集合的状态。
 
 ME:So there is a difference between a "whole"and a "coadunation"? 
 
-我：
+我：所以“整体”和“共同聚集”之间有区别？
 
 SE7A:Yes.Most collectives,although described as a "whole,"are actually a collective of "coadunate"entities-they are co-joined,individualized units that have control over their decisions and evolution whilst sharing their experiences with other members of their coadunate collective.A "whole"is a collective of individualized units that do not have control over their decisions and evolution.In fact,they do not evolve in an individual basis. Instead,they evolve as a"whole." 
 
-7号源实体A：
+7号源实体A：是的。大多数集体，尽管被描述为一个“整体”，实际上是一个“共同聚集”实体的集合——它们是共同加入的，个性化的单位，可以控制自己的决定和进化，同时与共同聚集集体的其他成员分享自己的经验。一个“整体”是一个个性化单位的集合，不能控制自己的决定和进化。事实上，他们不以个人为基础进化。相反，他们作为一个“整体”进化。
 
 ME:So the planetary parts are a hybrid.They are given individualized intelligence and evolutionary components when separated from the "whole,"communicating through coadunation but lose this individuality and coadunation when they are re-integrated as a single whole planet. 
 
-我：
+我：所以行星部分是一个混合体。当它们从“整体”中分离出来时，它们被赋予了个性化的智能和进化成分，通过共同聚集进行交流，但当它们作为一个单一的整体行星重新整合时，它们就失去了这种个性和共同聚集。
 
 SE7A:Correct,well stated and understood. 
 
-7号源实体A：
+7号源实体A：正确，表达得很好，也理解了。
 
 ME:So how many planets are totally dissolved into a coadunate of individualized planetary land-based units? 
 
-我：
+我：那么，有多少行星完全溶解成一个由个性化行星陆地单位共同聚集而成的集合体呢？
 
 SE7A:Not many.I see that you are going to press me for a number. 
 
-7号源实体A：
+7号源实体A：不多。我看你是要逼我给个数字。
 
 ME:You read my mind. 
 
-我：
+我：你猜到了。
 
 SE7A:Always.The figure would approximate three hundred thousand million planets that have or are currently experiencing existence in this format. 
 
-7号源实体A：
+7号源实体A：一直都是。这个数字将近3000亿个行星已经或正在经历这种形式的存在。
 
 ME:One thing I haven't asked yet is what the land-based entities look like. 
 
-我：
+我：我还没有问的一件事情是陆基实体看起来像什么。
 
 SE7A:That is not a simple question to answer,for they are not all the same. 
 
-7号源实体A：
+7号源实体A：这不是个简单的问题，因为它们并不都是一样的。
 
 ME:You mean they are as diverse as the flora and fauna on Earth? 
 
-我：
+我：你的意思是它们像地球上的动植物一样多样化？
 
 SE7A:Not in the slightest.They are created in a form that allows the planet the optimal opportunity to experience itself from a surface-based perspective. 
 
-7号源实体A：
+7号源实体A：一点也不。它们被创造成一种形式，让行星从表面的角度获得最佳机会来体验自己。
 
 I will give you an example,but I will have to explain this in physical terms to you,for you would not understand it otherwise. 
 
+我会给你一个例子，但我必须用物理术语来解释，否则你不会理解。
+
 ME:OK,fire away.
 
-我：
+我：好的，开始吧。
 
 SE7A:They have the characteristics of what I can only describe as rock,a mineral. 
 
-7号源实体A：
+7号源实体A：它们具有我只能形容为岩石，一种矿物的特征。
 
 ME:How do they function?I got the impression that they move around the surface.Is this right? 
 
-我：
+我：它们是如何运作的？我得到的印象是它们在表面上移动。这是正确的吗？
 
 In some of my other dialogues,I have encountered entities that are "PART"of the rock/mineral content of a planet but are not "OF"it.They are "consciousness"associated with the rock and move around the planet by moving their consciousness from one rock structure to another on the sub-atomic level.They literally pervade the planet. 
 
+在我的其他对话中，我遇到过一些实体，它们是行星岩石/矿物的“一部分”，但不是“一部分”。它们是与岩石相关的“意识”，通过在亚原子层面上将意识从一个岩石结构移动到另一个岩石结构，从而在行星周围移动。它们确实遍布整个行星。
+
 SE7A:These individualized units of planet and planetary consciousness initially grow out of the surface of the planet,if that is the correct way to portray it,and achieve a form factor that is totally resultant of the minerals that form their body.As an example,if they were composed of the mineral you call quartz,they would initially assume the form factor of quartz.If it was pure carbon,it would be the form factor of pure carbon.The planets are not made of such basic elements,and so this should be used in illustration only because I have no other way to describe it in your language.Nevertheless,I will try. 
 
-7号源实体A：
+7号源实体A：这些行星和行星意识的个体单位最初从行星表面生长出来，如果这是描述它的正确方式，并获得一种完全由组成它们身体的矿物形成的形式因子。例如，如果它们是由你们称之为石英的矿物组成的，它们最初会假定石英的形式因子。如果是纯碳，它将是纯碳的形式因子。行星不是由这些基本元素组成的，所以这只应该用于说明，因为我没有其他方法用你们的语言来描述它。尽管如此，我将尝试。
 
 The land-based entities have the ability to change molecular structure of the mineral to create an alloy of minerals and metals.They move around the surface by rolling themselves. 
 
+陆地实体有能力改变矿物的分子结构，创造一种矿物和金属的合金。它们通过滚动自己在表面移动。
+
 ME:I just received an image of them moving rather like the track on a caterpillar tractor or a military tank. 
 
-我：
+我：我只是收到一个图像，他们移动的轨道更像履带拖拉机或军用坦克。
 
 SE7A:That is one way they achieve movement.The motivational force they use is the attractivity that exists between the minerals and metals that they use in their "alloy"and the minerals that are part of the surface or sub-surface of the planet.They literally move by using the forces of molecular attractivity.To achieve this movement on a constant basis,they are continuously modifying their alloy.Continuous modification of their alloy of minerals means that there is a continuous level of motion through attractivity.Once the attractivity has created motion,the area of alloy is changed to a neutral alloy so as not to stop the movement through attractivity with that area of land that has been passed. 
 
-7号源实体A：
+7号源实体A：这是他们实现移动的一种方式。他们使用的动力是存在于他们“合金”中使用的矿物和金属与地球表面或次表面部分矿物之间的吸引力。他们确实是通过使用分子吸引力的力量移动。为了实现这种持续的移动，他们不断地修改他们的合金。持续修改他们的矿物合金意味着通过吸引力有一个持续的运动水平。一旦吸引力创造了运动，合金的区域被改变为中性合金，以便通过与经过的陆地区域的吸引力来停止移动。
 
 SE7A:When they want to create something,they create the tools required to create that which is desired by creating an alloy of themselves relative to the task at hand.This also includes incorporating an alloy of the materials that are in the area of the planet they are currently near.When they want to create something bigger than that which they can achieve on their own,they merge together,creating an alloy of many land-based entities. They also use and incorporate an alloy of the planet's minerals that are found in the area that they are working with or within.When they create a structure or shelter for other entities,they create the form out of this alloy of themselves and the planetary minerals and metals and then change the alloy so that they can move away from the form of their creation.During the leaving process,they program the molecular structure of the alloy of the structure left by leaving part of their collective intention and allowing the structure to perform the tasks it was designed to do.The entities then dissolve their collective alloy and become separate individual units again. 
 
-7号源实体A：
+7号源实体A：当他们想要创造一些东西时，他们创造所需的工具，通过创造与手头任务相关的自身合金来创造所需的东西。这也包括合并他们目前所在行星区域的材料合金。当他们想要创造比他们自己能实现的更大的东西时，他们合并在一起，创造许多陆地实体的合金。他们也使用和结合了在他们工作或居住的区域内发现的行星矿物的合金。当他们为其他实体创造一个结构或庇护所时，他们用他们自己和行星矿物和金属的合金创造了这个形式，然后改变了合金，这样他们就可以离开他们创造的这个形式。在离开的过程中，他们通过留下他们的集体意图的一部分来编程留下的结构合金的分子结构，并允许结构执行它被设计去做的任务。
 
 ME:And all this is happening whilst the other entities/planets cover each other to experience existence as another planet?
 
