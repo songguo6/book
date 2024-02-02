@@ -1361,85 +1361,87 @@ SE7A:When they want to create something,they create the tools required to create
 
 ME:And all this is happening whilst the other entities/planets cover each other to experience existence as another planet?
 
-我：
+我：所有这些发生的同时，其他实体/行星互相覆盖，以体验作为另一个行星的存在？
 
 SE7A:Yes,that and other things with other land-based entities as well.We must end this dialogue here as you need to progress on to your dialogue with Source Entity Seven"B." 
 
-7号源实体A：
+7号源实体A：是的，还有其他陆基实体的其他事情。我们必须在这里结束这个对话，因为你需要继续与7号源实体B对话。
 
 ME:Before we finish,I note that there are no galaxies or suns. 
 
-我：
+我：在我们结束之前，我注意到没有星系或太阳。
 
 SE7A:No,that's right.The permutation of space that you are observing has no need for entities to be present in the form of galaxies and suns (stars).That is because the energies required to support the entities (including the gravity pilots)that are either the planets or the entities that reside on the surface of the planets are available throughout the environment and are not a function of fission or fusion that your physical universe experiences.Also,the largest size entities in my environment are,in fact,the flat planets themselves.They are evenly dispersed around the volume of the environment rather than in clusters of star systems and galaxies.If they were to group themselves into similar shapes that may be construed as a star system or a galaxy,they would not create a new larger entity, one that has the role of such an entity.Instead,they would merely be in a group of planets that form a shape of some sort. 
 
-7号源实体A：
+7号源实体A：不，没错。你正在观察的空间排列不需要以星系和太阳(恒星)的形式存在实体。这是因为支持实体(包括重力引导者)所需的能量，无论是行星还是居住在行星表面的实体，在整个环境中都是可获得的，而不是你们的物理宇宙经历的裂变或聚变的功能。此外，在我的环境中最大的实体，事实上，是扁平的行星本身。它们均匀地分散在环境的体积上，而不是在星系和星系的簇中。如果它们将自己组合成类似的形状，可以被解释为一个星系或一个星系，它们不会创造一个新的更大的实体，一个具有这样一个实体的作用的实体。相反，它们只是一组行星，形成某种形状。
 
 ME:Why did you not create galaxies or stars? 
 
-我：
+我：为什么你们没有创造星系或恒星？
 
 SE7A:First,the galaxies and stars that you are referring to are a product of the lower frequencies in your dimension.Within the dimensions in my environment there are no frequencies low enough to result in the manifestation of physical phenomena.Also,because the environment is energetically "in order,"so to speak,there is no need for a larger entity to be in existence to "sweep up"and collect all of the stray energies and materials created by such energies.
 
-7号源实体A：
+7号源实体A：首先，你所指的星系和恒星是你们维度中低频率的产物。在我的环境中，没有低到足以导致物理现象表现的频率。而且，因为环境在能量上是“有序的”，所以不需要一个更大的实体存在来“扫除”并收集所有由这种能量创造的零散能量和物质。
 
 ME:I keep getting a picture in my mind of a white back drop to your environment. 
 
-我：
+我：我一直在脑海中得到一幅你们环境的白色背景的画面。
 
 SE7A:Yes,that is another reason for not needing the entities you refer to as stars.As you know,stars create heat and light in your physical universe,plus other energies necessary for the continued existence of the human body and other carbon-based entities.As my entities are essentially energetic in nature,they are exempt from the need for such basic elemental fuels.The appearance,in your mind's eye,of my environment is,therefore,a representation of what you would expect to see from your own perspective,should your physical eyes be capable of de-coding the frequencies that inflate this environment. 
 
-7号源实体A：
+7号源实体A：是的，这是不需要你所说的恒星实体的另一个原因。正如你所知，恒星在你们的物质宇宙中创造热和光，以及其他人类身体和其他碳基实体持续存在的必要能量。由于我的实体本质上是能量的，它们不需要这些基本的元素燃料。因此，在你心目中，我环境的外观，是你期望从你自己的视角看到的，如果你的肉眼能够解码膨胀这个环境的频率的话。
 
 ME:So essentially,you have a universe that is full of planets and entities,and that's it. 
 
-我：
+我：所以本质上，你有一个充满行星和实体的宇宙，就是这样。
 
 SE7A:As a very high level summary,you would be correct,but,of course,there is much more to my environment than this short dialogue can expose.One such addition that I will give you before I let you commence communication with Source Entity Seven"B"is that at certain periods in their existence all of the flat planets link up together and make what you would call a hollow sphere. 
 
-7号源实体A：
+7号源实体A：作为一个非常高的层次的总结，你是正确的，但是，当然，我的环境比这简短的对话能揭示的更多。在让我让你开始与源实体7号B交流之前，我要告诉你的一个补充，在它们存在的特定时期，所有扁平的行星连接在一起，形成你们所称的空心球体。
 
 ME:Like a big 3D jigsaw puzzle(I was thinking of the Wikipedia logo). 
 
-我：
+我：就像一个巨大的3D拼图(我想到了维基百科的标志)。
 
 SE7A:Yes,sort of. 
 
-7号源实体A：
+7号源实体A：是的，有点儿。
 
 ME:Why do they do that? 
 
-我：
+我：他们为什么要那样做？
 
 SE7A:To share their learning and to identify which entities will be moving on to the next environment. 
 
-7号源实体A：
+7号源实体A：为了分享他们的学习成果，并确定哪些实体将进入下一个环境。
 
 ME:How often has this happened?
 
-我：
+我：这种情况发生多久一次？
 
 SE7A:Only six times since their creation.It is a very special occasion when it happens, and we are not due such an a event for some time yet,as the entities currently in my environment are a little slow evolution wise. 
 
-7号源实体A：
+7号源实体A：自从他们被创造以来只有6次。当它发生时是一个非常特殊的场合，我们还没有到这样的一个事件的时刻，因为目前在我的环境中的实体进化有点慢。
 
 ME:Any reason for that? 
 
-我：
+我：有什么原因吗？
 
 SE7A:It just happens that way sometimes.Consider your own planet.It went backwards, did it not? 
 
-7号源实体A：
+7号源实体A：有时候就是这样。想想你自己的星球。它倒退了，不是吗？
 
 ME:Yes,it did. 
 
-我：
+我：是的，它倒退了。
 
 SE7A:Well,it's not a unique occurrence.It happens throughout the environments created by The Origin's Source Entities.Now you need to prepare yourself,for Source Entity Seven“B"is waiting for you. 
 
-7号源实体A：
+7号源实体A：这并不是个案，在起源的源实体所创造的环境中都会发生这种情况，现在你需要做好准备，源实体7号B在等着你。
 
 ### Source Entity Seven B 
+
+**源实体7B**
 
 SE7B:Hello! 
 
