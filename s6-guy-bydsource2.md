@@ -419,7 +419,7 @@ ME:Yes,I can imagine that would be a prerequisite dictate by The Origin,who woul
 
 SE7:That's right,it does,and that was the reason for my choosing to become two,which ended up being three.Apart from the Source Entity you call "Five"and the one that is not yet fully aware,I had noticed that the others divided themselves up internally whilst still maintaining an overall aspect that made them retain their wholeness.As a result of this observation,I decided to become two independent Source Entities with a link between the two.I discussed this and the "bail out"option as you described earlier with The Origin (for it is only The Origin that can return us to wholeness)who agreed with my strategy,and I continued.What happened next is as I have previously described.As I was in the process of separating out into the two versions of me,I noticed that a unique opportunity could be applied.If I maintained the equal overlapping area of the two versions of me and then froze the separation process in one position,this created a third middle option where we would all be separate but co-joined and co-existent.As I froze the separation at the point of equality,my consciousness divided into three and developed into three separate Source Entity personalities.But there was something else that I noticed as well.The periphery of the energies that separated us from each other was permeable,allowing energies that moved from,say,the left to the right or from Source Entity Seven"A"to move into Source Entity Seven "B"to actually cross the periphery or boundary energies.What's more,I noticed that there was a progressive opportunity in passing from one side of Source Entity Seven "A" to the point of interface between Source Entity Seven "A"(SE7A)and Source Entity Seven "B"(SE7B).This was duplicated in a progressive manner from Source Entity Seven "B"to the point of interface between Source Entity Seven "B"and Source Entity Seven "C"(SE7C). 
 
-7号源实体：是的，确实如此，这就是我选择成为两个，最后变成三个的原因。除了你称之为5号源实体和那个还没有完全意识到的源实体，我注意到其他源实体内部分裂的同时仍然保持整体的方面，使他们保持完整。由于这个观察的结果，我决定成为两个独立的源实体，在两个之间有一个连接。我讨论了这个和你之前描述的“解救”选项，与原点(因为只有原点可以让我们回到完整)谁同意我的策略，我继续。接下来发生的事情是我之前描述的。当我在分离成两个版本的我的过程中，我注意到一个独特的机会可以被应用。如果我保持两个版本的我相同的重叠区域，然后将分离过程冻结在一个位置，这创造了第三个中间选项，我们都会分离但共同连接和共存。但是我还注意到了其他一些东西。将我们彼此分开的能量的外围是可渗透的，允许能量从左到右或从第七源实体“A”移动到第七源实体“B”中，从而真正地跨越外围或边界能量。更重要的是，我注意到有一个渐进的机会，从第七源实体“A”的一侧通过到第七源实体“A”(SE7A)和第七源实体“B”(SE7B)之间的接口点。这以一种渐进的方式从第七源实体“B”复制到第七源实体“B”和第七源实体“C”(SE7C)之间的接口点。
+7号源实体：是的，确实如此，这就是我选择成为两个，最后变成三个的原因。除了你称之为5号源实体和那个还没有完全意识到的源实体，我注意到其他源实体内部分裂的同时仍然保持整体的方面，使他们保持完整。由于这个观察的结果，我决定成为两个独立的源实体，在两个之间有一个连接。我讨论了这个和你之前描述的“解救”选项，与原点(因为只有原点可以让我们回到完整)谁同意我的策略，我继续。接下来发生的事情是我之前描述的。当我在分离成两个版本的我的过程中，我注意到一个独特的机会可以被应用。如果我保持两个版本的我相同的重叠区域，然后将分离过程冻结在一个位置，这创造了第三个中间选项，我们都会分离但共同连接和共存。但是我还注意到了其他一些东西。将我们彼此分开的能量的外围是可渗透的，允许能量从左到右或从第7号源实体“A”移动到第7号源实体“B”中，从而真正地跨越外围或边界能量。更重要的是，我注意到有一个渐进的机会，从第7号源实体“A”的一侧通过到第7号源实体“A”(SE7A)和第7号源实体“B”(SE7B)之间的接口点。这以一种渐进的方式从第7号源实体“B”复制到第7号源实体“B”和第7号源实体“C”(SE7C)之间的接口点。
 
 ME:Was this dimensional,frequency,or evolutionary based? 
 
@@ -1441,293 +1441,295 @@ SE7A:Well,it's not a unique occurrence.It happens throughout the environments cr
 
 ### Source Entity Seven B 
 
-**源实体7B**
+**7号源实体B**
 
 SE7B:Hello! 
 
-7号源实体B：
+7号源实体B：你好！
 
 ME:Sorry? 
 
-我：
+我：什么？
 
 SE7B:Hello. 
 
-7号源实体B：
+7号源实体B：你好！
 
 ME:Is that Source Entity Seven "A"? 
 
-我：
+我：那是7号源实体A吗？
 
 SE7B:No its Seven“B." 
 
-7号源实体B：
+7号源实体B：不，是7B。
 
 ME:I am sorry.You caught me out a bit there.I didn't expect such a fast change over,and your voice has the same tone as SE7A.Also,I was advised to prepare first. 
 
-我：
+我：对不起，你让我有点措手不及。我没想到会这么快改变，而且你的声音和SE7A的音调一样。 还有，有人建议我先准备一下。
 
 SE7B:You did prepare. 
 
-7号源实体B：
+7号源实体B：你准备了。
 
 ME:Sorry,but I don't recall it. 
 
-我：
+我：对不起，但我不记得了。
 
 SE7B:You,that is,your energetic self,prepared itself to receive my energies.You calibrated your frequencies to that which makes communication easier. 
 
-7号源实体B：
+7号源实体B：你，也就是你充满能量的自我，准备好接收我的能量。你校准了你的频率，使交流更容易。
 
 ME:Well,that bit of me that is communicating with you is under the delusion that it is cut off from the rest of me whilst incarnate.Ah,now I understand.My greater self doing the work in the background might explain why certain things happen automatically and so easily.It is preparing me for the work by working in the background to maintain and control the energies that maintain and control the link. 
 
-我：
+我：嗯，那部分正在与你交流的我，在幻觉中认为它在化身时与我的其余部分被切断了。啊，现在我明白了。我的更大的自我在后台工作，这也许可以解释为什么某些事情会自动地发生，而且如此容易。它在后台工作，为我做准备，以保持和控制保持和控制连接的能量。
 
 SE7B:OK,I don't see it that way.All I see is a single entity,one that is not of my creation, communicating with me. 
 
-7号源实体B：
+7号源实体B：好的，我不这么认为。我所看到的是一个单一的实体，一个不是我创造的实体，在与我交流。
 
 ME:Interesting.Thank you for that clarification.I must take that into consideration when I communicate with the remaining Source Entities. 
 
-我：
+我：有趣。谢谢你的澄清。当我与其余的源实体交流时，我必须考虑到这一点。
 
 So,you are the intermediate Source Entity Seven,the one that was created out of the area that overlapped between the initial aspects of Source Entity Seven when it decided to separate itself out into two.
 
+所以，你是中间的7号源实体，当7号源实体决定将自己分成两个时，你从最初的7号源实体的重叠部分中创造出来。
+
 SE7B:Correct.You see,what happened was that when this separation was taking place,that which was Source Entity Seven separated its sentience to become Source Entity Seven A& B.This process took place at the same time as the demarcation of the areas of Source Entity Seven that was to become Seven "A"&"B."As this happened,there was a third temporary entity created,me,which caused that which was still Source Entity Seven (holistically)to hold the process in stasis and reconsider its options based upon what had happened. 
 
-7号源实体B：
+7号源实体B：正确。你看，当这个分离发生时，第7号源实体分离了它的知觉，成为第7号源实体A和B。 这个过程发生在7号源实体的区域划分的同时，7号源实体A和B也分裂了。 当这个发生时，第三个临时实体被创造出来，我，这导致了仍然是7号源实体的整体保持这个过程的静止，并根据已经发生的事情重新考虑它的选择。
 
 ME:Were you self-aware at that point? 
 
-我：
+我：你当时有自我意识吗？
 
 SE7B:Not as a separate entity,but I was as part of that which was holistically Source Entity Seven. 
 
-7号源实体B：
+7号源实体B：不是作为一个单独的实体，而是作为整体的7号源实体的一部分。
 
 ME:So when did you become self-aware? 
 
-我：
+我：那么你什么时候开始有自我意识的？
 
 SE7B:My self-awareness only became a function of my individuality after my separation from the holistic aspect of that which was/is Source Entity Seven. 
 
-7号源实体B：
+7号源实体B：我的自我意识只是在我从那个整体方面分离之后，成为我个人的一个功能，那个整体方面就是源实体7。
 
 ME:And that aspect is still available as a communication medium because I first made contact with it/you as this collective aspect? 
 
-我：
+我：那这个方面仍然可以作为一个交流媒介，因为我第一次与它/你们作为这个集体方面进行接触？
 
 SE7B:It is.It still functions as the whole and must always function as the whole. 
 
-7号源实体B：
+7号源实体B：是的。它仍然作为一个整体运作，并且必须永远作为一个整体运作。
 
 ME:Why is that? 
 
-我：
+我：为什么？
 
 SE7B:Simply because there may be a point in our evolutionary development where we wish to become fully one again.As a result,we need to keep part of the holistic aspect of Source Entity Seven in reserve,so to speak,as the initiating entity for such a decision to take form and start the process of re-integration.Or,to initiate communication with entities such as yourself. 
 
-7号源实体B：
+7号源实体B：仅仅因为在我们的进化发展中可能有一个点，我们希望再次完全成为一体。因此，我们需要保留部分源实体7的整体方面，可以说，作为启动实体，以便做出这样的决定，并开始重新整合的过程。或者，启动与实体(如你自己)的沟通。
 
 ME:You expect to re-integrate at some time then? 
 
-我：
+我：那么你希望在某个时候重新整合？
 
 SE7B:Not sometime soon,but it could well happen-specifically if the opportunities for evolution are expended in our current configuration,which they are very much not.But let me get back to our discussion on me.You asked about when I became self-aware? 
 
-7号源实体B：
+7号源实体B：不是很快，但很可能发生，特别是如果进化的机会在我们当前的结构中被消耗殆尽，但它们不是。但让我回到我们关于我的讨论。你问我什么时候开始有自我意识的？
 
 ME:Yes I did.The Source Entities I have contacted to date have all suggested that they became self-aware over a long period,and that when they realized that they were self-aware, that was the point in which The Origin contacted them and advised them of their reason for "being"in existence.Clearly,this would have already happened with the full aspect of Source Entity Seven,which means that you must have gained both individuality and the collective memory/experiences of Source Entity Seven as part of the separation process, including knowledge of the separation process,the reasons for it,and the decision to stop the separation at the point of your creation. 
 
-我：
+我：是的，我知道。我迄今为止接触过的源实体都表示，他们在很长一段时间内都有自我意识，当他们意识到他们有自我意识时，就是起源联系他们并告知他们存在的原因。很明显，这已经发生在源实体7的全部方面，这意味着你们必须获得个体性和源实体7的集体记忆/经验作为分离过程的一部分，包括分离过程的知识，分离的原因，以及在你们创造时停止分离的决定。
 
 SE7B:You're good,aren't you? 
 
-7号源实体B：
+7号源实体B：你很棒，不是吗？
 
 ME:Errrr!?Well it is logical,isn't it? 
 
-我：
+我：呃！？嗯，这是符合逻辑的，不是吗？
 
 SE7B:Not to everyone.I was told you were good for such a small being. 
 
-7号源实体B：
+7号源实体B：不是对每个人都是这样。我听说你这么小的生物，却很优秀。
 
 ME:Thank you for the compliments.I am just doing my job. 
 
-我：
+我：谢谢你的夸奖。我只是在做我的工作。
 
 SE7B:Let's continue.
 
-7号源实体B：
+7号源实体B：我们继续。
 
 ME:It must have been/is strange being both an individualized part of Source Entity Seven and actually being the whole Source Entity Seven concurrently. 
 
-我：
+我：既是源实体7的个体化部分，又同时是整个源实体7，这肯定很奇怪。
 
 SE7B:No,the separation was instantaneous and that part of us/Source Entity Seven that is/ remains as the whole,as a higher function of us rather like your being a temporarily separate part of your energetic self.You are still one,but you are separate-you are separately together,separately one,and so am I.We are similar in this particular aspect. 
 
-7号源实体B：
+7号源实体B：不，分离是瞬间的，我们/源实体7的那部分仍然是整体，作为我们更高的机能，就像你作为你精力充沛的自我的暂时分离部分。你仍然是一个，但你分离了-你分离在一起，分离了，我也是。我们在这个特殊方面是相似的。
 
 ME:The separation program must have contained all the details of the separate aspects of Source Entity Seven,which you would have inherited. 
 
-我：
+我：分离程序一定包含了源实体7的各个分离方面的所有细节，你将继承这些细节。
 
 SE7B:We all did.However,my creation was,as previously stated,a bit of a surprise.As a result,the full aspect of Source Entity Seven stopped the process at that point to both review what had happened and perpetuate my existence. 
 
-7号源实体B：
+7号源实体B：我们都这样做了。然而，我的创造，如前所述，有点出乎意料。结果，源实体7的完整方面在那个点上停止了这个过程，既回顾了发生的事情，又让我永生。
 
 ME:Perpetuate your existence? 
 
-我：
+我：永生？
 
 SE7B:Yes,because if the process was not stopped,the initial plan of a separation into two would have continued,and I would have become non-existent.In this instance,we three are one as we are still joined,the joining being me. 
 
-7号源实体B：
+7号源实体B：是的，因为如果这个过程没有停止，分裂成两个的最初计划将会继续，而我将不复存在。在这种情况下，我们三个是一体的，因为我们仍然连接在一起，而连接在一起的就是我。
 
 ME:On earth it is always difficult for the supposedly unwanted or unplanned child.That child always feels that they are not loved by their parents.Do you have this thought in the back of your mind? 
 
-我：
+我：在地球上，对于那些被认为是不想要的或者计划之外的孩子来说，生活总是很艰难的。那个孩子总是觉得他们没有被父母所爱。你内心深处有这种想法吗？
 
 SE7B:Not in the slightest.I was always in existence anyway. 
 
-7号源实体B：
+7号源实体B：一点也不，我一直都存在着。
 
 ME:How do you mean?
 
-我：
+我：你什么意思？
 
 SE7B:I am essentially Source Entity Seven;as a result,I existed before the separation,and I will exist after re-integration whenever that takes place. 
 
-7号源实体B：
+7号源实体B：我本质上是源实体7，因此，我在分离之前就存在，并且在重新整合之后也会存在。
 
 ME:And you feel that way because you have inherited all of the memories and functions of Source Entity Seven? 
 
-我：
+我：你有这种感觉是因为你继承了源实体7的所有记忆和功能？
 
 SE7B:Yes,but know this.From my perspective,there is no difference between being integrated and being separate,at least not now. 
 
-7号源实体B：
+7号源实体B：是的，但是知道这个。从我的角度来看，被整合和被分离之间没有区别，至少现在没有。
 
 ME:Why not now? 
 
-我：
+我：为什么现在没有？
 
 SE7B:Because I am now separate but together.The act of being separate is happening now, not as a possibility or a"what if"scenario.It has happened,is happening,will happen,could have and did happen.There is no issue with that with me as the event is an event in event space.Source Entity Seven stopped the separation process where it is now because it saw the beauty in what happened.In its mind it was a perfect outcome,one that supports the evolutionary requirement. 
 
-7号源实体B：
+7号源实体B：因为我现在是分离的，但又在一起。分离的行为正在发生，不是一种可能性或“如果”情景。它已经发生，正在发生，将要发生，可能发生，也确实发生。对我来说没有问题，因为事件是事件空间中的事件。源实体7在它现在的地方停止了分离过程，因为它看到了所发生事情的美丽。在它看来，这是一个完美的结果，一个支持进化要求的结果。
 
 ME:And that evolutionary requirement that has been supported is? 
 
-我：
+我：而那个已经被支持的进化要求是什么？
 
 SE7B:To experience,learn and evolve. 
 
-7号源实体B：
+7号源实体B：去体验、学习和进化。
 
 ME:Of course.OK,I am convinced.Let's talk about what you have created within the period of event space you have been in existence. 
 
-我：
+我：当然。好吧，我相信了。让我们谈谈你在你存在的事件空间内创造了什么。
 
 SE7B:I would like that.
 
-7号源实体B：
+7号源实体B：我愿意。
 
 ME:Your environment is equal in size to Source Entity Seven "A"and Seven "C"from my visual data. 
 
-我：
+我：从我的目视数据来看，你的环境大小与源实体7号A和7号C相同。
 
 SE7B:Yes,it is but I have incorporated a set of dimensions within dimensions.Source Entity Seven "A"created an environment that was populated with what you recognized as flat planets.That was only one environmental area,one universe if you want to call it that. 
 
-7号源实体B：
+7号源实体B：是的，是的，但我已经在维度中合并了一套维度。源实体7A创造了一个环境，这个环境里充满了你们所认识的扁平行星。那只是一个环境区域，一个宇宙，如果你想这么称呼它的话。
 
 ME:But when I spoke to Source Entity Seven,it said that it copied the structure of The Origin in the 12 x 3 x 12 format,missing,of course,the 12 zones,which Source Entities cannot,I assume create. 
 
-我：
+我：但是当我和源实体7交谈时，它说它复制了起源的结构，在12×3×12的格式中，当然，缺少了12个区域，我认为源实体不能创造。
 
 SE7B:It did.However,Source Entity Seven "A"only used one of those dimensional permutations and,as a result,it constructed a single universal environment.I,on the other hand,decided to use the full suite of possible permutations and "add-in"all of these permutations within the permutations of space that were available.Everything is still as it was explained to you by Source Entity Seven from the perspective of the main structure of "US"as separate aspects of Source Entity Seven.It is just that I have split it down further for my environment. 
 
-7号源实体B：
+7号源实体B：是的。然而，源实体7“A”只使用了其中一个维度排列，结果，它构建了一个单一的宇宙环境。另一方面，我决定使用所有可能的排列，并将所有这些排列“添加”到可用的空间排列中。一切仍然是源实体7从“我们”的主要结构角度向你解释的，作为源实体7的不同方面。只是为了我的环境，我进一步分解了它。
 
 ME:That makes 12 x 3 x 12 x 12 x 3 x 12 different permutations of space(186,624 permutations or different/simultaneous universes). 
 
-我：
+我：这使得空间有12×3×12×12×3×12种不同的排列(186,624种排列或不同的/同时存在的宇宙)。
 
 SE7B:Yes,but that is not all.The progression from one permutation to another is not linear or indeed logical,for it changes in relation to that which has been experienced by the entity experiencing it.In essence,the universe they move onto next is relevant to that which they need to experience next but in a way that is not so much progressive but transgressive.As a result,they can and do experience as many permutations of space as is necessary for their evolution.The order in which they experience them can either lead them to quickly traverse my environment,allowing them to move on to Source Entity Seven "A"or"C's"environment after the shortest possible exposure to the smallest number of permutations of space,or they can experience all of them,or all of them and some of them more than once or twice, making them take a longer time. 
 
-7号源实体B：
+7号源实体B：是的，但这不是全部。从一个排列到另一个排列的进程不是线性的，也不是逻辑的，因为它与实体经历过的东西有关。本质上，他们接下来进入的宇宙与他们接下来需要经历的东西有关，但以一种不是进步而是越轨的方式。因此，他们可以，也确实经历了为他们的进化所必需的尽可能多的空间排列。他们经历这些的顺序可以引导他们快速穿越我的环境，让他们在接触到最小数量的空间排列后，在最短的时间内进入7号源实体“A”或“C”的环境，或者他们可以经历所有这些，或者所有这些，其中一些经历了不止一次或两次，使他们花费更长的时间。
 
 ME:You mean your environment is like an ever changing MAZE,where re-tracing your steps, if you get lost,does not help you get out of the maze or indeed to the center of the maze. 
 
-我：
+我：你的意思是你的环境就像一个不断变化的迷宫，在那里，如果你迷路了，重新追踪你的步伐，并不能帮助你走出迷宫，或者到达迷宫的中心。
 
 SE7B:Correct.Fun,isn't it? 
 
-7号源实体B：
+7号源实体B：正确，很有趣，不是吗？
 
 ME:I am glad I am not one of your entities! 
 
-我：
+我：我很高兴我不是你们的实体之一！
 
 SE7B:Why,they enjoy the challenge! 
 
-7号源实体B：
+7号源实体B：为什么，他们享受挑战！
 
 ME:This environment sounds a little like the entities in Source Entity Six's environment where there are universe-sized entities that can exist either singularly or as part of the structure of another universal entity,each having the ability to exist within and without each other simultaneously and in multiples of numbers. 
 
-我：
+我：这个环境听起来有点像源实体6的环境，那里有宇宙大小的实体，它们可以单独存在，也可以作为另一个宇宙实体结构的一部分存在，每个实体都有能力同时存在于彼此之中，并且没有彼此，并且数量是对方的倍数。
 
 SE7B:That would be useful only as a thought process to enable you to expand your understanding of what can be.The basics of my environment are such that each permutation of space is capable of holding and does hold all of the permutations of space at what you would understand as being the micro level.So to keep it easy,each permutation of space holds within it 430 permutations of space,each a universe in its own right, with dimensions,tritaves and frequency bands.Whereas the entities in Source Entity Six's environments are entities in their own right,these are purely energetic environments. 
 
-7号源实体B：
+7号源实体B：那只会作为一个思想过程，让你扩展你对可能的理解。我环境的基本是这样的，每个空间排列都有能力，也确实在你们所理解的微观层面上，容纳了所有空间的排列。所以简单点说，每个空间排列包含430个空间排列，每个都是它自己的宇宙，有维度，三维和频带。而源实体六的环境中的实体是它们自己的实体，这些是纯粹的能量环境。
 
 ME:But all energy can become a self-aware entity given long enough,can it not? 
 
-我：
+我：但所有的能量都可以成为一个自我意识实体，只要时间足够长，不是吗？
 
 SE7B:It can,provided it is allowed to.In this instance the energy in each permutation of space is programmed to do a certain job.Sentience,at whatever level "energy"is allowed to attain,is not necessary in this instance.
 
-7号源实体B：
+7号源实体B：如果允许的话，它可以。在这个例子中，空间中每个排列的能量都被编程去做某种工作。在这个例子中，无论“能量”被允许达到什么水平，感觉都不是必要的。
 
 ME:Thank you for that explanation.One of the things that has been going through my mind whilst we have been discussing the structure of your environment is the mechanism used to identify which universe an entity is allowed to move onto next. 
 
-我：
+我：谢谢你的解释。当我们讨论你们环境的结构时，我脑海中一直想着一件事，就是用来识别一个实体下一个被允许进入哪个宇宙的机制。
 
 SE7B:The universes themselves decide what entity can move onto which universe and how long they should stay there. 
 
-7号源实体B：
+7号源实体B：宇宙本身决定什么实体可以移动到哪个宇宙，以及他们应该在那里呆多久。
 
 ME:What?I thought you said they weren't sentient. 
 
-我：
+我：什么？我以为你说他们没有意识。
 
 SE7B:They aren't.But they are programmed,so to speak,to do certain functions that allow my/our entities to experience what they need to experience before they move onto the environments that are Source Entity Seven A and C. 
 
-7号源实体B：
+7号源实体B：它们不是。但是它们被编程，可以这么说，去做一些特定的功能，让我/我们的实体在进入到7号源实体A和C的环境之前体验他们需要体验的东西。
 
 ME:Hold on here.How can a universe decide on which entity it accepts,especially when there are so many entities involved? 
 
-我：
+我：等等。一个宇宙怎么能决定接受哪个实体，特别是当有这么多实体参与的时候？
 
 SE7B:As an entity progresses through the universes,it gains what you might call a signature or a code relevant to what has been experienced and where.
 
-7号源实体B：
+7号源实体B：当一个实体在宇宙中前进时，它会获得一个签名或代码，与经历过什么和在哪里有关。
 
 ME:I think I see what you are alluding to.I have just received an image of a multifaceted shape passing through a gateway of equal but opposite facets,sort of the square peg in a square hole imagery except this has lots and lots of different sides,angles and curves to it. 
 
-我：
+我：我想我明白你在暗示什么。我刚刚收到了一个多面形状的图像，通过一个相同但相反的面组成的通道，有点像方孔里的方钉，除了它有很多不同的边、角度和曲线。
 
 SE7B:Yes,I see what you are describing is a key;this would be a reasonable method of description even though it is limited. 
 
-7号源实体B：
+7号源实体B：是的，我明白你所描述的是一把钥匙； 这将是一种合理的描述方法，尽管它有局限性。
 
 ME:If it is limited,can you give me a better illustration? 
 
-我：
+我：如果它有局限性，你能给我一个更好的例子吗？
 
 SE7B:Certainly.You see,when an entity progresses through my environment,each universe they interact with gives them a certain signature or coding.This coding opens the door to various universes that are the best next environment for a particular entity to experience, including the optimal progression permutation. 
 
-7号源实体B：
+7号源实体B：当然，当一个实体在我的游戏环境中前进时，他们所接触的每个宇宙都会给他们一个特定的签名或编码，这个编码打开了通往各种各样宇宙的大门，这些宇宙是特定实体下一个体验的最佳环境，包括最优的进程排列。
 
 ME:I thought you said that your environment was a maze. 
 
