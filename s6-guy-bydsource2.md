@@ -1733,198 +1733,207 @@ SE7B:Certainly.You see,when an entity progresses through my environment,each uni
 
 ME:I thought you said that your environment was a maze. 
 
-我：
+我：我记得你说过你的环境是一个迷宫。
 
 SE7B:No,you said that,but the analogy still remains. 
 
-7号源实体B：
+7号源实体B：不，你说过，但类比仍然存在。
 
 ME:How? 
 
-我：
+我：怎么？
 
 SE7B:Because the entities themselves do not know what those permutations are. 
 
-7号源实体B：
+7号源实体B：因为实体本身并不知道这些排列是什么。
 
 ME:Oh. 
 
-我：
+我：哦。
 
 SE7B:Also,the permutation that may next be experienced by the entity that is close to finishing its time in one universe may well change as a result of what it has experienced. 
 
-7号源实体B：
+7号源实体B：同样，即将结束其在一个宇宙中的生命的实体接下来可能经历的排列，很可能因为它所经历的事情而改变。
 
 ME:So the code/signature of an entity can change from the potential of accessing one set of universes at the start of experiencing a new universe to a different set of universes at the end of that particular universal experience/set of experiences.Hence,the changing maze imagery I received. 
 
-我：
+我：所以一个实体的代码/签名可以从在体验一个新宇宙开始时访问一组宇宙的可能性，改变为在那个特定的宇宙体验/一组体验结束时访问另一组宇宙的可能性。因此，我接收到的迷宫图像在不断变化。
 
 SE7B:Yes. 
 
-7号源实体B：
+7号源实体B：是的。
 
 ME:Can you give me any more information on this code or signature the entities generate through their experiences in the various universes. 
 
-我：
+我：你能给我更多关于实体通过他们在不同宇宙中的经历而产生的代码或签名的信息吗？
 
 SE7B:Let me see.The image in your head that I have just sent is illustrative only as it is a difficult subject for you to understand. 
 
-7号源实体B：
+7号源实体B：让我看看。我刚才发送给你的头脑中的图像只是说明性的，因为对你来说这是一个很难理解的主题。
 
 I received two images: 
 
-- 1.The first image was one of a cylindrical key that had a specific and complicated form factor that was the positive "male"version of a negative "female"version,the lock being the "female"version.It had many layers or levels.It could be inserted into the first level and then had to be rotated to allow the first and second level to pass through.The same was true for a third,fourth and fifth,etc.,level.These form factors changed sometimes,so the sixth level may be one shape before it was inserted into the lock,if say it was only the fourth level that was inserted,but if the fifth was inserted,the conditions of experience and evolution may have changed this and affected the form factor of the six and subsequent levels by either making a change to the form factor or not,as the case may be. 
-- 2.The second image was that of a person riding down a water chute with doors and deflectors at various stages down the chute.These doors/deflectors would be presented to the person as they progressed down the chute.Imagery would be presented to the person,and they would select a door as a result of the imagery experienced.This,in turn,would result in a deflector closing off a part of the chute and allowing the person to only progress in the direction relating to the imagery and door.Various permutations would be in front of the person riding the water chute that they were not aware of.In my mind's eye I could see a system that looked rather "root like"with the exception of the roots sometimes linking up again and even going back on themselves to an earlier although potentially different point.On the back of this person was a map.The map indicated where and when the person had been and,therefore,what the permutations of the next universal environment that could be experienced were available to the person concerned.The water chute knows this information,and this is taken into account when the person makes certain decisions in choosing doors,based upon the imagery presented to them.It was essentially like a personalized and portable Akashic record with everything about the individual recorded by it,including the next possible permutations of the code.It was very complicated. 
+我收到了两个图像：
+
+1.The first image was one of a cylindrical key that had a specific and complicated form factor that was the positive "male"version of a negative "female"version,the lock being the "female"version.It had many layers or levels.It could be inserted into the first level and then had to be rotated to allow the first and second level to pass through.The same was true for a third,fourth and fifth,etc.,level.These form factors changed sometimes,so the sixth level may be one shape before it was inserted into the lock,if say it was only the fourth level that was inserted,but if the fifth was inserted,the conditions of experience and evolution may have changed this and affected the form factor of the six and subsequent levels by either making a change to the form factor or not,as the case may be. 
+
+1.第一个图像是一个圆柱形的钥匙，它有一个特定的和复杂的形式因素，是一个积极的“男性”版本的消极的“女性”版本，锁是“女性”版本。它有很多层或水平。它可以插入到第一层，然后必须旋转，以允许第一和第二层通过。第三，第四和第五，等等，水平也是如此。这些形式因素有时会改变，所以第六层可能是一个形状，在它被插入到锁中之前，如果说它只是第四层被插入，但如果第五层被插入，经验和进化的条件可能会改变这一点，并影响到第六和后续水平的形式因素，通过改变形式因素或不改变形式因素，视情况而定。
+
+2.The second image was that of a person riding down a water chute with doors and deflectors at various stages down the chute.These doors/deflectors would be presented to the person as they progressed down the chute.Imagery would be presented to the person,and they would select a door as a result of the imagery experienced.This,in turn,would result in a deflector closing off a part of the chute and allowing the person to only progress in the direction relating to the imagery and door.Various permutations would be in front of the person riding the water chute that they were not aware of.In my mind's eye I could see a system that looked rather "root like"with the exception of the roots sometimes linking up again and even going back on themselves to an earlier although potentially different point.On the back of this person was a map.The map indicated where and when the person had been and,therefore,what the permutations of the next universal environment that could be experienced were available to the person concerned.The water chute knows this information,and this is taken into account when the person makes certain decisions in choosing doors,based upon the imagery presented to them.It was essentially like a personalized and portable Akashic record with everything about the individual recorded by it,including the next possible permutations of the code.It was very complicated. 
+
+2.第二个图像是一个人乘坐一个水滑道，滑道的各个阶段都有门和偏转器。这些门/偏转器将出现在他们沿着滑道前进的人面前。图像会呈现给这个人，他们会根据所经历的图像选择一扇门。 这反过来会导致一个偏转器关闭一部分滑道，并允许这个人只在与图像和门相关的方向前进。 各种排列会摆在乘坐水滑道的人面前，而他们并不知道。 在我脑海中我可以看到一个看起来很像“根”的系统，除了根有时会再次连接起来，甚至回到一个早期的点，尽管可能不同。 在这个人的背后是一幅地图。 这幅地图表明这个人在哪里，什么时候，因此，下一个宇宙环境的排列可以被有关的人体验到。 水滑道知道这个信息，当这个人根据呈现给他们的图像做出选择门的决定时，这个信息会被考虑进去。 它本质上就像一个个性化的和便携的阿卡西记录，记录了关于个人的一切，包括下一个可能的代码排列。它非常复杂。
 
 SE7B:Good summary.Note though that although the entity itself is not aware of the new possible permutations available to it,its personal record has this and travels with the entity at all times.The universes are illustrated by the functions of the "lock"and the "water chute."The entities are illustrated by the "key"and the "person riding"the water chute.
 
-7号源实体B：
+7号源实体B：总结得好。请注意，虽然实体本身并不知道新的可能排列，但它的个人记录有这个，并一直与实体一起旅行。宇宙由“锁”和“水滑道”的功能来说明。实体由“钥匙”和“乘坐”水滑道的人来说明。
 
 ME:Before I ask the inevitable question of what your entities look like if I were able to see them with my physical eyes,that is,I would like to know the work that they do to enable them to traverse the maze that is your environment. 
 
-我：
+我：在我问这个不可避免的问题之前，如果我能用我的肉眼看到你们的实体，我想知道他们做的工作，使他们能够穿越迷宫，即你们的环境。
 
 SE7B:They evolve. 
 
-7号源实体B：
+7号源实体B：他们进化。
 
 ME:Clearly.Evolution is a prerequisite for sustained existence in my book. 
 
-我：
+我：很清楚。在我看来，进化是持续存在的先决条件。
 
 SE7B:It is one of the reasons why The Origin allowed us to create smaller versions of ourselves.Evolution is an inevitable result of the experiential content of existence. 
 
-7号源实体B：
+7号源实体B：这就是为什么起源允许我们创造更小的版本的自己的原因之一。进化是存在经验内容的必然结果。
 
 ME:There are more reasons? 
 
-我：
+我：还有其他原因吗？
 
 SE7B:Yes,of course.Although evolution is the prime facia reason for an entity's existence,it is not the only reason for its creation. 
 
-7号源实体B：
+7号源实体B：是的，当然。虽然进化是实体存在的表面原因，但它不是实体创造的唯一原因。
 
 ME:Ah!So what would the reason for an entity's creation be? 
 
-我：
+我：啊！那么实体创造的原因是什么？
 
 SE7B:Entertainment. 
 
-7号源实体B：
+7号源实体B：娱乐。
 
 ME:What? 
 
-我：
+我：什么？
 
 SE7B:Entertainment.Maybe I have this word wrong.Maybe I should have used distraction or even company or help. 
 
-7号源实体B：
+7号源实体B：娱乐。也许我用错了这个词。也许我应该用分心，甚至是陪伴或帮助。
 
 ME:From my standpoint,all of those words might describe the reason to create an entity. A creator would no longer be alone in its task,it would have help in working on and completing its task,and/or it would be distracted from its own task/workload,as well as entertained by the efforts of its creations in trying to do those tasks.
 
-我：
+我：从我的立场来看，所有这些词都可以描述创建一个实体的原因。一个创造者不再是独自完成任务，它会在完成任务的过程中得到帮助，并且/或者它会从自己的任务/工作量中分心，以及在尝试完成这些任务时受到它的创造物的努力的娱乐。
 
 SE7B:Diversity would also be a word I would use. 
 
-7号源实体B：
+7号源实体B：我也会用多样性这个词。
 
 ME:Why? 
 
-我：
+我：为什么？
 
 SE7B:Because the more entities an entity creates to help it deliver its commitment to the evolution of The Origin,the greater the number of permutations that can be employed to experience,learn and evolve whilst essentially experiencing the same thing,but from different angles.This is the main advantage of diversity and is the result of creating a high number of entities. 
 
-7号源实体B：
+7号源实体B：因为一个实体创造的实体越多，它就越能帮助它完成对起源进化的承诺，那么它在经历、学习和进化的过程中所能运用的排列就越多，虽然从本质上来说，它们经历的是同一件事，但从不同的角度。这是多样性的主要优势，也是创造大量实体的结果。
 
 ME:Fine.Can we move on to the work they do? 
 
-我：
+我：好的，我们能继续谈谈它们所做的工作吗？
 
 SE7B:Certainly.There are three types of entity,and they each have different work to do. 
 
-7号源实体B：
+7号源实体B：当然。有三种类型的实体，他们各自有不同的工作要做。
 
 ME:The number three seems to be a recurring theme with Source Entity Seven. 
 
-我：
+我：数字3似乎是源实体7反复出现的主题。
 
 SE7B:Only in so much as we have three environments.I will continue with the work of each entity type. 
 
-7号源实体B：
+7号源实体B：我们只有三个环境，我会继续每个实体类型的工作。
 
 ME:Can I stop you a moment?When you said there were three entity types,I momentarily picked up the number four,but that quickly changed back to three,actually no,it was three and a half.Why was that? 
 
-我：
+我：我能打断一下吗？当你说有三个实体类型时，我暂时记住了数字4，但很快又变回了3，实际上不是，是3个半。为什么会这样？
 
 SE7B:There was a fourth,but that entity line was terminated.The image of three and a half was primarily because that's exactly what it was doing-the role of an entity that was based upon three and a half,i.e.,it was an in-between entity that was doing half the role of one series of entities and half the role of another.
 
-7号源实体B：
+7号源实体B：还有第4个，但是那个实体线被终止了。3.5的形象主要是因为它确实在做的事情——一个实体的角色是基于3.5的，也就是说，它是一个中间实体，它扮演着一系列实体的一半角色和另一半角色。
 
 ME:Would this not have been advantageous from an evolutionary perspective. 
 
-我：
+我：从进化的角度来看这不是有利的吗？
 
 SE7B:No,it was surplus to requirements. 
 
-7号源实体B：
+7号源实体B：不，超出要求。
 
 ME:Why? 
 
-我：
+我：为什么？
 
 SE7B:Because once the entities have achieved all that they can achieve whilst doing the work that they are working on,they move on to do the work of one of the other two types of entity.Eventually they gain experience in all three work types. 
 
-7号源实体B：
+7号源实体B：因为一旦实体完成了他们所能完成的，同时做着他们正在做的工作，他们就会继续做其他两种实体的工作。最终他们在所有三种工作类型中都获得了经验。
 
 ME:So what you are suggesting is that the fourth entity type would only experience the diversity of experience that was eventually and inevitability experienced by the other three entities. 
 
-我：
+我：所以你的意思是第4种实体类型只会经历其他3种实体最终和必然经历的各种经验。
 
 SE7B:Correct. 
 
-7号源实体B：
+7号源实体B：正确。
 
 ME:I also feel another difference in the fourth entity. 
 
-我：
+我：我还感觉到第4个实体有另一个不同。
 
 SE7B:Yes,there was one.It was a hybrid of all three,and that was not the point. 
 
-7号源实体B：
+7号源实体B：是的，有一个。它是这三者的混合体，但那不是重点。
 
 ME:Why not? 
 
-我：
+我：为什么不？
 
 SE7B:Because the whole objective was to have three individual entity types that were specialized in some way relative to the work that they do.Once they had experienced all they needed to experience as a result of the work they were essentially designed for,they had to swap roles with another entity,one that had completed all of its work so they could experience what you would call frustration. 
 
-7号源实体B：
+7号源实体B：因为整个目标是拥有3个个体实体类型，这些实体类型在某种程度上与它们所做的工作相关。一旦它们经历了它们本质上被设计用来完成的工作所需要经历的一切，它们就必须与另一个实体交换角色，这个实体已经完成了它所有的工作，这样它们就可以体验到你们所说的挫折。
 
 ME:What?Experience frustration?
 
-我：
+我：什么？体验挫折？
 
 SE7B:Yes,as I have just stated,they are designed for a particular type of work.Once they have,err,graduated from the work that they were designed for,they are then tasked to work on subjects within the new work that they are not designed to work on.This results in the exposure to frustration as they obviously remember the ability to perform tasks in a seamless fashion. 
 
-7号源实体B：
+7号源实体B：是的，正如我刚才所说，他们是为某种特定的工作而设计的。一旦他们，呃，从他们被设计的工作中毕业，他们就被分配到新工作中的任务，而这些任务并不是他们被设计来做的。这导致了挫折，因为他们显然记得以无缝的方式执行任务的能力。
 
 However,frustration and necessity are the birth place of creativity,and it is the need to perform the tasks for the work that they are not designed for that results in the creation of constructs or tools to allow them to perform as required in their new "working" environment. 
 
+然而，挫折和必要性是创造力的诞生地，正是执行他们不适合的工作任务的需求导致了构造或工具的创造，使他们能够在新的“工作”环境中按要求执行任务。
+
 ME:So it's the need to create that helps the entity evolve? 
 
-我：
+我：所以是创造的需求帮助实体进化？
 
 SE7B:Creativity is the other main reason for existence.To be a creator is to be a God whilst being part of God.What's more,it is the most direct route that an entity can take to becoming closer to its creator.Creation is next on the list of the ten most important things an entity must do whilst individualized from its creator.The first,of course,is evolution. 
 
-7号源实体B：
+7号源实体B：创造力是存在的另一个主要原因。成为一个创造者就是成为上帝，同时成为上帝的一部分。更重要的是，它是实体能够采取的最直接的路线，使其更接近它的创造者。创造是一个实体从它的创造者中分离出来时必须做的10件最重要的事情中的第2件。当然，第1件是进化。
 
 ME:So if evolution and creation were the top two items in a list of ten an entity needs to do whilst being individualized,what are the other eight? 
 
-我：
+我：那么如果进化和创造是一个实体在分离出来时需要做的10件事情中的前两件，那么另外8件是什么？
 
 SE7B:I didn't see that one coming,much!However,it is a universal list,so to speak,and one that must be shared with your readers. 
 
-7号源实体B：
+7号源实体B：我没料到会有这一条！不过，这确实是一个宇宙性的清单，必须与你的读者分享。
 
 So here is a list of the Top Ten things an entity MUST do whilst individualized: 
 
@@ -1939,105 +1948,126 @@ So here is a list of the Top Ten things an entity MUST do whilst individualized:
 - 9.Intellectualize 
 - 10.Become aware of self 
 
-The tenth in line is the first thing an entity needs to do once created.The last,evolution, being the result of all the other things being actioned.The rest are in a sort of "loose" order and are not entirely dependent upon each other for an entity's progression from self- awareness to evolution. 
+所以这里是一个实体在个体化时必须做的十大事情的列表：
+
+- 1.进化
+- 2.创造
+- 3.学习
+- 4.体验
+- 5.发展 
+- 6.互动(与他人)
+- 7.创新
+- 8.发现
+- 9.理智化
+- 10.自我觉知
+
+The tenth in line is the first thing an entity needs to do once created.The last,evolution, being the result of all the other things being actioned.The rest are in a sort of "loose" order and are not entirely dependent upon each other for an entity's progression from self-awareness to evolution. 
+
+第10条是实体一旦被创造后需要做的第一件事。最后，进化，是所有其他事情被采取的结果。其余的是一种“松散”的顺序，对于实体从自我意识到进化的进程来说，它们并不完全依赖于彼此。
 
 Entertainment is achieved by my observing how my entities progress. 
 
+娱乐是通过观察我的实体如何进步来实现的。
+
 ME:So what I need to know now is what your entities look like,including what they have created. 
 
-我：
+我：所以我现在需要知道的是你的实体是什么样子的，包括他们已经创造了什么。
 
 SE7B:I,and I say I,have created two types of entities. 
 
-7号源实体B：
+7号源实体B：我，我说我，已经创造了两种类型的实体。
 
 ME:I had a flash of the number three then.Why would I have received that?Oh,hang on, you mentioned that we have three entities in the last dialogue(there was a one week gap in the generation of the text above compared to that text which was currently being channelled),with a fourth being discarded as it was a hybrid. 
 
-我：
+我：我当时闪现了数字3。我为什么会收到那个？哦，等等，你提到我们在上次对话中有3个实体(与目前正在传送的文本相比，上面文本的生成有一个星期的间隔)，第4个实体被丢弃了，因为它是混合体。
 
 SE7B:Yes,that is correct.I did say"I"created two entities.The third and the discarded fourth are the result of the combined creativity of SE7. 
 
-7号源实体B：
+7号源实体B：是的，你说得对。我确实说过“我”创造了两个实体。第3个和被丢弃的第4个是SE7创造力的结合。
 
 This was starting to get complicated all of a sudden. 
 
+这突然变得复杂起来。
+
 ME:Ah,so let's keep this simple then.From my standpoint,you are part of/an aspect of Source Entity Seven,and as such you must have been,in part,involved in the creation of the third and fourth entities.Is this a reasonable way to understand it? 
 
-我：
+我：啊，那我们就简单点。从我的立场来看，你是源实体7的一部分，因此你一定参与了第3个和第4个实体的创造。这样理解是否合理？
 
 SE7B:I would say so.If it helps you understand,then yes,by all means,use that method of recognition.Although in truth and actuality,"I"created two of them and "I"as part of the whole entity that is Source Entity Seven took part in the creation of the other two entities.However"I"took the decision to remove the fourth hybrid version from individual existence. 
 
-7号源实体B：
+7号源实体B：我想是的。如果这能帮助你理解，那么是的，无论如何，使用那种识别方法。虽然在真相和现实中，“我”创造了其中两个，并且“我”作为整个实体的一部分，即源实体7，参与了另外两个实体的创造。然而，“我”决定从个体存在中移除第4个混合版本。
 
 ME:Thank you for the clarification.What happened to those entities that were the hybrids? Surely they must have been sentient at that point in their creation. 
 
-我：
+我：谢谢你的澄清。那些混合实体发生了什么？在他们被创造的那个时刻，他们肯定是有知觉的。
 
 SE7B:They had,indeed,gained a level of self-awareness at that point in event space when I decided to terminate their existence. 
 
-7号源实体B：
+7号源实体B：当我决定终止他们的存在时，他们确实在事件空间中获得了某种程度的自我意识。
 
 ME:But would that not be classified as genocide? 
 
-我：
+我：但这不会被归类为种族灭绝吗？
 
 SE7B:No,not in the slightest.
 
-7号源实体B：
+7号源实体B：不，一点也不。
 
 ME:Why not? 
 
-我：
+我：为什么不？
 
 SE7B:Because they were not lost.In essence they never existed before they were created,as you never existed before you were created. 
 
-7号源实体B：
+7号源实体B：因为它们没有丢失。本质上它们在被创造之前从未存在过，就像你在被创造之前从未存在过一样。
 
 ME:You mean existed as an individual unit of the Source Entity (my Source Entity,SE1- God).The energies that I am always existed as part of the Source Entity and,of course,The Origin. 
 
-我：
+我：你的意思是作为源头实体(我的源头实体，SE1 - 上帝)的一个单独单元存在。我所拥有的能量一直作为源头实体的一部分存在，当然，还有起源。
 
 SE7B:Correct.But they were not simply re-absorbed into my energies.They were modified to allow them to be one of the three remaining types of entities.To re-absorb them would have been a waste of my creativity(not of energy).It was a relatively simple process to modify the energies of the already existing entities into those of another type. 
 
-7号源实体B：
+7号源实体B：正确。但是他们不是简单的被重新吸收到我的能量中。他们被修改成3种剩余实体之一。重新吸收他们将浪费我的创造力(不是能量)。把已经存在的实体的能量修改成另一种类型的实体是一个相对简单的过程。
 
 ME:How did you choose which entity they were modified into? 
 
-我：
+我：你如何选择他们被修改成哪种实体？
 
 SE7B:By looking at their attributes to establish what the percentage,if you like,of their hybrid make-up was and whether they had more attributes of one type than another.If they had,say 50%of the attributes of type 1,30%attributes of type 2 and 20%attributes of type 3,then that entity would be modified to be 100%type 1.On the other hand,if there was an equal spread of type 1,type 2 and type 3 attributes within a specific entity,then that entity was either asked to decide what type it would prefer to be,or if it was undecided,it was placed in what you would call a "pool,"a holding area where the total number of entities that were undecided or showed no particular preference would be equally divided into the three entity types and modified accordingly.That way I achieved the best re-distribution possible of individualized Source Entity Seven/Source Entity Seven"B"energy.
 
-7号源实体B：
+7号源实体B：通过观察他们的属性来确定他们的混合组成的百分比，如果你愿意，以及他们是否拥有一种类型的属性多于另一种。如果他们拥有，比如说50%的类型1属性，30%的类型2属性和20%的类型3属性，那么那个实体将被修改为100%类型1。另一方面，如果在一个特定实体中，类型1，类型2和类型3的属性是等量的，那么那个实体要么被要求决定它更喜欢哪种类型，或者如果它还没有决定，它会被放置在你们所说的“池”中，一个等待区域，在那里还没有决定或没有特别偏好的实体的总数将被等分成三种实体类型并相应地修改。这样我实现了个性化源实体7/源实体7B能量的最佳再分配。
 
 ME:I thought it would be easy to change the energy that was the entity's back into your core energy? 
 
-我：
+我：我认为把实体的能量转换回你的核心能量会很容易？
 
 SE7B:It is,but as I said earlier,it would have been a waste of my creativity.Not only that, removing life from individualized existence,specifically if it has achieved the sentient state of life,is to remove the opportunity to allow an individual the right to evolve,and my opportunity to benefit from that evolution.What's more,there is an unwritten rule between the Source Entities that states that a sentient entity must make dissolution back into its source its own choice and not the choice of the creating Source Entity. 
 
-7号源实体B：
+7号源实体B：是的，但正如我之前所说，这将是浪费我的创造力。不仅如此，从个体化的存在中移除生命，特别是如果它已经达到了生命的有情状态，就是移除允许个体进化的机会，以及我从进化中获益的机会。更重要的是，在源实体之间有一个不成文的规则，一个有情实体必须自行选择溶解回到它的源头，而不是创造它的源实体的选择。
 
 ME:I thought that an entity sought communion or re-integration with its Source Entity through the route of evolution only.Surely re-integration or dissolution bypasses that function. 
 
-我：
+我：我认为一个实体只通过进化的方式寻求与其源实体的交流或重新整合。当然，重新整合或溶解绕过了这个功能。
 
 SE7B:No.You see,there is a major difference in the end product that I will explain further. Re-integration as a result of evolutionary progression results in an entity becoming one with its Source Entity,one with its God.It is integral whilst maintaining individualized thought processes and as a result it augments the functionality of the mind of the Source Entity it is fully integrated into.It gives it extra processing power if you like. 
 
-7号源实体B：
+7号源实体B：不。你看，在最终产品中有一个主要的区别，我会进一步解释。作为进化进程的结果，重新整合导致一个实体与它的源实体，与它的上帝合二为一。它是完整的，同时保持个性化的思维过程，因此它增强了它完全整合到其中的源实体的思维功能。如果你愿意的话，它给了它额外的处理能力。
 
 However,when an entity,through its own volition decides to end its individuality,it both re- integrates and fully dissolves its energies back into the energies of the Source Entity,giving up its right to individualized existence forever.The bulk energies of the Source Entity are, therefore,increased by the product of the total Source Entity energies,plus those of the individualized entities energies,and that evolutionary content that the entity had already accrued,no matter how small it is/was. 
 
+然而，当一个实体，通过自己的意志决定结束它的个性，它既重新整合，又完全溶解了它的能量回到源实体的能量中，永远放弃了它个性化的存在的权利。因此，源实体的总体能量，增加了源实体总能量的乘积，加上个性化实体的能量，以及实体已经积累的进化内容，无论它有多小。
+
 ME:Can this ever be reversed? 
 
-我：
+我：这能被逆转吗？
 
 SE7B:Of course.The entity itself is not aware of this functionality as it can only be activated by the creating Source Entity. 
 
-7号源实体B：
+7号源实体B：当然，实体本身并不知道这个功能，因为它只能被创建源实体激活。
 
 ME:So how and when does that work? 
 
-我：
+我：那么它是如何工作和何时工作的呢？
 
 SE7B:The signature,structure and accrued functionality of the individualized energies of that entity wishing to lose its individuality and become fully one with its Source Entity are recorded,together with the distributed locations of its energetic components,i.e.,those areas within the Source Entity where they are put to best use.In essence,the re-integrated entity can be spread across the full totality that is the Source Entity they were created by. Each energetic component is able to be put to use in some part of the Source Entity it is re- integrating into because the locations,functions and signatures are known by the Source Entity.In the event that it needs or desires to create an individualized part of itself to perform a certain task,it can take those parts of the integrated entity either in whole or in part and individualize it.It can even re-activate those memories and evolutionary content should it be necessary or advantageous to do so. 
 
