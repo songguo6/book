@@ -2071,89 +2071,101 @@ ME:So how and when does that work?
 
 SE7B:The signature,structure and accrued functionality of the individualized energies of that entity wishing to lose its individuality and become fully one with its Source Entity are recorded,together with the distributed locations of its energetic components,i.e.,those areas within the Source Entity where they are put to best use.In essence,the re-integrated entity can be spread across the full totality that is the Source Entity they were created by. Each energetic component is able to be put to use in some part of the Source Entity it is re- integrating into because the locations,functions and signatures are known by the Source Entity.In the event that it needs or desires to create an individualized part of itself to perform a certain task,it can take those parts of the integrated entity either in whole or in part and individualize it.It can even re-activate those memories and evolutionary content should it be necessary or advantageous to do so. 
 
-7号源实体B：
+7号源实体B：希望失去个性并与源实体完全融合的个体化能量的签名、结构和累积功能都被记录下来，还有其能量组件的分布位置，即源实体中那些能最大限度利用它们的区域。本质上，重新整合的实体可以遍布整个整体，即它们被创造的源实体。每个能量组件都能在它重新整合的源实体的某个部分使用，因为位置、功能和签名都被源实体所知。如果它需要或希望创造一个个性化的自身部分来执行某项任务，它可以全部或部分地取出整合实体的那些部分并使之个性化。如果有必要或有利的话，它甚至可以重新激活那些记忆和进化内容。
 
 ME:Are you suggesting that a new individualized entity can be created either as a whole and perfect re-build of that entity that gave up its individuality?Or it can create a completely new entity that is constructed of the chosen composite parts of several entities who chose to give up their individuality by using separate parts,each composite part specifically chosen because of the speciality of the work the new entity is being assigned to? 
 
-我：
+我：你是在暗示一个新的个性化实体可以被创造，要么作为一个整体，要么作为一个放弃个性的实体的完美重建？或者它可以创造一个全新的实体，由几个实体选择的组合部分构成，这些实体选择放弃自己的个性，使用单独的部分，每个组合部分都是特别选择的，因为新实体被分配到的工作的特殊性。
 
 SE7B:Correct. 
 
-7号源实体B：
+7号源实体B：正确。
 
 ME:And this also includes the composite memories and evolutionary content? 
 
-我：
+我：这也包括复合记忆和进化内容？
 
 SE7B:Yes,it does. 
 
-7号源实体B：
+7号源实体B：是的，它有。
 
 ME:So what happens to this entity once created? 
 
-我：
+我：那么这个实体一旦创建后会发生什么？
 
 SE7B:It performs the task it was created for. 
 
-7号源实体B：
+7号源实体B：它执行它被创建的任务。
 
 ME:And after that? 
 
-我：
+我：然后呢？
 
 SE7B:It is given the opportunity to either re-integrate into the creating Source Entity or to commence the standard evolutionary journey by identifying which environment it would like to start this within. 
 
-7号源实体B：
+7号源实体B：它被给予了重新整合到创造源实体中或者通过识别它想要开始的环境来开始标准的进化旅程的机会。
 
 ME:Why would you go to all the hassle of re-individualization,either a whole or composite entity,when,as a Source Entity,you could just create a new entity? 
 
-我：
+我：作为一个源实体，当你能够创造一个新的实体时，为什么你要经历重新个性化的麻烦，无论是一个整体实体还是复合实体？
 
 SE7B:There are two reasons for that.First,there is a specific window during the existence of a Source Entity where it is at its best,creativity-wise.This window is specific to the creation of individualized autonomous entities.This is a cyclic function of Source Entity existence, and as such the need to re-individualize an entity may be outside the optimal part of this cycle.Second,once an individualized entity is created it is specialized into autonomous individualized evolutionary energy,and this specialization remains even in dissolution,so it becomes much easier to re-assemble specialized components of evolutionary energy into whatever a Source Entity wants,such as the total re-construction of a previous entity or the creation of a new entity made up of the composite parts of other dissolved entities rather than to create one from scratch. 
 
-7号源实体B：
+7号源实体B：有两个原因。首先，在源实体存在期间有一个特定的窗口，在那里它处于最佳的创造力。这个窗口是特定于个性化的自主实体的创造。这是源实体存在的循环功能，因此重新个性化一个实体的需求可能超出了这个循环的最佳部分。第二，一旦一个个性化的实体被创造出来，它专门化为自主个性化的进化能量，而这种专门化甚至在解散中仍然存在，因此它变得更加容易重新组装进化能量的专门组件，成为任何一个源实体想要的，例如对以前实体的完全重建或由其他解散实体的复合部分组成的新实体的创造，而不是从头开始创建一个。
 
 ME:That is interesting.I wasn't aware that Source Entities have cycles to work within. 
 
-我：
+我：这很有趣。我不知道源实体有循环工作。
 
 SE7B:Everything has cycles to work within.It is part of the flow of energy around The Origin,and as such we need to work with that flow.Even The Origin does. 
 
-7号源实体B：
+7号源实体B：任何事物都有其运转的周期。这是源头周围能量流动的一部分，因此我们需要与这个能量流动一起工作。即使是源头。
 
 I made a mental note to discuss this with The Origin in the next book,which I now know will make the "Beyond the Source"books a trilogy.It will have the subtitle "The Origin Speaks"and will focus fully on dialogue with The Origin.
 
+我记下了在下一本书中与源头讨论这个问题，我现在知道这将使“超越源头”成为三部曲。它将有一个副标题“起源说话”，并将完全集中在与起源的对话上。
+
 ME:Ok,I will discuss this with The Origin in later dialogues.I would like to discuss the physiology of the three entity types you have-if indeed,they have physiology. 
 
-我：
+我：好的，我会在以后的对话中与源头讨论这个问题。我希望讨论你拥有的三种实体类型的生理学——如果它们确实有生理学的话。
 
 SE7B:No problem.As I stated before,each of these entities has a role to play,and its specialized form is relative to the work it does.As such it enjoys the benefit of being a "round peg in a round hole"in the first instance.However,as it progresses,it then moves to an environment where it is not the round peg in the round hole and,therefore,experiences difficulty in performing its new role and even experiences frustration.To progress this dialogue,I will now explain the form of the entity,the work it performs and the advantage of that form. 
 
-7号源实体B：
+7号源实体B：没问题。 正如我之前所说，这些实体中的每一个都有一个角色，它的专门形式与它所做的工作有关。 因此，它首先享受“圆形的钉子在圆形的洞中”的好处。 然而，随着它的发展，它会进入一个它不再是“圆形的钉子在圆形的洞中”的环境，因此，它在履行新角色时会遇到困难，甚至会感到沮丧。 为了推进这个对话，我现在将解释实体的形式、它所做的工作以及这种形式的优势。
 
 The first entity is energetic in nature.It has the ability to change its magnetic properties at what you would call the sub-atomic level,allowing it to corral the native energies within the environment and create areas of high nuclear activity.You might call them suns or stars. These areas of nuclear activity are used as energy stores for the other two entities to use and work with,allowing them to create.The only issue here is that they need to be maintained from within the area of activity.In essence,the entity uses its magnetic properties to create a cage effectively stopping the energies being corralled from moving away from each other. What's more,these energies need to be compressed over a period of time to maintain the nuclear process.This requires the magnetic field,the cage,to be reduced in size when required.Don't get me wrong,the magnetic field is not the only medium being used to control this process.There are many more,and the first entity has the ability to use many more.It is just that you would only be able to understand/relate to the use of magnetism. The other mediums would and could only be described by what your science fiction writers call force-fields,but that is a very non-descript and general piece of terminology. 
 
+第一个实体本质上是充满能量的。它有能力改变它的磁性，在你们所说的亚原子层面，允许它围捕环境中的原生能量，创造高核活动区域。你们可以称之为太阳或恒星。这些核活动区域被用作能量储存，供另外两个实体使用和工作，允许它们创造。这里唯一的问题是，它们需要在活动区域内进行维护。本质上，这个实体利用它的磁性创造一个笼子，有效地阻止被围捕的能量相互分离。更重要的是，这些能量需要在一段时间内被压缩，以维持核过程。这需要磁场，笼子，在需要时缩小尺寸。不要误解我，磁场不是唯一用来控制这个过程的媒介。有许多，第一个实体有能力使用更多。只是你只能理解/联系到磁性的使用。其他媒介只能用你们科幻作家所说的力场来描述，但那是一个非常笼统的术语。
+
 ME:Is the corralling of energy to create areas of nuclear activity all that they do?How could they learn and evolve by just doing this type of work? 
 
-我：
+我：它们所做的一切就是聚集能量来创造核活动区域吗？它们怎么能通过这种工作来学习和进化呢？
 
 SE7B:My entities are not as complicated as those created by your Source Entity,so in this instance,learning how to corral the energies,creating the nuclear condition and maintaining that condition relative to the changes in energetic content both inside and outside the cage they have created whilst meeting the demands of those entities that are using the energies for creative purposes is a full-time task-especially as each entity has over a million areas of nuclear activity to maintain.The objective of this form of entity is to create,maintain and serve.
 
-7号源实体B：
+7号源实体B：我的实体不像你们的源实体所创造的那些实体那么复杂，所以在这种情况下，学习如何控制能量，创造核条件并保持与它们所创造的笼子内外的能量含量变化相对应的条件，同时满足那些为了创造性目的而使用能量的实体的需求，是一个全职任务——特别是当每个实体有超过一百万个核活动区域需要维护时。这种形式的实体的目标是创造、维护和服务。
 
 The second form is primarily energetic in nature but has the ability to change its density.It has no magnetic or other energetic functionality that is or can be associated with the ability to contain a nuclear condition.However,it can use its ability to change its density to make the tools necessary to use such energies.This entity can assume any form factor required to achieve its goal-being the use of nuclear energies to form materials for the use of the third entity type.The objective of this form of entity is to overcome obstacles,create,and serve. 
 
+第二种形式在本质上主要是能量的，但有能力改变其密度。它没有磁性或其他能量功能，是或可以与包含核条件的能力相关联。然而，它可以使用其改变其密度的能力来制造使用这种能量的必要工具。这个实体可以假定任何实现其目标所需的形状因素——使用核能量来形成第三种实体类型使用的材料。这种形式的实体的目标是克服障碍、创造和服务。
+
 The third entity type is semi physical in nature and would appear to be like a net or cloud that travels through the environment,gathering up the materials created by the second entity type for the purpose of forming the pure material content required to make the objects described in the dialogue you had with Source Entity Seven A's environment-such as the flat planets,their component parts and the creation of the component parts for the other physical entities that exist in this environment,such as the gravity pilots.The objective of this entity is to create the physical from the energetic. 
+
+第三个实体类型是半物理的，在本质上看起来像一张网或云，穿过环境，收集第二个实体类型创造的材料，以形成纯粹的物质内容，以制造你与源实体7A的环境对话中描述的对象，如扁平的行星，它们的组成部分，以及存在于这个环境中的其他物理实体的组成部分的创造，如重力飞行员。 这个实体的目标是从能量中创造物质。
 
 ME:Between them,I would guess that they work as a team and create the content for your environment and the entities for Source Entity Seven A's environment.They are true creators. 
 
-我：
+我：他们之间，我猜他们作为一个团队工作，为你的环境和源实体7A的环境创造内容。他们是真正的创造者。
 
 SE7B:Yes,but they are creators that rely on each other and are limited in what they do.As you can see,each of these works apart from the first entity in a downstream manner-one creating the product for the other to work with.This is why they must each experience each other's work environment and work load. 
 
-7号源实体B：
+7号源实体B：是的，但他们是相互依赖的创造者，并且在他们所做的事情上是有限的。正如你所看到的，这些工作都以下游的方式从第一个实体中分离出来-一个创造了用于另一个工作的产品。这就是为什么他们必须每个人都体验彼此的工作环境和工作负荷。
 
 The additional piece of learning here is,as previously explained,each of them has to experience and perform the other's tasks by using its own ingenuity and specialized skills in order to overcome the difficulties it faces in trying to perform the tasks of the others that are relative to the type of entity and its specialism.This is the learning,appreciation and evolutionary stage.
+
+这里的额外学习是，正如前面解释的，他们中的每一个都必须通过使用自己的创造力和专业技能来体验和执行其他的任务，以克服在试图执行与实体类型及其专业性相关的其他任务时所面临的困难。这是学习、欣赏和进化阶段。
+
+（图4：7号源实体B的三个实体）
 
 ![Figure 4: Source Entity 7b's Three Entities](img/s6-039.png)
 
