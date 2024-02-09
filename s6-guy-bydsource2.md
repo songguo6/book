@@ -2023,7 +2023,7 @@ SE7B:Because they were not lost.In essence they never existed before they were c
 
 ME:You mean existed as an individual unit of the Source Entity (my Source Entity,SE1- God).The energies that I am always existed as part of the Source Entity and,of course,The Origin. 
 
-我：你的意思是作为源头实体(我的源头实体，SE1 - 上帝)的一个单独单元存在。我所拥有的能量一直作为源头实体的一部分存在，当然，还有起源。
+我：你的意思是作为源实体(我的源实体，SE1 - 上帝)的一个单独单元存在。我所拥有的能量一直作为源实体的一部分存在，当然，还有起源。
 
 SE7B:Correct.But they were not simply re-absorbed into my energies.They were modified to allow them to be one of the three remaining types of entities.To re-absorb them would have been a waste of my creativity(not of energy).It was a relatively simple process to modify the energies of the already existing entities into those of another type. 
 
@@ -2171,59 +2171,71 @@ The additional piece of learning here is,as previously explained,each of them ha
 
 ME:Re-reading our dialogue,I don't see that you have described the form factor of your entities. 
 
-我：
+我：重新阅读我们的对话，我没有看到你描述了你们实体的形状因素。
 
 SE7B:It would be difficult for you to visualize that which is purely energetic and formless, which,of course,is what the first two are.The third type has a sort of loose form-hence,the net or cloud-like description that has been described to you in the most logical way possible. 
 
-7号源实体B：
+7号源实体B：你们很难想象纯粹的能量和无形，当然，这就是前两种。第三种类型有一种松散的形式，因此，网状或云状的描述已经以最合理的方式向你们描述过了。
 
 ME:Touche.When these flat planets or the materials for these flat planets are created,how are they transported to Source Entity Seven A's environment? 
 
-我：
+我：说得对。当这些扁平行星或这些扁平行星的材料被创造出来时，它们是如何被运送到源实体7A的环境中的？
 
 SE7B:Via the interface at the outside of the three environments.The same one that allows entities to move from Source Entity Seven A's environment to my environment or my entities to [move to]Source Entity Seven C's environment.
 
-7号源实体B：
+7号源实体B：通过三个环境外部的接口。同样的接口可以让实体从源实体7A的环境移动到我的环境，或者我的实体移动到源实体7C的环境。
 
 ME:OK,that's clear.Thank you. 
 
-我：
+我：好的，很清楚了。谢谢你！
 
 SE7B:It is now time for you to communicate with Source Entity Seven "C."It is waiting for you and has been observing the communication methods you used to establish a continued dialogue with Source Entity Seven "A"and me.Further and final communication with Source Entity Seven "collectively"will follow directly afterward in order to finalize these dialogues and help with the redirection of the link to the Source Entity you will refer to as "Eight."I bid you farewell as a singular entity and will communicate with you in totality as Source Entity Seven later. 
 
-7号源实体B：
+7号源实体B：现在是时候与源实体7“C”进行沟通了。 它正在等待你，并且一直在观察你用来与源实体7“A”和我建立持续对话的沟通方法。 为了最终完成这些对话并帮助重定向到你将称之为“8”的源实体的链接，与源实体7“集体”的进一步和最终沟通将紧随其后。
 
 ### Source Entity Seven C 
 
-And with that last sentence the link between the second or "B"aspect of Source Entity Seven was dissolved.Even before this link was dissolved,Ifelt another link taking place,that of Source Entity Seven“c." 
+**7号源实体C**
+
+And with that last sentence the link between the second or "B"aspect of Source Entity Seven was dissolved.Even before this link was dissolved,I felt another link taking place,that of Source Entity Seven“C." 
+
+随着最后一句话，源实体7的第二个或“B”方面的联系被解除了。甚至在这一联系被解除之前，我感觉到另一个联系正在发生，那就是源实体7“C”。
 
 It should be noted here though that the overall link to Source Entity Seven in "totality"was never lost.Indeed,it was consistently present as a "carrier wave"(See glossary)for the smaller more directional communication links with the separate"A"and "B"aspects of Source Entity Seven.As a result of this,it is still in place and will be used for the dialogue that I am about to have with Source Entity Seven "C." 
 
+在这里应该注意的是，虽然在“整体”中与源实体七的整体联系从未丢失。事实上，它始终如一地作为一个“载波”(见术语表)存在于与源实体七的独立的“A”和“B”方面的更小的定向通信联系中。因此，它仍然存在，并将用于我即将与源实体七“C”进行的对话。
+
 As I thought about the up-coming dialogue with Source Entity Seven "C,"the link automatically established itself.I intuitively knew that this is a function of my energetic self and not something that I have established with that part of me that is associated with the physical.I wonder how I did that?Then,in my mind's eye,I suddenly saw the environment that Source Entity Seven "C" created and was stunned to see that it was like a ball of water hanging in space.I remembered a previous dialogue with Source Entity Two(see Beyond the Source),whose third environment was fluidic in nature.But the fluidic nature that Source Entity Two described to me was based upon an ever changing state of rotational attractivity and not what obviously looked like a liquid to me. 
+
+当我想到即将与源实体七“C”进行的对话时，这个联系自动地建立了它自己。我直观地知道这是我能量自我的一个功能，而不是我与与物质相关的我所建立的某个部分。我不知道我是怎么做到的？ 然后，在我的心灵之眼中，我突然看到了源实体七“C”创造的环境，并震惊地看到它就像一个悬浮在太空中的水球。我记得以前与源实体2的对话(见源头之外)，它的第三个环境本质上是流体的。但是源实体二向我描述的流体本质是基于不断变化的旋转吸引力状态，而不是我所看到的明显的液体。
 
 I was intrigued to find an environment that was clearly "physical"in appearance in an area of The Origin where most,if not all,of the environments created by the Source Entities I had communicated with at that point in time were energetic.I eagerly sought Source Entity Seven "C"to establish if this image and my interpretation were reasonable.I do have to say though that the prospect of an environment that was liquid in consistency was not likely,for in my understanding,a liquid is a function of the physical universe in which I or part of me currently existed.Was I pre-empting the information I was receiving?I decided to not overlay this information with my own thought processes and commenced the dialogue with Source Entity"C." 
 
+我很好奇地发现，在起源的一个区域，有一个明显是“物理”外观的环境，在那里，如果不是全部，那么大多数，我当时与之沟通的源实体所创造的环境都是充满活力的。我急切地寻找源实体七“C”，以确定这个图像和我的解释是否合理。我必须说，尽管一个环境的前景是液体的稠度不太可能，但在我的理解中，液体是我或我目前存在的一部分的物理宇宙的功能。我是否抢占了我正在接收的信息？我决定不把这个信息与我自己的思想过程重叠起来，并开始与源实体“C”对话。
+
 ME:I feel that you have made contact with me.Can we speak? 
 
-我：
+我：我觉得你已经与我取得了联系。我们能说话吗？
 
 SE7C:G'day. 
 
-7号源实体C：
+7号源实体C：你好。
 
 Again,said in an Australian accent,the accent used by Source Entity Seven "in totality."I had gotten used to a neutral accent with Source Entity Seven "B"(not commented on in the text),and as a result,it took me by surprise. 
 
+再次，用澳大利亚口音说，这是源实体7“完全”使用的口音。我已经习惯了源实体7“B”(在文本中没有评论)的中性口音，结果，它让我感到意外。
+
 ME:You caught me unawares then.I had become used to "B's"neutral accent.
 
-我：
+我：你让我措手不及，我已经习惯了“B”的中性口音。
 
 SE7C:I can adopt a neutral accent if you wish.I was following that communication method used by our "totality.I trust what you are receiving now is to your acceptance. 
 
-7号源实体C：
+7号源实体C：如果你愿意，我可以采用中性的口音。我正在遵循我们“全体”使用的沟通方法。我相信你现在接收到的东西是可以接受的。
 
 ME:Sorry,I didn't need you to change your accent to suit my requirements.What you had was fine.It just caught me out,but I do thank you for thinking of me and my limitations. 
 
-我：
+我：对不起，我不需要你改变你的口音来满足我的要求。你已经很好了。它只是让我措手不及，但我确实感谢你想到我和我的局限性。
 
 SE7C:You are not as limited as you think.In fact,there is quite a crowd forming around the galaxy your earth sphere is manifested in.The beings in the crowd are watching with intense interest the human who is in contact with The Origin and the Source Entities.To travel around a universe where one is existing is one thing.To travel around the multiverse of a Source Entity is another,but to be able to break through the barrier of a Source Entity and its environment,dip into the environments of other Source Entities and communicate directly with The Origin is quite another.You are creating quite a stir.You are a sensation. 
 
