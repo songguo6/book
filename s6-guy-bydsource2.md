@@ -2239,133 +2239,143 @@ ME:Sorry,I didn't need you to change your accent to suit my requirements.What yo
 
 SE7C:You are not as limited as you think.In fact,there is quite a crowd forming around the galaxy your earth sphere is manifested in.The beings in the crowd are watching with intense interest the human who is in contact with The Origin and the Source Entities.To travel around a universe where one is existing is one thing.To travel around the multiverse of a Source Entity is another,but to be able to break through the barrier of a Source Entity and its environment,dip into the environments of other Source Entities and communicate directly with The Origin is quite another.You are creating quite a stir.You are a sensation. 
 
-7号源实体C：
+7号源实体C：你并不像你想的那样受限。事实上，在你地球所在的银河系周围已经形成了相当大的群体。群体中的生物正带着强烈的兴趣注视着与起源和源实体有联系的人。在你所存在的宇宙中旅行是一回事。在源实体的多维宇宙中旅行是另一回事，但是能够突破源实体及其环境的屏障，深入到其他源实体的环境中并直接与起源沟通是完全不同的另一回事。你正在制造相当大的轰动。你是一个轰动。
 
 ME:You are embarrassing me. 
 
-我：
+我：你让我很尴尬。
 
 SE7C:Why would I want to do that?I have no need or desire to.Ah!I see your heritage.Now I see why and how you can do what you are doing.You are OM. 
 
-7号源实体C：
+7号源实体C：我为什么要那样做？我没有需要或欲望。啊！我看到了你的遗传。现在我知道你为什么以及如何能做你正在做的事情。你是OM。
 
 I had been told this before(that I was OM)but had decided to put it to one side.I did not want to promote illusions of grandeur.Instead,I felt very silly that it had come up again,especially as it was suggested that I was drawing a crowd.And not only that,an intergalactic one to boot! 
 
+以前有人告诉过我(我是OM)，但决定把它放在一边。我不想促进宏伟的幻想。相反，我觉得它再次出现很愚蠢，特别是当它表明我正在吸引人群。不仅如此，一个星际之间的启动！
+
 Quite out of the blue,and with no knowledge of this dialogue,my wife had received the same information in one of her meditations.Scary! 
+
+完全出乎意料，在对这个对话一无所知的情况下，我的妻子在一次冥想中收到了同样的信息。可怕！
 
 I decided to forge onward with my agenda of questions rather than dwell on such an ego-inflating subject but was headed off at the pass by Source Entity Seven "C."It had something else to say about me. 
 
+我决定继续推进我的问题议程，而不是停留在这样一个自我膨胀的话题上，但被源实体7号“C”挡在路口。它还有关于我的其他事情要说。
+
 SE7C:I will explain to you something about yourself that your own Source Entity has not shared with you yet.You clearly have the ability to move outside of the structure of your Source Entity's multiverse.When you first started to use the rather mechanical means you invented to help you move up the frequencies,you truncated the 430 frequency bands(12 dimensions x 3 dimensional components x 12 frequency bands 432.Taking into account that the first three dimensional components (tritaves)are effectively "one"in the lowest dimension,this makes it 430 frequency bands because the rest of the tritaves are considered individual within the full dimension in which they exist.Also,note that as a frequency band is associated with a particular dimensional component,in actuality it becomes a permutation of space,a universe in its own right)that are associated with your multiverse, to 100-hence,your rather round figure of 100 levels.Your Source Entity did not deny the figure.Because you had traversed the 430 levels in 100 steps and not 430,you missed out certain levels.When you achieved this,you attracted the attention of your Source Entity and The Origin,who commenced dialogue with you in order to encourage you and let your ability grow.They saw your evolutionary opportunities and were/are keen to see you progress. 
 
-7号源实体C：
+7号源实体C：我要向你解释一些关于你自己的事，你自己的源实体还没有与你分享。你显然有能力移动到你源实体的多维宇宙结构之外。当你第一次开始使用你发明的机械方法来帮助你提升频率时，你截断了430个频带(12维度x3维度组件x12个频带432。考虑到第一个三维组件(三度)在最低维度中有效地是“一个”，这使它成为430个频带，因为其余的三音阶被认为是它们存在的完整维度中的个体。此外，请注意，由于一个频带与一个特定的维度组件相关，实际上它成为空间的排列，它自己的宇宙)与你的多维宇宙相关，到100，因此，你相当圆的100个水平数字。你的源实体没有否认这个数字。因为你已经在100步中穿越了430个水平而不是430个，你错过了某些水平。当你做到这一点时，你吸引了你的源实体和起源的注意，他们开始与你对话，以鼓励你并让你的能力成长。他们看到了你的进化机会，并渴望看到你的进步。
 
 ME:If that is true then,the levels that mankind's universe exists within also span the lower two frequency bands/levels of the lowest tritave in the second full dimension.That is,humanity can/will occupy the twelve frequency bands/levels in the first full dimension, plus the first two frequency bands of the first tritave in the next full dimension.That equals fourteen and makes sense. 
 
-我：
+我：如果是这样的话，人类宇宙存在的层也跨越了第二个完整维度中最低三等分的两个频带/层。也就是说，人类可以/将占据第一个完整维度的12个频带/层，加下一个完整维度中第一个三等分的前两个频带。这等于14个，而且有道理。
 
 SE7C:Correct.Mankind is ascending and will soon be able to occupy,in part,those two levels,the ones you call levels thirteen and fourteen,which,to current physical mankind's perspective would be classed as energetic.This is why you established that the physical universe is made up of 14 levels.It is because part of the universe that mankind occupies is moving up the frequencies.At some point in mankind's evolution,the lower frequencies will be closed to mankind because mankind will have ascended beyond the need for interaction with the physical. 
 
-7号源实体C：
+7号源实体C：正确。人类正在提升，不久将能够部分占领那两个级别，你称之为第13和14级，从当前物质人类的角度来看，这两个级别被归类为高能级。这就是为什么你确立了物质宇宙由14个级别组成。这是因为人类所占领的宇宙部分正在提升频率。在人类进化的某个时刻，低频率将对人类关闭，因为人类将提升到与物质世界互动的需要之外。
 
 ME:Ah,now it makes sense.I was struggling with that one.To me,it just did not add up.I was getting worried that I was getting conflicting information.I was starting the think that I had gotten something totally wrong or was missing something,which I obviously was. 
 
-我：
+我：啊，现在有道理了。我一直在与那个斗争。对我来说，它就是不合逻辑。我开始担心我得到的是相互矛盾的信息。我开始认为我完全弄错了，或者错过了什么，很明显我错了。
 
 SE7C:Everything is revealed at the right time.One other thing that you need to be aware of is the way you operate.You effectively cut across the frequencies,tritaves and dimensions in any way you feel fit.You are not limited to the linear progression or dimensional/ tritave/frequential movement that many entities are.You are fully free.This is why you can communicate with the other Source Entities.This is another reason why you grabbed the attention of your Source Entity and The Origin.It is also the main reason why you are being allowed to communicate with me and the other Source Entities. 
 
-7号源实体C：
+7号源实体C：每件事都在正确的时间被揭示。另一件你需要知道的事情是你操作的方式。你有效地切断了频率，三阶和维度，以任何你觉得合适的方式。你不像许多实体那样被限制在线性进程或维度/三阶/频率运动中。你是完全自由的。这就是为什么你可以和其他源实体交流。这也是为什么你能抓住你的源实体和起源的注意力。这也是为什么你被允许和我以及其他源实体交流的主要原因。
 
 Know this:Most entities are currently restricted to the confines of their Source Entity and can only communicate with their Source Entity and The Origin as a direct line of communication.Being able to circumnavigate this restriction is an honor.Use it wisely.Use it well. 
 
+要知道，大多数实体目前被限制在它们的源实体的范围之内，只能与它们的源实体和起源进行直接的交流。能够绕过这个限制是一种荣誉。明智地使用它。好好地使用它。
+
 ME:I will.Thank you.You also seem to know now that I am OM.I have been told this before by my own Source Entity,Byron,Hum and an intuitive friend,but to be honest,I have not given it too much thought.However,I did have a flash of information whilst considering what I had typed as my "personal thoughts"(in italics above).The information (and I am really sensitive about typing this,let alone including it in this book)suggests that the OM is an abbreviation of two words in English,Original Material or Original Manifestation.I also received the information/impression that this Original Material/Manifestation is "Origin" energy remaining from the creation of the twelve Origins,the experiment that failed.Is this suggesting that I or my energy is from The Origin and NOT from my Source Entity?How can this be?People will be thinking that I am getting delusional. 
 
-我：
+我：我会的。谢谢你！你现在似乎也知道我是OM。我自己的源实体、拜伦、HUM和一个直觉的朋友以前就告诉过我这个，但说实话，我没有想太多。然而，当我在考虑我打出来的“个人想法”(上面斜体字)时，我确实有了一个闪光的信息。 这个信息(我对打出这个很敏感，更别说把它包括在这本书里了)表明OM是英文中两个词的缩写，原始材料（Original Material）或原始显现（Original Manifestation）。我也收到了这个信息/印象，这个原始材料/显现是12个起源创造失败后留下的“起源”能量。这是否表明我或我的能量来自起源而非我的源实体？怎么会这样？人们会认为我开始妄想。
 
 SE7C:No,you are not delusional nor should you be concerned.You should be honored to know such information.You may recall that in your communications with "B,"you were advised that the fourth set of entities in its environment were either re-assigned to be one of the other three or were assimilated into "B"for use at or in a future event.You may also remember that in the event that an entity chose assimilation where the energy that was the fourth entity type was broken up and used for other purposes-including full and partial integration into that which it was as the previous entity or used to create another entirely new composite entity,it retained the signature of energy that was given individuality, purpose and the ability to experience,learn and evolve.
 
-7号源实体C：
+7号源实体C：不，你不是妄想，你也不应该担心。你应该感到荣幸知道这些信息。你可能记得在你与“B”的通信中，你被告知第4种实体在其环境中要么被重新分配到其他3种实体中的一个，要么被同化到“B”中，以便在未来事件中使用。你可能还记得，在一个实体选择同化的情况下，第4种实体类型的能量被分解并用于其他目的，包括完全和部分地整合到之前的实体中，或用于创造另一个全新的复合实体，它保留了赋予个性、目的和体验、学习和进化能力的能量签名。
 
 ME:Yes,I do remember that. 
 
-我：
+我：是的，我确实记得。
 
 SE7C:Well,when The Origin reintegrated those energies that it had used to create the twelve Origins,the signature of that energy was not lost.It was merely integrated back into use for the creation of the Source Entities.The Source Entities,us,were actually created using some of this energy with "Origin"characteristics.However,when it was amalgamated into the Source Entities,it did not mix very well.It maintained its own boundaries and was difficult to share evenly and equally among all the Source Entities when we were created.It was like mixing oil with water,so to speak.When your Source Entity created the energies it was to use to populate its environment,giving it the signature of the ability to experience,learn and evolve,the energies that were of Original Manifestation energy were the first to be let loose.You(incarnate you)are part of one of those energies. 
 
-7号源实体C：
+7号源实体C：当“起源”重新整合那些用来创造12个起源的能量时，那种能量的特征并没有丢失。它仅仅被整合回去用于创造源实体。源实体，我们，实际上是用一些具有“起源”特征的能量创造出来的。然而，当它被合并到源实体中时，它并没有很好地混合。它保持了自己的边界，当我们被创造出来时，它很难在所有的源实体中均匀平等地分享。可以说，它就像油和水混合在一起。当你的源实体创造了它将用来填充其环境的能量，赋予它体验、学习和进化的能力的特征时，原始显化能量的能量是第一个被释放的。你(化身你自己)是那些能量之一的一部分。
 
 ME:Why was I not told this by my Source Entity or The Origin? 
 
-我：
+我：为什么我的源实体或“起源”没有告诉我这个？
 
 SE7C:Quite simply,you were not supposed to know then. 
 
-7号源实体C：
+7号源实体C：很简单，你当时不应该知道。
 
 ME:So why are you telling me now? 
 
-我：
+我：那你为什么现在告诉我？
 
 SE7C:Because of the need to accelerate your knowledge.You have/are progressing faster than planned in your current state and need to know why you are supposedly breaking the rules.You have no rules.You and the OM are Original Material,and you are part of The Original Manifestation. 
 
-7号源实体C：
+7号源实体C：因为需要加速你的知识。你已经/正在比你当前状态的计划进展得更快，需要知道为什么你应该打破规则。你没有规则。你和OM是原始材料，你是原始显现的一部分。
 
 ME:Should not my Source Entity have told me this,or at least The Origin.Why you? 
 
-我：
+我：我的源实体不应该告诉我这个，或者至少是起源。为什么是你？
 
 SE7C:It was not important what "Source"was used for your gaining this information;it was all about the timing.You are a child of The Origin with a foster parent of the Source Entity. Your Source Entity set you free in its initial casting out of energy to create the beings that populated its environment.Similar versions of the OM are in other Source entities,but for some reason your Source Entity had the lion's share of the energies.This is possibly because it was the first,by a few nanoseconds,to be created when The Origin created the twelve Source Entities.It is no mistake you call your Source Entity,Source Entity One. 
 
-7号源实体C：
+7号源实体C：你获得这个信息所使用的“源”并不重要，重要的是时间。你是起源的孩子，源实体是你的养父母。你的源实体在最初释放能量时释放了你，创造了在其环境中生存的生物。其他源实体也有类似的OM版本，但由于某种原因，你的源实体拥有最大的能量份额。这可能是因为当起源创造12个源实体时，它是第一个被创造出来的，比其他的早几纳秒。你把你的源实体称为1号源实体，这没有错。
 
 ME:So there are,err,globules of OM everywhere-within and without the Source Entities? 
 
-我：
+我：所以，呃，OM球体无处不在——源实体内部和外部？
 
 SE7C:Within the Source Entities,yes.But as I said,your Source Entity seems to have the lion's share of this energy.Without the Source Entities?No,this is not a regular occurrence -hence,why you are causing a bit of a stir.In fact,you are one of five OM to be "re-born" from your Source Entity who have the ability to move outside their fostering Source Entity. The other four-my mind went back to the memory of the four individuals I saw in a waking meditation some thirty odd years ago,telling me that all that I knew and was working on was correct,but it was not the right time for me to progress it further-that are associated with you have not incarnated with you in the physical plane nor will they,for they are supporting you and your work,which I am told goes beyond that which you are currently experiencing. 
 
-7号源实体C：
+7号源实体C：在源实体内部，是的。但正如我说的，你的源实体似乎拥有这能量的最大份额。没有源实体？不，这不是经常发生的——因此，为什么你正在引起一点骚动。事实上，你是五个OM之一，从你的源实体“重生”，他们有能力移动到培养他们的源实体之外。其他4个——我的脑海中回到了30多年前我在清醒的冥想中看到的4个人的记忆，告诉我所有我知道和正在做的事情都是正确的，但那不是我进一步推进它的合适时间——与你相关的4个人还没有和你在物质层上化身，他们也不会，因为他们支持你和你的工作，我被告知这超出了你目前正在经历的。
 
 ME:Can I,should I ask you what that is now? 
 
-我：
+我：我能，我应该问你现在是什么吗？
 
 SE7C:No,it would be a distraction.You will get plenty of time for that in the extended and exclusive dialogue you are due to have with The Origin in the text you already know will be called "The Origin Speaks."
 
-7号源实体C：
+7号源实体C：不，这会分散注意力。你将有足够的时间在你已经知道的被称为“起源说话”的文本中与起源进行的扩展和独家对话中进行。
 
 ME:Sorry,I am getting a bit flustered at this information.I have one more question. Shouldn't I be able to do more than I am?I mean,shouldn't I have more faculties/powers? I feel that if I am of the OM,of The Origin's Original Material/Manifestation,should I not be performing miracles?Shouldn't I be a great Yogi materializing this,that and the other?Levitating,teleporting,saving individuals and countries from starvation and strife? Teaching the truth on a grand scale? 
 
-我：
+我：对不起，我对这个信息感到有点慌乱。我还有一个问题。我应该能做得比现在更多吗？我的意思是，我应该有更多的能力/力量吗？我觉得如果我是OM，起源的原始材料/显现，我应该不表演奇迹吗？我应该不是一个伟大的瑜伽士实现这个，那个和其他的吗？漂浮，瞬间移动，从饥饿和冲突中拯救个人和国家？在宏大的规模上教导真理？
 
 SE7C:No,first I am advised that YOU chose the level of functionality you currently have whilst this small part of you is projected into the physical.I also note that you understand that the lower down the frequencies you go,the less functionality you have.This is very much in "play"here.Second,being OM only really gives you a signature that originates from The Origin's creativity and not directly from your Source Entity's creativity.Your abilities whilst in the energetic are similar to both Source Entity and Origin but majoring on The Origin with,of course,the exception being that you can traverse beyond your Source Entity and the other Source Entities,which is an Origin-based function.Is that not miracle enough for you,especially when such a small part of you is in the physical?You are doing what you signed up to do.On a worldwide scale,your books and your lectures/talks,both in groups and one on one,are starting to help increase mankind's understanding of your Source Entity's multiverse and that which is beyond,The Origin and the other Source Entities.You are also helping to increase the frequencies of the earth.Ah!I see that you have residual memory of your ability;this can be a big distraction and could inhibit you if you dwell on it too long.My advice is that you be content with what you are doing and move on with your purpose.
 
-7号源实体C：
+7号源实体C：不，首先我被告知你选择了你目前拥有的功能水平，而你的这一小部分被投射到物质层中。我也注意到你明白了你越往下走频率越低，你拥有的功能就越少。这在这里是非常“玩”的。 第二，OM只真正给了你一个来自起源创造力的签名，而不是直接来自你的源实体的创造力。你在能量层中的能力与源实体和起源相似，但主要集中在起源上，当然，例外是你能穿越超越你的源实体和其他源实体，这是一个基于起源的功能。这对你来说还不够神奇吗，特别是当你这么小的一部分在物质层中？我看到你对你的能力还有残余记忆；如果你停留太久，这会让你分心，并抑制你。我的建议是，你应该对你正在做的事情感到满意，并朝着你的目标前进。
 
 ME:OK,enough of me,or what I currently don't recognize as me.Let's move on,as you say. When I first contacted you,I received an image of your environment as being like a sphere of liquid,rather like water.Is that right?I find it hard to believe that you have an environment made up of,err,water. 
 
-我：
+我：好吧，我已经说够了，或者说我现在不认识我自己了。让我们继续前进，就像你说的。当我第一次联系你时，我收到的你的环境的图像是一个液体球体，更像水。是吗？我发现很难相信你有一个由，呃，水组成的环境。
 
 SE7C:It isn't water but the make-up of the energy might give it similar properties to water or any other liquid you have on earth. 
 
-7号源实体C：
+7号源实体C：它不是水，但是能量的组成可能使它具有类似水或地球上其他任何液体的性质。
 
 ME:What do you mean similar properties to water? 
 
-我：
+我：你说类似水的性质是什么意思？
 
 SE7C:Looking at the way entities in your universe move/transport themselves in this most dense of environments,it would have a similar effect on the entities that exist in my environment.For example,it offers a significant level of resistance to their personal freedom of movement. 
 
-7号源实体C：
+7号源实体C：看看你们宇宙中的实体在这个最密集的环境中移动/运输自己的方式，它会对我环境中的实体产生类似的影响。例如，它对他们个人的行动自由提供了显著的阻力。
 
 ME:I keep getting this picture of an aquarium or huge,universe-sized goldfish bowl. 
 
-我：
+我：我一直得到这个水族馆或巨大的、宇宙大小的金鱼缸的画面。
 
 SE7C:That is because your information data bank is only able to give you a universe sized goldfish bowl as an example of how the combination of frequencies is constructed in my environment. 
 
-7号源实体C：
+7号源实体C：那是因为你们的信息数据库只能给你们一个宇宙大小的金鱼缸作为例子，来说明频率的组合在我的宇宙环境中是如何构建的。
 
 I received more conceptual information from Source Entity Seven "C." 
+
+我从源实体7号“C”那里收到了更多的概念性信息。
 
 ME:I feel that you have just given me a rather radical concept to consider here in describing your environment.(I must stop using the word,"environment.")This is a real conundrum to me.The frequencies,dimensions and dimensional components are all interwoven with no clear demarcation like there is in my Source Entity's multiverse.
 
