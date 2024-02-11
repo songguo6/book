@@ -2379,105 +2379,117 @@ I received more conceptual information from Source Entity Seven "C."
 
 ME:I feel that you have just given me a rather radical concept to consider here in describing your environment.(I must stop using the word,"environment.")This is a real conundrum to me.The frequencies,dimensions and dimensional components are all interwoven with no clear demarcation like there is in my Source Entity's multiverse.
 
-我：
+我：我觉得你刚刚给了我一个相当激进的概念来考虑这里描述你的环境。(我必须停止使用“环境”这个词。) 这对我来说是一个真正的难题。 频率、维度和维度成分都交织在一起，没有明确的界限，就像在我的源实体的多维宇宙中一样。
 
 SE7C:Correct.They are all merged together,nothing being separate but everything being together.It makes things compact.That is why you perceived the liquid-like condition of my environment. 
 
-7号源实体C：
+7号源实体C：正确。它们都融合在一起，没有任何东西是分开的，但一切都在一起。它使事物紧凑。这就是为什么你感觉到我环境的液态状态。
 
 ME:Isn't this a bit like the "composite dimensions"that Source Entity Six described to me in Beyond the Source? 
 
-我：
+我：这不有点像6号源实体在《超越源头》中向我描述的“复合维度”吗？
 
 SE7C:No,only in name,and that name is only used to help you understand,which clearly at this point in our dialogue,you don't. 
 
-7号源实体C：
+7号源实体C：不，只是名字，那个名字只是用来帮助你理解，在我们对话的这一点上，你显然不明白。
 
 ME:Hold on.Give me chance.I have just received some clarity in the image that I am receiving.The ball or goldfish bowl is not really liquid in appearance;it is more like steel, round shiny and hard.That's it;it looks like a ball bearing!It was the shiny outer surface that took me by surprise.A drop of liquid has some reflective properties in my physical universe, and so does a ball bearing. 
 
-我：
+我：等一下。给我机会。我刚刚在接收到的图像中得到了一些清晰。这个球或金鱼缸在外观上并不是真正的液体； 它更像钢铁，圆润光滑而坚硬。就是它； 它看起来像一个滚珠轴承！ 是它光滑的外表面让我吃惊。一滴液体在我的物理宇宙中有一些反射特性，滚珠轴承也是如此。
 
 I was starting to realize that the sphere was a common shape.It had appeared in some way in all the different Source Entities'multiverses I had encountered;it even looked like it was a common shape within The Origin.I decided to mentally file this away and ask The Origin about this possible "constant"later. 
 
+我开始意识到这个球体是一种常见的形状。它以某种方式出现在我所遇到的所有不同源实体的多维宇宙中；它甚至看起来像源头内部的一个常见形状。我决定在心里把它存档起来，稍后问源头关于这个可能的“常数”。
+
 SE7C:The perceived appearance of my environment is merely metaphorical.That which you are seeing/perceiving is a direct result of the intertwining.Is this the correct word?
 
-7号源实体C：
+7号源实体C：我所感知的环境的外观仅仅是隐喻性的。你所看到/感知的是一个直接的相互交织的结果。这是正确的词吗？
 
 ME:It will do. 
 
-我：
+我：它会的。
 
 SE7C:The intertwining of the dimensions,dimensional components and the frequencies provides you with no logical datum point to use.In essence,they are all one.Let me explain further.
 
-7号源实体C：
+7号源实体C：维度、维度分量和频率的交织，使你无法找到逻辑基准点。本质上，它们都是一个。让我进一步解释。
 
 ![图5](img/s6-040.png)
 
 This environment is a bit like a mobius loop within a mobius loop within a mobius loop.I can see you frowning. 
 
+这个环境有点像一个莫比乌斯环中的莫比乌斯环中的莫比乌斯环。我能看见你在皱眉。
+
 ME:You bet I'm frowning.I can see a headache coming on. 
 
-我：
+我：我当然在皱眉了。我能感觉到头疼。
 
 SE7C:Let me give you an example.The area that would be occupied logically in your Source Entity's environment is as follows: 
 
-7号源实体C：
+7号源实体C：让我给你举个例子。逻辑上，在你们源实体的环境中所占据的区域如下：
 
 A full dimension is constructed of three dimensional components or tritaves.Each tritave, except the first three tritaves,which are used to create the base full dimension only,are inflated with twelve base frequency sets.This structure is duplicated in what you would recognize as an upward manner. 
 
+一个完整的维度是由三维组件或三音阶组成的。除了前三个三音阶，它们只用于创建基本的完整维度，其余的三音阶都被十二个基本频率集膨胀。这个结构是以你所能识别的向上的方式复制的。
+
 ME:Yes,I know this quite well,and we just discussed it.Thank you. 
 
-我：
+我：是的，我知道得很清楚，我们刚刚讨论过。谢谢你！
 
 SE7C:Bear with me.Well,in my environment,one of the tritaves can be substituted with a base frequency or,indeed,a full dimension.Also,a full dimension can be substituted with a base frequency or a tritave.Similarly a base frequency can be substituted with a full dimension or a tritave or both.With all of this happening concurrently,one can see an intricate weave of dimensional component,base frequency and full dimension.Try to imagine it as the biggest knot you have ever seen! 
 
-7号源实体C：
+7号源实体C：请耐心等待。在我的环境中，一个三阶振幅可以被基频或一个完整维度所替代。同样，一个完整维度可以被基频或一个三阶振幅所替代。同样，一个基频可以被一个完整维度或一个三阶振幅或两者都替代。所有这些同时发生，人们可以看到一个复杂的维度组件、基频和完整维度的编织。试着把它想象成你见过的最大的结！
 
 I tried.It was difficult.And,yes,dear reader,my head hurt. 
 
+我试过。这很难。是的，亲爱的读者，我的头疼。
+
 SE7C:It is best not to try too hard.I see that you are looking from the outside of me/my environment. 
 
-7号源实体C：
+7号源实体C：最好不要太努力。我看到你从我/我的环境的外部看。
 
 ME:Yes,it still looks like a steel ball.But wait,I get the impression that there are,just as you insinuated by the word "Knot"-lots and lots of little loops with each loop being a connection to each of the dimensions,tritaves and frequency bands.It is as if they are all joined together even though they can and do pervade each other's logical"space."As you say, each of the components of frequency dimension or dimensional component(tritave)can replace each other.And again,as you say,this is not restricted in a one for one replacement as,for instance,two or even three full dimensions can sit in the location/position or whatever of say,a single frequency band.Or even a single tritave can be positioned in its logical position,plus that of a full dimension or a frequency band.Just then,I saw the connections between the environmental components twisting and weaving as the locations changed.It is a bit like an ever changing knot.It even looks like a bucket of snakes,except that the snakes are all linked together.It is quite bizarre. 
 
+我：是的，它看起来仍然像一个钢球。但是等一下，我得到的印象是，就像你通过“结”这个词暗示的那样，有很多很多的小圈，每个圈都连接到每个维度、三阶振幅和频带。即使它们可以并确实渗透到彼此的逻辑“空间”，它们似乎都连接在一起。正如你所说，频率维度或维度组件(三阶振幅)的每个组件都可以相互替代。再一次，正如你所说，这并不局限于一个对一个的替换，例如，两个或甚至三个完整的维度可以坐在位置或任何单一频带。甚至一个单一的三维可以被定位在它的逻辑位置，加上一个完整的维度或一个频带。就在那时，我看到环境组件之间的连接随着位置的变化而扭曲和交织。它有点像一个不断变化的结。它甚至看起来像一桶蛇，除了蛇都连在一起。这是相当奇怪的。
+
 SE7C:It is not bizarre to me because it has purpose. 
 
-7号源实体C：
+7号源实体C：对我来说这并不奇怪，因为它有目的。
 
 ME:OK,that's a good thing to start with.What is the purpose of this ever changing,fully substitutional knot of a ball bearing-looking environment?
 
-我：
+我：好的，这是一个很好的开始。这个不断变化的，完全替代的球轴承环境的结的目的是什么？
 
 SE7C:Its purpose is simply to create confusion in terms of an entity's orientation within the environment. 
 
-7号源实体C：
+7号源实体C：它的目的只是为了在环境中创造一个实体的方向性混乱。
 
 ME:What do you mean confusion?I would have thought that confusion was a fairly small purpose for an environment with such a complicated structure. 
 
-我：
+我：你说的混乱是什么意思？我认为对于一个结构如此复杂的环境来说，混乱是一个相当小的意图。
 
 SE7C:Not in the slightest,for this is a most taxing environment to exist within.The method of evolution is in the functionality of the environment and how the entity works with it.I can see you frowning again,so I will explain further. 
 
-7号源实体C：
+7号源实体C：一点也不，因为这是一个最费力的环境。进化的方法是环境的功能性以及实体如何与之合作。我能看到你又皱眉了，所以我将进一步解释。
 
 The environment changes in a way that is not logical to its representation.Because the individual tritaves can either be next to a frequency band,be a frequency band,or be a full dimension rather than a component of a full dimension,their characteristics are not consistent with the characteristics of a tritave-for example,in its correct and logical structural position.This means that movement from one permutation of space to another is not recognizable as ascension or descension. 
 
+环境的变化方式与其表现形式不符逻辑。因为单个三音节要么在频带附近，要么是一个频带，或者是一个完整的维度而不是一个完整维度的组成部分，它们的特征与三音节的特征不一致，例如，在它正确和逻辑的结构位置。这意味着从一个空间排列到另一个的运动不能被识别为提升或下降。
+
 ME:So you are suggesting that ascension is not possible in this environment and that this is a function of its structure? 
 
-我：
+我：所以你的意思是在这个环境中提升是不可能的，这是其结构的功能？
 
 SE7C:That is a very good point.Actually,there is only one level of ascension available to the entity as a result of working with this environment.And as you quite rightly suggested,this is a function of its structure.Please note though that the amount of work undertaken by my entities to work and traverse this environment does not go unrewarded,for the equivalent ascension profile is equal to two of those evolutionary levels attained by existing within Source Entity A B's environments.In actuality,it is equivalent to the evolution gained by working in and graduating from“A"and“B's”combined environments. 
 
-7号源实体C：
+7号源实体C：这个问题提得很好。事实上，由于与这个环境共存，实体只有一个提升级别。正如你正确地指出的，这是其结构的功能。请注意，我的实体为工作和穿越这个环境所承担的工作量并不是没有回报的，因为等效提升概况等于存在于源实体A和B的环境中所获得的两个进化级别。实际上，它等同于在“A”和“B”的结合环境中工作并毕业所获得的进化。
 
 ME:Thank you.I have been receiving images and feelings of dual existence whilst in this mixed up evolutionary arena.Can you explain what I am receiving,for it is something that I am having difficulty translating into recognizable imagery. 
 
-我：
+我：谢谢。在这个混合的进化舞台上，我一直在接收双重存在的图像和感觉。你能解释我正在接收的东西吗？ 因为我很难把它转化成可识别的图像。
 
 SE7C:OK,I can see your difficulty.When an entity that is working in what you would call the frequency band associated with a particular dimensional component and is,in turn, associated with a full dimension,it is able to move on to the next frequency band through its work in experiencing that which it desires to experience.It doesn't just move on to the next logical frequency band. 
 
-7号源实体C：
+7号源实体C：好的，我能看出你的困难。当一个实体在你所说的频带中工作，与一个特定的维度组件相关联，反过来，与一个完整的维度相关联，它能够通过它在经历中所希望经历的，移动到下一个频带。它不仅仅是移动到下一个逻辑频带。
 
 ME:No,don't explain further;let me see if I can understand what is happening.I think I understand now.It moves into the space that is associated with the dimensional component/full dimension etc.That is,"in the place of"that next frequency band.This means that it occupies and exists within the space between the permutation of space that would be the next logical step if the next step was to be into a frequency band.Not only that, I get the feeling that it ends up in two places at once as a result.Further,the entity,with the space being what it is,what I would classify as a permutation of non-space,does not really occupy it because for the entity,it does not really exist.It leaves a part of itself in the frequency band that it previously occupied whilst the other part,that part that is looking for the next permutation to exist and work within,looks for the frequency band that would logically be next in line.It has to traverse all of the different permutations of non-space to find it,and that may and does include working with those energies that are associated with the non-space before it can progress because progression can only really happen in the frequency bands.The entities can end up being in two environments concurrently on a permanent basis if not careful,space and non-space,because the entity has the possibility of becoming lost.It has to hone its personal multi-dimensional,multi-frequency,multi- dimensional component(tritave)navigation system to the most accurate it can ever be in order to be successful.By learning from its experiences and applying that learning,the entity eventually finds the frequency band that is next in whatever guise it assumes.Once it has done that,the entity can "reel"in that part of itself that remained in the previous frequency band,that part of it that remained in the frequency band that the entity had "grown out of"being used as a sort of life line,a datum to help it recognize where it had been and where to try next in its quest for the next frequency band. 
 
