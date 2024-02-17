@@ -2493,193 +2493,238 @@ SE7C:OK,I can see your difficulty.When an entity that is working in what you wou
 
 ME:No,don't explain further;let me see if I can understand what is happening.I think I understand now.It moves into the space that is associated with the dimensional component/full dimension etc.That is,"in the place of"that next frequency band.This means that it occupies and exists within the space between the permutation of space that would be the next logical step if the next step was to be into a frequency band.Not only that, I get the feeling that it ends up in two places at once as a result.Further,the entity,with the space being what it is,what I would classify as a permutation of non-space,does not really occupy it because for the entity,it does not really exist.It leaves a part of itself in the frequency band that it previously occupied whilst the other part,that part that is looking for the next permutation to exist and work within,looks for the frequency band that would logically be next in line.It has to traverse all of the different permutations of non-space to find it,and that may and does include working with those energies that are associated with the non-space before it can progress because progression can only really happen in the frequency bands.The entities can end up being in two environments concurrently on a permanent basis if not careful,space and non-space,because the entity has the possibility of becoming lost.It has to hone its personal multi-dimensional,multi-frequency,multi- dimensional component(tritave)navigation system to the most accurate it can ever be in order to be successful.By learning from its experiences and applying that learning,the entity eventually finds the frequency band that is next in whatever guise it assumes.Once it has done that,the entity can "reel"in that part of itself that remained in the previous frequency band,that part of it that remained in the frequency band that the entity had "grown out of"being used as a sort of life line,a datum to help it recognize where it had been and where to try next in its quest for the next frequency band. 
 
-我：
+我：不，不要再解释了，让我看看我是否能理解发生了什么。我想我现在明白了。它移动到与维度组件/全维度等相关的空间中。也就是说，“在下一个频带的位置上”。这意味着它占据并存在于空间排列之间的空间中，如果下一步是进入一个频带，那么这将是下一个逻辑步骤。不仅如此，我感觉它最终同时在两个地方结束。此外，这个实体，与空间是它本身，我将它归类为非空间的排列，并不真正占据它，因为对于这个实体来说，它并不真正存在。它将自己的一部分留在它之前占据的频带中，而另一部分，寻找下一个排列来存在和工作的部分，寻找逻辑上是下一个的频带。它必须穿越所有不同的非空间排列来找到它，这可能也确实包括与那些与非空间相关联的能量一起工作，因为进展只能在频带中发生。如果不小心的话，实体可能会在两个环境中同时存在，空间和非空间，因为实体有可能迷失。为了成功，它必须磨练其个人的多维、多频率、多维组件(tritave)导航系统，使其达到最精确的程度。通过从经验中学习并应用所学知识，实体最终会找到下一个频带，无论它以何种形式出现。一旦它做到了这一点，实体可以“卷起”自己留在前一个频带的那部分，它留在频带中的那部分，实体已经“长大”了，被用作一种生命线，一个数据，帮助它识别它在哪里，以及在它寻求下一个频带的过程中，下一步尝试在哪里。
 
 And... 
 
+而且...
+
 WoW,I just received an image of this environment that illustrated the movement of the entities around this environment like a huge three dimensional super highway multifaceted junction with roads going everywhere,up,down,left and right,with entities jumping from one road to another,each missing each other by fractions of an inch.It is "packed"with entities desperate to find the next frequency band,whether it be replacing a dimensional component a full dimension or existing as it is,a frequency band.No wonder it had the appearance of a steel ball.The energies required to hold it together must be immense!
+
+我刚刚收到了一张这个环境的图片，它展示了这个环境周围实体的运动，就像一个巨大的三维高速公路多面交汇处，道路到处都是，上，下，左，右，实体从一条道路跳到另一条道路，每个都错过对方的一英寸。它“装满”了渴望找到下一个频带的实体，无论是取代一个维度组件，一个完整的维度，还是现有的频带。难怪它有一个钢球的外观。把它聚在一起所需的能量一定是巨大的！
+
+（图6：三维超级高速公路交汇处）
 
 ![Figure 6: 3D Super Highway Junction](img/s6-041.png)
 
 SE7C:How very well done.You are getting the hang of this,aren't you?I,of course,hold it together with ease,for the environment is me,and I am the environment.But you knew this. The whole objective of my environment,me,is to teach the entities that either primarily exist within it or that migrate to it from one of the other environments created by Source Entities Seven“A”and“B”how to operate in a multi-dimensional,multi-tritave,multi- frequency environment by not being hung up on the structure of it-to teach the entity the methods and ways of multiversal existence created by a multi-dimensional,multi-tritave, multi-frequency environment and allow them to traverse from one part to another without the need for linear progression whilst having linear progression,if you understand what I mean.Evolution is all about experience and the learning from such experience;as such,it is linear in its progression.The ability for an entity to be truly multiversal in its functionality is a prima facie requirement for existence and its progression towards the return to its creator. An entity cannot truly be a creator if it is not able to function in the same way as ITS creator. This is a fundamental law-one that exists for all entities created by all of the Source Entities who,in turn,were created by The Origin. 
 
-7号源实体C：
+7号源实体C：做得多好啊。你正在掌握这个的窍门，不是吗？我，当然，轻松地把它组合在一起，因为环境就是我，而我就是环境。但你知道这个。我的环境，我的全部目标，是教实体，要么主要存在于其中，要么从源实体七A和B创造的其他环境之一迁移到这里，如何在一个多维度，多三维，多频率的环境中运作，而不被它的结构所困扰-教实体的方法和方式，由多维度，多三维，多频率的环境创造的多维存在，并允许它们从一个部分穿越到另一个部分，而不需要线性进程，同时拥有线性进程，如果你明白我的意思。进化是关于经验和从这种经验中学习；因此，它的进程是线性的。一个实体在功能上真正多维的能力，是存在和其向回归其创造者前进的表面要求。一个实体不能真正成为一个创造者，如果它不能以与其创造者相同的方式运作。这是一个基本法则-存在于所有源实体所创造的所有实体中，而源实体又反过来被起源所创造。
+ 7号源实体C：
+ ME：我：
+
+SE7C：
+ 7号源实体C：
+ ME：我：
+
+SE7C:
+ 7号源实体C：
+ 
+ 我：等等，这比我想象的还要重要。所有是你一部分的实体，也就是你的整体，整个源实体7，正在通过经验的方式进行训练，当它的存在到达我们都一起提升的点时，我们都是平等的实体。我：
+
+SE7C:继续。
+ 7号源实体C：
+ ME：当所有由十二个源实体所创造的实体进化到与它们的创造者平等的点，而源实体进化到与起源平等的点，一切都提升到下一个层次。 在这个点上，起源移动到它对自我的理解范围之外，可以说是百分之一。 这个移动有效地倍增了自我意识的范围，到一个完全的自我意识是已知和未知的领域中较小的一部分的水平。 它将意识的范围翻了四倍，到一个意识/非意识的范围，到一个存在知识的范围，而不是经验知识的范围。 就像我们知道我们生活在一个宇宙中的星系中的行星上，而这个宇宙是多元宇宙的一部分，但我们只知道我们行星所在的太阳系的百分之一。 事实上，我们作为物质存在并不真正了解我们所存在的行星。但是随着我们对自我和环境的理解的增长，以及我们的技术和精神能力的增长，我们对环境的探测越来越多，这超出了我们以前的探测水平，我们把它加到地图上，我们试图把它画出来，但是除非我们体验到这些新绘制的空间区域，我们不会完全意识到它的特性，它在那里，但又不在那里。
 
 ME:So this environment you have created,that you are,seems to be more important than that of the other two Source Entities Seven "A"and "B." 
 
-我：
+我：所以你所创造的环境，你自己，似乎比另外两个7号源实体A和B更重要。
 
 SE7C:No one Source Entity is more important that the other for we all contribute to the evolution of The Origin.I have simply created a multiversal navigation conundrum,a classroom if you like,for the collective entity population of Source Entity Seven"in totality." This allows them to experience all of the things necessary to operate in the ways a creator should do. 
 
-7号源实体C：
+7号源实体C：没有一个源实体比其他的更重要，因为我们都为起源的进化做出了贡献。我只是创造了一个多维空间导航难题，如果你愿意的话，一个教室，为“整体”的源实体7的集体实体人口。这让他们体验所有必要的事情，以创造者的方式来操作。
 
 ME:Hold on.I have just picked up something else.All of this work,this teaching your entities to be master multiversal navigators is aligned to the image I picked up when I talked to Source Entity Five.Where all of the entities created by all of the Source Entities become equals with their creating Source Entities,and,the Source Entities all become equals with The Origin.More importantly,they all evolve together up to a level not yet experienced by The Origin,one it needs to move beyond the part of itself that it is currently aware of.The Origin created the Source Entities to help it achieve this "quantum"evolutionary leap. 
 
-我：
+我：等一下。我刚刚发现了其他的东西。所有这些工作，这教你们的实体成为多维空间导航大师的工作，与我与源实体5交谈时所获得的图像是一致的。所有源实体创造的所有实体都与创造它们的源实体平等，而且，源实体都与起源平等。更重要的是，他们都一起进化到一个源头尚未经历过的水平，它需要超越自己目前所意识到的一部分。源头创造了源实体，以帮助它实现这个“量子”进化飞跃。
 
 SE7C:Again,very well done.
 
-7号源实体C：
+7号源实体C：再次，做得很好。
 
 I felt Source Entity Seven "C"smile.It was the smile of knowing that I was starting to "get it."There was something very important going on here.I had "tripped up"on something. Something of such importance that it was not only important that mankind understood what was happening through the books created by my limited dialogues with The Origin and the Source Entities,but the word was being spread throughout the Source Entities and their creations by other entities like me.Ifelt very small in the sudden realization of my very limited understanding of this "huge"big picture and mentally logged the need to discuss this in more detail with The Origin directly. 
 
+我感觉到源实体7“C”微笑。这是微笑，知道我开始“得到它”。这里有一些非常重要的事情。我已经“绊倒”在一些东西上。一些如此重要的东西，它不仅重要的是人类通过我与起源和源实体的有限对话所创造的书籍来理解正在发生的事情，而且这个词正在通过像我这样的其他实体的创造物在源实体和他们的创造物中传播。我突然意识到我对这个“巨大的”大图景的理解非常有限，我感到非常渺小，并在精神上记录了需要直接与起源讨论这个更详细的内容。
+
 ME:Hold on,this is even more important than I imagined.All of the entities that are part of you,that is,the whole of you,Source Entity Seven in totality,are being trained through experiential means to populate The Origin when the point in its existence arrives where we all ascend together,and we are all entities in equal standing. 
 
-我：
+我：等等，这比我想象的还要重要。所有你身体的一部分，也就是你整个身体，全部的7号源实体，正在通过经验的方式接受训练，当我们都一起提升，我们都是平等的实体时，就去填满起源。
 
 SE7C:Go on. 
 
-7号源实体C：
+7号源实体C：继续。
 
 ME:When all of the entities that have been created by the twelve Source Entities evolve to the point of equality with their creators and the Source Entities evolve to the point of equality with The Origin,everything ascends to the next level.At this point The Origin moves outside of its sphere of understanding of self by a percentage point,so to speak. This movement effectively multiplies the area of awareness of self to a level where the full awareness of self is a smaller part of an area that is both known and unknown.It quadruples the area of awareness to an area of awareness/non-awareness,to an area of knowledge of existence but not of experiential knowledge.It is like we know that we live on a planet in a galaxy in a universe that is part of a multiverse,but we only know a fraction of a percentage of the solar system our planet exists within.In actuality,we don't really know the planet we exist on as physical beings.We know bits of it,but certainly not all of it.But as our understanding of self and our environment grows,together with our technical and spiritual abilities,we detect more of our environment-that which was beyond our previous level of detection.We add it to the map.Well,we try to map it,but unless we experience that which is in those areas of space that is newly mapped,we are not fully aware of its properties.It is there but not there. 
 
-我：
+我：当所有由12个源实体所创造的实体进化到与它们的创造者平等的点，而源实体进化到与起源平等的点，一切都提升到下一个层次。在这个点上，起源移动到它对自我的理解范围之外，可以说是百分之一。这个移动有效地倍增了自我意识的范围，到一个完全的自我意识是已知和未知的领域中较小的一部分的水平。它将意识的范围翻了四倍，到一个意识/非意识的范围，到一个存在知识的范围，而不是经验知识的范围。 就像我们知道我们生活在一个宇宙中的星系中的行星上，而这个宇宙是多元宇宙的一部分，但我们只知道我们行星所在的太阳系的百分之一。事实上，我们作为物质存在并不真正了解我们所存在的行星。但随着我们对自我和环境的理解的增长，以及我们的技术和精神能力，我们探测到更多我们环境的东西，那些超出我们以前探测水平的东西。我们把它加到地图上。嗯，我们试图把它绘制出来，但除非我们体验到那些新绘制的空间区域，我们不会完全意识到它的特性。它在那里，但又不在那里。
 
 SE7C:What you are trying to say is that The Origin will become aware of that which is a greater part of itself but will need help in expanding its awareness of its expanded self. 
 
-7号源实体C：
+7号源实体C：你想说的是起源将意识到它自身的更大部分，但需要帮助来扩大它对扩展后的自我的意识。
 
 ME:Yes.Ok,you seem to have put in two lines what I have taken thirteen or even seventeen lines of text to do. 
 
-我：
+我：是的。好吧，你似乎用两行文字就完成了我用了13行甚至17行文字所要做的事情。
 
 SE7C:Naturally.I can explain further if you like. 
 
-7号源实体C：
+7号源实体C：当然，如果你愿意，我可以进一步解释。
 
 ME:Please do.This is getting most interesting. 
 
-我：
+我：请吧，这变得越来越有趣了。
 
 SE7C:To put it in simple terms my particular environment is designed to train those entities that either begin in my environment or progress to my environment in the art of navigation.I will explain further.The entities that exist in all aspects of Source Entity Seven, including“A”and“B,"Source Entity Seven in“totality,"and me are endeavoring to create a team of entities that contain all of the important aspects of existence necessary to allow them to grow into creators.This will allow them to create their own environments and hence populate that part of The Origin that becomes available for experiential use when the expansion/ascension occurs. 
 
-7号源实体C：
+7号源实体C：简单地说，我特殊的环境是设计来训练那些在我的环境中开始或进入我的环境的实体的导航艺术。我会进一步解释。存在于源实体7的所有方面，包括“A”和“B”，“整体”中的源实体7，以及我，正在努力创造一个实体团队，包含所有重要的存在方面，使他们成长为创造者。这将使他们能够创造他们自己的环境，从而填充起源的一部分，当扩张/提升发生时，可以用于体验使用。
 
 The entities that "graduate"from this environment will be master navigators.They will be able to traverse and exist within and without the energies,frequencies,dimensions,tritaves and zones that make up the known and unknown area of the newly ascended Origin and populate it with newly ascended Source Entities. 
 
+从这个环境“毕业”的实体将是导航大师。他们将能够穿越和存在于能量、频率、维度、区域和区域之间，这些区域和区域构成了新提升的起源的已知和未知区域，并填充了新提升的源实体。
+
 ME:Wait.Hold on a moment.What do you mean,newly ascended Source Entities?At the last count I made twelve.Do you expect there to be more? 
 
-我：
+我：等等。等一下。你是什么意思，新提升的源实体？在最后的数目中我数到了12个。你希望有更多吗？
 
 SE7C:As you have seen in your visualizations,all entities will eventually become equals.As they become equal to their creators,they attain the same status as their creator and so will become Source Entities in their own right.In essence,the created will become the creator and will adopt the same status and reason for being in existence.They will be different from The Original Source Entities though insomuch as they will be able to find and adapt themselves to a location within The Origin that they feel is in keeping with their plans for experiential creativity and evolution.Each of them will be able to work outside the need to be "static"within The Origin's area. 
 
-7号源实体C：
+7号源实体C：正如你们在你们的视觉化中所看到的，所有的实体最终将变得平等。当他们与他们的创造者变得平等时，他们获得了与他们的创造者相同的地位，因此将以自己的权利成为源实体。本质上，被创造者将成为创造者，并将采用相同的地位和存在的理由。他们将与原始源实体不同，尽管如此，他们将能够找到并适应自己在起源中的位置，他们感觉到与他们的经验创造和进化计划保持一致。他们中的每一个都将能够在不需要在起源区域内“静态”的情况下工作。
 
 As you are aware,when The Origin created the twelve Source Entities,we were/are all stationary within The Origin's area of awareness.We do not move.There is no need for us to move,for we occupy that area which The Origin was aware of when it created us.It will expand its area of awareness to a greater level when we all ascend.You used the word "quadruple,"I believe,but this is not a correct word to use to describe The Origin's increase in size.The area of The Origin's awareness of self will increase when it becomes an area of knowledgeable awareness/non-awareness.Everything will expand and multiply:the zones, the dimensions,the tritaves,the frequencies and the energies.The word"quadruple"should be,therefore,explained as being a multiple of a multiple of a multiple of a multiple of the zones,the dimensions,the tritaves,the frequencies and the energies.It will be unbelievably larger than that which we are currently experiencing.And yet,it will still not be a percentage point of the total area of that which is The Origin. 
 
+正如你所知，当起源创造了12个源实体，我们都/是静止在起源的意识区域内。我们不移动。我们没有必要移动，因为我们占据了起源创造我们时意识到的那个区域。当我们都提升时，它将扩大它的意识区域到一个更大的水平。我相信你用了一个词“四倍”，但这不是一个正确的词来描述起源的大小的增加。当它成为一个有知识的意识/无意识的区域时，起源的自我意识区域将增加。一切都将扩大和倍增：区域、维度、三音阶、频率和能量。因此，“四倍”这个词应该被解释为一个倍数的倍数的倍数的倍数的区域、维度、三音阶、频率和能量。它将比我们目前所经历的要大得难以置信。然而，它仍然不会是起源总面积的百分之一。
+
 ME:I am getting an image of a huge sphere,one that has levels within levels within levels.As one's perspective moves further away from the center,the level of intricacy multiplies on a multiple of an exponential scale each time one moves away from the center by a fraction of a percentage point. 
 
-我：
+我：我正在得到一个巨大的球体的图像，一个有层次的层次的层次。当一个人的视角远离中心，每一次远离中心百分之一的分数，复杂程度就会以指数倍数增长。
 
 SE7C:Yes,now you are getting it.Now do you understand?
 
-7号源实体C：
+7号源实体C：是的，现在你明白了。现在你明白了吗？
+
+（图7：起源的层次和图层的概念图）
 
 ![Figure 7: Conceptual Image of the Levels and Layers of The Origin](img/s6-042.png)
 
 ME:I think so.If I can just explain in summary.The anticipated expansion in The Origin resulting from the collective ascension of entity,Source Entity and Origin will be so big that it will be able to satisfy the same area occupied by a single Source Entity now,for all of the current Source Entities and all of the entities created by the twelve Source Entities that will be elevated to Source Entity status in every way shape and form. 
 
-我：
+我：我想是的。如果我可以简要的解释一下，源头上预期的扩张，源实体和源实体的集体提升，将会是如此巨大，以至于它将能够满足现在由单个源实体所占据的相同面积，对于所有当前的源实体和所有由12个源实体所创造的实体，它们将以各种方式和形态提升到源实体的地位。
 
 SE7C:Correct. 
 
-7号源实体C：
+7号源实体C：正确。
 
 ME:That's AWESOME! 
 
-我：
+我：太棒了！
 
-SE7C:Isn't it just?But it's more than that.The area will be so big that the newly ascended Source Entities will not be side to side,so to speak.They can be hidden away from each other in some part of the newly expanded area of awareness/non-awareness of self that The Origin will experience-hence,the need to be master navigators of that which is The Origin. These navigators will be called upon by the newly ascended Source Entities/themselves to guide them through the maze that will be the area of awareness/non-awareness of self that The Origin will be post-ascension.They will need to be able to traverse all conundrums that will be placed before them.That is why my environment is designed the way it is.To allow the entities to experience their environment as a conundrum and learn how to navigate it, to learn how to move outside the maze so to speak,to see the maze as if seeing it from above and drop down to that area required to be experienced.The introduction of these new Source Entities will greatly accelerate The Origin's ability to increase its awareness of self and to evolve.It will be the start of a wondrous time. 
+SE7C:Isn't it just? But it's more than that.The area will be so big that the newly ascended Source Entities will not be side to side,so to speak.They can be hidden away from each other in some part of the newly expanded area of awareness/non-awareness of self that The Origin will experience-hence,the need to be master navigators of that which is The Origin. These navigators will be called upon by the newly ascended Source Entities/themselves to guide them through the maze that will be the area of awareness/non-awareness of self that The Origin will be post-ascension.They will need to be able to traverse all conundrums that will be placed before them.That is why my environment is designed the way it is.To allow the entities to experience their environment as a conundrum and learn how to navigate it, to learn how to move outside the maze so to speak,to see the maze as if seeing it from above and drop down to that area required to be experienced.The introduction of these new Source Entities will greatly accelerate The Origin's ability to increase its awareness of self and to evolve.It will be the start of a wondrous time. 
 
-7号源实体C：
+7号源实体C：难道不是吗？但它不止于此。这个区域将是如此之大，以至于新提升的源实体将不能并排，可以这么说。他们可以彼此隐藏在“起源”将要经历的自我意识/非自我意识的新扩展区域的某个部分，因此，需要成为“起源”的导航大师。这些导航大师将被新提升的源实体/他们自己所召唤，来引导他们通过迷宫，那将是“起源”在提升后将要经历的自我意识/非自我意识区域。他们将需要能够穿越摆在他们面前的所有难题。这就是为什么我的环境被设计成这样。为了让实体体验它们的环境，就像一个难题，并学会如何导航，学会如何走出迷宫，可以这么说，去看看迷宫，就像从上面看它，然后下降到需要被体验的区域。这些新源实体的引入将极大地加速“起源”增加自我意识和进化的能力。这将是一个奇妙时刻的开始。
 
 ME:What will happen to The Original twelve Source Entities? 
 
-我：
+我：最初的12个源实体会发生什么？
 
 SE7C:We will assist The Origin in its own explorations of self.We will start again but in a different way. 
 
-7号源实体C：
+7号源实体C：我们将协助起源进行自我探索。我们将以不同的方式重新开始。
 
 Again,I made a mental note of this discussion as one that I will progress with The Origin in "The Origin Speaks." 
 
+再次，我将这次讨论记在心里，作为我会在“起源说话”中与起源一起前进的参考。
+
 ME:I have just noticed that I haven't asked you what your entities look like yet. 
 
-我：
+我：我刚刚注意到我还没有问你你们的实体长什么样。
 
 SE7C:What they look like is of no consequence,for in my environment they need no physical or energetic form.All those entities that come from "A"and "B's"environments are converted to the formlessness required to work in this environment;hence,I cannot give you a form,for they neither need one nor use one,physically or energetically. It is time for you to move on and conclude your dialogue with Source Entity Seven "in totality"before moving on to Source Entity Eight.Go now. 
 
-7号源实体C：
+7号源实体C：他们长什么样子无关紧要，因为在我的环境中，他们不需要任何物理或能量形式。所有来自“A”和“B”环境的实体都被转换成在这个环境中工作所需的无形体；因此，我不能给你一个形式，因为他们既不需要也不使用一个，物理上或能量上。现在是时候让你继续前进，在继续前进到源实体8之前，“完全”结束你与源实体7的对话了。现在走吧。
 
 ME:I thank you for your "time"and wisdom. 
 
-我：
+我：我感谢你的“时间”和智慧。
 
 SE7C:It was,as you call it,a pleasure. 
 
-7号源实体C：
+7号源实体C：正如你所说的，很高兴。
 
 And with that the third Aspect of Source Entity Seven,Source Entity Seven "C"was gone.Almost immediately,I felt the combined energy signature of Source Entity Seven "in totality"as it approached me to conclude our dialogue. 
 
+随着7号源实体的第三个方面，7号源实体“C”消失了。几乎立即，当7号源实体“C”接近我结束我们的对话时，我感觉到了它的整体能量特征。
+
 ### In Closing with Source Entity Seven"In Totality" 
+
+**与7号源实体“整体”结束**
 
 ME:It is an interesting feeling when you all become one again.I mean,you all have separate energetic signatures,which I might add are quite distinct from each other even though they somehow have a feeling of commonality.It's almost like,to use radio(RF)engineering as an example,you have the same carrier wave but have different frequencies to signify your independence,your singularity.But when you are addressing me as a collective,as Source Entity Seven in "in totality,"it is like the carrier wave is the same,but the frequency of your signature when you are "in totality"is the average of the total frequency of the three aspects of you.Does this sound reasonable? 
 
-我：
+我：当你们再次成为一体时，这是一种有趣的感觉。我的意思是，你们都有各自的能量签名，我可能会补充说，它们彼此之间非常不同，尽管它们不知何故有一种共同的感觉。这几乎就像，用无线电(RF)工程作为例子，你们有相同的载波，但有不同的频率来表示你们的独立性，你们的奇点。但当你们把我作为一个集体，作为“整体”中的7号源实体时，就像载波是相同的，但当你们“整体”时，你们签名的频率是你们三个方面的总频率的平均值。这听起来合理吗？
 
 SE7:Of course.You see,when I split into two and then recognized the opportunity for a third aspect,the frequencies above and below my base frequency were occupied by the newly individual aspects of myself,the third aspect remained in The Original frequency,which simplistically put is the average of the three separate frequencies.That is,if you added them up together and divided them by three you would return to The Original base frequency. 
 
-7号源实体：
+7号源实体：当然，你看，当我分裂成两个，然后认识到第三个方面的机会时，我基础频率之上和之下的频率被我新的个人方面所占据，第三个方面则留在原始频率，简单地说，就是三个分离频率的平均值。也就是说，如果你把它们加起来，再除以3，你就会回到原始的基频。
 
 ME:I expect that is because the frequencies above and below the base frequency,those occupied by Source Entities 7A and 7C,are equidistant from The Original base signature. 
 
-我：
+我：我认为这是因为高于和低于基频的频率，那些被源实体7A和7C所占据的频率，与原始基频签名是等距离的。
 
 SE7:Correct.And that is why it feels like it's the same. 
 
-7号源实体：
+7号源实体：正确，这就是为什么感觉是一样的。
 
 ME:I am honored to receive the information from SE7C about what could/will happen when we all ascend and become Source Entities in our own right. 
 
-我：
+我：我很荣幸能从SE7C那里收到关于当我们所有人提升并以我们自己的权利成为源实体时，会发生什么的信息。
 
 SE7:You should be.You are the first of your kind to receive such information.It is important that you pass it on for all to recognize and understand,for it will make a difference in the way incarnate mankind interacts with each other,specifically those who are on the path of enlightenment and ascension. 
 
-7号源实体：
+7号源实体：你应该感到高兴。你是你们同类中第一个接收到此类信息的人。你传递它给所有人去认识和理解是很重要的，因为它将改变人类化身彼此互动的方式，特别是那些在启蒙和提升道路上的人们。
 
 ME:How do you know of our ascension?I mean,you are so far removed from my Source Entity and its work,and you have your own work to focus on. 
 
-我：
+我：你怎么知道我们的提升？我的意思是，你离我的源实体及其工作如此之远，你有自己的工作要专注。
 
 SE7:You are aware that we are all linked,linked to allow the evolutionary content we collect to be passed on to The Origin? 
 
-7号源实体：
+7号源实体：你知道我们都是相互联系的，我们收集的进化内容会传递到起源？
 
 ME:Yes. 
 
-我：
+我：是的。
 
 SE7:Well,the Source Entities also benefit from the evolutionary content of each other,and as a result,we all receive each other's experience,learning and evolution so that we can all evolve at the same time.Even the Source Entity that is not yet aware(I will call this Source Entity "Twelve"later in this book.)benefits,as we benefit from its slow road to awareness. As a result of this link I/we know how each other's creations are "doing,"so to speak.That is how and why I and each of the other Source Entities can and do offer you advice. 
 
-7号源实体：
+7号源实体：嗯，源实体也从彼此的进化内容中获益，结果，我们都接受彼此的经验、学习和进化，以便我们都能同时进化。即使尚未觉醒的源实体(我将在本书后面称这个源实体为“12”)也获益，因为我们从它觉醒的缓慢道路中获益。由于这个联系，我/我们知道彼此的造物是如何“做”的，可以这么说。那就是我和其他每一个源实体如何以及为什么能够并确实向你们提供建议。
 
 ME:And all of this information is being shared on an instantaneous basis I suppose. 
 
-我：
+我：我猜所有这些信息都是在即时的基础上分享的。
 
 SE7:You suppose right. 
 
-7号源实体：
+7号源实体：你猜对了。
 
 What I/we have shared with you these past few weeks is but a minor summary of what we perform and create on an on-going basis.In your current state,you will never be able to comprehend more than the very basics of what your Source Entity achieves,let alone what the other Source Entities are working on.Do not take this as an indication of failure to overcome your limitations but more of a statement of "what is"based upon the limitations you have given yourself currently. 
 
+我/我们过去几周与你们分享的只是我们持续不断地执行和创造的一个小总结。在你们目前的状态下，你们永远无法理解你们的源实体所实现的最基本的东西，更不用说其他源实体正在做的事情了。不要把这看作是你们克服自身局限性的失败的迹象，而更多的是基于你们目前给自己设定的局限性而做出的“是什么”的陈述。
+
 To be able to do what you are doing with these self-administered limitations-and you don't know how limited you have made yourself in the vehicle you have chosen-is creating quite a stir.You are showing what can be done given very little training and with none of the tremendous focus and single-minded determination that spans a lifetime(which is what most need)to get anywhere near the levels you have achieved.Keep it up;teach others,for this is an important time for both you and the humanity that is in the lowest of dimensions and frequencies of your Source Entity. 
+
+能够做到你们正在做的这些自我管理的局限性——而你们不知道你们在自己选择的工具中已经使自己受到了多大的限制——正在引起相当大的轰动。你们正在展示什么可以被给予很少的训练，而没有任何巨大的专注和贯穿一生的坚定决心(这是最需要的)来接近你们已经达到的水平。坚持下去；教导别人，因为这对你们和处于你们源实体最低维度和频率的人性来说是一个重要的时刻。
 
 Go now,for you have dwelled long enough with me/us.It is time for you to move on to Source Entity Eight. 
 
+现在走吧，因为你们已经和我/我们呆了足够长的时间。是时候让你们进入8号源实体了。
+
 And as with the other dialogues with Source Entities One through Six,the link with Source Entity Seven "in totality"was broken.But as with the links with the other Source Entities,I knew that although they were severed from a continued dialogue perspective,I was now in a position where I could re-initiate contact with any of the Source Entities at will.It was like not knowing someone's phone number and,therefore,not knowing that they were there or even existed,but when the phone number was available,they could be contacted at any time and at a moment's notice. 
 
+和与源实体一到六的对话一样，与源实体七的联系“完全”断了。但是和与其他源实体的联系一样，我知道尽管从持续对话的角度来看它们被切断了，我现在处于一个可以随意重新开始与任何源实体联系的位置。这就好像不知道某人的电话号码，因此，不知道他们在那里，甚至不知道他们存在，但是当电话号码可用时，可以在任何时间和一瞬间通知他们。
+
 I looked around the vast unfathomable space that was The Origin and found this to be true. Having established an initial link with seven of the Source Entities I could now "phone them up," so to speak,at any time.I felt privileged to have this ability.It was a wondrous gift.I vowed to myself that I would use it wisely and for the education of the human race.This,I noted,is why I am on this planet here and now-to help with incarnate mankind's education.Again,it was another privilege,one that must not be squandered,which I must accept patiently.I felt very humble all of a sudden.
+
+我环顾四周，发现这是真实的，那是起源的广阔无底的空间。在与七个源实体建立了最初的联系后，我现在可以随时“给他们打电话”。我感到有这种能力是特权。这是一个奇妙的礼物。我向自己发誓，我会明智地使用它，为了人类的教育。我注意到，这就是我为什么在这个星球上，在这里，现在——帮助化身人类的教育。再一次，这是另一个特权，一个不能浪费的特权，我必须耐心地接受。我突然感到非常谦卑。
 
 ## Chapter Two - Source Entity Eight 
 
