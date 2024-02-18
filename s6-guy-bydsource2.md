@@ -2524,7 +2524,7 @@ SE7C:
 
 SE7C:继续。
  7号源实体C：
- ME：当所有由十二个源实体所创造的实体进化到与它们的创造者平等的点，而源实体进化到与起源平等的点，一切都提升到下一个层次。 在这个点上，起源移动到它对自我的理解范围之外，可以说是百分之一。 这个移动有效地倍增了自我意识的范围，到一个完全的自我意识是已知和未知的领域中较小的一部分的水平。 它将意识的范围翻了四倍，到一个意识/非意识的范围，到一个存在知识的范围，而不是经验知识的范围。 就像我们知道我们生活在一个宇宙中的星系中的行星上，而这个宇宙是多元宇宙的一部分，但我们只知道我们行星所在的太阳系的百分之一。 事实上，我们作为物质存在并不真正了解我们所存在的行星。但是随着我们对自我和环境的理解的增长，以及我们的技术和精神能力的增长，我们对环境的探测越来越多，这超出了我们以前的探测水平，我们把它加到地图上，我们试图把它画出来，但是除非我们体验到这些新绘制的空间区域，我们不会完全意识到它的特性，它在那里，但又不在那里。
+ ME：当所有由十二个源实体所创造的实体进化到与它们的创造者平等的点，而源实体进化到与起源平等的点，一切都提升到下一个层次。 在这个点上，起源移动到它对自我的理解范围之外，可以说是百分之一。 这个移动有效地倍增了自我意识的范围，到一个完全的自我意识是已知和未知的领域中较小的一部分的水平。 它将意识的范围翻了四倍，到一个意识/非意识的范围，到一个存在知识的范围，而不是经验知识的范围。 就像我们知道我们生活在一个宇宙中的星系中的行星上，而这个宇宙是多维宇宙的一部分，但我们只知道我们行星所在的太阳系的百分之一。 事实上，我们作为物质存在并不真正了解我们所存在的行星。但是随着我们对自我和环境的理解的增长，以及我们的技术和精神能力的增长，我们对环境的探测越来越多，这超出了我们以前的探测水平，我们把它加到地图上，我们试图把它画出来，但是除非我们体验到这些新绘制的空间区域，我们不会完全意识到它的特性，它在那里，但又不在那里。
 
 ME:So this environment you have created,that you are,seems to be more important than that of the other two Source Entities Seven "A"and "B." 
 
@@ -2556,7 +2556,7 @@ SE7C:Go on.
 
 ME:When all of the entities that have been created by the twelve Source Entities evolve to the point of equality with their creators and the Source Entities evolve to the point of equality with The Origin,everything ascends to the next level.At this point The Origin moves outside of its sphere of understanding of self by a percentage point,so to speak. This movement effectively multiplies the area of awareness of self to a level where the full awareness of self is a smaller part of an area that is both known and unknown.It quadruples the area of awareness to an area of awareness/non-awareness,to an area of knowledge of existence but not of experiential knowledge.It is like we know that we live on a planet in a galaxy in a universe that is part of a multiverse,but we only know a fraction of a percentage of the solar system our planet exists within.In actuality,we don't really know the planet we exist on as physical beings.We know bits of it,but certainly not all of it.But as our understanding of self and our environment grows,together with our technical and spiritual abilities,we detect more of our environment-that which was beyond our previous level of detection.We add it to the map.Well,we try to map it,but unless we experience that which is in those areas of space that is newly mapped,we are not fully aware of its properties.It is there but not there. 
 
-我：当所有由12个源实体所创造的实体进化到与它们的创造者平等的点，而源实体进化到与起源平等的点，一切都提升到下一个层次。在这个点上，起源移动到它对自我的理解范围之外，可以说是百分之一。这个移动有效地倍增了自我意识的范围，到一个完全的自我意识是已知和未知的领域中较小的一部分的水平。它将意识的范围翻了四倍，到一个意识/非意识的范围，到一个存在知识的范围，而不是经验知识的范围。 就像我们知道我们生活在一个宇宙中的星系中的行星上，而这个宇宙是多元宇宙的一部分，但我们只知道我们行星所在的太阳系的百分之一。事实上，我们作为物质存在并不真正了解我们所存在的行星。但随着我们对自我和环境的理解的增长，以及我们的技术和精神能力，我们探测到更多我们环境的东西，那些超出我们以前探测水平的东西。我们把它加到地图上。嗯，我们试图把它绘制出来，但除非我们体验到那些新绘制的空间区域，我们不会完全意识到它的特性。它在那里，但又不在那里。
+我：当所有由12个源实体所创造的实体进化到与它们的创造者平等的点，而源实体进化到与起源平等的点，一切都提升到下一个层次。在这个点上，起源移动到它对自我的理解范围之外，可以说是百分之一。这个移动有效地倍增了自我意识的范围，到一个完全的自我意识是已知和未知的领域中较小的一部分的水平。它将意识的范围翻了四倍，到一个意识/非意识的范围，到一个存在知识的范围，而不是经验知识的范围。 就像我们知道我们生活在一个宇宙中的星系中的行星上，而这个宇宙是多维宇宙的一部分，但我们只知道我们行星所在的太阳系的百分之一。事实上，我们作为物质存在并不真正了解我们所存在的行星。但随着我们对自我和环境的理解的增长，以及我们的技术和精神能力，我们探测到更多我们环境的东西，那些超出我们以前探测水平的东西。我们把它加到地图上。嗯，我们试图把它绘制出来，但除非我们体验到那些新绘制的空间区域，我们不会完全意识到它的特性。它在那里，但又不在那里。
 
 SE7C:What you are trying to say is that The Origin will become aware of that which is a greater part of itself but will need help in expanding its awareness of its expanded self. 
 
@@ -2728,235 +2728,267 @@ I looked around the vast unfathomable space that was The Origin and found this t
 
 ## Chapter Two - Source Entity Eight 
 
+**第2章：8号源实体**
+
 I have to admit that at this point in the dialogue-including those with the other Source Entities -that I was a little surprised that Source Entity Seven (that is,the three aspects of Source Entity Seven)took up twice as much text as the previous Six Source Entities had to date.On reflection I decided that this was a function of the three aspects essentially having the equivalent of three Source Entity environments with each being a Source Entity in its own right,which,so it seemed was in its own version of The Origin's environment.That is,they,the three,were in the confines and,therefore,the environment that was Source Entity Seven.In some respects and to all intents, they were independent of each other while clearly still part of the "totality"that was Source Entity Seven.I was considering this whilst Ifelt the attunement taking place that would allow me to commence communication with Source Entity Eight,which I noted had already projected an image of its extremities to me.It was as if I was in space and was approaching a spherical shape that was covered in large cone shaped spikes.However,just before I had the chance to consider this image further,my own Source Entity had something to say.
+
+我必须承认在对话的这一点上-包括那些与其他源实体-我有点惊讶，源实体七(即源实体七的三个方面)占据了两倍于之前六个源实体的文本。经过反思，我决定这是三个方面的功能，本质上相当于三个源实体环境，每个都是一个独立的源实体，因此，它似乎是它自己的起源环境版本。也就是说，他们，这三个，是在限制中，因此，环境是源实体七。在某些方面和所有意图中，他们是相互独立的，但显然仍然是源实体七的“整体”的一部分。我正在考虑这个问题，同时我感觉到调谐正在发生，这将允许我开始与源实体8进行沟通，我注意到它已经向我投射了它的极端形象。就好像我在太空中，正在接近一个被大圆锥形尖刺覆盖的球形形状。然而，就在我有机会进一步考虑这个图像之前，我自己的源实体有一些话要说。
+
+（图8：8号源实体的外部结构的概念图像，相关的连续体，由圆锥形状表示）
 
 ![Figure 8: Conceptual Image of Source Entity Eights External Structure (the associated continuum, are represented by the cone shape)](img/s6-043.png)
 
 SE:I just I wanted to congratulate you on your progress so far.You are progressing with this work faster than expected and improving in all sorts of ways.Your desire to contact and communicate with as many people as possible about God(me)and the greater reality (the other Source Entities and The Origin)is a wonderful sight to behold as is your desire to be seen as an approachable man on the ground,explaining the greater reality in ways that are understandable to the common man,as well as the spiritually adept.This is and will be your greatest strength.To answer one of your own questions-the time is not far away when you will be a full-time teacher of the truth,for the doors are opening in the correct sequence. Enjoy the synchronicity and effortlessness of my multiverse and its function (workings); marvel at its splendor,its simplicity,its grandeur;go with its natural flow of energies and inherent evolutionary opportunities;be at one and at peace with it.See how it interlinks with the works of the other Source Entities and understand your place,your destiny,your inheritance within The Origin's plans,for we are all part of The Origin's great plan. 
 
-源实体：
+源实体：我只是想祝贺你目前的进步。你在这项工作上取得的进步比预期的要快，在各方面都有所提高。你希望与尽可能多的人接触和交流关于上帝(我)和更大的现实(其他源实体和起源)的愿望是一个奇妙的景象，因为你希望被视为一个平易近人的人，用普通人以及精神上的专家都能理解的方式解释更大的现实。这是并将是你最大的力量。回答你自己的一个问题——你成为全职真理教师的时间已经不远了，因为门正在按正确的顺序打开。享受我的多维宇宙和它的功能(工作)的同步性和轻松性；惊叹于它的辉煌、它的简单、它的宏伟；随其能量的自然流动和内在的进化机会而行；与它融为一体，与它和平相处。看看它是如何与其他源实体的工作相互联系的，并理解你的位置、你的命运、你在起源计划中的继承，因为我们都是起源伟大计划的一部分。
 
-ME:Wow!That was a bit of a grand speech,wasn't it?What caused that? 
+ME:Wow!That was a bit of a grand speech,wasn't it? What caused that? 
 
-我：
+我：哇！那是一个有点宏大的演讲，不是吗？是什么导致的？
 
 SE:The need for you to recognize the importance that you are doing your "life's work,"for it is not about living what you would call a "normal life."It is about being of service within a most important function of the omniverse. 
 
-源实体：
+源实体：你需要认识到你正在做“生命的工作”的重要性，因为这不是过你所说的“正常的生活”，而是服务于宇宙的一个最重要的功能。
 
-This was a new word,one that even a humble incarnate as myself recognized as being above,well above,the concept of a multiverse. 
+This was a new word, one that even a humble incarnate as myself recognized as being above,well above,the concept of a multiverse. 
+
+这是一个新词，一个连我这样卑微的化身都认为高于，远远高于多维宇宙的概念。
 
 ME:Now you have my interest.What is an omniverse? 
 
-我：
+我：现在你引起了我的兴趣。什么是多维宇宙？
 
 SE:Simply put,The Origin. 
 
-源实体：
+源实体：简而言之，起源。
 
 ME:Hold on here.Why did I pick up the word "continuum"then? 
 
-我：
+我：等等，我为什么要选“连续体”这个词呢？
 
 SE:Because The Origin contains all functions with the continuums being a fraction of them. This is something you will discuss at length with Source Entity Eight,for it is entirely composed of continuum.The plural of continuum is continuum-hence,the imagery it just presented to you. 
 
-源实体：
+源实体：因为源头包含了所有功能，而连续体只是其中一部分。这是你们将要详细讨论的源实体8，因为它完全由连续体组成。连续体的复数是连续体，因此，它刚才向你们展示的意象。
 
 ME:This sounds like a good time to link up with Source Entity Eight. 
 
-我：
+我：这听起来像是一个与源实体8联系的好时机。
 
 I made yet another mental note to talk to The Origin on the functions of an omniverse. 
 
+我还记下另一个要点，就是要和起源谈谈宇宙的功能。
+
 SE:There is no time (event space)like the present. 
 
-源实体：
+源实体：没有时间(事件空间)像现在。
 
 SE8:This sounds like it is the correct event space to check in then.
 
-8号源实体：
+8号源实体：这听起来像是要检入的正确的事件空间。
 
 ME:That,err,was quick.I expected to perform some preliminary work on my communication link with you first. 
 
-我：
+我：呃，太快了。我希望先做一些与你沟通的准备工作。
 
 SE8:Why?We have already been in communication. 
 
-8号源实体：
+8号源实体：为什么？我们已经在沟通了。
 
 ME:WHAT?Run that one by me again,will you?I think you might have misunderstood. 
 
-我：
+我：什么？再说一遍，好吗？我想你可能误会了。
 
 SE8:On the contrary,it is you who is the one who misunderstood,for we have spoken before and on many subjects. 
 
-8号源实体：
+8号源实体：相反，是您误解了，因为我们以前谈过，而且谈过很多次。
 
 ME:I can see that it is time for my head to hurt.But wait;just let me think about this for a moment.My Source Entity said you are made up entirely from continuum.Does this mean that we communicated whilst the I part of me that is the energetic was in another continuum? 
 
-我：
+我：我能看到我的头是时候疼了。但是等一下，让我思考一下。我的源实体说你完全是由连续体组成的。这是否意味着当我能量的部分在另一个连续体时我们交流？
 
 SE8:Yes,for I am spread throughout the known omniverse(Origin). 
 
-8号源实体：
+8号源实体：是的，因为我遍布整个已知的宇宙(起源)。
 
 In my mind's eye I saw that this was true.Source Entity Eight pervaded the space of the known Origin,that part of it that was within its area of self-awareness.There was one other thing though.(Only one?That will be the day!)How can that last statement relate to the image I saw in my mind's eye,the image of a sphere covered in cone shaped spikes?I decided that there was only one thing to do-ask Source Entity Eight what the image and the statement about Source Entity Eight pervading The Origin as a continuum within a continuum meant.Moreover,how did this relate me having previously communicated with Source Entity Eight?I was dying to know.I do like these conundrums.
 
+在我的脑海中，我看到这是真的。源实体8遍布已知的起源空间，其自我意识范围内的部分。但还有另一件事。(只有一件？那将是那一天！) 最后的声明如何与我脑海中看到的图像联系起来，一个覆盖着锥形尖刺的球体的图像？我决定只有一件事情要做——问源实体8这个图像和关于源实体8作为连续体中的连续体遍布起源的声明意味着什么。此外，这与我之前与源实体8沟通有什么关系？我迫切想知道。我确实喜欢这些谜题。
+
 ### How and When I Previously Communicated with Source Entity Eight 
+
+**我之前如何和何时与8号源实体沟通**
 
 ME:OK,both the myriad readers/truth seekers out there and I want to know how and when I have been talking with you before.Let's start with the when.Sorry.It sounds a bit blunt,but I have quite a selfish interest here.Once I have gotten this little titbit out of the way,we can continue with the usual routine.Is that OK with you? 
 
-我：
+我：好的，无数的读者/真理追求者，我想知道我之前是如何和何时与你们交谈的。让我们从何时开始。抱歉。这听起来有点直白，但我在这里有相当自私的兴趣。一旦我把这个小细节弄清楚了，我们可以继续正常的程序。你没问题吧？
 
 SE8:Of course.Communicating with you again is going to be fun. 
 
-8号源实体：
+8号源实体：当然，再次与您交流一定会很有趣。
 
 I was starting to get the impression that there was something going on here and that I really wasn't the new boy in town that I thought I was-at least,not if I included that part of me,the greater part that was still mainly energetic.I decided to use this thought as a springboard for what I hoped would be a logical and quick answer. 
 
+我开始有这样的印象，这里发生了一些事情，我真的不是我认为的那个新来的男孩，至少，如果我把我那部分包括进去，那大部分仍然充满活力。我决定把这个想法作为一个跳板，我希望这是一个逻辑和快速的答案。
+
 SE8:Quite simply,we have communicated many times whilst you were fully energetic.We planned the communication process we are about to start right down to the finite points of the minute details.This was a very important piece of planning work,for we needed to understand what you were going to be able to both understand and relay back to those who would seek to know more about the greater reality of existence beyond the environment that is your Source Entity.This is because the concepts surrounding my environment that we are going to discuss are difficult at best for incarnate humankind to understand,even in the most basic sense. 
 
-8号源实体：
+8号源实体：很简单，当你充满活力的时候我们已经交流过很多次了。我们计划了即将开始的交流过程，一直到有限的细节。这是一个非常重要的计划工作，因为我们需要了解你将能够理解和转达给那些寻求了解更多关于超越环境的更大的存在现实的人，那就是你的源实体。这是因为围绕着我环境的概念，我们将要讨论的，对于化身的人类来说，即使在最基本的意义上，也是很难理解的。
 
 ME:So,bearing in mind that you "Source Entities"are sharing each other's information and evolutionary growth on an instantaneous and continual basis,can you tell me whether or not I have whilst in the energetic form made a similar level of pre-planning and preparation for the dialogues to date and that I am due to have? 
 
-我：
+我：那么，记住你们“源实体”正在即时和持续的基础上分享彼此的信息和进化成长，你能告诉我，我是否在能量形态中为迄今为止的对话，以及我将要进行的对话，做了类似程度的预先计划和准备？
 
 SE8:Yes,you have.Of course,the level of planning has been varied and dependent upon the level of information you were expecting to work with,including the energies of the Source Entities you have and will communicate with.In this instance you may have noticed a pattern in the level of dialogue and complexity in the concepts increasing in complexity the further away from your own Source Entity you go. 
 
-8号源实体：
+8号源实体：是的，你有。当然，计划的水平是不同的，取决于你期望使用的信息水平，包括你拥有和将要与之沟通的源实体的能量。在这个例子中，你可能已经注意到了对话水平的模式，以及概念的复杂性，你离自己的源实体越远，概念的复杂性就越增加。
 
 ME:Well,I have noticed that the depth of information that I would have liked to extract has been not so much limited as more generalised.I have also noticed that the energies surrounding the Source Entities I have enjoyed dialogue with has been significantly different each time.Although it was significant,it was not insurmountable.I could work with it and even tune into it and get used to working with those energies.I even noticed that the more I continued dialogue with a new Source Entity,the more I could understand the information and receive more conceptual data.I reckon that the Source Entities I have communicated with to date have been in a certain order to allow me to ramp up each time, allowing me to move onwards and upwards in terms of my communicative (energetic link) abilities.Thus,I was able to use each Source Entity communicated with as a stepping stone for the next one.I guess that my going from my own Source Entity to Source Entity Four would have been an impossible task? 
 
-我：
+我：我注意到我想要提取的信息的深度与其说是有限的，不如说是更普遍的。我还注意到围绕着我喜欢对话的源实体的能量每次都明显不同。虽然它很重要，但它不是不可克服的。我可以与它一起工作，甚至调谐到它，并习惯于与那些能量一起工作。我甚至注意到，我与新的源实体对话越多，我就能理解的信息就越多，接收到更多的概念数据。我认为我迄今为止与之交流的源实体是以一定的顺序来让我每次都攀升，让我在交流(能量链接)能力方面前进和向上。因此，我能够把与每个源实体交流作为下一个的垫脚石。我猜我从我自己的源实体到源实体4将是一个不可能完成的任务？
 
 SE8:Correct.You may remember a previous dialogue (see Beyond the Source Book 1)where your progression outwards from your own Source Entity was described as being out on a lanyard,with the lanyard being "let out"the further you go to meet that metaphorical distance needed to travel to meet the next Source Entity in your list. 
 
-8号源实体：
+8号源实体：正确。你可能还记得前面的对话(见《超越源头》第一册)，你从自己的源实体向外发展的进程被描述为像一条绳索，你走得越远，绳索就越“松开”，你需要走的隐喻距离就越远，以满足你清单上的下一个源实体。
 
 ME:Actually,I do. 
 
-我：
+我：事实上，我知道。
 
-SE8:Well,that was in place to make sure that you did not or could not move out too far or start communication with the wrong Source Entity.It was designed to keep you in the correct sequence.In fact,what you don't know is that metaphorically speaking,the Source Entities have placed themselves in a sort of line or in order set distances away from your start point with your Source Entity to ensure that this strategy worked.WE ARE ALL WORKING WITH YOU TO SUPPORT YOU IN YOUR MOST IMPORTANT TASK. 
+SE8:Well,that was in place to make sure that you did not or could not move out too far or start communication with the wrong Source Entity.It was designed to keep you in the correct sequence.In fact,what you don't know is that metaphorically speaking,the Source Entities have placed themselves in a sort of line or in order set distances away from your start point with your Source Entity to ensure that this strategy worked. WE ARE ALL WORKING WITH YOU TO SUPPORT YOU IN YOUR MOST IMPORTANT TASK. 
 
-8号源实体：
+8号源实体：嗯，那是为了确保你不会或不能走得太远，或开始与错误的源实体进行交流。它被设计用来让你保持正确的顺序。事实上，你不知道的是，打个比方，源实体已经把自己放在一条线上，或按照从你与源实体的起点的距离来确保这个策略的有效性。
 
 ME:Wow!..Sorry,but that's all I can muster.The suggestion that you are all,err,moving around to suit my communication strategy is just a bit too much for me to handle right now. Specifically,as I am just a small energetic being. 
 
-我：
+我：哇！ 抱歉，我只能说这么多了。你们为了配合我的沟通策略而四处走动的建议，我现在实在是应付不过来。特别是，我只是个精力充沛的小家伙。
 
 SE8:Don't malign yourself.You have no idea what you are really like when fully energetic. 
 
-8号源实体：
+8号源实体：不要贬低自己。你不知道自己充满活力的时候是什么样子。
 
 ME:Clearly not.It's just a bit of a surprise to note the amount of pre-planning even though I am not cognisant of the full details that must have happened to allow all of this to occur. 
 
-我：
+我：显然不是。尽管我不知道所有这些事情发生的全部细节，但看到这么多的预先计划还是有点惊讶。
 
 Right I now need to refocus and continue the task at hand rather than feeling small in the bigger picture of what is happening in the greater reality. 
 
+好的，我现在需要重新集中注意力，继续手头的任务，而不是在更大的现实中发生的更大的画面中感到渺小。
+
 SE8:Good,I am raring to go. 
 
-8号源实体：
+8号源实体：很好，我迫不及待地想去。
 
 ### Source Entity Eight-A Continuum of Continuums
 
+**8号源实体：一个连续体的连续体**
+
 ME:Just to repeat some of our previous dialogue,one of the images I picked up was of you as a sphere covered in cone-shaped spikes.If you are supposed to be interspaced/pervade The Origin and be a continuum of continuum,how can that image relate to this very high level description of you? 
 
-我：
+我：重复一下我们之前的对话，我选取的其中一个图像是，你是一个覆盖着锥形尖刺的球体。如果你被认为是穿插在起源中，是一个连续体的连续体，那么这个图像如何与对你的这个非常高的描述相关联呢？
 
 At this point in the dialogue,dear reader,I knew that this was going to get difficult,so I decided that it would be a good idea to quote Source Entity Four's and Source Entity Five's comments on continuum for reference purposes. 
 
+亲爱的读者，在对话的这一点上，我知道这会变得困难，所以我决定引用源实体4和源实体5关于连续体的评论，以供参考。
+
 SE4:"As you rise through the frequencies,you move away from that which you experience at the previous frequency and start to experience that which is present in the new frequency. That is,using your own frequencies as an example,because things like the desk you sit at (of a slightly lower frequency than yourself and therefore solid)will no longer be part of your new frequentic level.You will,however,experience other things that are consistent with your experience or expectation of what a solid object such as your desk is.This is because frequencies overlap to a certain extent,and you are still within a single dimensional continuum.Now if you consider a change from one dimension to another,then you have to consider a bigger picture-that of the dimension and the frequencies.When you move from dimension to dimension you also move from the frequency set that is aligned to the dimension being moved from to the frequency set that is aligned to the dimension being moved to." 
 
-4号源实体：
+4号源实体：“当你通过频率上升时，你离开了你在以前的频率上所经历的，并开始体验出现在新频率上的东西。也就是说，以你自己的频率为例，因为像你坐的桌子这样的东西(比你自己的频率略低，因此是固体的)将不再是你新频率水平的一部分。然而，你会体验到其他与你的经验或预期一致的东西，比如你的桌子是什么固体物体。这是因为频率在一定程度上重叠，而你仍然在一个单维连续体中。现在，如果你考虑从一个维度到另一个维度的变化，那么你必须考虑一个更大的画面——维度和频率。当你从一个维度移动到另一个维度时，你也从与被移动维度对齐的频率集移动到与被移动维度对齐的频率集。”
 
 SE5:"....there is only one environment that can be called a continuum,one that involves dimension,frequency,energy and the recognition of the passage of events and time,which is where you are right now.A parallel dimension of equal content could be classified as a continuum but only if it has the full complement of the four components specified above. None do in YOUR universe.You need to be in a "multiversal"environment to have this effect take place." 
 
-5号源实体：
+5号源实体：“只有一种环境可以被称为连续体，它包括维度、频率、能量以及对事件和时间流逝的认识，也就是你现在所在的地方。一个等量的平行维度可以被归类为连续体，但只有当它拥有上述四个要素的完整补充时。在你的宇宙中没有任何一个。你需要在一个“多维宇宙”环境中才能产生这种效果。”
 
 Below is the Wikipedia description. 
 
-"Materials,such as solids,liquids and gases are composed of molecules separated by empty space.On a macroscopic scale,materials have cracks and discontinuities.However,certain physical phenomena can be modeled assuming the materials exist as a continuum,meaning the matter in the body is continuously distributed and fills the entire region of space it occupies.A continuum is a body that can be continually sub-divided into infinitesimal elements with properties being those of the bulk material." (ref:http://en.wikipedia.org/wiki/Continuum_mechanics). 
+以下是维基百科的描述。
+
+"Materials,such as solids,liquids and gases are composed of molecules separated by empty space.On a macroscopic scale,materials have cracks and discontinuities.However,certain physical phenomena can be modeled assuming the materials exist as a continuum,meaning the matter in the body is continuously distributed and fills the entire region of space it occupies.A continuum is a body that can be continually sub-divided into infinitesimal elements with properties being those of the bulk material." 
+
+“物质，如固体、液体和气体是由真空分隔的分子组成。在宏观尺度上，物质有裂缝和不连续性。然而，某些物理现象可以假设物质作为连续体存在来建模，这意味着身体中的物质是连续分布的，并填充它所占据的整个区域。连续体是一个可以连续细分成具有体积物质特性的无限小元素的身体。”
 
 Confused?Me too!But the comment about the "body"being continuously distributed,filling the entire region of space it occupies is very close to Source Entity Eight pervading the known area of self-awareness of The Origin.The mathematics to support this is VERY impressive!I wonder if it is anywhere near correct. 
 
+困惑吗？ 我也是！但关于“身体”是连续分布的，填充它所占据的整个区域的评论非常接近于源实体8，它遍布在起源的已知自我意识领域。支持这个的数学非常令人印象深刻！我想知道它是否接近正确。
+
 SE8:Ah,yes.No,it's woefully inadequate and goes nowhere near explaining any part of a continuum within me or The Origin.In fact,there is no humanly derived mathematics that can be used to model me. 
 
-8号源实体：
+8号源实体：啊，是的。不，它非常不足以解释我或起源内部连续体的任何部分。事实上，没有人造数学可以用来模拟我。
 
 Well,that answers that question on definition and our mathematical prowess to explain what a continuum is. 
 
+好了，这就回答了关于定义的问题，以及我们用数学技巧解释连续体是什么的问题。
+
 SE8:So without,so within. 
 
-8号源实体：
+8号源实体：所以，外面如此，里面也是如此。
 
 ME:What is that supposed to mean? 
 
-我：
+我：这是什么意思？
 
 SE8:That is the best way to understand a continuum;everything that is within is without as well.You see,the image of the cones on my supposed exterior form are the same in reverse inside the sphere. 
 
-8号源实体：
+8号源实体：这是理解连续体的最好方法；里面的一切在外面也是一样的。你看，我假设的外形上的圆锥体的图像在球体内部是相反的。
 
 ME:Now you are losing me. 
 
-我：
+我：现在你失去我了。
 
 SE8:The cone is both a geometric shape and a mathematical constant.It is also one of the shapes used to convey higher information.As a mathematical constant,it can be used in myriad ways. 
 
-8号源实体：
+8号源实体：圆锥体既是一种几何形状，也是一个数学常数。它也是用来传达更高信息的形状之一。作为一个数学常数，它可以有无数种用途。
 
 ME:You mean it is like the number associated with Pi(3.14159265,etc.). 
 
-我：
+我：你的意思是它就像与圆周率(3.14159265，等等)相关的数字。
 
 SE8:Yes,with the exception that it is a multi-dimensional,multi-frequential constant and,therefore,is a mathematical cornerstone to the mathematical explanation of my construction,so to speak. 
 
-8号源实体：
+8号源实体：是的，除了它是一个多维的，多频率的常数，因此，可以说它是我建筑的数学解释的数学基石。
 
 ME:So the image I received of you as a sphere-covered in cones,which may or may not be inside out within you is a symbolic representation of the way you are constructed. 
 
-我：
+我：所以我所看到的你是一个圆球，上面覆盖着圆锥体，圆锥体可能内在，也可能外在，这是你构建方式的象征性表现。
 
 SE8:Bingo!...Is that the right word?
 
-8号源实体：
+8号源实体：对了！...这个词对吗？
 
 ME:It will do.We use it as an expletive for the recognition of understanding of something. Eureka!would have been a more appropriate way of expressing your concurrence of my miniscule level of understanding though. 
 
-我：
+我：可以。我们用它作为一种感叹词来表达对某事的理解。不过，用“尤里卡！”来表达你对我微不足道的理解程度的赞同会更合适。
 
 SE8:Then my use was correct,a diminutive word for the miniscule level of understanding of the concept. 
 
-8号源实体：
+8号源实体：那么我的用法是正确的，一个小词用于对概念的理解的最小水平。
 
 ME:I very much don't think that I even understand it on even a miniscule level yet.Can you go into a bit more detail for me? 
 
-我：
+我：我非常不认为我甚至在最小的层面上都理解了它。你能为我详细一点吗？
 
 SE8:With pleasure.But first let me tell you this.All 3D geometrical shapes are geometric explanation of a mathematical constant.I limit myself here to the use of 3D as there are 4D,5D,6D,7D,etc.,up to 12D geometrical shapes that are also constants,including that which humankind is not currently aware of.Some of your mathematicians are starting to understand this,but they need to include the wider multiversal environment and the energies associated with The Origin before they will start to make any sense of the maths surrounding it.It is the use of such mathematical constants that are the major language of the planets,stars and the galaxies and of whatever presentation,form and function within most of the environments created by the Source Entities that can be classified in some way as the physical representations of energetic constructs,a physical universe if you like. However,a physical universe,such as the one your vehicle(physical body)currently resides in,cannot be classified as a continuum as it does not contain all of the elements required to be classified as one.As Source Entity Five stated in its dialogue with you on the subject,you need to have the "multiversal"content to classify an environment as a continuum.
 
-8号源实体：
+8号源实体：很高兴，但首先让我告诉你，所有的3D几何形状都是数学常数的几何解释，我在这里限制自己只使用3D，因为还有4D、5D、6D、7D等，直到12D的几何形状也是常数，包括人类目前还没有意识到的。你们的一些数学家开始理解这一点，但他们需要包括更广泛的多维环境和与起源相关的能量，然后他们才会开始理解周围的数学。正是使用这些数学常数，是行星、恒星和银河的主要语言，以及源实体所创造的大多数环境中的任何表现、形式和功能，这些都可以在某种程度上被归类为能量结构的物理表现，如果你愿意的话，可以被归类为一个物理宇宙。正如源实体5在与你的对话中所说的那样，你需要有“多维”的内容来将环境划分为连续统一体。
 
 The sphere in your image represents all that currently is The Origin with the cones representing the mathematical constants,or pit props if you like,that hold me in my current position within that which is currently The Origin.Each of these has a loci which is in contact with each other at a mathematical point of,err,let's say,absolute zero.I can see you frowning,so let me explain what absolute zero is. 
 
+你图像中的球体代表了目前的起源，圆锥体代表了数学常数，或者说坑支柱，把我放在目前的起源中我的位置。每个轨迹都有一个数学点，呃，我们说，绝对零度。我能看见你皱眉，所以让我解释一下绝对零度是什么。
+
 ME:You bet.I thought that zero was zero with a plus and minus component above and below for positive and negative values of figures. 
 
-我：
+我：没错。我以为零度是零度，上面和下面有正负分量表示数字的正负值。
 
 SE8:It is not a concept that mankind has to consider yet in its limited recognition of self,environment and creator.Absolute zero is a zero that is manifest from a group of converging mathematical constants that are individually derived but collectively dependent whilst still being independently calculable.The absolute zero is that point or mathematical location where a locus of the individual loci of a group of constants occurs simultaneously, the physical representation of such a condition not being possible due to the fact that "physicality"is a single universal phenomenon and not multiversal.However,there are instances where a simulacrum of physicality can occur in non-physical universes due to similarity in resonant frequency.But you already know this from previous dialogues. 
 
-8号源实体：
+8号源实体：在人类对自我、环境和造物主有限的认识中，这不是一个必须考虑的概念。绝对零度是一个零度，它从一组收敛的数学常数中显现出来，这些常数单独派生，但集体依赖，同时仍然可以独立计算。绝对零度是那个点或数学位置，一组常数的单个轨迹的轨迹同时发生，由于“物质性”是一个单一的普遍现象，而不是多维的，因此这种条件的物理表现是不可能的。然而，由于共振频率的相似性，在一些例子中，物质性的模拟物可以在非物质宇宙中发生。
 
 ME:You talk about"that which is currently The Origin."What do you mean by that? 
 
-我：
+我：你说“目前的起源”，这是什么意思？
 
 SE8:I haven't finished yet. 
 
-8号源实体：
+8号源实体：我还没完成。
 
 ME:I know,but I feel that the readers would like to understand.SE8:Simply put,it is what you have recently been told by Source Entity Seven "in totality.That at some point The Origin will evolve and expand its area of awareness of self further.The expansiveness of The Origin will be multiplied to the point of infinity in your mind,but it will still be a mere fraction of what is possible for The Origin to be.Currently,The Origin is a fraction of one percent aware of itself.The expansion in the area of self-awareness will bring the area of awareness un-mapped experientially to a little under one percent of its totality. 
 
