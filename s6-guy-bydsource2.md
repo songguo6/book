@@ -2990,91 +2990,105 @@ SE8:I haven't finished yet.
 
 8号源实体：我还没完成。
 
-ME:I know,but I feel that the readers would like to understand.SE8:Simply put,it is what you have recently been told by Source Entity Seven "in totality.That at some point The Origin will evolve and expand its area of awareness of self further.The expansiveness of The Origin will be multiplied to the point of infinity in your mind,but it will still be a mere fraction of what is possible for The Origin to be.Currently,The Origin is a fraction of one percent aware of itself.The expansion in the area of self-awareness will bring the area of awareness un-mapped experientially to a little under one percent of its totality. 
+ME:I know,but I feel that the readers would like to understand.
 
-我：
+我：我知道，但我感觉读者们想了解。
+
+SE8:Simply put,it is what you have recently been told by Source Entity Seven "in totality.That at some point The Origin will evolve and expand its area of awareness of self further.The expansiveness of The Origin will be multiplied to the point of infinity in your mind,but it will still be a mere fraction of what is possible for The Origin to be.Currently,The Origin is a fraction of one percent aware of itself.The expansion in the area of self-awareness will bring the area of awareness un-mapped experientially to a little under one percent of its totality. 
+
+8号源实体：简单地说，就是你最近被7号源实体告知的“全部”。在某个时刻，起源会进化并进一步扩大自我意识的范围。在你心中，起源的广度将成倍增加到无限大，但它仍将只是起源可能成为的一部分。目前，起源只有百分之一的自我意识。自我意识范围的扩大将使经验上未映射的意识范围达到其全部的百分之一以下。
 
 ME:Ah,OK.I was just making sure that there was not anything else happening to The Origin.I was just making sure that I didn't miss anything. 
 
-我：
+我：啊，好的。我只是想确认一下起源没有发生什么其他的事情。我只是想确认一下我没有错过任何事情。
 
 SE8:Ha,ha,ha,ha,ha!How naive you are.The Origin is always changing,and for you to say that you don't want to miss anything?Well,I will tell you this.When you have finished all of your current lifetimes'work on the subject of helping mankind understand the truth, and you have some considerable distance to go,you will still know nothing in comparison to what IS. 
 
-8号源实体：
+8号源实体：哈哈哈！你太天真了。起源总是在变化，而你却说你不想错过任何东西。好吧，我来告诉你。当你完成了你目前的生命中所有关于帮助人类理解真相的工作，你还有相当长的路要走，与“原初”相比，你仍然什么都不知道。
 
 ME:OK.OK.It was a foolish thing to say.I am blushing now.I think it's time for me to let you carry on in your explanation of the relevance of the imagery I received about your structure. 
 
-我：
+我：好吧，好吧，说这话很愚蠢。我现在脸都红了。我想是时候让你继续解释我对你的结构的印象了。
 
 SE8:Thank you.Please note that I was not trying to put you down.Far from it.It's just that it was a good joke to me.Your comment reflected mankind's self-centered "know it all" arrogance.Even The Origin doesn't know everything;hence,its need to create the Source Entities to help it in its own quest to experience,learn and evolve.I am sorry;I just found it very funny for a moment. 
 
-8号源实体：
+8号源实体：谢谢。请注意，我并不是想贬低你。远非如此。这只是对我来说是一个好笑话。你的评论反映了人类以自我为中心的“无所不知”的傲慢。即使起源也不知道一切；因此，它需要创造源实体来帮助它在自己的探索中体验、学习和进化。我很抱歉；我只是一时觉得它很好笑。
 
 ME:That's alright. 
 
-我：
+我：没关系。
 
 I was starting to chuckle to myself;tears were forming in the corner of my eyes as I,too,saw the joke! 
 
+我开始自己笑起来，眼角的泪水在我眼里凝固，因为我也看到了这个笑话！
+
 SE8:It's good to laugh.We Source Entities do it all the time.We have so much fun in doing what we do that we can't help but laugh. 
 
-8号源实体：
+8号源实体：笑是好的。我们源实体一直都在笑。我们做的事情让我们感到如此有趣，以至于我们忍不住会笑。
 
 I wondered how a Source Entity would laugh.No,don't ask that question! 
 
+我想知道源实体会怎么笑。不，别问这个问题！
+
 ME:How does a Source Entity laugh? 
 
-我：
+我：源实体会怎么笑？
 
 I failed on that piece of temptation. 
 
+我没能抵挡住那次诱惑。
+
 SE8:How we laugh is unexplainable to you.But I will tell you this:when a Source Entity laughs the whole of its environment receives unfathomable love.Everything and everyone within its environment/s feels a wonderful sense of "well-being"for a split second. 
 
-8号源实体：
+8号源实体：我们如何笑对你们来说是无法解释的。但我会告诉你们：当一个源实体笑的时候，它周围的一切都会收到无尽的爱。在那一瞬间，它周围的一切事物和每一个人都会感到一种美妙的“幸福感”。
 
 ME:I think I have felt this once or twice in my life. 
 
-我：
+我：我觉得我一生中已经有过一两次这样的感觉了。
 
 SE8:All of mankind has. 
 
-8号源实体：
+8号源实体：全人类都有。
 
 ME:Thank you.
 
-我：
+我：谢谢。
 
 SE8:It's a pleasure. 
 
-8号源实体：
+8号源实体：很高兴能帮到你。
 
 I mentally logged in to one of those moments that I believed were associated with me having a snippet of full self-awareness and realized that this may have been one of those moments when our Source Entity laughed.It felt wonderful. 
 
+我精神上进入到那些我相信与我拥有完整自我意识片段有关的时刻之一，并意识到这可能是我们的源实体笑的时刻之一。感觉很棒。
+
 SE8:Now then,let's continue to talk about how the imagery you received explains my form and function.I will repeat what I previously said.
 
-8号源实体：
+8号源实体：现在，让我们继续谈论你接收到的意象如何解释我的形态和功能。我将重复我之前说过的话。
 
 "The sphere in your image represents all that currently is The Origin with the cones representing the mathematical constants,or pit props if you like,that hold me in the position that I am in within that which is currently The Origin.Each of these has loci which are in contact with each other at a mathematical point of absolute zero."Got it so far? 
 
+“你图像中的球体代表了目前的起源，圆锥体代表了数学常数，或者你喜欢的话，把我放在我现在所在的位置，现在是起源。每个轨迹都有一个数学上的绝对零点。” 到目前为止明白了吗？
+
 ME:Yes. 
 
-我：
+我：是的。
 
 SE8:Good.The cones are on the outside because they represent the number of continuum that I am constructed of.In essence,they are on the inside,figuratively speaking.Therefore, each of the tips of the cones is in contact with each other at the center point of the sphere that represents my epicenter of existence within the area of The Origin that is its current area of self-awareness.If you were to expand your consciousness,you would notice that each of the continuum are placed close enough to one other to allow the exterior surfaces to touch each other,creating an interface between the continuum where an entity could pass from one continuum to another.The gaps in the middle,i.e.,where the continuum do not touch,are those areas where the maintenance of the structure of the continuum can be addressed.These gaps are absolutely necessary and vital to the overall balance of energies as there must be an equal area of non-continuum to continuum to allow the structure to be maintained.Do not,however,be confused by the word non-continuum for the area of non- continuum is a continuum in its own right.Am I making myself clearly understood here? 
 
-8号源实体：
+8号源实体：很好。锥体在外面，因为它们代表我构成的连续体的数量。本质上，它们在里面，比喻地说。因此，每个锥体的尖端都在球体的中心点相互接触，代表我存在于起源区域的中心，这是它当前的自我意识区域。如果你扩大你的意识，你会注意到每个连续体都彼此靠近，以便外表面相互接触，在连续体之间创造一个界面，一个实体可以从一个连续体到另一个连续体。中间的空隙，即连续体不接触的地方，是那些可以解决连续体结构维护的区域。这些空隙对能量的整体平衡是绝对必要和至关重要的，因为必须有一个与连续体面积相同的非连续体区域，以便保持结构。然而，不要被非连续体这个词弄糊涂了，因为非连续体区域本身就是一个连续体。我在这里讲清楚了吗？
 
 ME:I think so.But I don't understand why you need an equal amount of single non- continuum to multiple continuum. 
 
-我：
+我：我认为是这样。但我不明白为什么你需要一个等量的单一非连续性到多个连续性。
 
 SE8:Simply put,there has to be a balance.The sum of the whole has to equal the one,and the one has to equal the sum of the whole.That,my friend,is the basis of continuum mechanics. Everything that exists within,exists without,whilst still being within.That is the only way that a continuum can maintain its structure and independence.That and with a little help from my continuum mechanical maintenance entities. 
 
-8号源实体：
+8号源实体：简单地说，必须有一个平衡。整体的总和必须等于一个，而这个也必须等于整体的总和。我的朋友，这就是连续介质力学的基础。所有存在于内部的，都存在于外部，同时仍然存在于内部。这是连续介质保持其结构和独立性的唯一方法。再加上我的连续介质机械维护实体的一点帮助。
 
 ME:That sounds like the opportunity for a lead in to my next question.Who and what are these continuum mechanical maintenance entities? 
 
-我：
+我：这听起来像是引出我下一个问题的机会，这些连续机械维护实体是谁和是什么？
 
 ### The Maintenance of Continuum Within the Continuum 
 
