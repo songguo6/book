@@ -323,7 +323,7 @@ ME:So that is your collective bail-out.
 
 SE7:Yes,I suppose it is.I/we hadn't thought of it in that way.We simply think of it as an opportunity for future experience,should we all collectively seek such a change.Such a change would only be sought by The Origin if all three of me desire it together.It cannot take place if only one or two parts of me want it,but one part does not. 
 
-7号源实体：是的，我想是的。我/我们没有那样想过。我们只是简单地认为，如果我们共同寻求这样的改变，那它就是未来体验的一个机会。只有当我三者都共同渴望时，这样的改变才会被原点所寻求。如果我只有一、两个部分想要它，而另外一部分不想要，那么它就不会发生。
+7号源实体：是的，我想是的。我/我们没有那样想过。我们只是简单地认为，如果我们共同寻求这样的改变，那它就是未来体验的一个机会。只有当我三者都共同渴望时，这样的改变才会被起源所寻求。如果我只有一、两个部分想要它，而另外一部分不想要，那么它就不会发生。
 
 ME:Can you merge two parts of you together. 
 
@@ -419,7 +419,7 @@ ME:Yes,I can imagine that would be a prerequisite dictate by The Origin,who woul
 
 SE7:That's right,it does,and that was the reason for my choosing to become two,which ended up being three.Apart from the Source Entity you call "Five"and the one that is not yet fully aware,I had noticed that the others divided themselves up internally whilst still maintaining an overall aspect that made them retain their wholeness.As a result of this observation,I decided to become two independent Source Entities with a link between the two.I discussed this and the "bail out"option as you described earlier with The Origin (for it is only The Origin that can return us to wholeness)who agreed with my strategy,and I continued.What happened next is as I have previously described.As I was in the process of separating out into the two versions of me,I noticed that a unique opportunity could be applied.If I maintained the equal overlapping area of the two versions of me and then froze the separation process in one position,this created a third middle option where we would all be separate but co-joined and co-existent.As I froze the separation at the point of equality,my consciousness divided into three and developed into three separate Source Entity personalities.But there was something else that I noticed as well.The periphery of the energies that separated us from each other was permeable,allowing energies that moved from,say,the left to the right or from Source Entity Seven"A"to move into Source Entity Seven "B"to actually cross the periphery or boundary energies.What's more,I noticed that there was a progressive opportunity in passing from one side of Source Entity Seven "A" to the point of interface between Source Entity Seven "A"(SE7A)and Source Entity Seven "B"(SE7B).This was duplicated in a progressive manner from Source Entity Seven "B"to the point of interface between Source Entity Seven "B"and Source Entity Seven "C"(SE7C). 
 
-7号源实体：是的，确实如此，这就是我选择成为两个，最后变成三个的原因。除了你称之为5号源实体和那个还没有完全意识到的源实体，我注意到其他源实体内部分裂的同时仍然保持整体的方面，使他们保持完整。由于这个观察的结果，我决定成为两个独立的源实体，在两个之间有一个连接。我讨论了这个和你之前描述的“解救”选项，与原点(因为只有原点可以让我们回到完整)谁同意我的策略，我继续。接下来发生的事情是我之前描述的。当我在分离成两个版本的我的过程中，我注意到一个独特的机会可以被应用。如果我保持两个版本的我相同的重叠区域，然后将分离过程冻结在一个位置，这创造了第三个中间选项，我们都会分离但共同连接和共存。但是我还注意到了其他一些东西。将我们彼此分开的能量的外围是可渗透的，允许能量从左到右或从第7号源实体“A”移动到第7号源实体“B”中，从而真正地跨越外围或边界能量。更重要的是，我注意到有一个渐进的机会，从第7号源实体“A”的一侧通过到第7号源实体“A”(SE7A)和第7号源实体“B”(SE7B)之间的接口点。这以一种渐进的方式从第7号源实体“B”复制到第7号源实体“B”和第7号源实体“C”(SE7C)之间的接口点。
+7号源实体：是的，确实如此，这就是我选择成为两个，最后变成三个的原因。除了你称之为5号源实体和那个还没有完全意识到的源实体，我注意到其他源实体内部分裂的同时仍然保持整体的方面，使他们保持完整。由于这个观察的结果，我决定成为两个独立的源实体，在两个之间有一个连接。我讨论了这个和你之前描述的“解救”选项，与起源(因为只有起源可以让我们回到完整)谁同意我的策略，我继续。接下来发生的事情是我之前描述的。当我在分离成两个版本的我的过程中，我注意到一个独特的机会可以被应用。如果我保持两个版本的我相同的重叠区域，然后将分离过程冻结在一个位置，这创造了第三个中间选项，我们都会分离但共同连接和共存。但是我还注意到了其他一些东西。将我们彼此分开的能量的外围是可渗透的，允许能量从左到右或从第7号源实体“A”移动到第7号源实体“B”中，从而真正地跨越外围或边界能量。更重要的是，我注意到有一个渐进的机会，从第7号源实体“A”的一侧通过到第7号源实体“A”(SE7A)和第7号源实体“B”(SE7B)之间的接口点。这以一种渐进的方式从第7号源实体“B”复制到第7号源实体“B”和第7号源实体“C”(SE7C)之间的接口点。
 
 ME:Was this dimensional,frequency,or evolutionary based? 
 
@@ -3092,81 +3092,83 @@ ME:That sounds like the opportunity for a lead in to my next question.Who and wh
 
 ### The Maintenance of Continuum Within the Continuum 
 
+**连续体内部的连续体维护**
+
 SE8:They are entities whose sole purpose in existence within my environment is to maintain the stability of the continuum and the continuum within my continuum.Their most important work is to maintain the location of the locus,for this is the lynch pin that holds the continuum together. 
 
-8号源实体：
+8号源实体：它们是我的环境中存在的实体，唯一的目的是维持连续体和连续体内部连续体的稳定。它们最重要的工作是维持轨迹的位置，因为这是将连续体固定在一起的绞刑针。
 
 ME:I would have expected that a locus,especially if it is the locus of a series of loci,would be stable.By the tone of your dialogue above,you are suggesting that this is not the case,and that it needs to be maintained in some way. 
 
-我：
+我：我本以为一个基因座，特别是如果它是一系列基因座的基因座，会是稳定的。从你上面对话的语气来看，你是在暗示这不是事实，而且它需要以某种方式来维持。
 
 SE8:Your expectation would be correct where the locus in an area of stability.But The Origin,and as a result,I,in my dissemination throughout The Origin,are not stable.We will never be stable. 
 
-8号源实体：
+8号源实体：你的期望在稳定的区域是正确的。但是起源，因此，我，在我的传播中，起源是不稳定的。我们永远不会稳定。
 
 ME:Why is that?I would have thought that The Origin,being the vast expanse that it is would have an inherent level of stability,especially as it is the basis for everything that is.
 
-我：
+我：为什么？我认为起源，作为一个广阔的宇宙，应该有一种内在的稳定性，特别是作为一切事物的基础。
 
 SE8:You are talking about dimensional stability,I feel. 
 
-8号源实体：
+8号源实体：我感觉你在谈论尺寸稳定性。
 
 ME:Yeeees! 
 
-我：
+我：是的！
 
 SE8:Well,I am talking about evolutionary stability.You see,evolutionary stability has an effect on dimensional stability,specifically where The Origin is concerned. 
 
-8号源实体：
+8号源实体：嗯，我正在谈论进化稳定性。你看，进化稳定性对维度稳定性有影响，特别是在起源方面。
 
 ME:Right!Err,how? 
 
-我：
+我：对！额，怎么会？
 
 SE8:You will remember that in previous dialogues you have been told about the ascension of The Origin and that its evolution creates this ascension.That its ascension will allow it to expand its area of self-awareness even though it will not be cognizant of the details of those new areas of self-awareness. 
 
-8号源实体：
+8号源实体：你将记得在之前的对话中，你被告知起源的提升，以及它的进化创造了这次提升，它的提升将允许它扩展自我意识的领域，即使它将无法认知那些自我意识新领域的细节。
 
 ME:Yes,I do. 
 
-我：
+我：是的，我知道。
 
 SE8:Well,the area of expansion of self-awareness is not even.What I mean by this is that it is not expansion in the spherical sense of the word.It is more uneven,lumpy.It is as result of this lumpiness that the locus of the loci changes location within me,and,therefore, The Origin.Now then,we are not at that point of expansion resulting from ascension yet. However,The Origin is expanding.It's always expanding,and the expansion is in its level of experiential detail of its current area of self-awareness.It is this expansion that creates evolutionary pressure,which results in minor changes in the external perimeter of the area of self-awareness of The Origin and,therefore,the position of the locus. 
 
-8号源实体：
+8号源实体：嗯，自我意识的扩展区域是不均匀的。我的意思是它不是球形的扩张。它更不均匀，凸起。正是这种凸起导致了轨迹的轨迹改变了我体内的位置，因此，起源。现在，我们还没有达到因提升而导致的扩张点。然而，起源正在扩张。它总是在扩张，扩张是它当前自我意识区域的经验细节水平。正是这种扩张创造了进化压力，导致了起源自我意识区域外部周长的微小变化，因此，轨迹的位置。
 
 ME:So The Origin has dimensional area? 
 
-我：
+我：所以起源是有维度面积的？
 
 SE8:In a sense,yes.You see,its area is unfathomable even to us,as none of us has really been able to calculate what size,if you like,The Origin will be when it reaches recognition of one hundred percent of its area of self-awareness.But please note here that the dimensional area is a function of evolution,not a so-called measureable metric that you would use in the universe that the Earth is within. 
 
-8号源实体：
+8号源实体：从某种意义上说，是的。 你看，它的面积甚至对我们来说也是深不可测的，因为我们没有人真正能够计算出“起源”的大小，如果你愿意的话，当它达到百分之百的自我意识面积时。 但请注意，维度面积是进化的函数，而不是你们在地球所在的宇宙中使用的所谓可测量的度量。
 
 ME:As I understand it then,these entities whose job it is to maintain the position of the locus must be able to understand or measure in some way the changes to the outer edges of you as a continuum within The Origin,and make adjustments as appropriate. 
 
-我：
+我：据我所知，这些负责保持轨迹位置的实体必须能够以某种方式理解或测量作为起源内部连续体的你们的外缘的变化，并做出适当的调整。
 
 SE8:Spot on.Do not think that it is just the locus that they have to work with.The locus is the product of the absolute zero points of the loci. 
 
-8号源实体：
+8号源实体：说得对。不要认为他们只需要轨迹。轨迹是轨迹绝对零点的乘积。
 
 ME:And they have to manipulate the levels of absolute zero to compensate for the changes in The Origin's area of self-awareness,which affects you as a continuum within the totality of that part of The Origin which is known in detail... 
 
-我：
+我：他们必须操纵绝对零度的水平，以补偿起源自我意识领域的变化，这对你的影响是连续的，在起源的整体中，这是已知的细节...
 
 SE8:..And that it is becoming self-aware of. 
 
-8号源实体：
+8号源实体：它正在变得有自我意识。
 
 ME:We finish in tandem. 
 
-我：
+我：我们一起完成。
 
 SE8:We do. 
 
-8号源实体：
+8号源实体：是的。
 
 ME:Based upon that then,the levels of absolute zero are not,in fact,absolute zero. 
 
