@@ -3172,309 +3172,407 @@ SE8:We do.
 
 ME:Based upon that then,the levels of absolute zero are not,in fact,absolute zero. 
 
-我：
+我：基于这一点，绝对零度的电平实际上不是绝对零度。
 
 SE8:No,for absolute zero is not a fixed mathematical point.It is dependent upon the area, position (within me)and dimension,dimensional component,frequential and energetic components associated with the continuum it is absolute zero of and,therefore,a loci for. What you are looking for is a fixed point of zero.A fixed point of zero is an altogether different thing. 
 
-8号源实体：
+8号源实体：不，绝对零度不是一个固定的数学点。它取决于面积，位置(在我体内)，维度，维度分量，频率和能量分量与连续体的绝对零度相关，因此，是一个轨迹。你在寻找的是零的固定点。零的固定点是完全不同的事。
 
 Just when I thought I was on a roller,I score a bogey! 
 
+当我以为我正处于好状态时，我打出了一个柏忌！
+
 ME:Go on,tell me.What is a fixed point of zero? 
 
-我：
+我：继续，告诉我，零的定点是什么？
 
 SE8:Quite simply the expression of that position or locus that is always collectively achieved by the mathematical representation of all of the possible positions achievable by the locus or collective positions of absolute zero of all of the continuum at any point in the evolution of The Origin.I will give it a word you can understand,a datum.A datum that is always created even though stable rather than being a start or a point of origin. 
 
-8号源实体：
+8号源实体：很简单，这个位置或轨迹的表达总是通过所有可能的位置的数学表示来实现，这些位置或位置都是由所有连续体在起源进化过程中任何一点的绝对零点所实现的。我会用一个你能理解的词来描述它，一个基准点。一个基准点总是被创造，即使它很稳定，而不是一个起点或原点。
 
 ME:I can imagine a few mathematicians having a field day over discussing that statement. They won't believe a word of it. 
 
-我：
+我：我可以想象一些数学家会花一天的时间来讨论这个说法。他们不会相信这个说法的任何一个字。
 
 SE8:I would like to see them disprove it.It is what holds everything together.Scientists rarely,if ever,see the fundamental basis for WHAT IS,for they are always working with the PRODUCTS of what is. 
 
-8号源实体：
+8号源实体：我倒想看看他们能否证明它错。它把一切都凝聚在一起。科学家们很少，如果有的话，看到“是什么”的基本基础，因为他们总是在研究“是什么”的产物。
 
 ME:OK,I would like to go back to the entities who maintain the different continuum.How and what do they do to maintain the overall continuum environment and the point of absolute zero? 
 
-我：
+我：好的，我想回到维持不同连续体的实体。他们如何做，他们做了什么来维持整体连续体环境和绝对零度点？
 
 SE8:As explained above.The point of absolute zero for each of the continuum is based upon the evolutionary periphery that the base of the "cone"that represents the continuum and its contact with the outer periphery of the continuum,that is me,and the outer edge of The Origin's area of self-awareness,and its subsequent point of contact with the other continuum cones,so to speak.Simplistically put,the entities are constantly calculating,if you like,the levels of evolutionary pressures in the area of the continuum they are responsible for and noting how it affects their position of absolute zero.This is done concurrently and simultaneously throughout the continuum and its component continuum.This continual calculation results in the constant and consistent movement of the point of absolute zero in conjunction with the movements of the other points of absolute zero that represent the locus of the loci.
 
-8号源实体：
+8号源实体：如上所述，每个连续体的绝对零点是基于进化边缘的，即代表连续体的“圆锥体”的底部，以及它与连续体外缘的接触，也就是我，以及起源自我意识区域的外缘，以及它与其他连续体圆锥体的后续接触点，可以这么说。 简单地说，实体不断地计算，如果你愿意，它们负责的连续体区域的进化压力水平，并注意它如何影响它们的绝对零点位置。这在整个连续体及其组成连续体中同时进行。这种持续的计算导致了绝对零点的持续和一致的运动，与代表轨迹轨迹的其他绝对零点的运动相结合。
+
+（图9：源实体8内部结构的概念图：内部圆锥的点是相关连续体的轨迹，由圆锥形状表示）
 
 ![Figure 9: Conceptual Image of Source Entity Eight's Internal Structure(the points of the internal cones are the loci of the associated continuum, which are represented by the cone shape)](img/s6-044.png)
 
 ME:I just received an image of the points moving in and out and round and round with all of the points staying in contact with each other all of the time.
 
-我：
+我：我只是收到了一个图像，点在进进出出，一圈一圈，所有的点都在一直保持相互联系。
 
 SE8:The image you have received would be a correct representation apart from one thing. 
 
-8号源实体：
+8号源实体：你收到的图片除了一件事外，都是正确的。
 
 ME:What's that? 
 
-我：
+我：那是什么？
 
 SE8:Sometimes there is a disconnect,and one of the continuum loci's loses contact with the locus. 
 
-8号源实体：
+8号源实体：有时会发生断裂，其中一个连续基因座与基因座失去联系。
 
 ME:What?!When does that happen?More importantly,how can it happen,especially if the fixed point of zero is,err,fixed? 
 
-我：
+我：什么？什么时候会发生？更重要的是，它怎么会发生，特别是零的固定点是固定的？
 
 SE8:Very good question.The fixed point of zero is what it is,fixed.So when the odd occasion occurs where the loci,the point of absolute zero of a continuum,either moves away from the locus as a result of incorrect calculative action on the part of the maintaining entities or as the result of a sudden and rapid change in evolution,the loci of the continuum remains in contact by a continuum thread so to speak.Call it a bungee rope if you like,for it allows the loci of the continuum to remain in place whilst the bulk of the continuum is adjusted to be in the correct position from a geometric perspective. 
 
-8号源实体：
+8号源实体：问得好。零点的固定点就是它本身，固定的。所以当偶尔出现连续体的轨迹，连续体的绝对零点，由于维护实体的计算错误或进化中突然的快速变化而偏离轨迹时，连续体的轨迹仍然通过连续线保持接触。如果你愿意，可以称之为蹦极绳，因为它允许连续体的轨迹保持原位，而连续体的大部分从几何角度调整到正确的位置。
 
 The reason this happens is because evolution is not an exact science.It happens in fits and starts.Devolution can also be experienced as can evolutionary compression,evolutionary expansion,evolutionary expression and evolutionary stretch,which by the way is not the same as evolutionary expansion. 
 
+之所以会这样，是因为进化不是一种精确的科学。它时断时续。下放也可以经历进化压缩、进化膨胀、进化表达和进化拉伸，顺便说一下，进化拉伸与进化膨胀是不同的。
+
 ME:I had heard of loss of evolution,devolution,but not the others.Can you explain them for me?
 
-我：
+我：我只听说过进化丢失、下放，其他的我都没听说过，能解释一下吗？
 
 ### How the Different Forms of Evolution Affect Source Entity Eight's Continuum 
 
+**不同形式的进化如何影响源实体8的连续体**
+
 SE8:I will split them out and illustrate how they affect the order within my continuum. 
 
-8号源实体：
+8号源实体：我将把它们分开，并说明它们如何影响我的连续体中的顺序。
 
 **Rapid Evolution**
 
+**快速进化**
+
 This is where the evolution itself happens at an accelerated rate due to the continued recognition by an entity or group of entities(this can include a whole universe)of what experience processes are creating the evolutionary opportunity and actively planning to use them to increase their evolutionary progression. 
+
+这是进化本身以加速速度发生的地方，因为一个实体或一组实体(这可以包括整个宇宙)不断认识到什么经验过程正在创造进化机会，并积极计划使用它们来增加他们的进化进程。
 
 This has the ability to affect the geometry of the continuum in a way that is equal to an expansion outwards from the center,effectively increasing the distance from the locus to the so-called base of the cone.The diameter of the base of the cone of the continuum increases accordingly to account for the supposed increase of the theoretical spherical radius of self-awareness.The loci's (point of absolute zero)connectivity to the locus is not affected with this type of evolution and is controllable. 
 
+这有能力影响连续体的几何形状，相当于从中心向外扩张，有效地增加了从轨迹到所谓的圆锥体底部的距离。连续体圆锥体底部的直径相应增加，以解释自我意识理论球形半径的假设增加。轨迹(绝对零点)与轨迹的连接不会受到这种类型的进化的影响，并且是可控的。
+
 **Slow Evolution**
+
+**慢进化**
 
 This occurs where the evolution itself happens at a slower than expected/ normal rate.In slow evolution,the recognition of evolutionary opportunities is either not made or is spasmodic with the entity or entities not learning the processes and actions that created the possible evolution. 
 
+当进化本身比预期/正常速度慢时，就会发生这种情况。在慢进化中，进化机会的识别要么没有发生，要么是间歇性的，因为实体没有学习创造可能进化的过程和行动。
+
 This has the ability to affect the geometry of the continuum,the so-called base of the cone, in a minimal way because it is slower than normal growth.In this instance,and this is the same with static evolution and devolution,evolutionary stretch can be experienced if the other continuum are experiencing accelerated evolutionary growth simultaneously.This is not the same as "Logarithmic Evolution"(see below). 
+
+这能够以最小的方式影响连续体的几何形状，即所谓的锥底，因为它比正常增长要慢。在这种情况下，这与静态进化和下放是相同的，如果其他连续体同时经历加速进化增长，则可以经历进化拉伸。这与“对数进化”(见下文)不同。
 
 **Static Evolution**
 
+**静态进化**
+
 This exists where the evolutionary progress is in stasis.It is neither progressing in a positive or negative way.In this instance,positive evolution that is being experienced in one part of the continuum is being balanced by negative evolution in another part of the continuum.In both instances,the processes surrounding the positive and negative evolutionary effects to the overall continuum are not being learnt and progressed. 
+
+当进化过程停滞不前时，它就存在了。它既不是积极的也不是消极的。在这种情况下，连续体的一部分正在经历的积极进化被另一部分的消极进化所平衡。在这两种情况下，围绕着整个连续体的积极和消极进化影响的过程并没有被学习和推进。
 
 The effect from a geometric expression is equal to an undulation on the outer edges of the continuum,creating a sort of rippling effect. 
 
+几何表达式的影响等于连续体外缘的波动，创造了一种涟漪效应。
+
 In the event of rapid evolution being experienced in all other continuum,an elastic limit can be reached where the outer edge of the holding continuum must move with the evolutionary tension created by the other continuum.In this instance,the static evolutionary condition is changed to reflect an increase in the level of evolution in some part to "catch up"with the evolving continuum and their effect on the outer surface of the holding continuum,me. 
+
+在所有其他连续体中经历快速进化的情况下，可以达到一个弹性极限，其中持有连续体的外缘必须随着其他连续体所创造的进化张力而移动。在这种情况下，静态进化条件被改变，以反映某部分进化水平的提高，以“赶上”进化连续体及其对持有连续体外表面的影响。
 
 **Reversed Evolution (Devolution)**
 
+**逆向进化(下放)**
+
 This is where evolution is effectively going backwards. In this instance,there is no learning from the action of the entity or entities,and the same ground is being covered over and over again with no sign of reversal.The entities operate in ignorance of their condition and need significant external help to aid recovery. 
+
+这是进化有效倒退的地方。在这种情况下，没有从实体或实体的行动中学习，同样的地面被一遍又一遍地覆盖，没有逆转的迹象。实体在忽视其条件的情况下操作，需要大量的外部帮助来帮助恢复。
 
 In this instance,the continuum shrinks towards the loci,the effective geometry of the continuum loses its "area"as the diameter of the so-called base of the cone is reduced relative to the distance from the loci and its previous positional condition.Visually,the outer edge of the continuum that the devolving continuum exists within appears to disappear towards the loci of the continuum,following the base,creating what looks like a hole in the surface of the holding continuum,me. 
 
+在这种情况下，连续体向轨迹收缩，连续体的有效几何形状失去了它的“面积”，因为所谓的圆锥底部的直径相对于与轨迹的距离和其以前的位置条件而减少。从视觉上看，下放连续体存在的连续体的外边缘似乎向连续体的轨迹消失，随着底部，在保持连续体的表面上创建了一个看起来像洞的东西。
+
 As with static evolution,in the event of rapid evolution being experienced in all other continuum,an elastic limit can be reached where the outer edge of the holding continuum, me,must move with the evolutionary tension created by the other continuum.In this instance,the devolving evolutionary condition is changed to reflect an increase in the level of evolution to the static evolutionary condition,migrating on to very small amounts of positive progression by default,irrespective of the actions of the entities occupying the continuum. 
+
+与静态进化一样，在所有其他连续体经历快速进化的情况下，可以达到一个弹性极限，其中保持连续体的外边缘必须随着其他连续体创建的进化张力而移动。在这种情况下，退化的进化条件被改变，以反映进化水平的增加到静态进化条件，默认地迁移到非常小的正进展量，而不考虑占据连续体的实体的行动。
 
 **Evolutionary Compression**
 
+**进化压缩**
+
 This is where a group of nearby (close)continuum or all continuum within my continuum are in a devolutionary regression,affecting the positive evolutionary progression of an evolving continuum.They effectively slow down or reverse the evolutionary progression being made by that continuum that is experiencing positive evolutionary content.However,as there is an opposing "pressure"effect of the positive evolution in the continuum that resists the devolution.The continuum is not reduced in evolutionary size geometrically speaking but is instead compressed,putting evolutionary strain on the exterior of the continuums'structure and the height of the frequencies possible within the continuum.
+
+这是一组附近的(接近)连续体或我连续体中的全部连续体处于下放回归中，影响着进化连续体的积极进化进程。它们有效地减缓或逆转了正在经历积极进化内容的连续体所做的进化进程。然而，由于在抵抗下放的连续体中存在相反的“压力”效应，因此连续体在几何上并没有减少进化大小，而是被压缩了，将进化应变放在连续体结构的外部和连续体中可能出现的频率高度上。
 
 In this way actual continuum devolution experienced as a function of the effect of other neighboring continuum devolving is not experienced but does stop significant progression. This,by the way,also affects me as the holding continuum as I evolve as a result of the work of the entities working within the continuum. 
 
+这样，作为其他邻近连续体下放影响的函数，实际的连续体下放并没有经历，但确实停止了重大进展。顺便说一下，这也影响了我作为持有连续体，因为我作为连续体内部实体工作的结果而进化。
+
 **Evolutionary Expansion**
+
+**进化扩展**
 
 This is compartmentalized evolution within a continuum.Here a certain percentage of the area of the continuum experiences evolutionary progression and another does not,providing pockets of evolutionary progression and static evolutionary progression.In some rare instances,this can even contain small pockets of devolution. 
 
+这是连续体内部的分割进化。在这里，连续体的某个百分比区域经历了进化过程，而另一个区域则没有，提供了进化过程和静态进化过程的口袋。在一些罕见的情况下，这甚至可以包含小块的下放。
+
 In this instance,the exterior geometry of the continuum shows areas of deformation in a convex or concave manner,where it is affected by the type of evolution being locally experienced.Full continuum-based evolutionary progression cannot be experienced until the compartmentalization effect is harmonized and eliminated. 
+
+在这种情况下，连续体的外部几何形状以凸或凹的方式显示了变形的区域，它受到局部经历的进化类型的影响。只有在协调和消除分区效应之前，才能体验到基于连续体的完整进化过程。
 
 **Evolutionary Expression**
 
+**进化表达**
+
 This occurs as the result of the content of evolutionary reflectivity expressed by a continuum where the neighboring continuum is experiencing accelerated evolution of any type.The expression in this instance is the perceived evolutionary growth of the neighboring continuum experienced as a result of the work of the entities populating the neighboring continuum and not as a result of the work of its own entities. 
+
+这发生在一个连续体表达的进化反射内容的结果，其中邻近的连续体正在经历任何类型的加速进化。这种情况下的表达是邻近连续体的可感知的进化增长，这是填充邻近连续体的实体的工作的结果，而不是其自身实体的工作的结果。
 
 In essence,this means that the continuum is reflecting an equal amount of evolutionary progression,albeit with no substance,in an insubstantial and non-experiential way to that being experienced by its neighbor.From a geometric representation of the continuum,the visual appearance would seem to be identical to its progressing neighbor without having the actual evolution to back up the visual appearance.Its loci remaining in the correct position within the locus is the only way to quantify the true evolutionary state of the continuum without actually entering the continuum and experientially experiencing the evolution first hand. 
 
+在这种情况下，连续体的外部几何形状以凸或凹的方式显示了变形区域，这是由于它受到了当地正在经历的进化类型的影响。本质上，这意味着连续体反映了同等数量的进化进程，尽管没有实质性的东西，以一种非实质性和非经验的方式来反映其邻居所经历的进化。从连续体的几何表示来看，视觉外观似乎与其不断进步的邻居相同，但没有实际的进化来支持视觉外观。其轨迹保持在轨迹内的正确位置是量化连续体真实进化状态的唯一方法，而无需实际进入连续体并亲身体验进化。
+
 **Evolutionary Stretch**
+
+**进化拉伸**
 
 This is the opposite of evolutionary compression.It is where a group of nearby (close)continuum or all continuum within my continuum are in an evolutionary progression,affecting the static evolutionary progression of a continuum.They effectively speed up or reverse the evolutionary progression being made by that continuum that is experiencing static or even devolutionary content.An opposing "negative pressure" or vacuum effect of the static evolution in the continuum that resists the evolution is experienced by the continuum.The continuum is not increased in evolutionary size geometrically speaking but is,instead,stretched,putting evolutionary strain on the exterior of the continuums'structure. 
 
+这是进化压缩的反面。它是一组附近的(近的)连续体或我连续体中的全部连续体处于进化进程中，影响连续体的静态进化进程。它们有效地加快或逆转正在经历静态或甚至退化内容的连续体所做的进化进程。连续体经历了与之相反的“负压力”或连续体中静态进化的真空效应，它抵制了进化。连续体在几何上并没有增加进化大小，而是拉伸，把进化应变放在连续体结构的外部。
+
 In this way actual continuum evolution experienced as a function of the effect of other neighboring continuum,devolution or evolutionary stasis is not experienced.This also affects me as the holding continuum. 
+
+这样，实际的连续体进化作为邻近连续体的影响的功能，没有经历退化或进化停滞。这也影响了我作为持有连续体。
 
 **Geometric/Exponential Evolution**
 
+**几何/指数进化**
+
 This type of evolution can happen in a progressive and regressive state,depending upon the work that is undertaken by the incumbent entities.It is the rate of evolutionary progression or regression(devolution)resulting from,in the case of evolutionary progress,the absolute 100%effectiveness of the previous evolutionary content affecting the opportunity for evolutionary progress that is experienced in the next phase by a factored ratio equal to the difference between the two levels of evolution,pre-evolution and post-evolution.If successful,this ratio is passed on to the next phase and the next phase until errors affect the geometric content of the progression,and the progression,"if expressed as a curve,"tails off so to speak.In the event of geometric/exponential devolution, the ratio works in reverse and the continuum experiencing such devolution quickly and rapidly loses its evolutionary standing. 
+
+这种进化可以以渐进和退步的状态发生，这取决于现任实体承担的工作。它是进化进展或退步(下放)的速率，在进化进展的情况下，前一个进化内容的绝对 100% 有效性影响了在下一个阶段经历的进化进展的机会，其因数比率等于进化两个级别(进化前和进化后)之间的差异。如果成功，这个比率将传递到下一个阶段和下一个阶段，直到错误影响了进展的几何内容，而进展，“如果表示为曲线”，可以说是尾巴。在几何/指数下放的情况下，比率相反，经历这种下放的连续体很快失去了进化地位。
 
 A continuum experiencing geometric evolution will create both "evolutionary stretch" within itself(if too fast)and in neighboring continuum and "evolutionary expression"in continuum which are neighbors of the neighboring continuum. 
 
+一个经历几何进化的连续体将在自身(如果太快)和邻近连续体中创造“进化拉伸”，并在邻近连续体的连续体中创造“进化表达”。
+
 A continuum experiencing geometric devolution will create both "evolutionary compression"within itself (if too fast)and in neighboring continuum and "evolutionary expression"expressed as a negative reflection in the continuum which are neighbors of the neighboring continuum,together with all of the effects of the structure of the continuum expected in evolutionary "compression"and "expression." 
+
+一个连续体经历几何级数的进化，会在自身内部(如果太快)和邻近连续体中产生“进化压缩”，以及“进化表达”，表达为邻近连续体的连续体中的负面反映，以及在进化“压缩”和“表达”中预期的连续体结构的所有影响。
 
 **Logarithmic Evolution**
 
+**对数进化**
+
 Is similarly expressed in mathematical terms,insomuch as it is the inverse of geometric/exponential evolution/devolution.Whereas with geometric evolution,the continuum experiences extremely rapid evolutionary progression or regression expressed as a ratio between the initiating and the resultant evolution,creating the springboard for geometric evolution/devolution in the next evolutionary phase.With logarithmic evolution,the progression or regression (evolution/devolution)is very slow.In this instance,the growth or decay can be mathematically expressed as a known base of logarithmic function. 
+
+在数学术语中类似地表达，因为它是几何/指数进化/下放的逆。然而，随着几何级数的进化，连续体经历极其快速的进化进程或回归，表达为启动和结果进化之间的比率，为下一个进化阶段的几何进化/下放创造了跳板。随着对数进化，进程或回归(进化/下放)非常缓慢。在这种情况下，增长或衰退可以用数学表达为对数函数的已知基数。
 
 This type of evolution/devolution has little or no effect on its neighboring continuum.It can be,however,affected by neighboring continuum experiencing geometric evolutionary content in which case it experiences "evolutionary stretch"in the case of the neighboring continuum experiencing geometric evolution,and "evolutionary compression"in the case of the neighboring continuum experiencing geometric devolution. 
 
-ME:Wow.I had no idea there were that many different versions of evolution. SE8:Well,there are more,but you would not be able to comprehend them.In any case these are the most important. 
+这种类型的进化/下放对其邻近连续体的影响很小或没有影响。然而，它可以受到邻近连续体几何进化内容的影响，在这种情况下，它在邻近连续体几何进化的情况下经历“进化拉伸”，在邻近连续体几何退化的情况下经历“进化压缩”。
 
-我：
+ME:Wow.I had no idea there were that many different versions of evolution. 
+
+我：哇，我不知道有那么多不同的进化版本。
+
+SE8:Well,there are more,but you would not be able to comprehend them.In any case these are the most important. 
+
+8号源实体：嗯，还有更多，但你无法理解它们。无论如何，这些都是最重要的。
 
 As I contemplated what I had just been told by Source Entity Eight,especially about how its energies created a continuum within the area that is now classified as the currently known area of The Origin's self-awareness,my mind turned toward the information I had received about how big the newly recognized area of self-awareness was expected to be within The Origin.I remembered the comment given to me that The Original twelve Source Entities will leave The Original area and will move into the greater,newly recognized area of self-awareness of The Origin to help it define ways to experience it and evolve further.I then realized that I was being given more information-information that was pertinent to Source Entity Eight's new role. 
 
+当我思考我刚才被8号源实体所告知的，特别是关于它的能量如何在现在被分类为目前已知的起源自我意识的区域内创造了一个连续体，我的思想转向我所收到的信息，关于在起源内新认识的自我意识区域预计有多大。我记得给我的评论，最初的12个源实体将离开最初的区域，并将进入更大的，新认识的起源自我意识区域，以帮助它定义体验和进一步进化的方式。然后我意识到我被给予了更多的信息——与源实体8的新角色有关的信息。
+
 Source Entity Eight was to be the basis for the structure resulting from the ascension of The Origin to its next level of awareness.In the process,it would experience a level of evolutionary stretch never before experienced by a Source Entity.It was to become the framework for the navigation of the newly self-aware Origin.It would be populated with Source Entity Seven"C's"Navigators, and Source Entity Eight will be the framework of the Maze that will be the new and old areas of The Origin's areas of self-awareness and experiential knowledge and evolution.The Navigators will know every method of navigation necessary to allow effective movement throughout the new expanse of The Origin.The Jigsaw puzzle was starting to fall into place,micro-piece by micro- piece. 
+
+源实体8将成为起源提升到下一个意识层次所产生的结构的基础。在这个过程中，它将经历一个源实体从未经历过的进化拉伸。它将成为新认识的起源导航的框架。它将被源实体7“C”的导航员所填充，而源实体8将是迷宫的框架，这将是起源自我意识和经验知识与进化的新旧领域。导航员将知道任何必要的导航方法，以便在起源的新广阔领域中有效地移动。拼图开始一小块一小块地落入正轨。
 
 A few days after writing the dialogue with Source Entity Eight above,I was sitting in an airplane bound for Shanghai,China,anticipating whatever levels of turbulence we might encounter.More importantly,what energetic shields I would throw in front of the plane to smooth the air density out to a nice medium density,a density that would result in no turbulence.This was a tried and tested process for dealing with turbulence that I had developed from a method I used in my late teenage years to clear clouds by giving them energy.I was considering this and my dislike of turbulence (hence my invention of the energetic shields)when I suddenly saw how ridiculous this line of thought was. 
 
+在写完上面与源实体8的对话几天后，我坐在飞往中国上海的飞机上，期待着我们可能会遇到的任何程度的乱流。更重要的是，我将扔在飞机前面的能量盾，以使空气密度平滑到一个理想的中等密度，一个不会导致乱流的密度。这是一个经过试验和测试的处理乱流的过程，我从十几岁时使用的方法发展而来，通过给云层能量来清除云层。我正在考虑这一点，以及我对乱流的不喜欢(因此我发明了能量盾)，当我突然看到这种想法是多么荒谬。
+
 Here I am,a man able to traverse with my mind all of the Source Entities'multiverse,and beyond, as well as the multiverses of eleven other Source Entities,including their creator,The Origin,and its environment.And ironically enough,that part of me that is projected into the physical is not only reduced to traveling the minute distances around this planet in "uneven"comparison to galactic and multiversal terms by the slow mechanical means offered by flying,but is(I am)also worried about turbulence.I might even cause it for God's sake! 
+
+我在这里，一个能够用我的思想穿越所有源实体的多维宇宙，以及其他11个源实体的多维宇宙，包括他们的创造者，起源，及其环境的人。具有讽刺意味的是，我投射到物质世界的一部分，不仅被缩减到用飞行这种缓慢的机械手段在这个星球上旅行的微小距离，与银河系和多维宇宙相比是“不均衡的”，而且(我)还担心气流。看在上帝的份上，我甚至可能引起它！
 
 How pathetic,I thought,that the association with the physical had caught me outyet again.That the association with the physical and its sensations were so compelling that even a spirit,such as I,was taken off guard and conned by its apparent all-consuming sensation-based experience being reality rather than focusing on the subject of The Origin and its creations,the twelve Source Entities,being the real reality. 
 
+多么可悲啊，我想，与物质的联系又一次让我出局了。与物质的联系及其感觉是如此令人信服，以至于像我这样的灵魂，都被它明显的、以感觉为基础的、占据一切的体验欺骗了，而没有把注意力集中在起源及其创造物，即12个源实体，这是真正的现实。
+
 The real me being an energetic being with a very small part of me projected into the bag of meat we lovingly call the human body.The human body I was using being just that:a body,a vehicle, a temporary biological construct,a temporary convenience enabling me to experience existence at the very bottom of the dimensions and frequencies,just like this airplane I was sitting in.It was a mechanical construct of transportational convenience.I sat back in my chair and detached myself from the un-reality of the physical (considering the greater reality of The Origin and its Source Entities)and re-established my link with Source Entity Eight. In doing so,I also felt the detachment necessary for breaking through the facade of the physical, allowing contact with entities in the higher frequencies and beyond.I saw my human body as the piece of meat it was and smiled to myself.
+
+真正的我是一个充满活力的存在，只有很小一部分投射到我们亲切地称之为人类的肉袋中。我所使用的人体就是：一个身体，一个工具，一个暂时的生物构造，一个暂时的便利，使我能够体验在维度和频率的最底层的存在，就像我坐的这架飞机一样。它是一个交通便利的机械构造。我靠在椅子上，把自己从非现实的物质中分离出来(考虑到起源和它的源实体的更大现实)，并重新建立我与源实体8的联系。这样做，我还感到了突破物质表面的必要的分离，允许与更高频率和更高频率以外的实体进行接触。我把我的人体看作是一块肉，对自己微笑。
 
 In doing so,tears started to stream from my eyes.These were the tears that presented to me the sign that I had come to recognize as "evidence of absolute truth"in my experiences and information received in my dialogues with the Source Entity,its peers,and The Origin.They were tears of absolute joy born from the recognition of the truth.It was a Wonderful feeling! 
 
+这样做，眼泪开始从我的眼睛里流出来。这些眼泪向我展示了我在我的经历和与源实体、它的同伴和起源对话中收到的信息中认识到“绝对真理的证据”的迹象。它们是来自对真理的认识的绝对喜悦的泪水。这是一种奇妙的感觉！
+
 ME:I had no idea that there were so many types of evolution.Although it's incredible to think that the cumulative effect of the entities existing within not only a universe but a continuum can have the types of effect we have just discussed on their universal environment and the continuum it is contained within.Not forgetting the effect on the surrounding continuum and of course,you. 
 
-我：
+我：我不知道有这么多种进化方式，虽然很难想象存在于宇宙中，甚至连续体中的实体的累积效应，可以产生我们刚才讨论的对宇宙环境和连续体的影响，不要忘记对周围连续体的影响，当然，还有你。
 
 SE8:Of course.You see,each of the entities in my continuum are powerful creators in their own right,and as such,they are able to accelerate and decelerate the evolutionary content of their environment accordingly.This allows them to moderate (control)how and when they evolve,including what activities and experiences lead to the evolution they want to experience. 
 
-8号源实体：
+8号源实体：当然。你看，我连续体中的每个实体本身都是强大的创造者，因此，它们能够相应地加速和减缓其环境的进化内容。这使它们能够调节(控制)如何进化和何时进化，包括哪些活动和经历会导致它们想要经历的进化。
 
 ME:Hold on a bit.I am getting the impression here that your entities are doing things in reverse to what I and other entities I have encountered. 
 
-我：
+我：稍等一下，我得到的印象是，你们的实体正在做的事情与我和其他我遇到的实体相反。
 
 SE8:Such as? 
 
-8号源实体：
+8号源实体：例如？
 
 ME:Well,in the dialogues I have experienced to date,entities experience different things in order to learn and evolve.The evolutionary content is a product of the subsequent experiences and learning undertaken. 
 
-我：
+我：在我迄今为止经历过的对话中，实体为了学习和进化而经历了不同的事情。进化的内容是随后的经历和学习的产物。
 
 SE8:Go on. 
 
-8号源实体：
+8号源实体：继续。
 
 ME:Well,reading between the lines,your entities appear to change the evolutionary content,or should I say,"signature,"in this case,of the continuum and the universes contained within the continuum.The objective is to experience the existence opportunities that are only available at certain levels of evolution.This creates a resultant level of"real" evolution as a product of the types of experience required and the evolutionary signature demanded of the continuum necessary to create such experience and subsequent learning and real evolution.Would this be correct? 
 
-我：
+我：嗯，从字里行间看，你的实体似乎改变了进化的内容，或者我应该说，在这种情况下，连续体和包含在连续体中的宇宙的“签名”。目标是体验只有在进化一定水平上才有的存在机会。这创造了一个“真实”进化的结果水平，作为创造这种经验和随后的学习以及真实进化所必需的连续体的经验类型和进化签名的产物。这对吗？
 
 SE8:It might be. 
 
-8号源实体：
+8号源实体：可能是吧。
 
 ME:What do you mean "it might be"? 
 
-我：
+我：“可能是吧”是什么意思？
 
 SE8:There has to be agreement with those entities who control and maintain the continuum first,including those entities who control and maintain the neighboring continuum,for as you know from the previous communications we have had,the evolutionary content experienced or contrived for the benefit of real evolution,affects those continuum surrounding the continuum in question. 
 
-8号源实体：
+8号源实体：首先必须与那些控制和维护连续体的实体达成一致，包括那些控制和维护相邻连续体的实体，因为正如你从我们之前的交流中所知道的，为真正的进化而经历或设计的进化内容，会影响围绕在所讨论的连续体周围的连续体。
 
 ME:So what you are saying to me is that any changes to the evolutionary status of a continuum that are made to enable different experiential learning conditions to be available for experience are agreed upon by basically all the entities concerned before the change is made. 
 
-我：
+我：所以你的意思是，任何对连续体的进化状态的改变，都是为了使不同的经验学习条件可以用于经验，在做出改变之前，基本上所有相关实体都同意。
 
 SE8:Not only that.They have to agree with the need or desire for the change requested. You see,the entities in a particular continuum may be happily working their way through a number of evolutionary experiences at that point in time of the request.The real evolutionary content of which might be of real evolutionary benefit to them,and they may not have completed the work and want to see through.Moreover,the change requested may also affect their continuum in a way that is either limited in evolutionary content for them or even puts them in a position of real evolutionary stasis/devolution.
 
-8号源实体：
+8号源实体：不仅如此，他们必须同意要求改变的需要或愿望。你看，在一个特定的连续体中的实体可能在请求的那个时间点上，通过一系列的进化经历快乐地工作。真正的进化内容可能对他们有真正的进化利益，他们可能还没有完成工作，想看到结束。此外，要求改变也可能以一种方式影响他们的连续体，要么在进化内容上受到限制，要么甚至把他们置于真正的进化停滞/下放的位置。
 
 ME:Hold on a moment.All this is very well,but what this means to me is that there is not only one evolution,the evolution,real evolution,that is accrued by a continuum and its entities,but there is a sub-evolution that is used to force experiences that would not be available to a continuum or its entities if it stuck to its normal real accrued evolutionary schedule.Not only that,but the opportunity to use the sub-evolutionary opportunities actually has the potential to affect the real evolutionary progression of a continuum and its entities in a negative way. 
 
-我：
+我：等一下。这一切都很好，但对我来说，这意味着不仅有一个进化，进化，真正的进化，是由一个连续体和它的实体累积的，但有一个亚进化，用于强迫体验，如果一个连续体或其实体坚持其正常的真实累积进化计划，则无法获得。不仅如此，利用亚进化的机会实际上有潜力以负面的方式影响一个连续体及其实体的真实进化进程。
 
 SE8:Correct.But the beauty of it is that in accepting the possibility of evolutionary stasis for the benefit of another continuum,a continuum and its occupants can accrue more evolutionary points,so to speak,than it would do normally.In essence,it creates a sort of leapfrog effect. 
 
-8号源实体：
+8号源实体：正确。但它的美妙之处在于，为了另一个连续体的利益而接受进化停滞的可能性，一个连续体及其占有者可以积累更多的进化点，可以说，比正常情况下多。本质上，它创造了一种跳跃式的效果。
 
 ME:Now you are confusing me.Are you suggesting that modification of what I will now classify as "sub-evolution,"that is,sub-evolution in your environment that affects real evolution in a negative way,results in positive evolution simply because it is related to "self- sacrifice,"and I say "self-sacrifice"in the "collective entity within a multiverse within a continuum"way? 
 
-我：
+我：你现在把我弄糊涂了。你的意思是，我现在将把它归类为“亚进化”，即，你环境中的亚进化以一种消极的方式影响着真正的进化，结果是积极的进化，仅仅因为它与“自我牺牲”有关，我所说的“自我牺牲”是在“连续统一体中的多维宇宙中的集体实体”中？
 
 SE8:In a nutshell,yes.You see,the most powerful evolutionary tool an entity can use is one of self-sacrifice for the benefit of others.This includes the individual and the collective versions,not to forget universal,multiversal and continuum-based evolutionary sacrifice. Any self-sacrifice for the benefit of others results in evolutionary gain above and beyond that gained in normal experiential existence.
 
-8号源实体：
+8号源实体：简而言之，是的。你看，一个实体能使用的最强大的进化工具是为他人利益的自我牺牲。这包括个人和集体的版本，不要忘记宇宙、多维宇宙和连续体的进化牺牲。任何为他人利益的自我牺牲都会导致进化收益，超过正常经验存在的收益。
 
 ME:Why is that? 
 
-我：
+我：为什么？
 
 SE8:Because it requires no knowledge of the outcome of the sacrificial act by those making the decision.It is "the"only decision any entity can make without precognition of the resulting effect of the decision.This includes decisions made by any entity or collective of entities in whatever format,be it singular,universal,multiversal or continuum-based. 
 
-8号源实体：
+8号源实体：因为它不需要那些做出决定的人知道牺牲行为的结果。它是任何实体在没有预先知道决定结果的情况下所能做出的唯一决定。这包括任何实体或实体集合以任何形式做出的决定，无论是单一的、普遍的、多维的还是连续的。
 
 ME:So you are telling me that there are some decisions that are blind decisions,even at the energetic level? 
 
-我：
+我：所以你的意思是，即使在精力充沛的阶段，有些决定也是盲目的？
 
 SE8:Of course.Evolution wouldn't be the fun it is if there wasn't.
 
-8号源实体：
+8号源实体：当然，如果没有的话，进化就不会这么有趣了。
 
 ME:And every entity that has created or has been created knows this? 
 
-我：
+我：每个创造或被创造的实体都知道这个吗？
 
 SE8:Yes.And that includes all entities created by all Source Entities,for it is an Origin decreed onmiversal rule. 
 
-8号源实体：
+8号源实体：是的，这包括所有源实体所创造的所有实体，因为这是源头制定的普遍规则。
 
 ME:That's amazing. 
 
-我：
+我：太神奇了。
 
 SE8:What is? 
 
-8号源实体：
+8号源实体：是什么？
 
 ME:That there is a rule that affects everything and everyone no matter which Source Entity created them,the entity,the universe,the multiverse or continuum.It is the same for everything and everyone. 
 
-我：
+我：有一条规则影响着一切事物和每个人，不管是哪个源实体创造了他们，实体，宇宙，多维宇宙或连续体。它对一切事物和每个人都是一样的。
 
 SE8:Well,there are many other rules of a similar nature,but now is not the time to discuss them.
 
-8号源实体：
+8号源实体：嗯，还有很多类似的规则，但现在不是讨论它们的时候。
 
 ME:OK,I can live with that.It was getting complicated anyway. Especially the bit about what I call sub-evolution affecting real evolution in a quantum leap sort of way when decisions are made based upon self-sacrifice with no knowledge of the outcome for the entity,universe,multiverse or continuum. 
 
-我：
+我：好吧，我可以接受，反正它变得越来越复杂，特别是我所说的亚进化影响着真正的进化，当决定基于自我牺牲而做出时，对实体、宇宙、多元宇宙或连续体的结果一无所知。
 
 ### Maintenance Control Entities 
 
+**维护控制实体**
+
 SE8:Good.Let's talk about your next subject. 
 
-8号源实体：
+8号源实体：好，让我们谈谈你的下一个主题。
 
 ME:Which is? 
 
-我：
+我：哪一个？
 
 SE8:What the entities do who maintain my continuum.Apart,that is,from coping with the evolutionary conditions discussed,and how and why they maintain the loci's positional relationship with the locus of the continuum that is me. 
 
-8号源实体：
+8号源实体：维持我这个连续体的实体做什么？除了应对讨论过的进化条件，以及它们如何和为什么维持轨迹与连续体轨迹的位置关系，也就是我。
 
 ME:Sounds like a plan to me.I guess the best way to kick this off then is to ask you a rather fundamental question first.What form do your continuum maintenance entities have? What work do they do other than the maintenance of the position of the loci,and are they the same for all continuum? 
 
-我：
+我：听起来像一个计划。我想最好的方法是先问你一个相当基本的问题。你的连续体维护实体是什么形式的？ 除了保持轨迹的位置外，它们还做什么工作？ 它们对所有的连续体都是一样的吗？
 
 SE8:So this is one of your famous nested questions. 
 
-8号源实体：
+8号源实体：所以这是你著名的嵌套问题之一。
 
 ME:Famous,I hardly think that my questions or,indeed,the structure of them is famous. 
 
-我：
+我：出名？我可不觉得我的问题，或者说，我的问题结构出名。
 
 SE8:You may not,but I can guarantee they are from where I am standing,so to speak.They are so famous they are being counted.
 
-8号源实体：
+8号源实体：你可能不相信，但我可以保证，他们来自我所站的地方，可以说，他们是如此有名，他们被计算在内。
 
 ME:Counted??!!Good grief,I must remember to ask questions in a linear fashion in the future then,to avoid further infamy. 
 
-我：
+我：被数过？天啊，以后我一定要记住问问题要顺序，以免再出丑。
 
 SE8:Don't force it,we,the Source Entities that is,greatly enjoy your nested questions.Let's carry on with the first part of your question:what form do my continuum entities take? 
 
-8号源实体：
+8号源实体：不要强迫它，我们，源实体，非常喜欢你的问题。让我们继续你的问题的第一部分：我的连续实体采取什么形式？
 
 First of all,let me elaborate a little on the starting point of a maintenance entity's existence shortly after creation. 
 
+首先，让我详细说明一下一个维护实体在创建后不久存在的起点。
+
 All of the entities that were created for evolutionary existence are given a choice. 
+
+所有为进化生存而创建的实体都有一个选择。
 
 - 1.They can either be an entity whose role it is to work and evolve,passing on their evolutionary content to their continuum controller and hence myself. 
 - 2.They can be one of two different types of continuum maintenance entity. 
