@@ -3579,203 +3579,226 @@ All of the entities that were created for evolutionary existence are given a cho
     - a.The first type work within the continuum maintaining the geometric relationship between the continuum,the loci to the locus and the evolutionary balance. 
     - b.The second type work in-between the continuum,maintaining the relationships between the continuum and the effects each continuum's evolutionary condition has on each neighboring continuum whilst also being a continuum controller.This is a singular job and is extremely important. 
 
+- 1.他们可以是一个实体，其角色是工作和进化，将他们的进化内容传递给他们的连续统控制器，因此我自己。
+- 2.他们可以是两种不同类型的连续统维护实体。
+    - a.第一种类型在连续统内工作，维护连续统之间的几何关系，轨迹到轨迹和进化平衡。
+    - b.第二种类型在连续统之间工作，维护连续统之间的关系，以及每个连续统的进化条件对每个相邻连续统的影响，同时还是一个连续统控制器。这是一个单一的工作，也是非常重要的。
+
 At the start of their initial existence,each newly created entity is tested for functional compatibility and is assigned the correct position for their aptitude accordingly. 
+
+在他们最初存在的开始，每个新创建的实体都经过了功能兼容性的测试，并根据他们的能力分配了正确的位置。
 
 ME:I thought you said that they had a choice?
 
-我：
+我：我以为你说他们有一个选择？
 
 SE8:They do to a certain extent,but that extent is only relative to the type of aptitude they have.There are sub-roles you know,and these are filled by entities who have a desire to be involved with the maintenance of the continuum,but who do not desire to be part of the decision process that is required to be adhered to when considering issues of evolutionary concern.These entities may even desire to stay in the service of continuum maintenance for an agreed period only before entering into the continuum as an evolving entity. 
 
-8号源实体：
+8号源实体：他们在某种程度上是这样，但这种程度只是与他们所拥有的天赋类型有关。你知道，有一些次级角色，这些角色由那些希望参与连续体维护的实体所填充，但当考虑进化问题时，他们不希望成为决策过程的一部分。这些实体甚至可能希望在作为进化实体进入连续体之前，只在连续体维护服务中停留一段时间。
 
 ME:Hold on,are you suggesting that entities that are of service to the maintenance of the continuum do not evolve? 
 
-我：
+我：等等，你是说那些为维持连续体服务的实体不会进化吗？
 
-SE8:Of course,they evolve.Every entity evolves.It is just that they do not evolve as a result of their own volition,their own work;instead,they evolve as a result of being of service, which is a slower process when compared to working on one's own evolution within the confines of the continuum.Evolutionary progression is always faster if one is at what you call "the coal face."(See glossary for definition.) 
+SE8:Of course,they evolve.Every entity evolves.It is just that they do not evolve as a result of their own volition,their own work;instead,they evolve as a result of being of service, which is a slower process when compared to working on one's own evolution within the confines of the continuum.Evolutionary progression is always faster if one is at what you call "the coal face."
 
-8号源实体：
+8号源实体：当然，他们进化。每个实体都在进化。只是他们不是因为自己的意志，自己的工作而进化；相反，他们是因为服务而进化，这与在连续体的限制内致力于自己的进化相比是一个较慢的过程。如果一个人处于你们所说的“煤面”，进化进程总是更快。
 
 ME:I would have thought that being of service is a faster evolutionary route than as being an evolving entity. 
 
-我：
+我：我认为作为一个服务性实体比作为一个进化实体更快的进化路线。
 
 SE8:In any Source Entities'environments,the only way that an entity can evolve fast is through being party to their own development by the interaction with other entities and the environment they exist within.If an entity is "being of service"whilst being involved in the process of being in control of their own evolution,and the object of their being of service results in them making a conscious decision to give up items of their own evolutionary opportunities so that they can be of service to the evolutionary opportunities of other entities,then they can enjoy greater levels of evolution than those accrued by simply being of service-that is done without the underlying knowledge of evolutionary law.That law states that an entity who gives up its own evolutionary opportunities for the benefit of others and does this without the possibility of any selfish decision to gain evolutionary progression under the disguise of self-evolutionary gain through initial magnanimous action of self-sacrifice for eventual self-gain,then they will gain progression faster than they would have in a normal existence where they are only concerned with their own evolution.The problem here is that my entities know the omniversal law of evolution and, therefore,have to put themselves into areas of existence and experience where they could,in fact,terminate their existence if they are being of benefit to others.For them,the only way they can be of true service is if they make true self-sacrifice,the ultimate sacrifice of self- termination,where their own termination is achieved in the full knowledge of their own ultimate demise but in the full knowledge that they have achieved an improvement in the evolutionary condition of those entities that the sacrifice is made for. 
 
-8号源实体：
+8号源实体：在任何源实体的环境中，一个实体能够快速进化的唯一方式是通过与其他实体和他们所处的环境的相互作用来参与他们自己的发展。如果一个实体在参与控制他们自己进化的过程中是“服务性的存在”，并且他们服务性的存在的目标导致他们有意识地决定放弃他们自己的进化机会，以便他们能够为其他实体的进化机会服务，那么他们可以享受比那些仅仅通过服务而积累的进化水平更高的进化水平——这是在没有进化法则基础知识的情况下完成的。 进化法则规定，一个实体放弃自己的进化机会为他人谋利，并且这样做没有任何自私的决定，以获得进化进展的可能性，通过最初的自我牺牲的宽宏大量的行动，最终以自我获得为伪装，那么他们将比他们只关心自己进化的正常存在中获得进展更快。问题在于我的实体知道无所不在的进化法则，因此，它们必须将自己置于存在和体验的领域，如果它们对他人有益，它们实际上可以终止自己的存在。 对它们来说，唯一能真正服务于他人的方式是它们做出真正的自我牺牲，自我终结的终极牺牲，在完全了解自己的终极灭亡的情况下实现自我终结，但同时完全了解它们已经在那些为之做出牺牲的实体的进化条件中实现了改善。  
 
 ME:So what happens to them when they make this ultimate self-sacrifice,one that they make in the knowledge that they will be terminated because,and help me out here,they know the omniversal law of evolution of being of service and the resultant opportunities in evolutionary progression?So why would they choose this particular route if it is to all intents and purposes the end of the line in their own individualized existence? 
 
-我：
+我：那么当他们做出这种终极的自我牺牲时，他们会发生什么呢？ 他们知道自己会终止，因为，请帮我翻译一下，他们知道服务存在的普遍进化法则，以及进化过程中的结果机会。那么，如果这条路实际上是他们个人存在的终点，他们为什么会选择这条路呢？
 
 SE8:Pride. 
 
-8号源实体：
+8号源实体：骄傲。
 
 ME:Pride?
 
-我：
+我：骄傲？
 
 SE8:Pride. 
 
-8号源实体：
+8号源实体：骄傲。
 
 ME:Go on.You are losing me. 
 
-我：
+我：继续说。你快把我弄糊涂了。
 
 SE8:My entities experience an immense feeling of pride when they decide to make this level of service,especially when it is to directly benefit another entity-and specifically,if they have been in existence for a long time.You see,these opportunities don't come up very often. In fact,they are quite rare,so when an entity has this sort of opportunity presented to them, they take it. 
 
-8号源实体：
+8号源实体：我的实体在决定提供这种级别的服务时，会感到无比自豪，特别是当它直接惠及另一个实体时，特别是如果它们已经存在很长时间了。你看，这些机会不是经常出现的。事实上，它们相当罕见，所以当一个实体有这种机会呈现给它们时，它们会抓住它。
 
 ME:Sorry.I still don't see why self-termination is OK if it's for the benefit of others.It is a foreign concept to me. 
 
-我：
+我：抱歉，我还是不明白为什么为了别人的利益而自我终结是可以的。对我来说，这是一种陌生的概念。
 
 SE8:Would it be so foreign to you if you knew that I and ultimately The Origin benefitted greatly from the evolutionary content of such an act? 
 
-8号源实体：
+8号源实体：如果你知道我，以及最终起源，都从这种行为的进化论内容中受益匪浅，你还会觉得陌生吗？
 
 ME:No,I suppose not,for that is ultimately why we are in existence. 
 
-我：
+我：不，我想不会，因为这就是我们存在的最终原因。
 
 SE8:Then now you know why they do it.Please note here that they are not totally lost,for once they make this level of sacrifice,they are re-instated and removed from the need to work within the confines of the continuum and can evolve at an accelerated pace purely as a result of being of service to the maintenance of the continuum.In essence,they are elevated in their positional and evolutionary rank,so to speak.Although they made the ultimate sacrifice in the name of being of ultimate service,they have done so without the knowledge of their ultimate survival.These entities are of a rare quality and are best placed in supervisory positions within those teams of entities who choose to maintain the continuum from an external perspective rather than an evolutionary position within the confines of the continuum. 
 
-8号源实体：
+8号源实体：那么现在你知道他们为什么这么做。请注意，他们并没有完全失败，因为一旦他们做出了这种程度的牺牲，他们就被重新安置，并从连续体的范围之内工作的需要中移除，并可以以一种加速的速度进化，纯粹作为对连续体的维护服务的结果。本质上，可以说，他们在位置和进化等级上得到了提升。
 
 ### Continuum Maintenance Entity Form Factors 
 
+**连续维护实体形式因素**
+
 ME:OK,so can you tell me a little about the form factor,if any,these entities take for their maintenance roles? 
 
-我：
+我：好的，那么你能告诉我一些关于形式因素吗？ 如果有的话，这些实体为他们的维护角色采取的？
 
 SE8:This may be difficult for you to understand,so I will need to elaborate a little, specifically as neither you nor anyone else in the Earth sphere has any knowledge or experience of true continuum mechanics. 
 
-8号源实体：
+8号源实体：这可能对你来说很难理解，所以我需要详细说明一下，特别是你和地球上的任何人都没有任何真正的连续介质力学的知识或经验。
 
 ME:OK,we can but try. 
 
-我：
+我：好吧，我们可以试试。
 
 This is the point in these dialogues where I was expecting a conversation where my head would hurt again.Ah well,here we go! 
 
+这就是这些对话中的重点，我期待着一次让我头疼的对话。啊，好吧，我们开始了！
+
 SE8:As you are aware from previous dialogues on the subject of continuum construction, the construct is created from the components of full dimension,dimensional componentry, frequency and energy that exist outside the frequencies? 
 
-8号源实体：
+8号源实体：正如你从之前关于连续体结构的对话中所意识到的，这个结构是由全维、维度组件、频率和存在于频率之外的能量组成的。
 
 ME:Yes,I am with you so far. 
 
-我：
+我：是的，我现在还听得懂。
 
 SE8:Well,the entities themselves have to be created from a combination of higher factors of those continuum component parts to enable them to manipulate them.In essence, they exist as a composite construct of their own,one not attracted to being part of those components that make up the continuum itself.They are,if you like,slippery.They need to be like the oil in the water.They can be part of the water,but they can never be a component part of the water so to speak.What's more,they also need to be sticky so that they can attract the component parts of the continuum and manipulate them,creating the boundaries that are necessary for the compartmentalization of the continuum,which needs to have a construct that has a structure to it,one that allows the distortion of the geometry of the continuum that results from local and indigenous evolutionary conditions.
 
-8号源实体：
+8号源实体：嗯，实体本身必须由那些连续体组成部分的更高因素的组合创建，以使它们能够操纵它们。本质上，它们作为自己的复合构造存在，一个不被吸引成为组成连续体本身的那些组成部分的一部分。如果你喜欢，它们是滑溜的。它们需要像水中的油。它们可以是水的一部分，但它们永远不能成为水的组成部分。更重要的是，它们还需要有粘性，以便它们可以吸引连续体的组成部分并操纵它们，创造出连续体划分所需的边界，这需要有一个具有结构的构造，一个允许连续体几何形状的扭曲，这是由局部和本地的进化条件导致的。
+
+（图10:SE8实体的概念图像）
 
 ![Figure 10: Conceptual Image of the Make-Up of SE8's Entities(an alloy)](img/s6-045.png)
 
 ME:I have an image in my mind that shows them as an alloy,so to speak,an alloy of all of the energies that are either present in the natural make-up of the continuum or synthesizable by manipulating the interaction between the natural energies.That includes those energies that are synthesized from a culmination of synthesized energies and further synthesis of the synthesis. 
 
-我：
+我：我脑海中有一个画面，可以这么说，它们是一种合金，一种所有能量的合金，这些能量要么存在于连续体的自然构成中，要么可以通过操纵自然能量之间的相互作用来合成。这包括那些从合成能量的顶峰和进一步的合成的合成中合成的能量。
 
 SE8:That would be a good analogy.They have to be capable of working with any possible combination of energies and their relative materials.However,there is another component that needs to be taken into account as well. 
 
-8号源实体：
+8号源实体：这是一个很好的类比。他们必须能够与任何可能的能量组合和相关材料一起工作。然而，还有另一个组件需要考虑。
 
 ME:What's that? 
 
-我：
+我：那是什么？
 
 SE8:The all important component of evolution.Evolution has a significant impact on the energies within and without the continuum.You are aware of how evolution affects the continuum from our previous dialogue,and I can imagine you are able to understand how evolution affects the energies of a continuum and its incumbent entities. 
 
-8号源实体：
+8号源实体：进化中最重要的组成部分。进化对连续体内外的能量有重大影响。从我们之前的对话中，你知道进化如何影响连续体，我可以想象你能够理解进化如何影响连续体及其现任实体的能量。
 
 ME:Well,yes,I can. 
 
-我：
+我：嗯，是的，我会。
 
 SE8:Then you will understand that the energies of the maintenance entity are also affected in a way that is consistent but not entirely in synchronization with the evolutionary changes.At least not at first,for they need to learn how to manipulate their own energies by forcing a localized evolutionary condition around themselves that effectively puts them outside of the evolutionary envelope of the continuum. 
 
-8号源实体：
+8号源实体：然后你就会明白维护实体的能量也受到了影响，这种影响是一致的，但并不是完全与进化变化同步。至少一开始不是，因为他们需要学习如何通过强迫自身周围的局部进化条件来操纵自己的能量，这种进化条件可以有效地将他们置于连续体的进化包络之外。
 
 ME:So you are suggesting that they are not only slippery in terms of their energetic content and how it relates to the energies of the continuum but also in terms of their evolutionary content and how that affects or is affected by the evolutionary content within and without the continuum. 
 
-我：
+我：所以你的意思是，它们不仅在能量内容方面，以及它与连续体能量的关系方面，而且在进化内容方面，以及它如何影响或被连续体内外的进化内容所影响方面，都是不确定的。
 
 SE8:Correct.They are totally autonomous in every respect. 
 
-8号源实体：
+8号源实体：正确。他们在各个方面都是完全自治的。
 
 ME:So how do they manipulate the energies,and,I would guess,the evolutionary content of the continuum they are associated with? 
 
-我：
+我：那么他们如何操纵能量，我猜，他们与之相关的连续体的进化内容？
 
 SE8:Simply by becoming one with the whole of the location they are dealing with.They become the area of the location by infiltrating the energies and replacing them with their own of the same type.That type must have frequency,dimension,dimensional componentry,energy and evolutionary content,not to mention positional content relative to the loci. 
 
-8号源实体：
+8号源实体：简单地与他们所处理的整个位置成为一体。他们通过渗透能量并用自己相同类型的能量取代它们而成为该位置的区域。这种类型必须具有频率、维度、维度组成、能量和进化内容，更不用说与轨迹有关的位置内容。
 
 ME:That sounds like they work a bit like a cancer cell in the human body which emulates the characteristics of a certain organ but is not linked to it or able to function like it and has a function all its own. 
 
-我：
+我：听起来它们的工作有点像人体中的癌细胞，它模仿某个器官的特征，但与它没有联系，也不能像它一样运作，而是有自己的功能。
 
 SE8:I can see the analogy,but I would suggest it is not a true description of how a maintenance entity works. 
 
-8号源实体：
+8号源实体：我能看出这个类比，但我认为这不是维护实体如何工作的真实描述。
 
 ME:How would you describe it then,as I thought that it was a reasonable description? 
 
-我：
+我：那么你怎么描述它，我认为这是一个合理的描述？
 
 SE8:It would be better described in terms of a master key that was able to unlock all the doors in all the hotels in your world.And not only that,the key would be able to change the characteristics of the lock that it was inserted into so that only itself and one other could use it at any time in the future.What I must say though is that this analogy suggests a form factor of some kind,and as this is one of the parts of your nested question,I will answer it now. 
 
-8号源实体：
+8号源实体：最好用万能钥匙来描述它，它可以打开你世界里所有旅馆的所有门。不仅如此，钥匙还能改变它插入的锁的特性，这样以后只有它自己和另一个人可以使用它。我必须说的是，这个类比暗示了某种形式因素，因为这是你嵌套问题的一部分，我现在就回答它。
 
 As you may have guessed by now,a physical or energetic form factor is neither necessary nor required in many of the environments that the Source Entities you have communicated with to date.Your own form factor is a very transient state,as you well know.The length of the transience is a factor of the ability to control the decay at the cellular level by use of the incumbent entities'intentions or will.This,however,is not strictly the case in my continuum-based environment. 
 
+正如你现在可能已经猜到的，在许多你迄今为止与之沟通的源实体所处的环境中，物理或能量形式因素既不是必要的，也不是必需的。你自己的形式因素是一个非常短暂的状态，正如你所知道的。短暂的长度是一个因素，通过使用现任实体的意图或意志，来控制细胞水平的衰变。
+
 ### Form without Form! 
+
+**没有形式的形式**
 
 ME:Go on.You have my attention now. 
 
-我：
+我：继续，现在我注意你了。
 
 SE8:Ha,ha,ha,no,no,it's not the sort of form factor that you would ever recognize as a form factor dedicated to the environment that an entity would exist and experience within. 
 
-8号源实体：
+8号源实体：哈哈，不，不，这不是那种你能认出是专门用于实体存在和体验的环境的外形因素。
 
 ME:I didn't see that one coming.No really,I am joking.It is quite obvious that the level of form factor of one of the maintenance entities would be something that was not only so completely different from anything else expected,that it could not be from my current incarnate perspective anything other than energetic.Even though it has a form of some type,that type is un-recognizable as a form to me. 
 
-我：
+我：我没料到会是这样。不是真的，我开玩笑的。很明显，维护实体的某种形式因素的水平，不仅与我所期望的完全不同，而且从我当前的化身角度来看，它不可能是任何其他的能量。即使它有某种类型的形式，那种类型对我来说是无法识别的形式。
 
 SE8:Stop apologizing for your joke.We appreciate humor here,it is an essential part of existence of any being.
 
-8号源实体：
+8号源实体：别为你的笑话道歉了。我们这里很欣赏幽默，它是任何存在的基本组成部分。
 
 ME:That's OK.Shall we continue? 
 
-我：
+我：没关系，我们继续吧？
 
 SE8:Yes.Mmmm,let me see how I can explain their form factor,for it is not something that you have been exposed to yet. 
 
-8号源实体：
+8号源实体：是的，嗯，让我看看我怎么解释它们的外形因素，因为这不是你接触过的东西。
 
 You see,the form that my entities take is based upon the twelfth dimensional geometric form.This is a form that is able to manipulate the very structural fabric of a portion of the continuum an entity works with-that is,both the internal and external structures associated with a particular continuum. 
 
+你看，我的实体采取的形式是基于第12维几何形式。这是一个形式，能够操纵一个实体工作的连续体的一部分的结构组织，即与特定连续体相关的内部和外部结构。
+
 ME:So how do they do it?How do they manage to manipulate the fabric of a continuum? This seems to be a major role that they play. 
 
-我：
+我：那么他们怎么做的呢？他们如何设法操纵连续体的结构？这似乎是他们发挥的主要作用。
 
 SE8:They do it by becoming that which they intend to change.That which they intend to change could be anything from an external barrier between the environment between the continuum and the continuum itself.It could be or a localized area that is showing promise from an evolutionary perspective,one that would benefit from being manipulated in some way to augment the evolutionary experience through manipulating the evolutionary content of the area being considered for manipulation.I appreciate that this seems a bit convoluted,but that is exactly what it is,convoluted and iterative. 
 
-8号源实体：
+8号源实体：他们通过成为他们想要改变的东西来做到这一点。他们想要改变的东西可以是任何东西，从连续体和连续体本身之间的环境之间的外部障碍。它可以是一个局部区域，从进化的角度来看，它将受益于以某种方式被操纵，通过操纵被考虑操纵的区域的进化内容来增强进化经验。我知道这似乎有点令人费解，但它确实是这样，令人费解和反复。
 
 I can see that you are a bit lost so I will explain further in terms that you can understand. 
 
+我可以看出你有点迷茫，所以我会进一步解释，以便你能理解。
+
 If you can imagine creating a plan of a house or even a much larger building,and that the house or large building is built faithfully to the plan,so you have a building which is built to plan.Now imagine that the building needs an overhaul.The plan remains the same,but the architecture of the inside is changed to suit new requirements.The new plan is overlaid over the old plan to see the difference between the two and to see what has to be done to make the changes required to support the architectural requirements of the new plan.The old architecture is then stripped out,and the new architecture is installed.It is the process of overlaying the new architecture over the old that is used by my maintenance entities. They become the old architecture in every possible way,effectively replacing the energies that were the old architecture allowing those energies to be put to one side.Consider it as a scaffold replacing a scaffold.The entity then makes the changes necessary to support the specific changes required of the continuum,including those interfacing entities or components of the continuum undergoing change within itself,thus effectively changing the geometry of the scaffold or in this case the continuum's structure.Once it has done this and the new structure is working well,taking into account that adjustments may be necessary,the working structure of the continuum is introduced,and the entity moves on to the next job. 
+
+如果你可以想象创建一个房子或甚至一个更大的建筑的计划，房子或大楼忠实地按照计划建造，所以你有一个按照计划建造的建筑。现在想象一下，这栋建筑需要大修。计划保持不变，但内部的架构被改变以适应新的要求。新计划覆盖旧计划，以查看两者的差异，并查看需要做什么来做出必要的改变，以支持新计划的建筑要求。然后，旧的架构被剥离，新的架构被安装。这是我的维护实体所使用的新架构覆盖旧架构的过程。它们以各种可能的方式成为旧的架构，有效地取代了旧架构的能量，使这些能量被放在一边。把它当作一个脚手架取代一个脚手架。然后，该实体做出必要的改变，以支持连续体所需的具体变化，包括那些连续体内部发生变化的接口实体或组件，从而有效地改变脚手架的几何形状，或者在这种情况下，连续体的结构。 一旦它完成了这个工作，新的结构运行良好，考虑到可能有必要的调整，连续体的工作结构被引入，实体移动到下一个工作。
 
 ME:So what you are saying is that the maintenance entity creates a sort of bridge between that structure that the continuum currently has and that which it needs to be in order to augment the evolutionary opportunities that can be experienced as a result of the proposed changes to the continuum.Once these proposed changes have been under a trial-run,so to speak,they are introduced as a permanent feature,albeit for the period of time required for the entity to create a longer term replacement,one that allows the entity to move on to its next role.
 
-我：
+我：所以你的意思是，维护实体在连续体目前的结构和它需要成为的结构之间创建了一种桥梁，以增加进化的机会，这些机会可以作为连续体拟议的改变的结果而经历。 一旦这些拟议的改变已经在试运行中，可以说，它们被引入作为一个永久的特征，尽管实体需要一段时间来创建一个更长期的替代品，一个允许实体移动到下一个角色的替代品。
 
 SE8:That's it in a nutshell.You see,there is no point in creating something that will fail, especially if it is to have a medium to long term function. 
 
