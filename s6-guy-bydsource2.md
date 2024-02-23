@@ -3802,125 +3802,131 @@ ME:So what you are saying is that the maintenance entity creates a sort of bridg
 
 SE8:That's it in a nutshell.You see,there is no point in creating something that will fail, especially if it is to have a medium to long term function. 
 
-8号源实体：
+8号源实体：简而言之就是这样。你看，创造一个注定失败的东西是没有意义的，特别是如果它具有中长期的功能。
 
 ME:And this is happening all of the time? 
 
-我：
+我：这种事一直都在发生吗？
 
 I felt that I was starting to get a grip of what was going on in Source Entity Eight's continuum- based environment. 
 
+我感觉我开始掌握源实体8的连续性环境中发生的事情。
+
 SE8:Yes,this happens all the time.In fact,it is happening in a very special way across the whole of my continuum-based environment. 
 
-8号源实体：
+8号源实体：是的，这种情况一直都在发生。事实上，它以一种非常特殊的方式跨越我的整个连续性环境。
 
 ME:Yes,I see what you mean.It is like a patchwork quilt,with each patch in the quilt being representative of a specific continuum. 
 
-我：
+我：是的，我明白你的意思了。它就像一个拼布被子，被子里的每个补丁都代表着一个特定的连续体。
 
 SE8:That would be a reasonable way to describe the work that goes on across the continuum and its continuum. 
 
-8号源实体：
+8号源实体：这将是一个合理的方法来描述在连续统一体及其连续统一体中进行的工作。
 
 This made me think a bit.Although each of the maintenance entities was and worked as an autonomous entity,it quite obviously,in my mind that is,needed to work in some sort of synchronicity with other maintenance entities to ensure that the work they undertook did not upset the work of those maintenance entities surrounding them.Just as I was thinking this though,Source Entity Eight considered it pertinent to correct me in my thought process. 
 
+这让我思考了一下。虽然每个维护实体都是一个自治的实体，但在我看来，很明显，需要与其他维护实体在某种程度上同步工作，以确保他们承担的工作不会扰乱周围那些维护实体的工作。正当我思考这个问题时，源实体8认为有必要纠正我的思维过程。
+
 SE8:It would be worth noting here that the level of a maintenance entity's autonomy is total.This means that it is not part of what you would call a gestalt or hive mind.It decides what to do based upon the level of change required to support the evolutionary quotient necessary to ensure connectivity with the rest of the continuum,the level of compartmentalization,the evolutionary quotient has and the necessary evolutionary level required to maintain an effective interface between the neighboring continuums and the space in-between.This also includes the level of localized change necessary to respond to the evolutionary pressures of the neighboring continuum. 
 
-8号源实体：
+8号源实体：值得注意的是，维护实体的自治水平是完全的。这意味着它不是你所说的完形或蜂群思维的一部分。它决定做什么，是基于支持进化商数所需的改变水平，进化商数必须确保与连续体的其余部分的连通性，分区水平，进化商数和维持相邻连续体和中间空间之间有效接口所需的必要进化水平。这也包括应对相邻连续体的进化压力所需的局部变化水平。
 
 ME:We have discussed this before to some extent,and as a result,I feel that we are going over old ground. 
 
-我：
+我：我们之前已经讨论过这个问题，所以我觉得我们是在重复旧话题。
 
 SE8:We are to some extent,but the important thing to note here is that the entities themselves have to become the continuum itself at certain times to enable the changes to be planned and implemented correctly all at the correct change point. 
 
-8号源实体：
+8号源实体：在某种程度上，我们是这样的，但这里需要注意的重要一点是，实体本身必须在某些时候成为连续体本身，以使更改能够在正确的更改点上正确地计划和实施。
 
 ME:OK,this opens up a whole new series of questions.I will,however,limit it to one. 
 
-我：
+我：好吧，这引出了一系列新的问题。但是，我将把它限制在一个问题上。
 
 SE8:Go on. 
 
-8号源实体：
+8号源实体：继续。
 
 ME:Why does a maintenance entity need to become part of the continuum itself?I can recognize the need to be a framework to build a new continuum-based environment around. This would be rather like the etheric and ketharic templates in the human body.I can also understand being a bridge between the old construction and the new.But why be an actual part of the continuum itself? 
 
-我：
+我：为什么维护实体需要成为连续体本身的一部分？我可以认识到需要一个框架来建立一个新的基于连续体的环境。这将非常像人体中的以太和克他模板。我也可以理解成为旧的建筑和新的建筑之间的桥梁。但为什么要成为连续体本身的实际部分？
 
 SE8:There are two reasons for this.First,the maintenance entity needs to become part of the continuum,replacing part of the continuum at a component level to understand the interfaces surrounding it,as well as the internal functionality and energetic requirements.It needs to do this before each piece of maintenance work is started.In this instance,the continuum's component is taken "off line,"so to speak,to allow the changes necessary for optimal functionality whilst the entity takes over the functional requirements of that continuum component part in its entirety for the duration of the changes.Second,the continuum itself cannot react fast enough to the changes required to maintain synchronicity with its surrounding continuum,the space between and the greater continuum that is me,so the entity has to "step in"immediately any change is required, whilst the modifications are made. 
 
-8号源实体：
+8号源实体：原因有二：首先，维护实体需要成为连续体的一部分，在组件级别上替换连续体的一部分，以了解周围的接口，以及内部功能和能量需求。在每项维护工作开始之前需要这样做。在这种情况下，连续体的组件被“脱机”，可以这么说，以允许最优功能的必要变化，而实体在变化期间接管了连续体组件部分的全部功能需求。
 
 ME:I am getting the impression that they have to do a sort of apprenticeship to qualify as a maintenance entity. 
 
-我：
+我：我得到的印象是，他们必须做一种学徒，才能有资格成为一个维护实体。
 
 SE8:Yes,that is true.Before they can be considered autonomous,they must experience every component part of every continuum within the continuum that is me.That includes being the space between the continuum and the very fabric of that which is me.Also,they have to cope with the ever-changing borders between the compartments identified as an entity's area of maintenance responsibility. 
 
-8号源实体：
+8号源实体：是的，确实如此。在他们被认为是自主的之前，他们必须经历连续体中的每个连续体的每个组成部分，这包括连续体和我这个结构之间的空间。此外，他们必须处理作为一个实体维护责任区域的隔间之间不断变化的边界。
 
 ME:They have to become you? 
 
-我：
+我：他们必须变成你？
 
 SE8:Correct.What better way to understand the maintenance of a continuum than by being the creating continuum itself? 
 
-8号源实体：
+8号源实体：正确。还有什么比成为连续体本身更好的方式来理解连续体的维护呢？
 
 ME:How is that possible?I mean,how can an entity that is as small as a maintenance entity...No,sorry,let me change my line of questioning.How can an entity take over from its creator?I mean,it must be a massive change.
 
-我：
+我：这怎么可能？我的意思是，一个像维护单位这么小的实体怎么能...不，抱歉，让我换个问题。一个实体怎么能从它的创造者手中接管？我的意思是，这肯定是一个巨大的变化。
 
 SE8:It doesn't.The entity itself becomes one with me,integrating itself into the very minute energetic detail that is me. 
 
-8号源实体：
+8号源实体：它不会。实体本身与我合二为一，融入到我身体的每一个微小而充满活力的细节中。
 
 ME:But to do that,it would have to spread itself incredibly thin. 
 
-我：
+我：但是要做到这一点，它必须把自己变得非常薄。
 
 SE8:It does.To enable it to become an overlay of me,it needs to be diluted to the point of insignificance. 
 
-8号源实体：
+8号源实体：是的，为了让它覆盖我，它需要被稀释到微不足道的程度。
 
 ME:You mean like a homeopathic dilution? 
 
-我：
+我：你的意思是像顺势疗法的稀释剂？
 
 SE8:That would be a reasonable analogy,yes.You see,for the entity to experience all that is me,it needs to be "in"all that is me,and the only way it can do that is be diluted to the point of full integration.Consider it like being a rare elemental component in the atmosphere that surrounds the earth.The elemental component may be one part in several trillion,trillion, billion,but in its diluted state,it is still,nevertheless,an important component within the total composition of the element which you classify as air.Because the air is what it is when you take a sample of it,you always gain a sample of all of the elements that make it up so to speak. 
 
-8号源实体：
+8号源实体：这将是一个合理的类比，是的。你看，对于实体来说，要体验我的所有，它需要“在”我的所有，而它能做到这一点的唯一方法是被稀释到完全融合的点。把它想象成环绕地球的大气中一种稀有的元素成分。这种元素成分可能是几万亿、万亿、亿分之一，但在其稀释状态下，它仍然是被你分类为空气的元素的全部组成中的一个重要成分。 因为当你取空气的样本时，你总是得到所有组成它的元素的样本。
 
 ME:But that can't possibly be the case because to get a sample of all of the elements,one needs to take a sample from an area that is large enough to capture those elements that are, for instance,one in a trillion,trillion,billion.One sample might not have the element whilst another would.
 
-我：
+我：但这不可能，因为要得到所有元素的样本，我们需要从一个足够大的区域中取样，以捕获那些元素，例如，万亿，万亿，十亿分之一。一个样本可能没有该元素，而另一个则有。
 
 SE8:That would be correct in the physical world that your "vehicle"exists within,but it is not necessary energetically.You mentioned the example of homeopathics,and as a result,I thought you understood the functionality of such a dilution. 
 
-8号源实体：
+8号源实体：在你的“载体”存在的物质世界里，这是正确的，但是在能量上，这不是必要的。你提到了顺势疗法的例子，因此，我认为你理解了这种稀释的功能。
 
 ME:Well,I do to a certain extent.The theory surrounding homeopathic medicines is that the surrounding elements take "in"the properties of the element that is most diluted. Hence,the elements'properties are present without the element itself being present. 
 
-我：
+我：在某种程度上，我相信。顺势疗法药物的理论是，周围的元素“吸收”了最稀释的元素的特性。因此，元素的特性在元素本身不存在的情况下仍然存在。
 
 SE8:Well,that is the same in this instance.It is a very good analogy as it shows how the maintenance entity learns to absorb that which is me without having a component of itself specifically located in the area of functional learning. 
 
-8号源实体：
+8号源实体：在这个例子中也是一样的。这是一个非常好的类比，因为它展示了维护实体如何学习吸收我，而没有自己特定的组件位于功能学习的领域。
 
 ME:I find it really quite bizarre how an entity can learn how to be a Source Entity.... 
 
-我：
+我：我发现一个实体如何学习如何成为一个源实体真的很奇怪...
 
 SE8:Continuum. 
 
-8号源实体：
+8号源实体：连续性。
 
 ME:OK,a continuum,merely by association. 
 
-我：
+我：好的，一个连续体，仅仅是通过联想。
 
 I have to ask this next question as it may explain how homeopathics work here on the earth plane.How does an entity assimilate knowledge or experiential experience through diluted association or presence? 
+
+我必须问下一个问题，因为它可能解释顺势疗法如何在地球上运作，一个实体如何通过稀释的联系或存在来吸收知识或经验？
 
 SE8:Quite simply by the communication routes used by the energies separating the energies.I see that I will need to elaborate.Energies that are either attached to an entity-that is,an entity of any kind but specifically those with sentience-or energies that have a purpose use each other as a communication medium.This communication medium is quite special because when the request goes out for communication-and the communication is between energies that are of a very high dilution-the energies in- between change themselves into the same type of energy for as long as necessary,ensuring that the communication or functionality is made in a robust way.However,there is a trade off in this type of communication process.This trade-off is that the energies that require "others""energies to behave like them for the duration of the communication or function, request what you would call "benefit in kind"-the agreement to assume the communicative properties of other nearby energies when they are in the minority.In this way they are given the key characteristics of all of the other energies that they are surrounded by to enable them to return the favor,so to speak,when the request arrives,which it inevitably does.This ability to change into other energies remains once given/received-even when the requesting entity or energy has departed-thus leaving a full set of energetic and function resources available for the use of the remaining energies or entities.This is basically how an entity can be part of me,be me,and experience what I experience-even when my difference in size is so much bigger than the maintenance entity diluted within me-to experience being the parent continuum or a Source Entity.This is a similar process to that used in your homeopathic medicines on your Earth. 
 
