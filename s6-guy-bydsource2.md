@@ -3930,242 +3930,289 @@ I have to ask this next question as it may explain how homeopathics work here on
 
 SE8:Quite simply by the communication routes used by the energies separating the energies.I see that I will need to elaborate.Energies that are either attached to an entity-that is,an entity of any kind but specifically those with sentience-or energies that have a purpose use each other as a communication medium.This communication medium is quite special because when the request goes out for communication-and the communication is between energies that are of a very high dilution-the energies in- between change themselves into the same type of energy for as long as necessary,ensuring that the communication or functionality is made in a robust way.However,there is a trade off in this type of communication process.This trade-off is that the energies that require "others""energies to behave like them for the duration of the communication or function, request what you would call "benefit in kind"-the agreement to assume the communicative properties of other nearby energies when they are in the minority.In this way they are given the key characteristics of all of the other energies that they are surrounded by to enable them to return the favor,so to speak,when the request arrives,which it inevitably does.This ability to change into other energies remains once given/received-even when the requesting entity or energy has departed-thus leaving a full set of energetic and function resources available for the use of the remaining energies or entities.This is basically how an entity can be part of me,be me,and experience what I experience-even when my difference in size is so much bigger than the maintenance entity diluted within me-to experience being the parent continuum or a Source Entity.This is a similar process to that used in your homeopathic medicines on your Earth. 
 
-8号源实体：
+8号源实体：很简单，通过能量使用的通信路线来分离能量。我知道我需要详细说明。能量要么附着在一个实体上，也就是说，任何一种实体，但特别是那些有感觉的实体，要么有目的的能量互相作为通信媒介。这种通信媒介很特别，因为当请求进行通信时，这种通信是在高度稀释的能量之间进行的，在必要的时间内，这些能量会把自己变成同一种类型的能量，以确保通信或功能以一种强有力的方式进行。然而，在这种类型的通信过程中有一个权衡。这种权衡是，在通信或功能期间，需要“其他”能量的能量，要求你所说的“以同样的方式受益”——当它们处于少数时，同意假定附近其他能量的通信特性。这样，他们被赋予了所有其他能量的关键特征，使他们能够回报恩惠，可以说，当请求到来时，这是不可避免的。这种转换成其他能量的能力一旦被给予/接受，即使请求实体或能量已经离开，也会保留下来，从而留下一整套能量和功能资源，供剩余的能量或实体使用。 这基本上是一个实体如何成为我的一部分，成为我，并体验我所体验的，即使当我在大小上的差异比我体内稀释的维护实体大得多，体验作为父母连续体或源实体的过程。
 
 ME:Well,I do say that does sort out a number of things in my mind.And it explains to some degree how homeopathics work. 
 
-我：
+我：嗯，我确实说这确实整理了我脑海中的许多东西。并且它在某种程度上解释了顺势疗法是如何工作的。
 
 SE8:The methodology of taking on board the characteristics of another energy for communication and functionality is one that is adopted Origin-wide.In fact,it is the primary method of communication and functionality with the exception of the medium you call gravity,which I am told has already been explained to by your own Source Entity. 
 
-8号源实体：
+8号源实体：将另一种能量的特性纳入交流和功能的方法论是全起源采用的方法。事实上，除了你们称之为重力的媒介外，这是交流和功能的主要方法，我听说你们自己的源实体已经对此进行了解释。
 
 Mmmm,it is almost time for you to move on to the next Source Entity,the One you will call Source Entity Nine. 
 
+嗯，差不多是时候让你去下一个源实体了，那个你叫做9号源实体。
+
 ME:Wait.Before you go,can you please describe to me what one of the entities who exists within one of your continuum looks like.I can't finish without at least your description of one entity form factor and evolutionary role within the continuum. 
 
-我：
+我：等等。在你走之前，你能给我描述一下存在于你们连续体中的某个实体长什么样吗？ 我不能不至少描述一下这个实体的外形因素和连续体中的进化角色。
 
 SE8:I will do this for you before you move on. 
 
-8号源实体：
+8号源实体：在你继续前进之前，我会为你做这个。
 
 Before I start though I need to point out that I have over 60 million different types of entities that exist and evolve within my continuum-based environment.Some of the entity types are specific to the continuum they work within,whereas others exist within a continuum that has up to 30 thousand different types.Which one would you like me describe,not that I have given you a choice yet? 
 
+在我开始之前，我需要指出，在我基于连续体的环境中，存在和进化着超过6000万种不同类型的实体。一些实体类型是特定于它们所工作的连续体的，而其他实体则存在于一个拥有多达3万种不同类型的连续体中。你希望我描述哪一个，而不是我已经给你一个选择了吗？
+
 ME:Right,without a choice of some sort,it is going to be difficult.Let me ask one more question before I decide which "blind alley"to go down. 
 
-我：
+我：是的，没有某种选择，这将是困难的。在我决定走哪条“死胡同”之前，让我再问一个问题。
 
 Do you have a continuum where there is a main form factor,if they have one,one that is similar to all entities? 
 
+你是否拥有一个连续体，其中有一个主要的形态因素，如果他们有一个的话，一个与所有实体相似的因素？
+
 SE8:Now that is a very good question,for there is a continuum where this is the case. I suspect you were tuning in to this particular continuum when you made the choice of question. 
 
-8号源实体：
+8号源实体：这是一个非常好的问题，因为有一个连续体，其中存在这种情况。我怀疑你在选择这个问题时，正在调整到这个特定的连续体。
 
 ME:Not intentionally,at least,not consciously. 
 
-我：
+我：至少不是故意的，没有意识到。
 
 SE8:All of the entities in the continuum I will call continuum 11b are similar,but each of them has a particular function and,therefore,form factor.I will use this nomenclature as it is one that you understand,for their form factor is a multi-dimensional-based derivative of what you might call a rare gas-if,that is,I had to use a description that you would understand. 
 
-8号源实体：
+8号源实体：连续体中的所有实体我称之为连续体11b，它们都是相似的，但每个都有特定的功能和形状因子。我将使用这个术语，因为它是你能理解的，因为它们的形状因子是基于多维度的衍生物，你可能会称之为稀有气体——如果，也就是说，我必须使用一个你能理解的描述。
 
 ME:OK,it's good enough for me so far. 
 
-我：
+我：好的，目前对我来说已经足够好了。
 
 SE8:On its own,this form factor is not useful for any form of continuum-based work or the retention of any evolutionary content,for it has no "purpose"in its raw state.It gains its usefulness and,therefore,purpose when it has a function to perform,so it needs to have a difference to its form factor,no matter how small it may be. 
 
-8号源实体：
+8号源实体：就其本身而言，这种形式因素对于任何形式的连续性基础工作或任何进化内容的保留都是无用的，因为在它的原始状态下它没有“目的”。 当它有功能要执行时，它就获得了它的有用性，因此，当它有功能要执行时，它就需要与它的形式因素有所不同，无论它可能有多小。
 
 ME:I am receiving the image of a series of entities that are sort of similar to a"multipurpose" screw driver without a tip on the end.In this state they are all the same.When it has a tip,for example,a cross head,a blade or torx(a six point star shape pattern),it has a specific purpose and role.The tip is the only thing that is different among the other entities who have "tips" that are specific to their own roles and functions. 
 
-我：
+我：我正在接收一系列实体的图像，有点类似于“多功能”螺丝刀，但没有尖端。在这种状态下，它们都是一样的。当它有一个尖端时，例如，十字头，刀片或扭矩(六点星形图案)，它有一个特定的目的和作用。尖端是唯一不同于其他实体的“尖端”，它们有特定的角色和功能。
 
 SE8:That would be a good example from your point of view,but you will need to note this as well.In your example,you have assumed that the illustration has but one multifunction screwdriver body.In the continuum,we are talking about other subtler differences between the so called stable sides of the body of the entity. 
 
-8号源实体：
+8号源实体：从你的观点来看，那将是一个很好的例子，但你也需要注意这一点。 在你的例子中，你已经假设图示只有一个多功能螺丝刀的主体。 在连续统一体中，我们正在讨论实体主体的所谓稳定侧面之间的其他微妙差异。
 
 ME:So you have classes or types of entities,different types of multifunction screw driver bodies,so to speak.
 
-我：
+我：所以你有实体的类别或类型，可以说是不同类型的多功能螺丝刀本体。
 
 SE8:Yes,and purely as an illustration,they may be,long,short,wide,bent at various different angles,flexible under all conditions,and/or flexible under certain conditions.This is not what they are but it gives you an idea of the diversity.Additionally,the tip "family' changes depending upon the body type. 
 
-8号源实体：
+8号源实体：是的，纯粹作为一个例子，它们可能是长，短，宽，弯曲在各种不同的角度，在所有条件下柔软，和/或在某些条件下柔软。这不是它们是什么，但它给你一个概念的多样性。此外，尖端“家族”的变化取决于身体类型。
 
 As another example using you own methods of manufacturing electronics,such as manufacturing a silicon chip on earth,you need certain tools,computerized tools,to allow you to design,develop,and test these components.You need the tools to create the tools to create the tools,so to speak.This is similar if not the same in certain examples with the entities in this particular continuum. 
 
+另一个例子是使用你自己的制造电子产品的方法，比如在地球上制造硅芯片，你需要一些工具，计算机化的工具，来让你设计，开发和测试这些组件。可以说，你需要这些工具来创造工具来创造工具。 如果不是相同的，在某些例子中，这与这个特定连续体中的实体是相似的。
+
 ME:So this continuum is the only continuum where the entities are similar if not almost the same,albeit with the minor differences talked about. 
 
-我：
+我：所以这个连续体是唯一的连续体，实体是相似的，如果不是几乎相同的话，尽管有我们谈到的细微的差异。
 
 SE8:In a nutshell,yes. 
 
-8号源实体：
+8号源实体：简而言之，是的。
 
 ME:I would like to get back to this description of their form factor from a true sense rather than from a hypothetical sense where we are using earthly examples because I can imagine my readers thinking that we are talking about a bunch of sentient screwdrivers here. 
 
-我：
+我：我想从真实的意义上回到对它们外形因素的描述，而不是从我们使用地球例子的假设意义上，因为我可以想象我的读者认为我们在这里谈论的是一群有感情的螺丝刀。
 
 SE8:You should give your readers more credit,but I do see the humor in that statement. Sentient screwdrivers,indeed! 
 
-8号源实体：
+8号源实体：你应该多给读者一些信任，但我确实看到了这句话中的幽默。真是有同情心的螺丝刀！
 
 Let's carry on.The entities themselves as I have described in some limited way in the text above,are a"multi-dimensional-based derivative of what you might call a rare gas"-the rare gas being the only way to describe their physicality if they had one.You mentioned "form factor"and the way that a rare gas is constructed would be a better example of how they are presented if they had to be presented in some sort of form.I also recently described the way in which those entities that are destined to be continuum maintenance entities are able to experience being one with me and,therefore,part of the working structure of the continuum they are assigned to during times of substitutional maintenance. 
 
+让我们继续。实体本身，正如我在上面的文本中以某种有限的方式描述的那样，是一个“基于多维度的衍生物，你可以称之为稀有气体”——稀有气体是描述它们的物理性的唯一方式，如果它们有物理性的话。你提到了“形式因素”，稀有气体的构建方式将是一个更好的例子，如果它们必须以某种形式呈现，它们将如何呈现。我最近还描述了那些注定成为连续体维护实体的实体能够体验与我合一的方式，因此，在替代维护期间，它们被分配到连续体的工作结构的一部分。
+
 ME:Yes,we considered the example of homeopathic dilution. 
 
-我：
+我：是的，我们考虑了顺势疗法稀释的例子。
 
 SE8:No,I was alluding to the entity becoming the framework of that part of the continuum they were becoming a substitute for whilst the maintenance task was being worked on. 
 
-8号源实体：
+8号源实体：不，我是指实体成为连续体的一部分的框架，它们成为维护任务的替代品。
 
 ME:Oh.Ok,yes,I see now. 
 
-我：
+我：哦，好的，是的，我现在知道了。
 
 SE8:I think you do in some small way.I will give you an image to consider. 
 
-8号源实体：
+8号源实体：我认为你在某种程度上是这样。我会给你一个图像来考虑。
 
 I received an image of the chemical models we create in school/university to explain,in a three dimensional way,the way in which a specific element is composed in its atomic state.This model portrayed a stick model with balls attaching the sticks together.The stick representing the connectivity between the balls,and the balls represented the molecules that made up the element. The molecules had a level of attractivity between certain other molecules whilst having a level of repulsion between others.Other levels of connectivity had both attractivity and repulsion so that the molecules stayed at a known distance from each other,not being able to move closer nor being able to move away.All of this resulted in a form factor,albeit large enough and dense enough to be classified as a form whilst being of a frequency that was high enough to make the form "formless"in all but attractivity and repulsivity-certainly from a physical perspective.It was as if the entity,if this was an example of an entity (Source Entity Eight said it was),was not actually created from a molecular structure but a structure that was created by attractivity and repulsivity of some sort.The attractivity and repulsivity were not between different types of molecules but were between different energies and dimensions. 
 
+我收到了一张我们在学校/大学创建的化学模型的图像，以三维方式解释，特定元素在原子状态下的组成方式。这个模型描绘了一个棒状模型，球与棒相连。棒代表了球之间的连接，球代表了组成元素的分子。 分子在某些其他分子之间具有一定程度的吸引力，同时在其他分子之间具有一定程度的排斥力。 其他级别的连接既有吸引力又有排斥力，因此分子保持彼此之间的距离，既不能靠近也不能远离。 所有这一切导致了一个形式因素，尽管足够大，足够密集，可以被归类为一种形式，但其频率高到足以使形式“无形”，但从物理角度来看，只有吸引力和排斥力。不同类型的分子之间不存在吸引力和排斥力，而是存在不同能量和维度之间的吸引力和排斥力。
+
 Suddenly,this was starting to get hard,even though it appeared to be a simple subject.The data being presented to me was obviously being subject to some heavy filtering so that I could gain some sort of insight into the concept being presented to me.My typing was slowing down as my ability to assimilate the knowledge was degrading.I felt a pressure at the front of my head.Then it cleared slightly,and the information continued to flow again. 
+
+突然，这开始变得困难，尽管它似乎是一个简单的主题。呈现给我的数据显然受到一些严重的过滤，以便我能够获得某种洞察力，以便我能够深入了解呈现给我的概念。我的打字速度变慢了，因为我吸收知识的能力正在下降。我感到头部有一种压力。 然后它略微清除，信息又继续流动。
 
 The interaction between the energies that composed the entity or concept of the entity being described was not only dependent upon simple energetic attractivity and repulsivity and the expected frequential content and how that affected the attractivity,etc.,but it was also affected by the dimensional sub-component where that particular part of the entity was manifested.I saw the entity as the molecular model again but pulled apart into different layers,rather like the layers that are used in the multilayer drawing conventions used in Computer Aided Engineering (CAE)and Computer Aided Design(CAD)to draw a component in a motorcar or an aeroplane. 
 
+组成实体或被描述实体概念的能量之间的相互作用，不仅取决于简单的能量吸引力和排斥力，以及预期的频率内容，以及它如何影响吸引力等，但它也受到实体的特定部分表现出来的维度子组件的影响。我再次把实体看作分子模型，但被分成不同的层，就像计算机辅助工程(CAE)和计算机辅助设计(CAD)中使用的多层绘图惯例中的层，用来绘制汽车或飞机的组件。
+
 As the layers were pulled apart,each layer represented the dimensional content that illustrated that part of the entity that was manifested on that particular dimension.Dimensionally together,the entity was whole;dimensionally apart and seen from the perspective of the different dimensional levels in isolation,the entity was incomplete.There was one more thing, however.That part of the entity that was manifested on a particular layer/dimension had a role/specialization of its own to perform.This role was performed in both isolation and in concert with the other parts of the entity that were manifest on the other dimensional layers. In this aspect the entity was able to create on a holistic and specialized level simultaneously. Not only that,the entity was able to interact with the other entities within its continuum and work in concert with them in their creativity either as a team,independently/separately, interdependently or in observation.They also worked out which skills/functions each other had as a result of their particular energetic/dimensional construction and worked together in harmony to create something that they would not have been able to create should they have stayed working only with entities of the same energetic/dimensional form factor. 
 
+当层被分离时，每一层代表了维度内容，说明了实体的一部分，体现在特定的维度上。维度在一起，实体是完整的；维度分离，从不同的维度水平的角度来看，实体是不完整的。然而，还有一件事。实体的一部分，体现在特定的层/维度上，有自己的角色/专业来执行。 这个角色是孤立的，与实体的其他部分一致，体现在其他维度层上。 在这方面，实体能够同时在整体和专业水平上创造。不仅如此，实体能够与其连续体中的其他实体互动，并与它们在创造力中协同工作，无论是作为一个团队，独立/分开，相互依赖或观察。他们还发现了由于他们独特的能量/维度结构，彼此拥有哪些技能/功能，并和谐地一起工作，创造出一些他们如果只与相同能量/维度形式因素的实体一起工作就无法创造的东西。
+
 I zoomed out of the image I was being given and saw a bright blue lattice of sparkling multidimensional energies.It looked like a huge multi-dimensional net covering the area that would house a galaxy in my own physical universe.It was beautiful.
+
+我把我看到的图像放大，看到一个闪闪发光的多维能量的明亮蓝色晶格。它看起来像一个巨大的多维网，覆盖了在我自己的物理宇宙中可以容纳一个星系的区域。它很漂亮。
+
+（图11：用于解释分子结构的3D模型示例）
 
 ![Figure 11: Example of a 3D Model Used to Explain Molecular Structure](img/s6-046.png)
 
 ### In Finishing with Source Entity Eight 
 
+**结束和源实体8的对话**
+
 SE8:Now you know what one of these entities would look like if it was visible to your physical eyes and a bit about how it is constructed. 
 
-8号源实体：
+8号源实体：现在你知道这些实体中的一个看起来像什么，如果它可以用你的肉眼看到，并且知道它是如何构建的。
 
 ME:Yes,it is beautiful.Thank you. 
 
-我：
+我：是的，它很漂亮。谢谢你！
 
 SE8:Now it is time for you to move on to the entity you will refer to as Source Entity Nine.Go in peace with this expansion in your knowledge. 
 
-8号源实体：
+8号源实体：现在是时候让你们前进到你们将称之为9号源实体。带着你们知识的扩展和平地前进。
 
 And with those last words the communication link between Source Entity Eight and me dissolved. I still felt its presence but noted that my communicative direction and energetic link with it was no longer attached in an exclusive fashion.With Source Entity Eight's energies no longer linked to my own for communication purposes,I began to take stock of the information I had received during the months I had been directly linked energetically with SE8. 
 
+随着这些最后的话语，我和8号源实体之间的通讯联系消失了。我仍然感觉到它的存在，但注意到我与它的通讯方向和能量联系不再以一种排他的方式连接。随着8号源实体的能量不再为了通讯目的而与我自己的能量相连，我开始盘点我收到的信息，在几个月里我一直与SE8直接有能量联系。
+
 Source Entity Eight was an entity whose whole existence was focused upon the generation and maintenance of continuum and how they could provide an enhanced evolutionary opportunity for those entities who were created and based upon their inherent abilities,elected to work within their chosen continuum to experience,learn and evolve (an Origin-wide theme)by manipulating the base evolutionary content of the continuum in which they existed-sometimes locally, sometimes across the whole continuum. 
 
+8号源实体的整个存在都集中在连续体的产生和维护上，以及如何为那些基于其内在能力而被创造的实体提供增强的进化机会，选择在他们所选择的连续体中工作，通过操纵他们所存在的连续体的基本进化内容来体验、学习和进化(一个起源范围的主题)。
+
 There were two things that struck me as both significant and different from an almost common theme of multiversal creativity and existence based upon full dimensions,sub-dimensional components andfrequency levels of environments created by the other Source Entities with whom I have communicated to date: 
+
+有两件事让我震惊，它们与我迄今为止与之沟通的其他源实体所创造的基于全维度、亚维度组件和环境频率水平的多元创造和存在的几乎共同的主题不同：
 
 - 1.There was a focus on a continuum that had a continuum specific energetic content rather than a universe/multiverse. 
 - 2.The focus also included the ability or need to affect the base evolutionary component of the continuum-based environment to allow optimization of that base evolution via the work of incumbent entities and evolution of the entities themselves,both positively and negatively. 
 
+- 1.有一个连续体的重点，它有一个连续体特定的能量内容，而不是一个宇宙/多元宇宙。
+- 2.重点还包括影响基于连续体的环境的基本进化组件的能力或需要，以便通过现有实体的工作和实体本身的进化来优化基础进化，无论是积极的还是消极的。
+
 It was as if the whole game of evolution was being turned on its head with the basic ground rules of evolution happening in a linear way no longer applying-at least not in Source Entity Eight's environment.The thought that the whole way in which the base level of evolution, specifically in the continuum-based environment,could be manipulated to affect the method in which evolution was accrued was a completely new avenue of thought to me!I suspect it will be a completely new consideration for most people as well,specifically the thought of losing one's place on the evolutionary ladder,over-night as it were,in order to either help the entities evolving in another continuum or to see how it affected an entity's overall evolution seems to be contrary to everything we know about evolution. 
+
+这就好像整个进化游戏正在被颠倒过来，进化的基本规则不再以线性方式发生，至少不是在源实体8的环境中。进化的基本水平的整个方式，特别是在基于连续体的环境中，可以被操纵来影响进化积累的方法，对我来说是一个全新的思维方式！我怀疑这对大多数人来说也是一个全新的考虑，特别是在一夜之间失去自己在进化阶梯上的位置，为了帮助在另一个连续体中进化的实体，或者为了看看它如何影响一个实体的整体进化，这似乎与我们所知道的进化背道而驰。
 
 I was also surprised at the different types of evolution and how they affected the geometrics of the continuum itself.I was starting to realize that nothing could be taken for granted,and everything should be considered as not only possible but highly probable.Clearly,there were no "sacred cows"in The Origin's omniverse,for evolution,one of those,had just been smashed to pieces.
 
+我也对不同类型的进化以及它们如何影响连续体本身的几何学感到惊讶。我开始意识到没有什么是理所当然的，每件事都应该被认为不仅是可能的，而且是极有可能的。显然，在起源的宇宙中没有“圣牛”，因为进化，其中之一，刚刚被粉碎。
+
 With this in mind andfour Source Entities to go,my energetic link moved outwards and onwards towards the ninth Source Entity to be interviewed.I felt excited as I sat and waited for the energies of the communication link with Source Entity Nine to engulf me.I didn't have long to wait.
+
+带着这个想法和4个源实体要走，我的能量链接向外移动，向前移动，走向第九个要采访的源实体。当我坐在那里等待与第9个源实体的通信链接的能量吞没我时，我感到兴奋。我没有等多久。
 
 ## Chapter Three - Source Entity Nine 
 
+**第3章：9号源实体**
+
 I suddenly had a picture of the Walt Disney cartoon character Goofy in my head.
+
+我突然在脑海中出现了一张华特迪士尼卡通人物高飞的图片。
 
 "Well hello!"it said in the same voice as Goofy.Was I going mad? 
 
+“你好！” 它用高飞一样的语气说。我疯了吗？
+
 ### Source Entity Nine Tells Me More About Myself Than Itself 
+
+**9号源实体告诉我的更多是关于我自己，而不是它本身**
 
 SE9:Now that I have got your attention,we can start. 
 
-9号源实体：
+9号源实体：现在我已经得到了你的注意，我们可以开始了。
 
 ME:Hold on.Was that you,the next Source Entity that I am due to have a dialogue with?The Source Entity I am due to call Source Entity Nine?In my head portraying Goofy?! 
 
-我：
+我：等等。是你吗？下一个我要对话的源实体？那个我要叫做9号源实体的源实体？在我脑海中扮演高飞？
 
 SE9:Yes,it was.I had noticed that you had not spotted that the link between us had become operative,so I decided to delve into your mind and use something that would wake you up to my presence.Using the Goofy personality seems to have done the trick. 
 
-9号源实体：
+9号源实体：是的，是这样。我注意到你还没有发现我们之间的联系已经开始生效了，所以我决定深入你的思想，用一些东西来唤醒你，让你意识到我的存在。使用高飞的人格似乎起到了作用。
 
 ME:It certainly did.And you are right;I didn't notice that you had linked up with my energies.Your energies must be either very subtle,or you have managed to tune into me in a most perfect way. 
 
-我：
+我：的确如此。你说得对，我没有注意到你已经和我的能量连接上了。你的能量要么非常微妙，要么你已经成功地以一种最完美的方式调谐到我身上。
 
 SE9:The truth of the matter is that you are adjusting to the difference in energies in an almost automatic way now.You appear to be able to re-calibrate your energies to those of the entity you are due to communicate with on the point of your relinquishing the link with the previous Source Entity. 
 
-9号源实体：
+9号源实体：事情的真相是，你现在正在以一种几乎是自动的方式调整能量的差异。你似乎能够重新校准你的能量，以便在你放弃与之前的源实体的联系时，与那些你应该与之沟通的实体进行沟通。
 
 ME:I don't remember doing this before.In fact,I remember having quite a bit of difficulty during the first couple of dialogues of the last few Source Entities-specifically,as I get further and further away from my home Source Entity. 
 
-我：
+我：我不记得以前做过这个。事实上，我记得在最后几个源实体的前几个对话中，我遇到了相当大的困难，特别是当我离我的主源实体越来越远的时候。
 
 SE9:As you move further away from the energies of the Source Entity you now call Source Entity One,your home Source Entity,you start to become more independent.As you were told by Source Entity Eight,you are of The Original Manifestation and,therefore,have an energy set that is not truly created by your home Source Entity.In essence,you were created by The Origin and,therefore,you belong in The Origin and not in the confines of your home Source Entity.As a result of moving your consciousness away from the confines of your Source Entity on an almost regular and consistent basis now,you are losing the attachment to the energies of your home Source Entity.You are gaining your independence and the constraints in your communicative abilities are being broken down as a result.Hence,your automatic re-calibration of your own energies to those of mine,allowing almost perfect integration with me on a most fundamental level.This meant that when I established contact with you,your energies were already calibrated to those of mine and the normal discomfort you experienced in the past was not present.In fact,they were so in tune that you were not even aware of their presence as you considered them to be your own. 
 
-9号源实体：
+9号源实体：当你远离你现在称之为源实体一的能量，你的主源实体，你开始变得更加独立。正如你被源实体8所告知，你是原始显现，因此，有一个能量集，不是真正由你的主源实体创造的。本质上，你是由起源创造的，因此，你属于起源，而不是在你的主源实体的限制中。由于现在你以几乎有规律和一致的基础将你的意识远离你的源实体的限制，你正在失去对你主源实体能量的依附。你正在获得你的独立性，结果是你的沟通能力的限制正在被打破。因此，你自动重新校准你自己的能量到我的那些，允许在一个最基本的水平上与我几乎完美的融合。这意味着当我与你建立联系时，你的能量已经校准到我的那些，你过去经历的正常不适不存在。事实上，他们是如此的合拍，以至于你甚至没有意识到他们的存在，因为你认为他们是自己的。
 
 ME:I am impressed. 
 
-我：
+我：我印象深刻。
 
 SE9:You should be.Although it's the first time you have achieved such a process,it will become more prevalent later,especially when you complete your dialogues with me and the remaining Source Entities and move on to your communications with The Origin in a level of detail you are not yet even able to comprehend. 
 
-9号源实体：
+9号源实体：你应该会的。虽然这是你第一次达到这样的过程，但以后会变得更加普遍，特别是当你完成与我和其他源实体的对话，并继续与源头进行交流时，你甚至还无法理解其中的细节。
 
 ME:But I have not had a problem communicating with The Origin in the past.In fact,I expect I will be talking to The Origin more than the Source Entity I will call Source Entity Twelve,the Source Entity that has not yet become self-aware. 
 
-我：
+我：但是我过去和“起源”沟通没有问题。事实上，我希望我能和“起源”谈话，而不是和我称之为“12号源实体”的源实体，那个还没有自我意识的源头。
 
 SE9:You know about Source Entity Twelve?Mmmm,you might be surprised to note that things have moved on in that respect.I will not spoil your fun though as it is more important for you to tell that particular story when you have time to dedicate yourself to it.That time is not now.Now getting back to why you have not had any problems communicating with The Origin to date.You have not had any problems with communicating with The Origin because The Origin,as with the previous eight Source Entities you have communicated with modified its own base energy resonance to those of yours,not you adjusting your energies to those of the entity you are about to enter into discourse with.This means that the level of communication will be higher,allowing more information to be passed on to you as your level of understanding is lifted through the more complete level of integration you are able to establish through the modification of your own base energies. 
 
-9号源实体：
+9号源实体：你知道12号源实体吗？嗯，你可能会惊讶地发现事情已经在这方面发生了变化。我不会破坏你的乐趣，因为当你有时间专注于它时，讲述那个特殊的故事对你来说更重要。那个时间不是现在。现在回到为什么你迄今为止与源头沟通没有任何问题。你与源头沟通没有任何问题，因为源头，就像你之前与之沟通的8个源实体一样，修改了它自己的基本能量共振，而不是你调整你的能量，以便与你即将进入对话的实体进行协调。这意味着沟通的水平将更高，允许更多的信息传递给你，因为你的理解水平通过更完整的整合水平提升了，你可以通过修改自己的基本能量来建立。
 
 ME:So that explains the reason why I didn't notice the link being created.I have apparently re-calibrated my energies so close to yours that you have become me,so to speak. 
 
-我：
+我：所以这就解释了为什么我没有注意到我们之间的联系。我显然重新调整了我的能量，使它与你的能量非常接近，可以说，你已经变成了我。
 
 SE9:That is one way of saying it,but in reality you have become me. 
 
-9号源实体：
+9号源实体：这是一种说法，但实际上你已经变成了我。
 
 ME:So why do I not get a sense of who you are then?Should I not get a sense of a massively extended memory or ability?
 
-我：
+我：那为什么我不知道你是谁？我应该不知道你有巨大的记忆或能力吗？
 
 SE9:No,that is not what the link or the communication process that is created by the re- calibration of your base energies is all about.Remember,that part of you that is incarnate is still limited from a functional perspective to what is allowable whilst incarnate and what you are able to command whilst in the low frequencies that you currently occupy.You will gain nothing other than an increased ability to affect a robust and simple communicative link that is not stretching your physicality to its limits.You can't see it now but when you were in communication with the other Source Entities your energies,especially those in the levels 8,9&10 were being twisted all over the place and in every way possible.Now that you have established an automatic method of re-calibrating your energies to those of the entity you want to communicate with,this is no longer a problem. 
 
-9号源实体：
+9号源实体：不，那不是由重新校准你们的基础能量所创造的链接或通信过程所关乎的。记住，你们化身的那部分仍然从功能角度上受到限制，在化身时允许什么，在你们目前占据的低频率中，你们能够指挥什么。你们将获得除了影响一个强健而简单的通信链接的增强能力以外，没有把你们的肉体延伸到极限。你们现在看不到它，但是当你们与其他源实体进行通信时，你们的能量，特别是那些在第8、9和10级中的能量，正在到处扭曲，以各种可能的方式。现在，你们已经建立了一种自动的方法，重新校准你们的能量，以便与那些你们想要通信的实体进行通信，这不再是一个问题。
 
 ME:I can assure you I was not aware of being able to do this. 
 
-我：
+我：我可以向你保证，我不知道我能做到这一点。
 
 SE9:And why should you when that part of you that is not incarnate has been doing the work for you?Don't forget the part of you that is incarnate is a very small part of you. Energetically,you are a much larger entity. 
 
-9号源实体：
+9号源实体：当你那不是化身的部分一直在为你工作时，你为什么要这样做？不要忘记你那化身的部分只是你很小的一部分。从能量上来说，你是一个更大的实体。
 
 ME:OK,you have spoken about me more than yourself in the limited time that we have had together.I am very grateful for receiving such knowledge,as it helps me to fill in the gaps about my "self"and how I can do what I do without any formal training as such.At least not in this specific area,for I have taught myself. 
 
-我：
+我：好的，在我们在一起的有限时间里，你谈论我比谈论你自己还多。我非常感激接受这样的知识，因为它帮助我填补了关于我“自己”的空白，以及我如何在没有任何正式培训的情况下做我所做的事。至少在这个特定的领域，因为我是自学的。
 
 SE9:It is both a pleasure and an honor to do so,for your work will assist in the ascension of mankind in a most unique way.Although right now you are in the starting blocks,so to speak,ready to run down the track,you will later be flying in a fighter jet in comparison. Hold onto your seat,for once you have made your choice in life to be "Gods',"(your Source Entities')willing slave/emissary,you will be at the center of a whirlwind of spiritual work. 
 
-9号源实体：
+9号源实体：这是既愉快又荣幸的去做，因为你的工作将以一种最独特的方式协助人类提升。尽管现在你正处于起跑线上，可以这么说，准备跑下跑道，但相比之下，你将很快在战斗机中飞行。抓住你的座位，因为一旦你在生活中做出了成为“神”的选择(你的源实体)自愿的奴隶/使者，你将处于灵性工作旋风的中心。
 
 ME:Well,right now it seems like I have had a bit of a false start. 
 
-我：
+我：嗯，现在看起来我有一个错误的开始。
 
 SE9:That will pass faster than you think,and you will also make the move/change faster than you think.It is time for us to enlighten your readers about my own accomplishments now. 
 
-9号源实体：
+9号源实体：时间会比你想象的更快地流逝，你也会比你想象的更快地前进/改变。现在是我们向读者介绍我自己的成就的时候了。
 
 ME:I agree. 
 
-我：
+我：我同意。
 
 ### The Basis for Source Entity Nine's Environment 
 
