@@ -3524,7 +3524,7 @@ SE8:Well,there are many other rules of a similar nature,but now is not the time 
 
 ME:OK,I can live with that.It was getting complicated anyway. Especially the bit about what I call sub-evolution affecting real evolution in a quantum leap sort of way when decisions are made based upon self-sacrifice with no knowledge of the outcome for the entity,universe,multiverse or continuum. 
 
-我：好吧，我可以接受，反正它变得越来越复杂，特别是我所说的亚进化影响着真正的进化，当决定基于自我牺牲而做出时，对实体、宇宙、多元宇宙或连续体的结果一无所知。
+我：好吧，我可以接受，反正它变得越来越复杂，特别是我所说的亚进化影响着真正的进化，当决定基于自我牺牲而做出时，对实体、宇宙、多维宇宙或连续体的结果一无所知。
 
 ### Maintenance Control Entities 
 
@@ -4095,7 +4095,7 @@ There were two things that struck me as both significant and different from an a
 - 1.There was a focus on a continuum that had a continuum specific energetic content rather than a universe/multiverse. 
 - 2.The focus also included the ability or need to affect the base evolutionary component of the continuum-based environment to allow optimization of that base evolution via the work of incumbent entities and evolution of the entities themselves,both positively and negatively. 
 
-- 1.有一个连续体的重点，它有一个连续体特定的能量内容，而不是一个宇宙/多元宇宙。
+- 1.有一个连续体的重点，它有一个连续体特定的能量内容，而不是一个宇宙/多维宇宙。
 - 2.重点还包括影响基于连续体的环境的基本进化组件的能力或需要，以便通过现有实体的工作和实体本身的进化来优化基础进化，无论是积极的还是消极的。
 
 It was as if the whole game of evolution was being turned on its head with the basic ground rules of evolution happening in a linear way no longer applying-at least not in Source Entity Eight's environment.The thought that the whole way in which the base level of evolution, specifically in the continuum-based environment,could be manipulated to affect the method in which evolution was accrued was a completely new avenue of thought to me!I suspect it will be a completely new consideration for most people as well,specifically the thought of losing one's place on the evolutionary ladder,over-night as it were,in order to either help the entities evolving in another continuum or to see how it affected an entity's overall evolution seems to be contrary to everything we know about evolution. 
@@ -4216,223 +4216,247 @@ ME:I agree.
 
 ### The Basis for Source Entity Nine's Environment 
 
+**9号源实体环境的基础**
+
 ME:I would like to understand about your environment.Is it a multiverse,continuum or what? 
 
-我：
+我：我想了解一下你们的环境。它是多维宇宙、连续体还是别的什么？
 
 SE9:You will notice that the further you move away from your home Source Entity that the more diverse and different the environments become. 
 
-9号源实体：
+9号源实体：你会注意到，你离你的家乡越远，环境就变得越多样化和不同。
 
 ME:Yes,I have noticed that. 
 
-我：
+我：是的，我注意到了。
 
 SE9:Well,my environment is again a departure from that which you have experienced before.Again,this is planned so that you can make the changes required more easily.Every move outwards is a step further away from that which you can relate to.Each move away from that which you can relate to exposes you to new and more abstract creations,which in turn,build your knowledge and experience base so as to allow you to move on.In this task you are doing very,very well.I will delay no longer.
 
-9号源实体：
+9号源实体：我的环境又一次与你们以前经历过的环境不同。同样，这是经过计划的，这样你们可以更容易地做出所需的改变。每向外移动一步，你们就离你们所能联系到的东西更远一步。每离开你们所能联系到的东西一步，你们就接触到新的和更抽象的创造物，这反过来又建立起你们的知识和经验基础，以便让你们继续前进。在这个任务中，你们做得非常好。我不再拖延了。
 
 My own environment can only be described as a lattice,a spider's web or fully spherical snow flake if you like. 
 
+我自己的环境只能被描述为一个格子，一个蜘蛛网或完全球形的雪花。
+
 I saw just that,a huge lattice-like construct that looked for all intents and purposes like a snowflake lattice made of intra-dimensional light.Another way of looking at it would be like looking at the complete seed head that a dandelion plant creates in order to replicate itself.The light itself looked like it was pulsating and changing its luminous density and color,but the color was only changing in a subtle sense.There appeared to be no space at all in-between what I can only describe as the light tubes that made up the construct that I could identify as being able to support any physical or energetic life.It seemed to be pure void and not offering the so-called "back doors"I had previously experienced.It was not part of the construct. 
+
+我看到的是一个巨大的格子状结构，看起来就像一个由内维光构成的雪花格子。另一种看待它的方法是看蒲公英植物为了自我复制而创造的完整的种子头。光本身看起来像是在跳动，改变着它的发光密度和颜色，但颜色只在微妙的感觉中变化。在我只能描述为光管的结构之间似乎根本没有空间，我可以识别出它能够支持任何物理或有活力的生命。它似乎是纯粹的空虚，没有提供我以前经历过的所谓的“后门”。它不是结构的一部分。
 
 ME:Have I got this right?Is your environment,as I see it in my mind's eye,just like a big dandelion seed head or spherical snow flake? 
 
-我：
+我：我理解对了吗？ 你的环境，就像我在脑海中看到的那样，就像一个大蒲公英种子头或球形雪花？
 
 SE9:Yes,that is how it would appear to your eyes.Each of the"light tubes"that makes up the construct is effectively an environment for a different type of entity. 
 
-9号源实体：
+9号源实体：是的，这就是它在你眼前的样子。每个组成这个结构的“光管”都是不同类型实体的有效环境。
 
 ME:So each light tube is a unique universal environment that accommodates a single entity type? 
 
-我：
+我：所以每个光管都是一个唯一的宇宙环境，容纳一个单一的实体类型？
 
 SE9:Correct.Every part of me from the aspect of the construction is a separate but integrated universal environment tuned specifically to the requirements of those entities that occupy it.I maintain a centrality where the main branches,central conduits or trunks, if you like,are connected.Consider it a little bit like the loci Source Entity Eight described in your last dialogue.Each of the main branches acts as a conduit where the entities that exist in one of the branches can traverse to the center point,me,and commune with me. 
 
-9号源实体：
+9号源实体：正确，从构造的角度来说，我的每个部分都是一个独立但又整合的宇宙环境，它专门针对占据它的那些实体的需求进行调谐。我保持着一个中心，其中主要的分支，中心管道或主干，如果你愿意的话，是相连的。把它想象成有点像你上次对话中所描述的源实体8的轨迹。
 
 ME:What do you mean commune? 
 
-我：
+我：公社是什么意思？
 
 SE9:Exactly that,commune.Consider it like your evolutionary direction.As you rise through the frequencies,a rise resulting from the increase in your evolutionary content,so do you get closer to those frequencies that are associated with the essence of your Source Entity.This allows you to communicate and commune,to be one with,your creator.In your own environment,this is something that all entities strive for.Some achieve it early in their existence whereas others take longer to progress to the level required to allow full communion.Others,on the other hand,are able to achieve communication without communion,as you are right now.In the migration of an entity from its own environment towards me,it has to move away from its own environment to the main conduit and progress in an evolutionary way towards me.It meet its challenges and creates its creations as it goes. 
 
-9号源实体：
+9号源实体：完全正确，交流。把它当作你的进化方向。当你通过频率上升，一个由你进化内容的增加导致的上升，所以你更接近那些与你源实体本质相关的频率。这允许你交流和交流，与你的创造者成为一体。在你自己的环境中，这是所有实体努力追求的东西。一些在他们存在的早期就实现了它，而另一些则需要更长的时间来进步到允许完全交流的水平。另一方面，其他人能够实现没有交流的交流，就像你现在一样。在一个实体从它自己的环境向我迁移的过程中，它必须离开它自己的环境，到主要的管道，并以一种进化的方式向我前进。它遇到了它的挑战，并在前进的过程中创造了它的创造物。
 
 ME:Does it not need to go through any other environments to reach you?In some of the other dialogues I have had,the entities concerned progressed from one environment to another with their evolution being affected by their ability to cope with the new challenges encountered in the environments they pass through.Is this not the case with your environmental construct? 
 
-我：
+我：它不需要经过任何其他环境来到达你吗？在我所拥有的一些其他对话中，相关的实体从一个环境进展到另一个环境，他们的进化受到他们在所经过的环境中遇到的新挑战的能力的影响。这不是你的环境构造的情况吗？
 
 SE9:No.When an entity starts its evolutionary journey and increases its desire for communion,it retains its own environment even when it is,for all intents and purposes, "outside"its environment. 
 
-9号源实体：
+9号源实体：当一个实体开始了它的进化之旅，并增加了它对交流的渴望，它保留了它自己的环境，即使它在所有意图和目的上，都处于它环境的“外面”。
 
 ME:I think I understand.I just received an image of a direct line,a line within the conduit and environmental branch the entity originated from that extended to the central conduit and the center point that is you.I also see that there can be many multitudes of entities that can be within the central conduits,each totally unaware of the other entities around them that originate from the other branches. 
 
-我：
+我：我想我明白了。我刚刚收到了一个直线图像，一条在管道和环境分支中的线，实体起源于延伸到中央管道和中心点，那就是你。我还看到可以在中央管道内有很多实体，每个都完全不知道周围其他实体起源于其他分支。
 
 SE9:Well done.You may also want to note that in their journey towards communion with me,they are carrying their own universes with them. 
 
-9号源实体：
+9号源实体：做得好。你可能也想注意到，在他们与我交流的旅程中，他们带着他们自己的宇宙。
 
 ME:Hang on.What do you mean "carrying their own universes with them"?You mean the whole lot?What happens to those entities that also exist in the universe occupied by the entity that moves away from the branch? 
 
-我：
+我：等等，你说“带着他们自己的宇宙”是什么意思？你是说所有的？那些也存在于这个离开分支的实体所占据的宇宙中的实体会发生什么？
 
 SE9:They continue to occupy the same universe.It stays in the same relative space even though it also stays with those entities that are moving towards having enough evolutionary content to allow them the closeness required to commune with me.Imagine you have an entity or group of entities that originate in a certain universal branch.If that entity or those entities move away from the branch and on down the central conduit or trunk that connects a certain contingent of branches or branches of branches,etc.,they take their universe with them. 
 
-9号源实体：
+9号源实体：他们继续占据着同一个宇宙。它停留在相同的相对空间，即使它也与那些正在朝着有足够的进化内容的实体保持距离，以允许他们与我交流。想象你有一个实体或一群实体，起源于某个宇宙分支。如果那个实体或那些实体离开分支，沿着连接某个分支或分支的分支等的中心管道或主干移动，他们带着他们的宇宙。
 
 ME:I think I understand.I have a picture in my head of globules of the same universal energy all over the originating branch and the trunk.I also see them in other branches and trunk/branch/sub-branch configurations in other parts of the environmental construct. From what I can see,the globules are connected by universal beingness.That beingness is an immediate and instantaneous connection with the other globules.Let me see if I have got this right. 
 
-我：
+我：我想我明白了。我脑海中有一个画面，在起源的分支和主干上都有相同的宇宙能量的球体。我也在环境构造的其他部分的其他分支和主干/分支/子分支的配置中看到它们。从我能看到的来看，这些球体是由宇宙存在连接的。这种存在是与其他球体的直接和即时的连接。让我看看我是否弄对了。
 
 When an entity moves to the edge of that globule of universe it is currently in and wants to move to another part of what would have been the total universe,had that entity remained in the universal branch,the perimeter of the universal globule provides immediate and instantaneous transport to that part of the universe that it would have traversed to had it been in the whole universe in the universal branch. 
 
+当一个实体移动到它当前所在的宇宙球体的边缘，并想移动到原本是整个宇宙的另一个部分时，如果这个实体仍然在宇宙分支中，宇宙球体的周长会提供即时的运输，如果它在整个宇宙中的宇宙分支中，它会穿越到宇宙的那个部分。
+
 SE9:Well done and very good.But also note that if the transportation to another part of the universe was a requirement to interact with another entity or group of entities,and that entity or group of entities were themselves away from the original whole universe,the entity would instead be transported to that globule of universe that was elsewhere within the trunk or other trunk/branch/sub-branch configuration that that entity is currently existing within and not the whole original universe. 
 
-9号源实体：
+9号源实体：做得很好，非常好。但也请注意，如果到宇宙的另一个部分的运输是与另一个实体或实体组互动的要求，而那个实体或实体组本身远离原始的整个宇宙，那么这个实体会被运送到该实体当前所在的主干或其他主干/分支/子分支结构中的其他地方的宇宙球体，而不是整个原始宇宙。
 
 ME:I was going to say awesome,but I am trying to get a grip of what you have just said to me, which I just about have.I have another question. 
 
-我：
+我：我本来想说“棒极了”，但我在努力理解你刚刚跟我说的话，我差不多懂了。我还有一个问题。
 
 SE9:Ask away. 
 
-9号源实体：
+9号源实体：问吧。
 
 ME:How does this work,I mean,with all these globules of universe being split out all over your environmental construct?It must dilute the environmental density of the originating universal branch.
 
-我：
+我：这怎么可能，我的意思是，所有这些宇宙球体都分散在你的环境构造中？它一定稀释了起源宇宙分支的环境密度。
 
 SE9:Not in the slightest.I can see the famous frown! 
 
-9号源实体：
+9号源实体：一点也不，我能看到那著名的皱眉！
 
 ME:I must stop it. 
 
-我：
+我：我必须阻止它。
 
 I started to smile.I was being made famous,Source Entity wide,for my frown!Not exactly what I wanted to be recognized or remembered for. 
 
+我开始微笑。我因为皱眉而出名了，在源实体范围内！这并不是我想被认出或记住的。
+
 Go on. 
+
+继续。
 
 SE9:The universe grows or replicates enough new universal energy to both surround the traversing entity and maintain its own area/density... 
 
-9号源实体：
+9号源实体：宇宙增长或复制足够新的宇宙能量，以包围穿越实体并保持自己的面积/密度...
 
 ME:..And it is this replication of universe that creates the ability for the globules to be in full contact with each other,replicating in a jigsaw-type method the whole universe in globular format even though they are separated from the whole and the other separated universal globules. 
 
-我：
+我：...正是这种宇宙的复制，创造了球体之间充分接触的能力，以一种拼图的方式以球形的形式复制整个宇宙，尽管它们与整个宇宙和其他分离的宇宙球体相分离。
 
 SE9:Well interjected. 
 
-9号源实体：
+9号源实体：插入得很好。
 
 ME:How can a universe exist outside itself in what I consider as being"totality"whilst being in bits and pieces and part of the original universal environment all at the same time? 
 
-我：
+我：一个宇宙怎么可能存在于我认为的“整体”之外，同时又处于零碎状态，又是原始宇宙环境的一部分？
 
 SE9:Simply by maintaining an area or band of frequency that is assigned to a particular universal branch and allowing multiple use of that frequency band. 
 
-9号源实体：
+9号源实体：简单地说，就是通过维护一个分配给特定通用分支的频率区域或频带，并允许该频带的多重使用。
 
 ME:Hold on.Are you suggesting that-now let me get this straight-the frequency bands in existence are all over the structure of your environmental construct,and this allows the bubbles of universe to exist simultaneously and independently whilst still being in contact to the point of instantaneous and autonomous interaction?Is this not similar to us on earth using the same frequencies all over the world for transmissions from separate and independent radio stations?Because they are far apart and-of course,depending upon the signal strength and transmitter power also depends upon how large the radius of transmission is.They have large areas where they cannot interfere with each other whilst being of the same frequency,too,but basically thereby allowing autonomous existence that is linked by a base frequency band.Is this the same? 
 
-我：
+我：等等。你的意思是，让我说清楚，现有的频带遍布你们环境构造的结构，这使得宇宙中的气泡可以同时独立存在，同时仍然与即时和自主的相互作用点保持联系？这和我们在地球上使用相同的频率从世界各地独立的无线电台传输不是很相似吗？因为它们相距很远，当然，这取决于信号强度和发射功率，也取决于传输半径有多大。它们有大面积的区域，它们在具有相同频率的同时，也不能互相干扰，但基本上，这使得由基本频带连接的自主存在是一样的吗？
 
 SE9:Not an entirely accurate way of explaining how the communication links are maintained between the base universe and those bubbles or pockets of universe that are allowed to exist both separately and together.However,it is a reasonable enough description to use from your position,especially when the mechanics used to allow such interconnectivity is not only well beyond "mankind incarnates""ability to comprehend but is also close to the limits of energetic mankind cognitive abilities. 
 
-9号源实体：
+9号源实体：这并不是一个完全准确的解释，来解释基础宇宙和那些允许单独和共同存在的宇宙气泡或口袋之间的通信联系是如何维持的。然而，从你的角度来看，这是一个足够合理的描述，特别是当用于允许这种相互连接的机制不仅远远超出了“人类化身”的理解能力，而且也接近于充满活力的人类认知能力的极限。
 
-Now I was intrigued.How could something be beyond the comprehension of an energetic entity? Especially when we are supposed to be "all knowing"or at least supposed to be able to access the universal knowledge base when in the energetic.I decided to make a minor detour in my questioning in an effort to bottom this out.Finding out that even energetic entities have limitations in understanding was like a red rag to a bull! ,
+Now I was intrigued.How could something be beyond the comprehension of an energetic entity? Especially when we are supposed to be "all knowing"or at least supposed to be able to access the universal knowledge base when in the energetic.I decided to make a minor detour in my questioning in an effort to bottom this out.Finding out that even energetic entities have limitations in understanding was like a red rag to a bull! 
+
+现在我很好奇。怎么可能有东西超出一个充满活力的实体的理解？特别是当我们被认为是“全知”或至少被认为在充满活力的时候能够访问宇宙知识库。我决定在我的提问中做一个小的迂回，以努力弄清楚这一点。发现即使是充满活力的实体在理解上也有局限性就像对牛说红布一样！
 
 ME:Now you have me going!I thought that once we,that is mankind incarnate,are back in the fully energetic,we would know everything,all there is to know or at least be able to access the knowledge from a central depository of some sort.Why would we not be able to understand something that is a fundamental part of existence?I grant you that fundamental part of your environment's existence not being part of our multiverse is maybe a clue as to why energetic mankind would not be able to assimilate the knowledge.But there must be some parallel functions,some things that are fundamentally the same no matter what Source Entity created them,simply because essentially we are all part of The Origin. 
 
-我：
+我：现在你让我继续！我认为一旦我们，也就是人类化身，回到充满活力的状态，我们就会知道一切，所有要知道的，或者至少能够从某种中央存储库中访问知识。为什么我们不能理解存在的基本部分？我承认你环境存在的根本部分不是我们多维宇宙的一部分，这也许是一个线索，为什么充满活力的人类不能吸收知识。但一定有一些平行功能，有些东西无论什么源实体创造它们，基本上都是一样的，只是因为本质上我们都是起源的一部分。
 
 SE9:It is not a given that once in the energetic an entity is able to understand all that is.It is not even a given that an energetic entity will understand the mechanics of its own universe, let alone,multiverse or those other environments created by the other Source Entities. 
 
-9号源实体：
+9号源实体：并不是说一旦进入能量实体就能够理解一切。甚至也不是说能量实体就能理解它自身宇宙的机制，更不用说多维宇宙或其他源实体创造的其他环境了。
 
 ME:I thought that once in the energetic an entity was virtually omnipotent? 
 
-我：
+我：我以为曾经在能量中的一个实体是几乎无所不能的？
 
 SE9:No.It is a general rule that there has to be a certain level of evolutionary content attached to an entity before it is in a position of beingcapableofunderstandingthefunctionalityofthe multi/universe/multi-frequential/ energetic/continuum-based environment it exists within.Of course,it is aware of what it exists within,but its understanding of the functionality and how to affect or manipulate it is only bestowed upon it when it has graduated to a certain evolutionary level,so to speak.This is a normal progression for all entities,Origin-wide.In essence an entity must be capable of understanding what it can do before it is allowed to do it. 
 
-9号源实体：
+9号源实体：不。这是一个普遍的规则，在一个实体能够理解它所存在的基于多宇宙/多频率/能量/连续体的环境的功能之前，它必须有一定的进化内容。当然，它知道它所存在的东西，但是它对功能的理解以及如何影响或操纵它，只能在它已经毕业到一定的进化水平时才能赋予它。这是所有实体的正常进展，起源范围。本质上，一个实体必须能够理解它能做什么，才能被允许做它。
 
 ME:OK,that seems reasonable to me.I would,however,like to know how your multiverse works,so that I can pass it on to the readers of this dialogue. 
 
-我：
+我：好的，对我来说似乎是合理的。然而，我想知道你的多维宇宙是如何运作的，这样我就可以把它传递给这段对话的读者。
 
 SE9:Let me start by saying that if any of your readers have problems with understanding the description of the functionality of my environment,they can always fall back on the description you made.It may not be accurate,but it is in the right direction and will provide a reasonable stepping stone as long as it is not taken as being the truth,but as a way to the truth. 
 
-9号源实体：
+9号源实体：让我先说一下，如果你们的读者对我的环境的功能性描述有任何问题，他们可以总是回到你所做的描述。它可能不准确，但它在正确的方向上，并提供一个合理的垫脚石，只要它不是作为真理，而是作为一种通往真理的方式。
 
 ME:That's fine by me.I think it is important that the people of Earth are at least given the chance to understand the greater reality,even though they might not all understand what is being given to them. 
 
-我：
+我：我没问题。我认为重要的是地球上的人们至少有机会去了解更大的现实，即使他们可能并不完全理解给予他们的是什么。
 
 SE9:Good.I will progress then. 
 
-9号源实体：
+9号源实体：好的，我会继续努力的。
 
 I suddenly felt an energetic block take me over.It was similar to those I feel when I know I am going to have a hard time getting the information through.I did my best to ignore it. 
 
+我突然感到一股能量阻塞了我。这与我知道我将有一个艰难的时间来获得信息时的感觉相似。我尽力忽略它。
+
 SE9:Consider your trees on Earth.They are all connected because they are all rooted into the soil that is part of the Earth and as such have a common medium with which they are connected and part of.With this medium,a tree can communicate with other trees of its own kind,no matter how far away they are.So if you have a single tree of a certain type,and it is in a forest full of trees of another type,it is still able to communicate with other trees of its own type because it is connected to the Earth.This connectivity is unique to its type and does not interfere with the communications that are happening between other trees of different types.Now consider that the Earth is also part of a medium that is the physical and energetic universe concurrently.Let us look at one of the trees that is on the Earth but is not indigenous to the Earth but is nevertheless on the Earth-the tree type you call "Aspen" here,as it is not indigenous to the Earth.It was introduced to cope with the ever increasing carbon emissions you have.It is still able to communicate with the other Aspen trees in your universe because it is in contact with the Earth and those elements that the Earth is in contact with in a universal sense. 
 
-9号源实体：
+9号源实体：考虑一下地球上的树木。它们都是相互连接的，因为它们都扎根于土壤，土壤是地球的一部分，因此它们有一个共同的媒介，它们与之相连，也是其中的一部分。有了这个媒介，一棵树可以与其他同类的树木交流，无论它们相距多远。所以，如果你有一棵某种类型的树，它生长在充满另一种类型树木的森林里，它仍然能够与其他同类的树木交流，因为它与地球相连。这种连通性是其类型的独特之处，不会干扰发生在其他不同类型树木之间的交流。现在考虑一下地球也是媒介的一部分，即物质和能量宇宙。让我们看看地球上的一种树，它不是地球的本土树种，但它仍然在地球上——这种树你在这里称之为“白杨”，因为它不是地球的本土树种。它被引入是为了应对你们不断增加的碳排放，它仍然能够与你们宇宙中的其他白杨树交流，因为它与地球以及地球在宇宙中所接触的那些元素保持着联系。
 
 In essence,they occupy an area of specific universal space that is peculiar to their own species of tree.When a tree,on say another planet in this galaxy wants to communicate with other trees of its own species that is not on the same planet,it sends its intention to communicate out to that part of the galaxy where it believes/knows its fellow trees are and then projects its essence to the trees in the planet desired to be communicated with.Its essence,spirit or soul is transported instantaneously by a process of "sentient transference" of the tree's intellect through the energies that bridge the gap between the two locations -the tree's sentient essence is the link between the two locations from a directional perspective. 
 
+本质上，它们占据了特定宇宙空间的一块区域，这是它们自己的树种所特有的。当一棵树，比如说在这个星系的另一个星球上，想要与其他不是在同一星球上的同类树木交流时，它会向星系的那个部分发出交流的意图，它相信/知道它的同类树木在那里，然后将它的本质投射到想要与之交流的星球上的树木身上。它的本质、精神或灵魂通过树的智力“感知转移”的过程，通过连接两个地点之间的差距的能量，瞬间被传输。从方向性的角度来看，树的有意识本质是两个地点之间的联系。
+
 The example here is how your trees communicate between each other on the Earth and between distant points;they do it by transferring their sentience to the part of the galaxy necessary to allow a localized level of communication.From the point of view of the localized level of communication or transportation of an entity from one part of the separated universe in my environment to another linked but separate part of the universe, the localized parts of the universe can be considered the physical location of the trees in your galaxy,your planets,with the individualization of the universe represented by the collective intellect that is the tree mind,which is spread throughout the universal environment.
+
+这里的例子是你们的树木如何在地球上彼此沟通，以及在遥远的点之间进行沟通；它们通过将它们的感知转移到星系的一部分，以允许一种局部水平的沟通。从一个实体从我环境中分离宇宙的一个部分到另一个连接但分离的宇宙部分的局部水平的沟通或运输的角度来看，宇宙的局部可以被看作是你们银河系，你们行星上的树木的物理位置，宇宙的个体化由集体智慧代表，即树的意识，它遍布整个宇宙环境。
 
 ME:Are you suggesting that our trees are not only on Earth but on other planets in my galaxy as well and that their "mind"is effectively spread throughout the galaxy-the trees mind being the illustration of the separated universe in your environment? 
 
-我：
+我：你是说我们的树木不仅在地球上，而且在我们银河系的其他行星上，它们的“意识”有效地遍布整个银河系——树的意识是你们环境中分离宇宙的说明？
 
 SE9:Yes. 
 
-9号源实体：
+9号源实体：是的。
 
 ME:Then that would mean that the universe and its separated parts are sentient as well. 
 
-我：
+我：那么这意味着宇宙和它的分离部分也有知觉。
 
 SE9:Yes. That is why your description of the localized use of frequency is not particularly accurate enough as a concept to use. 
 
-9号源实体：
+9号源实体：是的，这就是为什么你对频率的局部使用的描述作为一个概念来使用并不是特别准确。
 
 ME:I knew that trees on Earth are part of a collective or gestalt mind,but I wasn't aware of that mind spanning the galaxy that my planet exists within. 
 
-我：
+我：我知道地球上的树木是集体或完形思维的一部分，但我不知道这种思维跨越了我的星球所在的银河系。
 
 SE9:The tree mind spans most of the universe you use currently-hence,my use of it as an illustrative tool,in this instance. 
 
-9号源实体：
+9号源实体：树形思维跨越了你目前使用的大部分宇宙，因此，在这个例子中，我把它用作一种说明工具。
 
 ME:You seem to know more about my own environment than I do. 
 
-我：
+我：你似乎比我更了解我自己的环境。
 
 SE9:As you already know,all Source Entities share their learning with each other,so it is inevitable that I know as much about your overall environment as your creator,your own Source Entity.I also gain a lot of localized information through my interface with you, information which I need to use as a method of gauging your level of understanding of information I have,should I choose to give it to you and how best to illustrate it by using examples of things that you already know. 
 
-9号源实体：
+9号源实体：正如你已经知道的，所有的源实体彼此分享他们的学习，所以不可避免的，我知道你的整体环境和你的创造者一样多，你自己的源实体。我也通过我与你的接口获得很多本地化的信息，我需要用这些信息作为一种方法来衡量你对我所拥有的信息的理解水平，我应该选择给你它，以及如何最好地通过使用你已经知道的事情的例子来说明它。
 
 ME:And I thank you for that.I am quite aware that we are only given concepts and information in ways that we can understand and assimilate and ultimately broadcast,even if it is like teaching an infant the "Times Table"to explain the concept of mathematics when the greater reality is the use of mathematics for understanding quantum field theory, which,in itself,may well be kindergarten math when considering the greater reality. 
 
-我：
+我：我感谢你，我非常清楚我们只被给予我们能够理解、吸收和最终传播的概念和信息，即使它就像教一个婴儿“乘法表”来解释数学的概念，而更大的现实是使用数学来理解量子场理论，考虑到更大的现实，它本身可能只是幼儿园数学。
 
 ### Source Entity Nine's Strangely Constructed Environment 
 
+**9号源实体奇怪的构造环境**
+
 Even though I was receiving good and interesting information from Source Entity Nine,I was acutely aware that I was deviating from the information process that I like to use in order to gain some sort of commonality in the information type about all the Source Entities.I decided to return to the subject of gaining a description of the entities within their environment.But first I decided to understand why Source Entity Nine's environment was the structure it was. 
+
+尽管我从9号源实体那里得到了很好很有趣的信息，但我敏锐地意识到我偏离了我喜欢用来获得所有源实体信息类型的某种共性的信息处理过程。我决定回到获得它们环境中实体的描述这个主题上来。但首先我决定理解为什么9号源实体的环境是它原来的结构。
 
 ME:I have to say this first.Your multiversal environment is nothing like I expected,nor is it anything like any of the multiversal or even the continuum-based environments I have been honored to experience to date.Why did you choose such a strange shape for its construction?I mean,most of the environments I have seen and experienced are quite frankly spherical in shape.That is,if I had to give them a shape.I know that Source Entity Seven"in totality"was a two sphere system that overlapped in the middle creating the third environment.Others are what I call dimensional and frequency-based conundrums,but yours is a completely new concept.I really must know why you chose it as a construct.It is quite bizarre. 
 
-我：
+我：我必须先说这个。你的多维环境一点也不像我预期的那样，也不像任何一个多维的，甚至是迄今为止我有幸体验过的基于连续体的环境。你为什么选择这样一个奇怪的形状来建造它？我的意思是，我看到和经历过的大多数环境都是坦白地说是球形的。也就是说，如果我必须给它们一个形状的话。我知道7号源实体“整体上”是一个两个球体系统，中间重叠形成了第三个环境。其他的是我称之为基于维度和频率的谜题，但你的是一个全新的概念。我真的必须知道你为什么选择它作为一个构造。它很奇怪。
 
 SE9:As a construct,it serves a number of important functions.I will itemize these so that you can see them more clearly.
 
@@ -4444,47 +4468,63 @@ SE9:As a construct,it serves a number of important functions.I will itemize thes
 - Structure does not necessarily mean an amorphous environment filled with a dimensional,frequential,and continuum-based structure system that is within and without itself.It can also be rather linear and logical.That is what I have created.
 - The shape of the construct is designed to be easily expanded and contracted,allowing the universal branches to create universal sub-branches.It also allows clusters of branches and sub-branches to cast off or move away from each other creating their own multiversal structure with a portion of my essence in the center. 
 
-9号源实体：
+9号源实体：作为一个构造，它有许多重要的功能。我将逐一列举这些功能，以便你能更清楚地看到它们。
+
+- 它在功能上与我的同行创造的任何其他多维宇宙完全不同。
+- 它有一个固体外观的物理外观，尽管它在本质上是充满活力的。
+- 外观控制着与之相关的宇宙环境与起源中不被用作纯环境的空间之间的边界。也就是说，它在构造或后门之间没有一个你所称的“零空间”区域。
+- 一个实体向中心移动需要操纵宇宙环境，以允许实体自由地、不受阻碍地通过其他宇宙环境，而不会以任何方式影响它们。也就是说，它们在所有方面对正在穿越的宇宙中的那些实体都是不可见的。
+- 向它们的源头，我，前进需要宇宙操纵的知识，这是一个进化实体积累的进化内容的更高功能。
+- 结构不一定意味着一个充满了维度、频率和连续性基础结构系统的非结晶环境，它在自身内部和外部都是如此。它也可以是线性的和逻辑的。这就是我所创造的。
+- 结构的形状被设计成易于扩展和收缩，允许通用分支创建通用子分支。它还允许分支和子分支的集群抛弃或远离彼此，创造它们自己的多维结构，其中包含了我的部分本质。
 
 ME:That's interesting.The image I gained was just that.A chunk/cluster of branch,sub- branch and sub-sub branch,etc.,breaking away from a main branch and forming its own cluster,the center point being there but no other main branches protruding from it.Oh,wait a minute.I now see a progression from this state.In this condition,the break-away cluster cannot grow The Original branch/sub-branch construct anymore because this is its natural limitation. 
 
-我：
+我：很有趣，我得到的图像就是这样，一堆分支，子分支和子子分支，等等，从主分支上分离出来，形成自己的簇，中心点在那里，但没有其他主分支从中突出。哦，等一下，我现在看到这种状态的进展。在这种情况下，分离的簇不能再增长原始分支/子分支结构，因为这是它的自然限制。
 
 SE9:That limitation is one that I have put in place for reasons I may come to later. 
 
-9号源实体：
+9号源实体：我之所以这样做，是因为我以后可能会讲到原因。
 
 ME:Yes,I see.Can I continue with what I have seen/am seeing? 
 
-我：
+我：是的，我知道了。我能继续我已经看到/正在看到的么？
 
 SE9:Do carry on. 
 
-9号源实体：
+9号源实体：请继续。
 
 ME:The universal growth has to continue from the center point,creating a new main branch from which to grow new and subsequent branches and sub-branches.Eventually this process is continued as this cluster of multiverse expands and grows until there is no more room available.That is,there is no room available for universal growth to continue without a "universal"clash or overlap,which is not possible with this construct. 
 
-我：
+我：宇宙的增长必须从中心点开始，创造一个新的主分支，从中生长新的和随后的分支和子分支。最终，这个过程随着多维宇宙的集群的扩展和增长而继续，直到没有更多的可用空间。也就是说，如果没有“宇宙”的碰撞或重叠，就没有空间供宇宙的增长继续，而这个构造是不可能的。
 
 This is interesting.I really would like to know the reason for this ability to create new and independent multiversal clusters.
 
+这很有趣。我真的很想知道这种创造新的和独立的多维星系团的能力的原因。
+
 SE9:I am preparing for the time (event space)when The Origin expands its area of self- awareness. 
 
-9号源实体：
+9号源实体：我正在为起源扩展其自我意识领域的时间(事件空间)做准备。
 
 I had come across this "preparation"for The Origin's expansion in area of self-awareness before, with the entities in Source Entity Seven's environment.From my vantage point,it was a very long way away,but the "behind the scenes"preparation that was going on told me that it was either not as far away as I thought,or this was such an important event that prior preparation needed to happen trillions of Earth years in advance.My mind creaked at the thought of all of the work that had happened to date and that which would happen in the event space leading up to The Origin's expansion. 
 
+我曾经遇到过这个“准备”的自我意识领域起源的扩展之前，与源实体7的环境中的实体。从我的有利位置，这是一个非常长的路，但“幕后”准备正在告诉我，要么不是我认为的那么远，或者这是一个如此重要的事件，事先的准备需要提前万亿年发生地球。我的大脑吱吱作响，想到所有已经发生的所有工作，以及将发生在事件空间导致起源的扩展。
+
 ME:I get the impression that you are expecting to occupy a larger area within the newly opened area of The Origin than you do currently. 
 
-我：
+我：我得到的印象是，你期待在新开放的起源区域内占据比你目前更大的面积。
 
 SE9:Yes,indeed.That is another reason why my entities are undertaking their current work.The need for them to be able to create a universe around themselves,one that is still in contact with their original universe and,of course,me,is to enable them to plan on my behalf for the time when the area of The Origin is expanded to the point there is the need to increase the level of experience opportunities.This must be done in areas of The Origin that are and will be uncharted,so to speak.Each of the clusters will be a part of me and my entities.In order for me to embark upon the work that I am doing,I will need to be separate but still as one. 
 
-9号源实体：
+9号源实体：是的，确实如此。这也是我的实体们从事他们当前工作的另一个原因。他们需要在自己周围创造一个宇宙，一个仍然与他们最初的宇宙，当然还有我，保持联系的宇宙。 这是为了让他们能够代表我计划当起源的范围扩大到需要增加体验机会的程度时。 这必须在起源的范围中完成，可以这么说，这些范围现在是，将来也是未知的。 每个星团都是我和我的实体的一部分。为了让我开始我正在做的工作，我需要分离，但仍然是一个整体。
 
 The predicted vastness of this newly opened area of The Origin,although a mere fraction of a percentage point of its totality,was beyond current comprehension until recently.Now we,the Source Entities,know just how big the new area of Origin is,we need to put in a significant amount of preparation work to ensure we,how do you say,"hit the ground running,"In lieu of this,I am using my entities to create localized multiversal and universal constructs-ones that are born from my essence that will allow them and,of course,me,to experience "faster"when the opportunity presents itself. 
 
+这个新开放的起源地，虽然只占其总面积的一个百分点，但其广阔程度超出了目前的理解，直到最近。现在我们，源实体，知道这个新的起源地有多大，我们需要做大量的准备工作，以确保我们，你怎么说，“落地生根”。取而代之的是，我正在用我的实体创造本地化的多维和宇宙结构，这些结构来自我的本质，这将允许他们，当然还有我，在机会来临时“更快”地体验。
+
 You wanted to know why I have created a multiversal construct that is the shape it is. 
+
+你想知道为什么我创造了一个多维结构，它就是这个形状。
 
 ME:I certainly do. 
 
