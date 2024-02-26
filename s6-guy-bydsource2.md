@@ -4528,391 +4528,415 @@ You wanted to know why I have created a multiversal construct that is the shape 
 
 ME:I certainly do. 
 
-我：
+我：我当然知道。
 
 SE9:It's to do with the ability to move around The Origin.Believe it or not,The Origin has areas of energetic dimensional and frequential density.The dendritic shape of my multiverse is designed to allow the full integration of my smaller,break-away constructs and myself within these areas of "density."As you can imagine,some of these areas of density are also based upon other areas of Original Material that you are not aware of yet,the material used to create continuum-based environments being one of them. 
 
-9号源实体：
+9号源实体：这和在起源周围移动的能力有关。信不信由你，起源有能量维度和频率密度的区域。我的多维宇宙的树状结构被设计成让我的更小的、分离的构造和我自己在这些“密度”区域内完全融合。正如你能想象的，这些密度区域中的某些也是基于你还不知道的其他原始材料区域，用来创造连续体环境的材料就是其中之一。
 
 ME:There are a number of other Original Materials then?What are they?Can you describe them to me? 
 
-我：
+我：那么还有其他一些原始材料？它们是什么？你能给我描述一下吗？
 
 SE9:I will need to consider this for a moment,for you,mankind incarnate,that is,are not yet ready for such knowledge.
 
-9号源实体：
+9号源实体：我需要考虑一下这个问题，因为你们，人类化身，还没有准备好接受这样的知识。
 
-ME:Why not?Surely one or two new environmental components can't be an issue.It can't be that difficult to pass on the information,can it?
+ME:Why not? Surely one or two new environmental components can't be an issue.It can't be that difficult to pass on the information,can it?
 
-我：
+我：为什么不呢？当然一两个新的环境组件不会成为问题。传递信息不会那么困难，对吧？
 
 SE9:I see that I will need to elaborate.It's a bit like knowing four elements in the periodic table but not knowing there is a periodic table to relate these elements to.If,for instance, you had the knowledge of those entities who incarnated in human vehicles in what you call the bronze age,you would only have been aware of around four metals,iron,copper,tin and the alloy created by mixing copper and tin,bronze.If I gave you a periodic table when you only had that level of knowledge of the elements and asked you to position these elements on it,you would not have believed that the other elements could or did exist,simply because you wouldn't have had the mental capacity nor,most importantly,the tools to detect and separate out those other elements from the Earth.This "medieval"knowledge level of the elements is basically where you are now.As a result,giving you a name for a few of the materials that are component parts of The Origin would not help you,for they would only be names,names that I have given to you.They would not be able to be detected with your current level of technology or predicted by your current level of mathematics.They would be meaningless words,for you would not be able to experience that which they describe, which incidentally you don't have the words or intellect to describe yet either. 
 
-9号源实体：
+9号源实体：我明白我需要详细解释一下，这有点像知道元素周期表中的四个元素，但不知道有一个周期表把这些元素联系起来。例如，如果你知道那些在你所谓的青铜时代化身为人类交通工具的实体，你只会知道大约四种金属，铁、铜、锡和铜锡混合而成的合金，青铜。如果你只有这种水平的元素知识，我给你一个元素周期表，让你把这些元素放在上面，你不会相信其他元素可能或确实存在，因为你没有这种精神能力，更重要的是，没有探测和从地球上分离出其他元素的工具。它们将是毫无意义的词语，因为你无法体验它们所描述的，顺便说一句，你也没有词语或智力来描述它。
 
 ME:I accept that we are pretty un-educated in these matters,but could you describe just one or two to me,please.It would be most beneficial. 
 
-我：
+我：我承认我们在这些问题上相当无知，但你能给我描述一两个吗？这将是最大的好处。
 
 SE9:I see you have a thirst for understanding entity form factor,irrespective of whether they have one or not. 
 
-9号源实体：
+9号源实体：我看你对实体形式因素有一种渴望，不管它们是否有。
 
 ME:I do,not just because it is something that mankind expects to see or experience,but it is something that mankind in its current level of evolution from a physical perspective can recognize and understand relatively easily. 
 
-我：
+我：我认为是的，不仅仅是因为这是人类期望看到或经历的事情，而且从物理角度来看，这是人类在当前进化水平上能够相对容易地识别和理解的事情。
 
 SE9:I see.Well,then I had better give you an example of what you would call a "physical entity,one that exists in one of the universal branches. 
 
-9号源实体：
+9号源实体：我明白了。那么，我最好给你一个你们称之为“物理实体”的例子，它存在于宇宙分支中的一个。
 
 ME:Fantastic.Actually,I have already received an image of such an entity.Its rather torpedo shaped! 
 
-我：
+我：太棒了。事实上，我已经收到了这样一个实体的图像。它的形状像鱼雷！
 
 SE9:If it is that your torpedoes are flat in shape,I would agree.I will send you more information on the entity you can perceive. 
 
-9号源实体：
+9号源实体：如果是你的鱼雷是扁平的形状，我同意。我会给你更多的信息，关于你能感知的实体。
 
 ME:Oh,I recognize that shape.It's similar to what we call a "Cuttlefish"here on earth.It is, indeed,torpedo-shaped in terms of it having an oval body that changes into a blunt pointed area.It has that both ends.If fact,it looks a little bit like another device we have here on earth,a "cruise missile." 
 
-我：
+我：哦，我认得这个形状，它类似于我们地球上所说的“墨鱼”，它确实是鱼雷形状，它有一个椭圆形的身体，变成一个钝尖的区域，它两端都有，如果事实，它看起来有点像我们地球上的另一种设备，一个“巡航导弹”。
 
 SE9:Yes,I see the analogy,a rather horrible little device,I think.Why do you create such devices of destruction?Oh,I see.Physical mankind really is low down on the evolutionary ladder,isn't it? 
 
-9号源实体：
+9号源实体：是的，我看到了这个类比，我认为这是一个相当可怕的小装置。你们为什么要创造这样的破坏装置？哦，我明白了。身体上的人类确实在进化的阶梯上很低，不是吗？
 
 ME:Sorry,it's not a good illustration of those of us who are working for the good of the planet.To be honest,most of the Earth population is abhorred by the use of such devices.I apologize for exposing you to what is our horrible truth,or at least part of it. 
 
-我：
+我：抱歉，这不是我们这些为地球利益而工作的人的好例子。说实话，地球上的大多数人都憎恶使用这种设备。我为向你们揭露我们可怕的真相，或至少是其中一部分，向你们道歉。
 
 SE9:No need to apologize.It is where you,not YOU,but the collective you,physical mankind, is right now. 
 
-9号源实体：
+9号源实体：不需要道歉。这是你们，不是你一个人，而是你们这个集体，物质人类，现在所在的地方。
 
 ME:Thank you for your understanding.
 
-我：
+我：谢谢你的理解。
 
 SE9:It's a pleasure.You are not the only civilization to have developed devices of destruction from the powers that have been bestowed upon you primarily for the use of good.Now then, why don't you get back to describing the form factor of the entity I showed you? 
 
-9号源实体：
+9号源实体：很高兴，你们并不是唯一一个利用天赋力量制造毁灭性武器的文明，天赋力量原本是给你们做善事的，现在，你为什么不继续描述我给你看的那东西的形状？
 
 ### The Cuttlefish Entity 
 
+**墨鱼实体**
+
 ME:I will.Thank you!As I was saying before,this entity looks like a Cuttlefish,as it has similar methods of movement at first glance.On the outside it has an array of hair like growths that undulate in various different ways creating movement,but it's not like movement in water.It's something completely different.Let me take a closer look.Oh,wow! That's incredible!Alongside the hair-like growths-no,sorry,above them-are a series of multi-colored circles/ellipses that change in color in time with the undulations of the hairs. When the hairs undulate,the area immediately surrounding the body of the entity appears to also change color,and it looks like it changes the energetic content of the surrounding energies.It's almost like it sets up an energy field that allows it to "slip"between the energies that are created by the energies used in the construction of the universal environment. 
 
-我：
+我：我会的。谢谢你！正如我之前所说，这个实体看起来像墨鱼，因为它第一眼看上去有相似的运动方式。在外面它有一组毛发状的生长物，以各种不同的方式起伏产生运动，但它不像在水中的运动。这是完全不同的。让我仔细看看。哦，哇！真是难以置信！沿着毛发状生长物-不，不好意思，在它们上面-是一系列多色的圆圈/椭圆形，随着毛发的起伏而及时改变颜色。当毛发起伏时，实体身体周围的区域似乎也改变了颜色，而且它看起来好像改变了周围能量的能量含量。它几乎就像它建立了一个能量场，允许它在宇宙环境建设中使用的能量所创造的能量之间“滑动”。
 
 SE9:Let me see how I can describe this in a more illustrative way.If you consider a tank filled with self-healing silicone gel and push a football(Rugby ball to UK readers)into the gel from one side to the other,the gel would move away from the shape of the football,move over the surface and re-seal the gel at the back of the ball.If I continue this process of moving the gel away and over the skin of the ball,re-sealing at the back of the ball it moves through the gel until it meets the other end. 
 
-9号源实体：
+9号源实体：让我看看我如何能更形象地描述这个。如果你考虑一个充满自愈硅胶的罐子，并把一个足球(英式橄榄球，英国读者)从一边推到另一边，凝胶会从足球的形状移开，移动到球的表面，并在球的背面重新封闭凝胶。如果我继续这个过程，移动凝胶，覆盖球的表面，在球的背面重新封闭，它会穿过凝胶，直到它遇到另一端。
 
 Now consider that the ball has a force field around it.In this instance,the gel moves a known distance away from the surface of the ball without the ball being pushed into it, which allows the ball to literally "fall"through the gel rather than need to be pushed or forced through it.Once in the gel,the ball can change its direction of travel by increasing the distance the field is from the surface of the ball on the side the ball needs to travel in and decreasing the distance the field is from the surface of the ball on the side that the ball is moving away from-thus allowing it to "fall"in the desired direction of travel.This is,in effect,the way the Cuttlefish entity moves around its environment in that particular universal environment.With,of course,the exception that the environment is not a silicon based gel. 
 
+现在考虑一下球周围有一个力场。在这种情况下，凝胶从球表面移动一个已知的距离，而球没有被推到它里面，这允许球从字面上“掉”进凝胶，而不是需要被推或强迫穿过它。一旦进入凝胶，球可以通过增加球需要旅行的那一边的球表面到场地的距离，并减少球正在远离的那一边的球表面到场地的距离，从而允许它在想要的旅行方向上“掉”。这实际上是墨鱼实体在特定的宇宙环境中围绕其环境移动的方式。当然，环境不是一个硅基凝胶。
+
 ME:Let me get this straight though.Can I assume that the environment gives the entity some sort of resistance,enough resistance to warrant creating a forcefield with its "hair" and colored circle/ellipse function? 
 
-我：
+我：让我直截了当地说。我能假设环境给实体某种阻力，足够的阻力来保证用它的“头发”和彩色圆/椭圆功能创造一个力场吗？
 
-SE9:Yes,very good.I can't possibly describe to you what the actual environment is created from in reality,but I will give you an example that you can relate to.If I said to you that the whole environment was constructed on electromagnetic radiation that had no origin of production but was just "everywhere,"would you be able to relate to that?(NOTE:An electromagnet has a ferrite core and a copper coil with electricity passed through the coil to create the magnetic field,GSN.) 
+SE9:Yes,very good.I can't possibly describe to you what the actual environment is created from in reality,but I will give you an example that you can relate to.If I said to you that the whole environment was constructed on electromagnetic radiation that had no origin of production but was just "everywhere,"would you be able to relate to that?(NOTE:An electromagnet has a ferrite core and a copper coil with electricity passed through the coil to create the magnetic field.) 
 
-9号源实体：
+9号源实体：是的，很好。我不可能向你描述实际环境在现实中是由什么创造的，但我会给你一个你可以联系的例子。如果我告诉你整个环境是建立在电磁辐射的基础上的，没有生产来源，只是“无处不在”，你能联系到那个吗？(注：电磁铁有一个铁氧体芯和一个铜线圈，电流通过线圈来创造磁场。)
 
 ME:Yes,to some degree.Isn't that basically what Earth does?Ah,no,I see what you mean; Earth is the origin of production of its magnetosphere.What you are talking about is,for example,a magnetosphere,electromagnetic,in this instance,without a source.
 
-我：
+我：在某种程度上是的。这不就是地球的基本功能吗？啊，不，我明白你的意思了；地球是其磁层的起源。你所说的是，例如，一个磁层，电磁，在这个例子中，没有源。
 
 SE9:Bulls Eye!The function of the features (hairs,etc.)on the side of the entity is to create a neutralizing effect together with an attractive force. 
 
-9号源实体：
+9号源实体：牛眼！实体侧面的特征(毛发等)的作用是创造出一种中和效果，同时具有吸引力。
 
 ME:I have also been seeing a number of energetic nodules of many various shapes and functions that appear and disappear.Would they be part of the function that helps move the direction of linear travel of the entity? 
 
-我：
+我：我也看到许多能量结节，形状各异，功能各异，时隐时现，它们是否是帮助移动实体线性旅行方向的功能的一部分？
 
 SE9:That is one of their functions,that is,in assisting in the navigation of the entity. Most of the directive force is created by the combinations of energies created by the hairs and the circle/ellipse functions.The hairs and the circle/ellipse functions can appear at any peripheral location of the entity allowing it to change direction,thus,affecting the functions of the nodules and how they interact with the surrounding energies.However,the nodules also provide the directional function in terms of navigation of the energies. 
 
-9号源实体：
+9号源实体：这是它们的功能之一，即协助实体导航。大部分的指示力是由头发和圆/椭圆函数所创造的能量组合所创造的。头发和圆/椭圆函数可以出现在实体的任何外围位置，使其改变方向，从而影响结节的功能以及它们与周围能量的相互作用。然而，就能量导航而言，结节也提供了方向功能。
 
 ME:I get the impression that these nodules operate a change in direction,a bit like how a surfer or snowboarder changes direction in a minor way by using his hand in the sea or snow to create a limited amount of"drag." 
 
-我：
+我：我得到的印象是，这些结节操作方向的变化，有点像冲浪者或滑雪者如何在海里或雪上用他的手创造有限的“阻力”，以一种轻微的方式改变方向。
 
 SE9:No,no,not in the slightest,although I can see where you are coming from.Ah yes,now I see,yes.If you use that analogy for the "dipping"in and out of the different energies and sensing what they are and their strengths/intensities,it might work as a concept for you. The different nodules are tuned to be receptive to the different energies in the environment the entity exists within.The nodules manipulate those energies locally with the hairs and the circle/ellipse functions creating the movement.The nodules extend and contract upon detection of the changes in the signature of the energetic environment and respond accordingly by creating a sympathetic energy set within the hair and circle/ellipse function that is designed to both repulse those energies away from the entity or create a vacuum for the entity to move into.The nodules create the changes necessary to the energies on the surface of the hairs required to attract the entity to those energies that were previously repulsed,which allows the entity to move into the vacuum area and closer to those energies again.All of this is happening on an instantaneous and continual basis to allow the entity to navigate the energies that pervade its universal environment. 
 
-9号源实体：
+9号源实体：不，不，一点也不，虽然我能看到你从哪里来。啊，是的，现在我明白了，是的。如果你用那个类比“浸入”和“流出”不同的能量，并感知它们是什么和它们的强度/强度，它可能对你来说是一个概念。不同的结节被调谐到可以接受实体存在的环境中的不同能量。结节用头发和圆圈/椭圆函数在局部操纵这些能量，创造运动。结节在检测到能量环境的特征变化时伸展和收缩，并通过在头发和圆圈/椭圆函数中创造一个交感能量集来做出相应反应，该功能旨在将这些能量从实体中排斥出去，或为实体创造一个真空，让实体进入。结节创造了必要的变化，以吸引实体到那些之前被排斥的能量，这使得实体进入真空区域，再次接近那些能量。所有这些都在瞬时和持续的基础上发生，以允许实体导航遍布其宇宙环境的能量。
 
 ME:Incredible! 
 
-我：
+我：难以置信！
 
 SE9:Nice,isn't it?But as I alluded to in the earlier conversation on this subject,the nodules also have another main function. 
 
-9号源实体：
+9号源实体：很不错，是吧？但是正如我在之前的对话中提到的，这些结节还有另一个主要功能。
 
 ME:Which is what? 
 
-我：
+我：那是什么？
 
 SE9:The nodules create the localized universal environment necessary for the entity to navigate through the other universal sub-branches,branches and main trunk,as it were,of the construct of my main environment.In essence,it creates its own universe together with all of the functions required to move across to another location within the main universe it existed within before taking the opportunity to break away and increase its evolutionary content. 
 
-9号源实体：
+9号源实体：结点创建了本地化的宇宙环境，对于实体来说，这是必要的，以便通过其他宇宙子分支、分支和主干，就像我的主环境构造一样。本质上，它创造了自己的宇宙，以及所有必要的功能，在抓住机会脱离并增加其进化内容之前，它移动到它所存在的主宇宙中的另一个位置。
 
 ME:How does it do that? 
 
-我：
+我：它是怎么做到的？
 
 SE9:Over the period of its existence,the nodules help the entity create a map of the energies associated with the home universe.This map is generated and stored within the energetic structure of the entity over a period of time-that time being the age of the entity and the time it takes to visit and experience all the locations and energies associated with those locations within its home universe.If you like,it is a multi-dimensional,multi-frequential, multi-,multi-matrix. 
 
+9号源实体：在它存在的这段时间里，这些结节帮助实体创建了一张与母体宇宙相关的能量图。这张图在一段时间内在实体的能量结构中生成和存储，这段时间就是实体的年龄，以及它访问和体验所有地点和与母体宇宙中那些地点相关的能量所花费的时间。如果你愿意，它是一个多维的，多频率的，多，多矩阵。
+
 ME:Hold on,what are those words that I could not translate/recognize?All I can do is put a star symbol down in their place. 
 
-我：
+我：等等，那些我无法翻译/识别的词是什么？我只能在它们的位置上放一个星号。
 
 SE9:Those are two of the other functions of my construct.They are beyond dimension,sub- dimensional component,frequency,energy and continuum. 
 
-9号源实体：
+9号源实体：那是我构造的另外两个功能。它们超越了维度、亚维度成分、频率、能量和连续性。
 
 ME:Yes,yes.You said that you had environmental construct componentry that was different than what I have previously experienced.Would you describe some(the two above) to me? 
 
-我：
+我：是的，是的。你说过你有与我之前经历不同的环境构造组件。你能给我描述一下吗？
 
 SE9:I will try to describe it in language and concepts that you will understand after we finish with this particular dialogue. 
 
-9号源实体：
+9号源实体：我会试着用你在听完这个对话后能理解的语言和概念来描述它。
 
 ME:Fine. 
 
-我：
+我：好的。
 
 SE9:Once the entity has established a comprehensive,complete map of its home environment from ALL perspectives,it is then able to manipulate the "home"energies surrounding it to the point where they become part of both the home universe and the entity itself.The entity is able to manipulate these energies further to allow it to maintain the structure of this localized universal structure whilst experiencing and traversing another universal construct.Furthermore,it can also manipulate these energies to create a link to the home universe and ALL of the other local universes constructed by other entities that were originally from or currently within its home universe and effect translation to those localized universes for communion with them.It simply re-creates those energies relative to a specific location in the home universe and moves itself into it.In doing so,it actually effects a translation of itself to that location of desire. 
 
-9号源实体：
+9号源实体：一旦实体从所有角度建立了一个全面、完整的家环境地图，它就可以操纵周围的“家”能量，使它们成为家宇宙和实体本身的一部分。实体可以进一步操纵这些能量，使其在经历和穿越另一个宇宙结构的同时，保持这个本地化的宇宙结构。此外，它还可以操纵这些能量，创建一个与主宇宙和所有其他由最初来自或当前在它的主宇宙内的实体构建的本地宇宙的链接，并对这些本地化宇宙进行转换，以便与它们进行交流。
 
 ME:I just received an image of a snail.It's just as if these entities carry their own home (universe)with them. 
 
-我：
+我：我刚刚收到一张蜗牛的图片。就好像这些实体带着自己的家(宇宙)一样。
 
 SE9:What a good analogy.Yes,I like that one. 
 
-9号源实体：
+9号源实体：好一个比喻。是的，我喜欢这个。
 
 ME:I also see an image of two entities together.When they are together their localized universes converge creating a single local universe sympathetic to the energies of both entities. 
 
-我：
+我：我还看到两个实体在一起的画面。当他们在一起时，他们的局部宇宙会聚合，创造一个单一的局部宇宙，与两个实体的能量相协调。
 
 SE9:Correct,yes they do.And it is quite common for entities to group together,creating a larger "bubble"of their home universe when visiting the same foreign universal branch. 
 
-9号源实体：
+9号源实体：是的，它们确实会。当访问同一个外星分支时，实体们聚集在一起，创造一个更大的“泡泡”来代表它们的家园宇宙，这是很常见的。
 
 ME:I see,yes.That would explain the images I have gotten of quite large bubbles of independent universe traversing the main trunk of one of your structural "trees,"so to speak. 
 
-我：
+我：我明白了，是的。这可以解释我得到的图像，可以这么说，我得到的图像是独立宇宙的巨大气泡穿过你们结构“树”的主干。
 
 SE9:Yes,good. 
 
-9号源实体：
+9号源实体：是的，很好。
 
 ME:I have also noted that the entities in the bubble are able to perform all of their normal duties-duties that result in their evolutionary content increasing whilst moving closer to the center point of your construct-which brings them closer to you,and "unity."
 
-我：
+我：我还注意到，泡泡中的实体能够执行它们所有的正常职责，这些职责导致它们的进化内容增加，同时向你构造的中心点移动，这使它们更接近你，和“统一”。
 
 SE9:Correct. 
 
-9号源实体：
+9号源实体：正确。
 
 ME:OK,so the normal evolutionary work that the entities perform continues even when they are on the journey towards unity and the possible traversing of other trunks,branches and sub-branches to experience these "other"universes whilst being within the auspices of their own universe. 
 
-我：
+我：好的，所以实体执行的正常进化工作即使在他们走向统一的旅途中，也可能穿越其他主干，分支和子分支，在他们自己的宇宙的庇护下体验这些“其他”宇宙时，也会继续。
 
 SE9:And correct again. 
 
-9号源实体：
+9号源实体：再次正确。
 
 ME:So what is the point of an entity experiencing other universes when under the protection of its own environment? 
 
-我：
+我：那么一个实体在自身环境的保护下体验其他宇宙的意义是什么？
 
 SE9:Indeed,and a good question it is.You could consider this question yourself,for how does the human race experience the depths of your ocean or the area around your planet you call the vacuum of space? 
 
-9号源实体：
+9号源实体：确实，这是个好问题。 你可以自己思考这个问题，人类是如何体验你们海洋的深处，或者你们星球周围你们称之为真空的空间的？
 
 ME:Good point.Ahh,are you suggesting that they can't actually exist in the other universes they are traversing? 
 
-我：
+我：好观点。啊，你是说他们在穿越的其他宇宙里不可能存在吗？
 
 SE9:I am.You got there eventually. 
 
-9号源实体：
+9号源实体：我就是，你终于到了。
 
 ME:Ohhh,that's interesting.What's more,for me,it is a huge departure from the use of a construct to visit other frequencies and dimensions,what we might call a spaceship. 
 
-我：
+我：哦，这很有趣。对我来说，这与使用一个构造去访问其他频率和维度，我们可以称之为宇宙飞船，是一个巨大的背离。
 
 SE9:Why is that? 
 
-9号源实体：
+9号源实体：为什么？
 
 ME:From what I can see,the construct,a local universe,is the vehicle for travel,continued existence,and communication with,and travel back to other localized universes with the same signature as the originating universe-including the actual universe of origin. 
 
-我：
+我：在我看来，这个构造，一个局部宇宙，是旅行的工具，持续存在，与其他局部宇宙交流，并返回到与起源宇宙相同的信号，包括实际的起源宇宙。
 
 SE9:Correct again.You are getting good at this. 
 
-9号源实体：
+9号源实体：又对了。你越来越擅长这个了。
 
 ME:Please forgive me,but I get the impression that you are making me understand the construction and functionality of your multiverse by my own connectivity with you rather than your telling me and me typing it into this book. 
 
-我：
+我：请原谅我，但我的印象是，你让我通过与你的连接来理解你的多维宇宙的结构和功能，而不是你告诉我，然后我把它输入到这本书里。
 
 SE9:I am,and I am doing it on purpose.The Origin has asked that I help augment your receptiveness of higher information whilst in your current physical vehicle.In essence, letting you tell the story,so to speak,rather than me. 
 
-9号源实体：
+9号源实体：我是，而且我是故意这么做的。起源要求我帮助你在当前的物质载体中增强对更高信息的接受能力。本质上，可以这么说，让你来讲述这个故事，而不是我。
 
-ME:Is that wise?I mean,the readers would give the information more credibility if it came from you rather than my own connectivity to your knowledge. 
+ME:Is that wise? I mean,the readers would give the information more credibility if it came from you rather than my own connectivity to your knowledge. 
 
-我：
+我：这样明智吗？我的意思是，如果信息来自于你而不是我自己对你的知识的连接，读者会给予更多的可信度。
 
 SE9:Agreed,but in showing your own ability to connect with me in a more fundamental basis,your readers will see that they can do it (this type of dialogue)themselves when they have the tools to do so. 
 
-9号源实体：
+9号源实体：同意，但是通过展示你自己与我进行更基本沟通的能力，你的读者会看到，当他们拥有工具时，他们自己也能做到(这种对话)。
 
 ME:Thank you for that explanation.But help me out here,if it is possible to create an energetic construct to traverse dimensions and frequencies in my own multiverse,why cannot such constructs be used in your multiversal construct?Why do your entities need to create a local universe and not merely an energetic vehicle? 
 
-我：
+我：谢谢你的解释，但是请帮我解释一下，如果有可能创造一个充满能量的构造，来穿越我自己的多维宇宙中的维度和频率，为什么这样的构造不能用在你的多维宇宙构造中？为什么你的实体需要创造一个局部宇宙，而不仅仅是一个充满能量的载体？
 
 ### A Local Universe vs.an Energetic Construct as a Vehicle to Traverse Source Entity Nine's Multiverse
 
+**一个局部宇宙 vs 一个能量结构作为一个穿越9号源实体的多维宇宙的载体**
+
 SE9:You already know about the need for an energetic construct,whether it be mechanical or fully energetic in nature,from communications with your own Source Entity. 
 
-9号源实体：
+9号源实体：从与你自己的源实体的交流中，你已经知道了对能量结构的需求，无论它本质上是机械的还是完全能量的。
 
 ME:I do in a limited sense.A construct of any design is required to maintain The Original environment of the traveling entities,ensuring they do not lose any of their functionality or faculties if they traverse lower frequencies by maintaining their integrity.This is a rule that operates even if they dip into "higher"frequencies or dimensions for travel purposes. 
 
-我：
+我：在有限的意义上是这样。任何设计的构造都需要保持旅行实体的原始环境，确保它们在穿越低频时不失去任何功能或能力，以保持它们的完整性。这是一个即使为了旅行目的而进入“更高”频率或维度时仍然有效的规则。
 
-SE9:Excellent.Now think of other reasons why a construct may be necessary. 
+SE9:Excellent. Now think of other reasons why a construct may be necessary. 
 
-9号源实体：
+9号源实体：很好，现在想想为什么一个构造是必要的。
 
 ME:What?Oh,now that's a difficult one to pull on me! 
 
-我：
+我：什么？哦，这可真难骗我！
 
 SE9:No,it's not.Draw upon the omniversal knowledge of The Origin and translate it into human language. 
 
-9号源实体：
+9号源实体：不，不是。利用起源的无所不在的知识，并将其翻译成人类的语言。
 
 ME:I will try.Give me a moment. 
 
-我：
+我：我试试，给我一点时间。
 
-SE9:Don't rush;you have all the time on Earth-literally. 
+SE9:Don't rush; you have all the time on Earth-literally. 
 
-9号源实体：
+9号源实体：别着急，你有的是时间。
 
 What did that mean? 
 
+这是什么意思？
+
 SE9:I read that thought.It means that I will assist you for as long as you need to address that particular task.Quite literally,I will take you out of time until you are able to address the task. 
 
-9号源实体：
+9号源实体：我理解了你的思想。这意味着只要你需要解决那个特定的任务，我就会一直帮助你。毫不夸张地说，我会让你超越时间，直到你能够解决这个任务。
 
 Well,I don't know if that actually happened.I am not even sure I would recognize such an act of manipulation of my own event space if it smacked me in the face,so I decided to carry on.It came fast.
 
-ME:Contamination longevity?What is all that about? 
+我不知道这是否真的发生过。我甚至不确定，如果这种操纵我事件空间的行为打在我脸上，我是否会认出它，所以我决定继续，它来得很快。
 
-我：
+ME:Contamination longevity? What is all that about? 
+
+我：污染寿命？那是什么？
 
 SE9:Burrow deeper. 
 
-9号源实体：
+9号源实体：挖得更深。
 
 ME:OK,right I will.Errmm,yes I see.I think.Ahh!Now I do see.A construct that we would call a spaceship or energetic construct is just that-a construct.It is created in the entities'original environment to perpetuate that environment in order to experience other environments without loss of function and faculty or indeed environmental conditions necessary to sustain the existence of the entity/ies using the construct. 
 
-我：
+我：好的，我会的。嗯，是的，我明白了。我想。啊！现在我明白了。一个我们称之为宇宙飞船或能量构造的构造就是一个构造。它在实体的原始环境中创建，以使该环境永存，以便在不丧失功能和能力的情况下体验其他环境，或者维持实体/实体的存在所必需的环境条件。
 
 SE9:Yes? 
 
-9号源实体：
+9号源实体：是吗？
 
 ME:Wow!You are a hard task master.Well,the problem here is that it is still of the original environment and,as such,is limited in its longevity once outside of that environment because it is reliant upon the universal energies associated with the universe of origin. What's more,I see that it carries a certain level of energetic content that is totally foreign to the environment being traversed.This creates a level of localized disharmony that affects not only the area of universe being traversed but also affects the energetic content of the entities in that locale in any way from minor to major harmonious dysfunction.This is the contamination,a contamination in energetic harmony. 
 
-我：
+我：哇！你是一个艰难的任务大师。嗯，这里的问题是它仍然是原始环境的一部分，因此，一旦它离开了那个环境，它的寿命就会受到限制，因为它依赖于与原始宇宙相关的宇宙能量。更重要的是，我看到它携带着某种程度的能量内容，这与它正在穿越的环境完全不同。这创造了一种局部的不和谐，它不仅影响着它正在穿越的宇宙区域，而且还影响着该地区实体的能量内容，从轻微到重大的和谐功能障碍。这就是污染，能量和谐中的污染。
 
 SE9:Go on.You are half way there. 
 
-9号源实体：
+9号源实体：继续，你已经成功了一半。
 
 ME:We have seen this disharmony in a number of ways in the Earth Sphere.It manifests itself in freak and unpredicted weather,sudden disappearances of people and craft (air and sea)and again,the sudden loss of power across city-wide power grids.A fully universal construct,no matter how small,does not do this-simply due to its natural inherent construction genealogy,specifically in your environment. 
 
-我：
+我：我们在地球上已经看到这种不和谐的许多方面。它表现在反常和不可预测的天气，突然消失的人和船只(空中和海上)，以及再次，突然失去整个城市的电网电力。一个完全普遍的结构，不管多么小，不会这样做-仅仅由于其自然的内在结构谱系，特别是在你的环境中。
 
 Let me get this straight.A universe has its own unique set of frequencies and dimensions that are not connected with each other or with anything else but the multiverse it exists within.As a result of this,it maintains a certain level of duplicity,of interchange-ability of sameness,even though it is different in every other way.Now why is that?I see,it is of the material of the multiverse and not a synthetic construct.It is created by the creator or by the creator's creations if constructed in the same method or rhyme as the creator-under the auspices of the creator for the benefit of the creator.In this instance You,Source Entity Nine. 
 
+让我说清楚。一个宇宙有它自己独特的频率和维度，它们彼此之间没有联系，除了它所在的多维宇宙之外，与其他任何事物都没有联系。因此，它保持了一定程度的重复性，相同的可交换性，即使它在其他方面都不同。为什么会这样？我明白了，它是多维宇宙的材料，而不是一个合成构造。它是由创造者创造的，或者是由创造者的创造物创造的，如果它们以与创造者相同的方法或韵律构建的话——在创造者的赞助下，为了创造者的利益。在这个例子中，你是第9个源实体。
+
 Not only that,the entity/ies that create the localized universe/s need to have risen to a certain level of evolution,as you previously said,to attain"creator"status.Once at creator status,they are made aware of the tools and methods of using the tools to create a universe in their own right.Basically,because the universe as an environment is a duplicate of that created by the creator,it carries no energetic disharmony nor longevity issues because as a universe it enjoys creator-given longevity with no end date,so to speak-unless,of course, the creator decides to end its existence,and it is able to move in-between the shear fabric of the universal environments it is traversing because it is essentially the same even though it is of a different set of construction rules for that particular set of multiversal content.In effect it is slippery,"none stick,"so to speak! 
+
+不仅如此，创造局部宇宙的实体需要上升到一定程度的进化，就像你之前说的，才能获得“创造者”的地位。一旦获得创造者地位，他们就会意识到工具和使用工具的方法，以自己的方式创造一个宇宙。基本上，因为宇宙作为一个环境是创造者创造的复制品，它没有能量不和谐，也没有寿命问题，因为作为一个宇宙，它享有创造者赋予的寿命，可以说没有终结日期，当然，除非，创造者决定结束它的存在，它能够在它所穿越的宇宙环境的剪切结构之间移动，因为它本质上是相同的，尽管它对于那特定的多维内容的一套不同的构造规则。事实上它是滑溜的，可以说“没有粘性”！
 
 Hold on,how can a universe that exists within a universe with that universe being used for transportation purposes be different whilst not being different enough,i.e.,being considered the same but causing no resistance? 
 
+等等，一个存在于一个被用于运输目的的宇宙中的宇宙，怎么能不同而又不足够不同，也就是说，被认为是相同的，但没有引起抵抗？
+
 SE9:As you said yourself a moment ago,it has a different set of construction rules whilst using the same components.This is what makes it accepted by the universe it is traveling within whilst being a separate universal entity housing evolving entities. 
 
-9号源实体：
+9号源实体：正如你刚才所说的，它有一套不同的构造规则，但使用相同的组件。这就是它被它所旅行的宇宙所接受的原因，同时是一个独立的宇宙实体，容纳着进化的实体。
 
 ME:So it's the combination of universal components and sub-components that make it both individual whilst being essentially the same. 
 
-我：
+我：所以，正是这些通用元素和子元素的结合，让它既个性化，又本质上是一样的。
 
 SE9:Yes,I can see that you are frowning so I will explain a little more using an example that is closer to home for you. The human body is constructed by using a known number of DNA strands and their multiple variants or combinations.The variants give the opportunity to illustrate variation in body form and function.Some of these strands are shared with vehicles that are based upon the "animal"form factor with the DNA strand sequences being similar,if not identical, up to a certain point.Hence,the mouse genome is similar to the human genome,but the small differences in the sequencing create very different physical results.However,these similarities and concurrent differences are excellent examples of the way that the universe being traversed accepts the universe that is traversing it,for those similar or identical components are the ones that are presented to the universe being traversed.In essence,the universe being traversed,sensing that which is traversing it,recognizes it as its "self"and, therefore,does not reject or offer hindrance to the universe traversing it. 
 
-9号源实体：
+9号源实体：是的，我能看到你在皱眉，所以我会用一个更贴近你的例子来解释一下，人体是由已知数量的DNA链和它们的多种变体或组合构成的。变体给人机会来说明身体形态和功能的变化。这些链中的一些与基于“动物”形态因素的车辆共享，这些车辆的DNA链序列在某种程度上是相似的，如果不是完全相同的话。因此，老鼠的基因组与人类的基因组相似，但是测序中的细微差别产生了非常不同的物理结果。然而，这些相似性和同时存在的差异是被穿越的宇宙接受正在穿越它的宇宙的方式的极好的例子，因为那些相似或相同的组件是那些被呈现给正在穿越它的宇宙的。
 
 ### An Entity Made from Event Space
 
+**一个由事件空间构成的实体**
+
 ME:I was very pleased with the description of one of your "physical"entities in our last series of dialogues.I found it most interesting to learn how it moved around its universal environment.I found it even more interesting to see how the universal constructs worked and how they interfaced with their own home universe and those universes that they traverse,as well as how they allow the entities that use them to undertake the work they need to do to evolve and get closer to communion with you.But I have noticed that leaving it here would not be a good idea,specifically because I asked to discuss two of your entities.As the one we just discussed was what you called physical in nature,I would like to discuss one that was not,in order to provide some balance. 
 
-我：
+我：我对上次系列对话中你对一个“物质”实体的描述非常满意。我发现最有趣的是了解它是如何在宇宙环境中移动的。我发现更有趣的是看到宇宙构造是如何运作的，它们如何与自己的家园宇宙和它们穿越的宇宙相连接，以及它们如何让使用它们的实体承担进化所需的工作，并更接近与你们交流。但我注意到把它留在这里不是一个好主意，特别是因为我要求讨论你们的两个实体。由于我们刚刚讨论的是你所谓的自然物质，我想讨论一个不是的，为了提供一些平衡。
 
 What I would like to do now,with your permission,is to discuss an entity that is neither physical nor energetic in primary nature.If,indeed,you have an entity that is none of these types,that is. 
 
+现在，如果你们允许的话，我想讨论一个实体，它既不是物理的也不是原始的能量的。如果，确实，你有一个实体，它不是这些类型的，那就是。
+
 SE9:Interestingly enough,I do have one entity that falls into not only that category but into a completely new thought process for you. 
 
-9号源实体：
+9号源实体：有趣的是，我确实有一个实体，它不仅属于那个类别，而且对你们来说是一个全新的思维过程。
 
 ME:Go on,you have got my attention now.What could this entity be like in form?Bearing in mind that it must also be able to create its own universal construct to traverse the trunks, branches and sub-branches of your multiversal construct. 
 
-我：
+我：继续，你现在已经引起了我的注意。这个实体的形式会是什么样子？记住，它必须能够创建自己的通用构造，以遍历你的多维构造的主干、分支和子分支。
 
 SE9:Well,wait for it.Its form is based upon a function of space you know and recognize as "event space"in your own Source Entity's environment. 
 
-9号源实体：
+9号源实体：好的，等着瞧吧。它的形式是基于空间的一个函数，你知道并且在你自己的源实体的环境中识别为“事件空间”。
 
 ME:What!!?How can that be?I mean,I wasn't expecting an entity that is based upon the very fabric of "event space"itself.
 
-我：
+我：什么？怎么可能？我的意思是，我没有期望一个实体是基于“事件空间”本身的结构。
 
 SE9:I thought you would like this one. 
 
-9号源实体：
+9号源实体：我想你会喜欢这个。
 
 ME:You bet I do. 
 
-我：
+我：当然知道。
 
 At this point of the dialogue with Source Entity Nine,I do have to say I was getting rather excited. I had experienced many strange,diverse and to be honest,downright impossible (to physical mankind)life forms over the last couple of years.Now though,I was about to discuss an entity that was based upon "event space."This was going to be good.I sat back in my chair,stretched my back,and logged in to Source Entity Nine again. 
 
+在与9号源实体对话的这个时刻，我不得不说我变得相当兴奋。在过去的几年里，我经历过许多奇怪的、多样的、老实说，完全不可能的(对肉体人类来说)生命形式。现在，我将要讨论一个基于“事件空间”的实体。这将是好的。我靠在椅子上，伸展我的背，再次登录到9号源实体。
+
 SE9:I am glad to see that you are enthusiastic about being exposed to the being you would call the“Henutrik.”
 
-9号源实体：
+9号源实体：我很高兴看到你对接触你称之为“Henutrik”的人充满热情。
 
 ME:Wow,they have a name,and it can be recognized in English,too!Can I be cheeky and ask what the name of the previous entity was? 
 
-我：
+我：哇，他们有名字了，而且在英语里也能识别！我能冒昧地问一下之前的实体叫什么吗？
 
 SE9:That particular race has a name,but it would be impossible to give a meaningful translation for you.Many of my races do not call themselves anything.It is just a coincidence that these two do.I can see,however,that you would like a name for the first entity. 
 
-9号源实体：
+9号源实体：那个种族有个名字，但不可能给你一个有意义的翻译。我的许多种族都没有名字。这两个种族有名字只是巧合。然而，我能看出你想要第一个实体有个名字。
 
 ME:I would,thank you.No matter how poor the translation is,it would be good to have something. 
 
-我：
+我：好的，谢谢。 不管翻译得多差，总算有点儿东西了。
 
 SE9:Note then,that this word,although meaningless in the translative sense,can be used only for descriptive purposes for addressing the race represented by the previous entity. 
 
