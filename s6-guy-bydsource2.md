@@ -5072,7 +5072,7 @@ The most important level of existence that an event space entity can achieve is 
 
 ME:In my own environment,the event space,as you quite rightly identified,is a function of my own Source Entity.Its perpetuated existence is available for the use of those entities who desire to understand the myriad possibilities available to them if they take a certain route or make a certain decision if there is more than one route or choice to be taken/made.It is also part of the Akashic records and those other records that are also "Akashic"(everlasting and pliable)for use by other entities within my own Source Entity's environment.Is the perpetuation of event space "events"as important in your own environment as it is in my own? 
 
-我：在我自己的环境中，事件空间，正如你正确地指出的那样，是我自己的源实体的功能。它的永存可供那些实体使用，如果他们采取某条路线，或者如果有不止一条路线或选择可供选择，他们希望了解对他们来说可利用的无数可能性。它也是阿卡西记录的一部分，而那些其他记录也是“阿卡西”(永恒和柔韧)的，供我自己的源头实体环境中的其他实体使用。在你自己的环境中，事件空间“事件”的永恒是否和在我自己的环境中一样重要？
+我：在我自己的环境中，事件空间，正如你正确地指出的那样，是我自己的源实体的功能。它的永存可供那些实体使用，如果他们采取某条路线，或者如果有不止一条路线或选择可供选择，他们希望了解对他们来说可利用的无数可能性。它也是阿卡西记录的一部分，而那些其他记录也是“阿卡西”(永恒和柔韧)的，供我自己的源实体环境中的其他实体使用。在你自己的环境中，事件空间“事件”的永恒是否和在我自己的环境中一样重要？
 
 SE9:Yes,of course.It is more important.This is a direct result of the event space becoming sentient and the fact that it is mobile as a result. 
 
@@ -5092,169 +5092,195 @@ I had just received an image of event space entities all huddled together on a s
 
 SE9:Your imagery illustrates the function of event space entities within my environment and not that which is prevalent in your own environment where all event spaces are in contact with each other or linked either by direct or indirect association to each other. Although it may look somewhat linear in its imagery the "collective"event space,that flat plain(playing field or car parking lot)ofevent space entities are in contact with each other in myriad ways.One of those methods of contact may well interest you because it is the reason why an event space that is no longer held in perpetuity by the intentional energies of local normal entities is not only maintained but is allowed to exist in its own right. 
 
-9号源实体：
+9号源实体：你的意象说明了事件空间实体在我的环境中的功能，而不是在你自己的环境中普遍存在的所有事件空间都彼此接触或通过直接或间接的关联相互连接。虽然在“集体”事件空间的意象中它可能看起来有点线性，但事件空间实体的平原(运动场或停车场)以无数种方式相互联系。其中一种联系方法可能让你感兴趣，因为它是为什么一个不再由当地正常实体的有意能量永久保持的事件空间不仅被维护，而且被允许以自己的权利存在。
 
 ME:Go on.Stop teasing me!In which way are they in contact with each other?Other than the normal links between one event space and another,which is a function of moving from one event space to another or indeed the interdependence of "event"resulting from the co-operation between two or more entities whose event space converges for some limited time.Is it this link which keeps event space entities both interdependent whilst also being dependent on their own events? 
 
-我：
+我：继续。别逗我了！他们以何种方式相互联系？除了一个事件空间和另一个事件空间之间的正常链接，这是一个从一个事件空间移动到另一个事件空间的功能，或者实际上是“事件”的相互依赖，这是由两个或更多实体之间的合作导致的，它们的事件空间在有限的时间内会聚在一起。是这个链接使事件空间实体既相互依赖，又依赖于它们自己的事件吗？
 
 SE9:Well done.You are almost on it.You are so close that I will finalize the discussion myself. 
 
-9号源实体：
+9号源实体：做得好。你几乎就成功了。你离成功如此之近，我将亲自结束讨论。
 
 It is simply the minor interactions with other event spaces,sentient or not,that keep the event space in existence when it is not at the point of sentience and subsequent self- sustenance.When self-aware,self-sustained and self-perpetuating,the event space entity can move about that "space"that is assigned for the sole use of the event space entities.Who, it has to be said,can be classified as either "previously existing,""currently existing,"and "currently/potentially existing." 
 
+它只是与其他事件空间的微小互动，有意识或无意识，当事件空间没有意识和随后的自我维持时，保持事件空间的存在。当自我意识、自我维持和自我延续时，事件空间实体可以移动到指定给事件空间实体的“空间”上。必须指出的是，可以被归类为“以前存在”、“当前存在”和“当前/潜在存在”。
+
 These minor interactions are minor in relevance,intensity and perpetuity.The interesting point to note here is that the links between the different event spaces and event space entities are in a constant state of flux-flux,that is,in terms of their contact with each other.
+
+这些微小的互动在相关性、强度和持久性方面是次要的。这里要注意的有趣的一点是，不同事件空间和事件空间实体之间的联系处于一种恒定的流动状态，即，在它们相互接触的情况下。
 
 ME:I am getting the impression that the event space events that are maintained by the event space entities are moved on a regular basis.The movement is a function of the quality of event that such transient interaction could or can generate when activated. 
 
-我：
+我：我得到的印象是，由事件空间实体维护的事件空间事件是定期移动的。这种移动是这种短暂的互动在激活时可以或能够产生的事件质量的函数。
 
 SE9:Correct.The whole point of the movement,the disassociation and re-association of event space between two or more areas of event space/event space entities is the offer of links between differing events even though they are not "normally"linked.These "abnormal"links do not have a ready association/interdependence between the events,but they do offer the opportunity of studying what "could be"whilst seeing"what is."That part of the event space that is normally linked to another part of the event content of an event space entity being removed,isolates that event from the "holding"event space entity and allows it to be linked with another event space within another independent event space entity and thus,identifying myriad new evolutionary opportunities resulting from the new association with another event space entity. 
 
-9号源实体：
+9号源实体：正确。整个运动的重点，两个或多个事件空间/事件空间实体之间的事件空间的分离和重新结合，是提供不同事件之间的链接，即使它们不是“正常”链接的。 这些“异常”链接在事件之间没有现成的关联/相互依赖，但它们确实提供了研究“可能”的机会，同时看到“是什么”。事件空间的一部分通常与事件空间实体的事件内容的另一部分链接，被移除，将该事件从“持有”事件空间实体中隔离，并允许它与另一个独立的事件空间实体中的另一个事件空间链接，从而识别出无数新的进化机会，这些机会来自与另一个事件空间实体的新关联。
 
 ME:That's amazing.I get the impression (actually I received another image)that although one would expect your environment to be covered with enough event space entities to deal with the total environmental volume,that doesn't exist.Instead,you have event space gaps -areas of darkness where the events that occur are not recorded. 
 
-我：
+我：那太神奇了。我得到的印象(实际上我收到了另一张图片)是，虽然人们期望你的环境被足够的事件空间实体覆盖，以处理整个环境体积，但这并不存在。相反，你有事件空间缺口——发生的事件没有被记录的黑暗区域。
 
 SE9:More than that.They are not able to be used by the normal entities in my environment. 
 
-9号源实体：
+9号源实体：不仅如此，它们还不能被我所在环境中的正常实体使用。
 
 ME:Hold on,isn't that a bit "chicken and egg"again?If a normal entity cannot traverse that area where there are no event space entities to hold and record the events that take place there,then how can the normal entities create the PBIE and ABIE energies that create the events and,therefore,the opportunity for the event space to become sentient? 
 
-我：
+我：等等，这不是又一个“鸡和蛋”的问题吗？如果一个正常的实体不能穿越那个没有事件空间实体来保存和记录发生在那里的事件的区域，那么正常的实体如何能创造PBIE和ABIE能量来创造事件，从而为事件空间创造有意识的机会？
 
 SE9:These gaps or areas that you call darkness are areas where the current areas of event space and the subsequent event space entities can expand into.If you like,it is reserved "space"for the use of expansion only. 
 
-9号源实体：
+9号源实体：这些你称之为黑暗的间隙或区域是当前事件空间区域和后续事件空间实体可以扩展进入的区域，如果你愿意，它就是为扩展而保留的“空间”。
 
 ME:How does that work?In my limited understanding,event space and,therefore,the event space entities in your environment,would not be limited to spatial requirements because event space is "outside space"itself. 
 
-我：
+我：这是如何工作的？在我有限的理解中，事件空间，因此，在你的环境中的事件空间实体，不会被限制到空间需求，因为事件空间本身就是“空间之外”的。
 
 SE9:Correct,but it does have limitations.Those limitations are me,the environment of my event space,for I am like the other Source Entities,a subset and,therefore, a compartmentalization of the energies,dimensions,sub-dimensional components and frequencies that were given to me by The Origin when it created me.From your perspective, of course,I have no such limitations,but in my perspective all environmental conditions that I create are within those conditions that I was created with. 
 
-9号源实体：
+9号源实体：正确，但它确实有局限性。这些局限性就是我，我事件空间的环境，因为我就像其他源实体一样，是一个子集，因此，能量、维度、亚维度成分和频率的划分，这些都是源头创造我时赋予我的。从你们的角度来看，当然，我没有这样的局限性，但在我的角度来看，我创造的所有环境条件都在我被创造时的环境条件之内。
 
 To be honest I was having quite a bit of trouble with this,for I expected (my fault,one should never overlay one's own expectations on a communication such as this)that event space was basically unlimited. 
 
+说实话，我对此有相当多的麻烦，因为我期望(我的错，一个人永远不应该把自己的期望覆盖在这样的交流上)事件空间基本上是无限的。
+
 ME:OK,I am struggling a bit with this.If there are limitations based upon your own structural condition,what are they? 
 
-我：
+我：好的，我有点挣扎。如果基于你自己的结构条件有限制，它们是什么？
 
 SE9:Simply put,that amount of me that is reserved for the use of event space.
 
-9号源实体：
+9号源实体：简单地说，就是为使用事件空间而保留的我的数量。
 
 ME:But I would have thought that which is event space would literally pervade you,be everywhere. 
 
-我：
+我：但我认为事件空间会无处不在，无处不在。
 
 SE9:It is. 
 
-9号源实体：
+9号源实体：是的。
 
 ME:But,now help me out here,you just said that it wasn't? 
 
-我：
+我：但是，现在帮我一下，你刚才说它不是？
 
 SE9:Event space is limited by the number of permutations that can or would occur should an entity have a choice or series of choices to make.This is augmented by the number of entities that enters into or,indeed,link event spaces together through association with other entities.When an event space has reached its maximum permutation level,it is allowed to occupy,on an automatic basis,that area within me that is reserved for event space.There are periods... 
 
-9号源实体：
+9号源实体：事件空间受限于可能发生的排列数量，如果一个实体有一个选择或一系列选择，这将增加进入事件空间的实体数量，或者通过与其他实体的关联将事件空间连接在一起。当一个事件空间达到其最大排列水平时，它被允许自动占据我体内为事件空间保留的区域。
 
-I noticed that Source Entity Nine went to great lengths then,to not mention the word "time." 
+I noticed that Source Entity Nine went to great lengths then,to not mention the word "time."
+
+我注意到9号源实体费了很大劲，才没有提到“时间”这个词。
 
 ...when those "event"permutations are reduced as a natural consequence of latent convergence.Latent convergence is experienced when a series of event spaces line up again after going off the main-line,the previous events being a mere distraction or detour.This leads to a natural reduction in the area used for that major part of event space that is being used to fulfil the total number of events from the start of an entity's existence or role to the end of that existence or role.The result of the reduction is the areas of darkness that you saw in your mind's eye.Those areas where there is no event space and,therefore,no entities can traverse except for the entity that had the most to contribute to that event space.Based upon this,that area of emptiness is reserved for the expansion of that particular event space and cannot be used for the use or expansion of other event spaces.It is already pre-designated.
 
+...当那些“事件”排列作为潜在收敛的自然结果而减少时。潜在收敛是当一系列事件空间在离开主线后再次排列时经历的，之前的事件只是分心或绕道。这导致了事件空间的主要部分的面积的自然减少，该部分被用来完成从一个实体的存在或角色开始到存在或角色结束的事件总数。减少的结果是你在心灵之眼看到的黑暗区域。这些区域没有事件空间，因此，除了对该事件空间做出最大贡献的实体外，没有实体可以穿越。基于这一点，那个空白区域被保留用于特定事件空间的扩展，不能用于其他事件空间的使用或扩展。它已经预先指定了。
+
 ME:So that would explain why other entities cannot traverse that space because,in essence, it is event space,space.That is,non-sentient event space. 
 
-我：
+我：所以这将解释为什么其他实体不能穿越那个空间，因为，本质上，它是事件空间，空间。也就是说，无意识的事件空间。
 
 SE9:Very well done.But before we change the direction of our communication,please note this.Sentient event space,by us called "event space entities,"maintain their own area of event space,if you like.This means that once they have reached a size that is consistent with the maximum permutation level that could have been achieved when they were interacting with a normal entity,that they can maintain that size. 
 
-9号源实体：
+9号源实体：做得很好。但在我们改变交流方向之前，请注意这一点。有意识的事件空间，我们称之为“事件空间实体”，如果你愿意的话，可以维持它们自己的事件空间区域。这意味着一旦它们达到一个大小，与它们与正常实体交互时可能达到的最大排列水平一致，它们可以维持那个大小。
 
 ME:Do you mean that they do not shrink?That an area of darkness is not created? 
 
-我：
+我：你的意思是它们不会收缩吗？不会产生一片黑暗的区域？
 
 SE9:No,for that is a function of"non-sentient event space"and not "sentient event space," an event space entity.Once an area of event space has become sentient,it is in full command and control of those energies that created it in the first place.As a result it can and does maintain its own existence and,therefore,its own structure and size. 
 
-9号源实体：
+9号源实体：不，因为那是“无意识事件空间”的功能，而不是“有意识事件空间”，一个事件空间实体。一旦事件空间的一个区域有了意识，它就完全受制于那些创造它的能量。
 
 ### Two More Universal Environmental Components 
 
+**另外两个宇宙环境成分**
+
 I was just deciding that it was time to move on and question Source Entity Nine about another part of itself-its environment-when I had a little niggle in the back of my mind.The niggle suggested that the two intention-based energies of PBIE and ABIE were not the only energies that could be described as new,or should I say previously discovered,or undisclosed universal components.Filled with the inspiration that is only available to an explorer surveying a new and undiscovered land,I dove head long into questioning Source Entity Nine on what else could possibly be classified as a universal component.
+
+我刚刚决定是时候继续向前，向9号源实体询问它的另一个部分——它的环境——这时我脑海中出现了一个小问题。这个小问题表明，PBIE和ABIE这两种基于意图的能量并不是唯一可以被描述为新的，或者我应该说以前发现的，或者未公开的宇宙成分的能量。充满了只有勘测一个新的未发现的土地的探险家才能获得的灵感，我深入地向9号源实体询问，还有什么东西可以被归类为宇宙成分。
 
 I mean,it was reasonably simple for me in my limited incarnate state to understand that full dimensions were constructed with three sub-dimensional components and that each sub- dimensional component was inflated with twelve frequency bands,one of which contains a whole simultaneous universe.Once,that is,we get past the need for a base full dimension with that full dimension constructed as a three-in-one system made up of the three sub-dimensional components with only one set of twelve frequency bands inflating all three sub-dimensional components,all of which house a single universe in all its physical and energetic states.I even felt that the average incarnate human could understand this as well,especially with the aid of a diagram.I could even understand that event space was constructed of those energies associated with action-based intention and probability-based intention.But what else could be out there was a complete mystery to me.The possibility of discussing a new universal component,one that had as much importance in the maintenance of any Source Entity's multiverse was awesome.I could wait no longer.My impatience was obvious! 
 
+我的意思是，在我有限的化身状态下，理解完整的维度是由三个亚维度组成的，每个亚维度组成部分都膨胀了12个频带，其中一个包含了一个完整的同步宇宙，这是相当简单的。一旦，也就是说，我们过去需要一个基本的完整维度，这个完整维度被构建成一个三合一系统，由3个亚维度组成，只有一套12个频带膨胀所有3个亚维度组件，所有这些都容纳了一个单一的宇宙在所有物理和能量状态中。我甚至觉得普通的化身人类也能理解这一点，特别是在图表的帮助下。我甚至能理解事件空间是由那些与基于行动的意图和基于概率的意图相关的能量构成的。但对我来说，还有什么完全是个谜。讨论一个新的宇宙组件的可能性，一个在维护任何源实体的多元宇宙中都具有同等重要性的东西，真是太棒了。我不能再等了。我的不耐烦是显而易见的！
+
 ME:So,what ARE they? 
 
-我：
+我：那么，它们是什么？
 
 I told you I was impatient dear reader. 
 
+我告诉过你我没耐心，亲爱的读者。
+
 SE9:What are what? 
 
-9号源实体：
+9号源实体：什么是什么？
 
 ME:The two new universal components I am seeking to discuss with you.I need to discuss these before I move on to Source Entity Ten.I really get the impression that this is very important. 
 
-我：
+我：我正寻求与你讨论的两个新的通用组件。在我转向第10个源实体之前，我需要讨论这些。我真的觉得这非常重要。
 
 SE9:So I see.Well,so far you have discussed five universal components in total:three with your own Source Entity and two with me.Now you want two more.
 
-9号源实体：
+9号源实体：我明白了。到目前为止，你总共讨论了5个宇宙元件：3个和你自己的源实体，2个和我。现在你还想要两个。
 
 ME:Yes,please. 
 
-我：
+我：好的，请。
 
 I was starting to get anxious. 
 
+我开始焦虑了。
+
 SE9:Mmmm,OK,I will assist you in this quest.First,you will need to note that the components you called ABIE and PBIE can really only be classified as one component,and this is because they are the Yin and Yang of each other.One is the full and dedicated action; the other is all the possibilities that could have been taken.Together they create one event space,and as such,event space can be considered a single component even when it gains individual sentience. 
 
-9号源实体：
+9号源实体：嗯，好吧，我会帮助你完成这个任务。首先，你需要注意你称之为ABIE和PBIE的组件只能被归类为一个组件，这是因为他们是彼此的阴和阳。一个是完整和专注的行动，另一个是所有可能采取的行动。他们一起创造了一个事件空间，因此，事件空间可以被认为是一个单一的组件，即使它获得了个人的感知。
 
 ME:Thank you.I think that will make it clear in every one's mind when you explain it in that way. 
 
-我：
+我：谢谢。我想你这样解释的话，每个人都会明白的。
 
 SE9:Good.It was necessary to get that concept across for it is the foundation for the next concept that you will be discussing with me;the two universal/multiversal components that you are seeking are also interdependent in an equal and simultaneous way. 
 
-9号源实体：
+9号源实体：很好。有必要把这个概念讲清楚，因为它是你将和我讨论的下一个概念的基础；你正在寻找的两个宇宙/多宇宙组成部分也以平等和同时的方式相互依赖。
 
 ME:OK,I can wait no longer...Hold on.... 
 
-我：
+我：好吧，我不能再等了...等等...
 
 I was finding that my communication had slowed right down
 
-. ..are you still there? 
+我发现我的沟通速度慢了下来
+
+...are you still there? 
+
+...你还在吗？
 
 SE9:Yes.One moment please.The information on these components is not directly translatable into your sound based language or even any form of higher energetic language you have brought with you from the energetic.I will need to find some sort of concept that you can relate to that can be used as a bridging tool.
 
-9号源实体：
+9号源实体：是的，请稍等。这些组件的信息不能直接翻译成你们基于声音的语言，甚至不能翻译成你们从能量带过来的任何形式的更高能量语言。我需要找到一些概念，你们可以联系起来，作为桥梁工具。
 
 I sat and waited at my computer,wondering what could be so similar in conceptual understanding here on earth that it could be used as a bridging tool used to explain an indescribable universal component.I didn't have to wait long. 
 
+我坐在电脑前等待，想知道地球上有什么概念上的理解如此相似，可以用作桥梁工具来解释一种无法形容的宇宙成分。我没等多久。
+
 SE9:OK,I have a concept that you can use to help you understand.I want you to consider an energy that isn't energy. 
 
-9号源实体：
+9号源实体：好吧，我有一个概念，你可以用它来帮助你理解。我想让你考虑一种不是能量的能量。
 
 ME:Action and reaction just came into my mind. 
 
-我：
+我：我刚想到了行动和反应。
 
 SE9:Yes,that would be a good start,for they are the Yin and Yang of each other. 
 
-9号源实体：
+9号源实体：是的，那将是一个好的开始，因为他们是彼此的阴和阳。
 
 ME:Mmmm,wasn't the last two multiversal components-those that created your version of event space and the subsequent event space entities interdependent of each other?That being the environment or that part of the total environment cannot exist without them both together?Just one will not create the conditions necessary for sustaining the structure of the environment.Is this the way it works with these two components?And while I am in the chair,so to speak,this sounds a bit Newtonian to me,i.e.,every action has an equal and opposite reaction.Would I be right with this? 
 
-我：
+我：嗯，最后两个多维的组成部分，那些创造了你的事件空间版本和随后的事件空间实体，它们不是相互依赖的吗？作为环境或者说作为整个环境的一部分，没有它们两个，就不能存在吗？只有一个，就不能创造维持环境结构的必要条件，这两个组成部分是这样运作的吗？当我坐在椅子上的时候，可以说，这对我来说有点牛顿，即，每个动作都有等量的反作用力，我这样说对吗？
 
 SE9:First,the words "action and reaction"are not intended to be fully descriptive in this instance,specifically because there is not a direct translation of the functionality of them into your English.Second,they do need each other to create the resultant component which is a foundation component of that used in event space.If you like and using the analogy to radio wave engineering that your own Source Entity used in your first book,it is the carrier wave,the "space"that is used to house the action-based intention energy(ABIE)and the probability-based intention-based energy(PBIE).And third,together they do not function in the Newtonian fashion that you are expecting to understand.Actually I think my choice of words was poor in this instance,but unfortunately they are the only ones that work. 
 
