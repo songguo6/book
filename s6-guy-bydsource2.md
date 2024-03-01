@@ -5284,171 +5284,191 @@ ME:Mmmm,wasn't the last two multiversal components-those that created your versi
 
 SE9:First,the words "action and reaction"are not intended to be fully descriptive in this instance,specifically because there is not a direct translation of the functionality of them into your English.Second,they do need each other to create the resultant component which is a foundation component of that used in event space.If you like and using the analogy to radio wave engineering that your own Source Entity used in your first book,it is the carrier wave,the "space"that is used to house the action-based intention energy(ABIE)and the probability-based intention-based energy(PBIE).And third,together they do not function in the Newtonian fashion that you are expecting to understand.Actually I think my choice of words was poor in this instance,but unfortunately they are the only ones that work. 
 
-9号源实体：
+9号源实体：首先，“动作和反应”这两个词在这个例子中并不是完全描述性的，特别是因为它们的功能没有直接翻译成你们的英语。 第二，它们确实需要彼此来创建结果组件，这是事件空间中使用的基础组件。 如果你喜欢并使用你自己的源实体在第一本书中使用的无线电波工程的类比，它是载波，用于容纳基于动作的意图能量(ABIE)和基于概率的意图能量(PBIE)的“空间”。 第三，它们在一起并不以你期望理解的牛顿式的方式工作。 实际上，我认为我在这种情况下的用词很差，但不幸的是，它们是唯一有效的。
 
 ME:Actually the words and the interaction with event space,the description of action and reaction that when together function as a carrier wave works very well for me.It actually makes total and perfect sense.Specifically when one considers that both the intentional energies of PBIE and ABIE are actionary.That is,the probability-based intention and the action-based intention energies (PBIE ABIE)are the result of action.Action or the possibility of action of some sort,being available as the decision-based components of a specific entity's intention,the desire to choose one route or direction or task over another. The result of which is an energy.That energy needs to be present in some way before the new event space can be created.Phew! 
 
-我：
+我：实际上，这些词和与事件空间的互动，对行动和反应的描述，当它们一起作为载波时，对我来说效果很好。它实际上完全和完美地发挥了作用。特别是当一个人考虑到PBIE和ABIE的意图能量都是行动性的。也就是说，基于概率的意图和基于行动的意图能量(PBIE ABIE)是行动的结果。行动或某种行动的可能性，作为一个特定实体的意图的决策基础组件，选择一条路线或方向或任务的愿望。其结果是一种能量。在新的事件空间被创建之前，这种能量需要以某种方式存在。
 
 SE9:Good.You are getting there.I will explain further if you don't mind,for there is a function of this building block that you have not ascertained. 
 
-9号源实体：
+9号源实体：很好，你开始明白了。如果你不介意的话，我想进一步解释一下，因为这个模块有一个功能你还没有弄清楚。
 
 ME:I am not surprised.My mind was in overdrive to sort out the words for the limited description I just gave. 
 
-我：
+我：我并不惊讶。我的脑子一直在超速运转，为我刚才给出的有限的描述寻找词语。
 
 To be perfectly honest,the nine or so lines above took something like 20 minutes to write.Not good when one has a personal deadline to achieve,I can tell you.This is,however,the name of the game.One day it flows;another day it is like getting blood out of a stone.In fact,I sometimes think that getting blood out of a stone would be easier.But then I am communicating with an entity,a Source Entity,no less,that is eight multiverses away from my home multiverse.A little bit of lag in understanding the concepts being presented to me is,therefore,acceptable.
 
+说实话，上面9行左右的文字花了大约20分钟才写完。我可以告诉你，当一个人有个人截止日期要完成时，这并不好。然而，这就是游戏的名字。有一天它流动；另一天它就像从石头里挤血一样。事实上，我有时认为从石头里挤血会更容易。但那时我正在与一个实体，一个源实体，不下于，这是离我的家园多维宇宙8个多元宇宙的实体。因此，在理解呈现给我的概念方面有一点点滞后是可以接受的。
+
 ME:OK,I have had my little interlude.Let's hear the rest of the explanation of the functionality of this/these multiversal component/s. 
 
-我：
+我：好吧，我已经有我的小插曲了。让我们听一下这个/这些多维宇宙组件的功能的其余解释。
 
 SE9:Thank you.I want you to consider the human translation of the words I have used for this component:action and reaction.What do they mean to you? 
 
-9号源实体：
+9号源实体：谢谢。我想让您考虑一下我对这个组件使用的词的人工翻译：action和reaction。它们对您来说意味着什么？
 
 ME:I would have used the Newtonian explanation normally,but I can see that you are looking for another level of understanding. 
 
-我：
+我：通常我会用牛顿的解释，但我可以看出你在寻找另一种理解的层次。
 
 SE9:Yes,please. 
 
-9号源实体：
+9号源实体：是的，请。
 
 ME:Well,I had better start with the Newtonian version first,as not all of my readers will know it even though it is classic physics. 
 
-我：
+我：嗯，我最好先从牛顿的版本开始，因为即使它是经典物理学，也不是所有的读者都知道它。
 
 For those of you out there who don't know the Newtonian law,it goes like this,"For every action there is an equal and opposite reaction." 
 
+对于你们当中那些不知道牛顿定律的人，它是这样的，“对于每一个作用力，都会有一个大小相等方向相反的反作用力。”
+
 The best way of explaining this is to remember the Newtonian cradle where a number of ball bearings are suspended from a frame by a cord in a line.When at rest,the ball bearings are just touching each other so that when one of them,the one on the end,is lifted away from its neighbor and allowed to drop,it swings on the cord and subsequently hits its neighbor, so the energy that was in the ball that was dropped is passed between all of the ball bearings in the line which results in the ball bearing on the end of the line taking the energy and subsequently moving off in the same direction that the ball bearing that was dropped was traveling-when the ball reaches the end of its swing,it returns and hits its own neighbor, sending the energy back to the original ball bearing which then moves off or swings out in the opposite direction it was going in the first place.In this instance,the action is the initial movement and its direction,with the reaction being the change in direction of the energy that results in the ball bearing receiving the energy back and swinging in the opposite direction of The Original direction of travel.The only issue here is that this is not a perfect illustration as the energy received back is not the same amount or value as that given to the neighboring ball bearing in The Original impact.There is a loss in the energy,and the process is,therefore,not an equal and opposite reaction.The only way of explaining this properly then is to use another example,one where we are standing on supposedly solid ground and that the reason we don't sink into the ground that we stand on is because there is an opposite reaction to the downward force of our weight according to gravity.But again this is not perfect as the ground does,in fact,deflect a certain amount due to the density of the ground being stood upon.In the perfect world,there is no loss of energy received by the ball bearing and no deflection in the ground that we stand on. 
+
+解释这个的最好方法是记住牛顿摇篮，其中许多滚珠被绳索悬挂在框架上。当处于静止状态时，滚珠只是相互接触，所以当其中一个，在末端的那个，被从邻居那里提起并允许掉落，它在绳索上摆动，随后撞击它的邻居，所以掉落的球中的能量在所有轴承之间传递，结果是线末端的滚珠吸收了能量，随后朝着被落下的滚珠移动的方向移动——当球到达摆动的末端时，它返回并撞击自己的邻居，将能量送回原来的滚珠，然后它移动或摆动到与最初相反的方向。 在这种情况下，动作是初始运动及其方向，反应是能量方向的变化，导致滚珠接收到能量并朝着与最初旅行方向相反的方向摆动。这里唯一的问题是，这不是一个完美的例子，因为接收到的能量与最初撞击时给予邻近球轴承的能量的数量或价值不同。能量有损失，因此，这个过程不是一个相等和相反的反应。正确解释这个的唯一方法是使用另一个例子，我们站在假设坚固的地面上，我们不沉入我们脚下的地面的原因是因为根据重力，我们体重的向下力有一个相反的反应。但这也不完美，因为事实上，由于我们脚下的地面密度，地面会偏转一定量。在完美的世界里，球轴承接收到的能量没有损失，我们脚下的地面也没有偏转。
 
 SE9:That is a very good understanding of the errors in the current thinking of mankind and the use of certain physics as being not only basic but also the fundamentals required to understand the rest of physics.The issue here is the "lossy"function of the so-called fundamentalism of the law being used as a datum-in this instance,the law being that every action has an equal and opposite reaction,which it clearly does not. 
 
-9号源实体：
+9号源实体：这是一个很好的理解，人类当前的思维错误，以及使用某些物理学，不仅是基本的，而且是理解其他物理学所必需的基础。这里的问题是所谓的原教旨主义的“有损”功能，被用作一个数据，在这个例子中，法律是每个动作都有相等和相反的反应，它显然没有。
 
 ME:Ok,I am losing it now.Is that a "lossy"function of my mind? 
 
-我：
+我：好吧，我现在忘了。这是我大脑的“丢失”功能吗？
 
 SE9:Very clever use of words.What was the point of using them? 
 
-9号源实体：
+9号源实体：非常聪明的词汇运用。使用它们的意义是什么？
 
 ME:Well,what I am getting to is that I don't understand where you are going with this line of communication. 
 
-我：
+我：嗯，我的意思是我不明白你想表达什么。
 
 SE9:And I thought that you had made the link,especially as you were doing so well with the description of the Newtonian example of the perfect state of action and re-action as an "equal and opposite"re-action to the action,and that it was not the case!Oh well,I had better explain then. 
 
-9号源实体：
+9号源实体：我以为你已经把两者联系起来了，特别是你对牛顿的完美状态的描述，把作用力和反作用力描述成作用力“相等且相反”的反作用力，而事实并非如此！好吧，我最好解释一下。
 
 The whole point of what you have just described is that there is no such thing as an equal and opposite reaction.Every time there is an action,the reaction is dependent upon a number of factors,such as the environment and "that"which affects the environment. For example,you used the rather good illustration of the ground "giving way"in some way when you stand on it or apply a weight to some part of it.The amount of "give"is relative to the composition of the ground.This includes all materials manufactured by mankind,by the way. 
 
+你刚才所描述的全部要点是，没有东西是等同的和相反的反应。每次有一种行动，反应取决于许多因素，如环境和影响环境的“那个”。例如，你用了一个非常好的例子，当你站在地上或在它的某一部分施加一个重量时，地面以某种方式“屈服”。“屈服”的数量与地面的组成有关。顺便说一下，这包括所有人类制造的材料。
+
 ME:You mean concrete and steel are compressible,that they are subject to "give"? 
 
-我：
+我：你的意思是混凝土和钢是可压缩的，它们会“屈服”？
 
 SE9:Yes,of course.Even the hardest composition has "give."This is the beauty of existence in your environment.Things that you think are solid are,in fact,not solid.In the Newtonian cradle illustration,the losses were obvious because when one observes the actions of the ball bearings moving back and forth,the viewer notices that they lose inertia-based energy every time they change direction. 
 
-9号源实体：
+9号源实体：是的，当然。即使是最坚硬的材料也会“给出”。这就是存在于你周围环境中的美。你认为是固体的东西，事实上，不是固体。在牛顿摇篮的例子中，损失是显而易见的，因为当一个人观察滚珠来回移动的动作时，观察者会注意到，每次改变方向时，它们都会失去基于惯性的能量。
 
 ME:But they wouldn't in a vacuum-based environment or one that was not affected by gravity.
 
-我：
+我：但是它们不会在一个真空环境中或者不受重力影响的环境中。
 
 SE9:Oh yes,they would-simply because of the interaction with the other larger bodies that you have in the physical universe-those areas of local density you call planets and stars. 
 
-9号源实体：
+9号源实体：是的，它们会--仅仅是因为与你们在物质宇宙中拥有的其他更大的物体的相互作用--那些你们称之为行星和恒星的局部密度区域。
 
 ME:OK,you've got me on the run now.I was about to say what is the point of this discussion but I think that I can see it now. 
 
-我：
+我：好吧，你现在让我忙起来了。我正要说这个讨论的重点是什么，但我想我现在能看出来了。
 
 You stated that there is no such thing as an equal and opposite reaction to an action,but,I suspect that in your environment there is but that this is a function of the give and take of the two components of action and re-action.That is,sometimes the re-action is greater or has more energy associated to it than the actual action itself.Am I correct here? 
 
+你说过，对于一个行为，不存在等同于或相反的反应，但是，我怀疑在你的环境中存在，但是这是行为和反应这两个组成部分的相互作用。也就是说，有时反应比实际行为本身更强大，或者有更多的能量。我没说错吧？
+
 SE9:Yes,well done.This is why it is a yin and yang-based description.They are equal but not always equal at a specific point in their interaction with each other.In essence,they "move around"each other and in doing so,they create that which is necessary for the ABIE and PBIE to function. 
 
-9号源实体：
+9号源实体：是的，做得好。这就是为什么它是基于阴阳的描述。它们是平等的，但是在相互作用的特定点上并不总是平等的。本质上，它们相互“移动”，这样做，它们创造了ABIE和PBIE发挥作用所必需的东西。
 
 You see,there has to be an alternative option for both ABIE and PBIE to even exist.That option is the opposite of the other:one being the actual action taken,the other being the possible action that could have been taken.Both of these energies are generated by the entity creating them,but they have to come from somewhere.They have to be created from a base material of some sort,and that base material is the action and re-action,the carrier wave that they exist within and on. 
 
+你看，必须有一个可供选择的选项，让ABIE和PBIE都存在。那个选项是另一个的对立面：一个是实际采取的行动，另一个是可能采取的行动。这两种能量都由创造它们的实体产生，但它们必须来自某处。它们必须由某种基本材料创造出来，而那个基本材料就是行动和反应，它们存在于其中并依附于它的载波。
+
 ME:So the action and the re-action is not an energy that is independent of itself and its own component parts.It is like the threads of a string-two threads to be precise,intertwined with each other,each creating a single piece of string but together rather than being separate.Each has areas different than the other in terms of their cross-sectional areas,but the total always equals the optimal total should they be both the same and consistent cross-sectional areas. 
 
-我：
+我：所以，行动和反应不是一种独立于自身及其组成部分的能量。它就像一根弦的线——准确地说是两根线，相互交织在一起，每根线都创造出一根单独的弦，但它们是在一起的，而不是分开的。每个线段的横截面积都不同于另一个，但如果它们的横截面积相同且一致，那么总数总是等于最佳总数。
 
 SE9:Correct. 
 
-9号源实体：
+9号源实体：正确。
 
 ME:Whew!Now let me get this straight then as I am starting to be able to understand the philosophy of ABIE and PBIE and its constituent parts of action and re-action.When you told me that action and re-action were the components and basis of existence of ABIE and PBIE, you said that it was like a carrier wave that is used for the transmission,for want of a better word,of the newly created or already existing ABIE and PBIE-that which is created by the creating entity as a function of the decision process of going this way or that way.One is the actual decision and,therefore,the direction taken while the other is relegated to the possible decision that could have been taken and,therefore,the possible direction that could have been taken. 
 
-我：
+我：啊！现在让我弄清楚，因为我开始能够理解ABIE和PBIE的哲学以及其组成部分的行动和反应。当你告诉我，行动和反应是ABIE和PBIE存在的组成部分和基础时，你说它就像一个载波，用于传输，为了寻找更好的词，新创建的或已经存在的ABIE和PBIE-这是由创建实体创建的，作为走这条路或那条路的决策过程的功能。一个是实际的决定，因此，采取的方向，而另一个被降级为可能采取的决定，因此，可能采取的方向。
 
 SE9:Keep going! 
 
-9号源实体：
+9号源实体：继续前进！
 
 ME:Well,it's almost like the events and interfaces.I mean everything that happens from meeting new entities,working with a new material to create something.To make it easier, let's use some of my earth-based terminology here-such as a house,a car,a computer,a park bench,is created from the energies that were what you call "action"and "reaction." Everything is in like a "store."Everything that has the ability to be created can be created from this base energy-all actions that are or will be taken,including all of the interfacing objects are already in existence.All we have to do is go down a certain route,and they are taken out of storage,so to speak,and are manifest into useful existence.This also includes all the possibilities as well.All that could be possible is also in storage within this action and re-action carrier wave just in case a change of direction is taken,one that is not or could not have been,foreseen. 
 
-我：
+我：嗯，它几乎就像事件和接口。我的意思是，从遇到新的实体，用一种新材料来创造一些东西。为了使它更容易，让我们在这里使用一些基于地球的术语，比如房子，汽车，电脑，公园长椅，是由你所称的“行动”和“反应”的能量创造的。一切都像一个“商店”。所有有能力被创造的东西都可以从这个基础能量中创造出来，所有正在或将要采取的行动，包括所有已经存在的接口对象。我们所要做的就是沿着一条特定的路线走下去，可以说，它们是从存储中取出来的，并显化为有用的存在。这也包括所有的可能性。所有可能的事情也在这个行动和反应载波的存储中，以防方向发生变化，一个没有或不能被预见的改变。
 
 SE9:Yes,carry on. 
 
-9号源实体：
+9号源实体：是的，继续。
 
 ME:Well,I see this image of the string-and I fully understand that this is just in my mind for illustrative purposes-that is covered with entities.Every time an action is made,a piece of the string is pulled out to create the Action-Based Intentional Energy.When this ABIE energy is pulled out,a ripple effect is sent down the length of the "never ending and infinite" action and re-action string,putting in place all of those things that will happen as a result of the decision that has just been made.On the other side though,there is another piece of string being pulled out,creating the Probability-Based Intentional Energy for all of those things that "could"happen should the action change for whatever reason to the "probable" rather than the "actual"action.In this instance,the action and the re-action are the yin and yang of each choice and the energies created or used by such choices-that is,those that were taken and those that were not but nevertheless could have been. 
 
-我：
+我：嗯，我看到这根弦的图像——我完全明白这只是我脑海中为了说明目的——它被实体覆盖。 每次做出一个动作，这根弦的一部分被拉出来，创造了基于动作的意图能量。 当这个ABIE能量被拉出来时，一个涟漪效应沿着“永无止境和无限”的动作和反应弦的长度被发送，把所有那些将要发生的事都安排好，作为刚刚做出的决定的结果。 尽管从另一方面来说，还有另一根弦被拉出来，创造了基于概率的意图能量，为所有那些“可能”发生的事情创造能量，如果这个动作因为任何原因改变为“可能的”而不是“实际的”动作。 在这种情况下，动作和反应是每个选择的阴和阳，以及由这种选择创造或使用的能量——也就是那些被采取的和那些没有采取但却可能被采取的。
 
 SE9:And now you have it. 
 
-9号源实体：
+9号源实体：现在你有了它。
 
 ### Yet Another Component of Event Space!(Two Components??) 
 
+**事件空间的另一个组件！(两个组件？？)**
+
 ME:So that's it.Those are the two components that make the possibility of event space work at least in your environment:(1)the action and reactionary components that allow the entity to create the energies of action;and (2)Probability-Based energies,which ultimately create the event space that is being experienced and could have been/might be experienced.Right? 
 
-我：
+我：就是这样。这是两个组件，使事件空间至少在你的环境中工作的可能性：(1)行动和反应组件，允许实体创造行动的能量； (2)基于概率的能量，最终创造了正在经历和可能已经/可能被经历的事件空间。对吗？
 
 SE9:Well,not quite.You see,there is something else that sticks(glues)them both together -something that is independent of all four(three if you consider the action and reaction as the yin and yang of each other). 
 
-9号源实体：
+9号源实体：不完全是。你看，还有其他的东西把它们粘在一起——某种独立于所有四个因素的东西(如果你把作用和反作用看作是相互的阴和阳的话，那就是三个因素)。
 
 ME:Somehow I knew this was going to happen. 
 
-我：
+我：不知何故，我知道这会发生。
 
 SE9:Please explain? 
 
-9号源实体：
+9号源实体：请解释一下？
 
 ME:It's just that it couldn't be that simple.There had to be some other complication to the function of event space in its continued manifestation. 
 
-我：
+我：只是它不可能那么简单。在事件空间的持续表现中，一定存在着一些其他的复杂性。
 
 SE9:Let me see.Ah,yes,the incessant desire for mankind to know everything in the blink of an eye whilst not having the ability to understand it nor the capability to store it-this is something to behold.This is something else I was warned about,for want of better words. In this instance,it is manifest in the "knowing"that there is something else,some deeper meaning,even when there is not. 
 
-9号源实体：
+9号源实体：让我看看。啊，是的，人类在眨眼之间就想知道一切的无休止的欲望，但却没有能力去理解它，也没有能力去储存它--这是值得注意的。这是我被警告过的另一件事，因为找不到更好的词来表达。在这种情况下，它表现在“知道”存在着其他的东西，一些更深的意义，即使在没有的时候。
 
 I will have to consider this for a moment.Mmmm,Mmmm,yes now I understand. 
 
+我必须考虑一下这个问题。嗯，嗯，是的，现在我明白了。
+
 It is a function of your own ability that makes you "know"that you may be able to experience something else.What's more,you have your own incessant desire to know more as well.This is a human trait you have picked up,for as "OM"you would not need such a desire,for all knowledge is laid out before you-ready for the taking,so to speak.So in essence this extra information is not necessary for you as OM to "know"even whilst incarnate,for you already do "know." 
+
+这是你自己的能力的一个功能，让你“知道”你可能能够体验到别的东西。更重要的是，你也有你自己不断渴望知道更多东西的欲望。这是一个你已经学会的人类特征，因为作为“OM”你不需要这样的欲望，因为所有的知识都摆在你面前——可以说，准备好接受。所以本质上，这些额外的信息对于你作为OM来说是没有必要的，即使在化身的时候，因为你已经“知道”了。
 
 How could I know but not know?This was one question I must ask before moving on from Source Entity Nine and starting my dialogue with Source Entity Ten,who is I "know"(here we go again) waiting for me to finish with Source Entity Nine and initiate communications with it.I had better hurry.The question did not need to be asked though. 
 
+我怎么能知道但不知道？这是我必须问的一个问题，在离开9号源实体，开始与10号源实体对话之前，我“知道”(又来了)谁在等着我结束与源实体9的对话，并开始与它进行沟通。我最好快点。虽然这个问题不需要问。
+
 SE9:When I talk about YOU,I talk about that which is the real YOU and not that part of YOU which is incarnate and,therefore,not YOU.Therefore,that part of YOU that is incarnate cannot "know"all there is whilst the rest of YOU,that is the real YOU,that which is not incarnate,can and does "know"all there is or more importantly can"know"what it wants to "when"it wants to by connecting with The Origin. 
 
-9号源实体：
+9号源实体：当我谈论你的时候，我谈论的是真正的你，而不是你化身的那部分，因此，不是你。因此，你化身的那部分不能“知道”一切，而你其余的部分，即真正的你，不是化身的，能够而且确实“知道”一切，或者更重要的是能够“知道”它想要什么，当它想要通过连接到起源时。
 
 ME:Thank you.I believe that answers that question rather nicely. 
 
-我：
+我：谢谢你。我相信这已经很好地回答了这个问题。
 
 SE9:I will continue with the description I started on then,for it is important that you understand this last bit of the puzzle that is event space. 
 
-9号源实体：
+9号源实体：我将继续我开始的描述，因为重要的是，你理解这个谜的最后部分，即事件空间。
 
 There is a function of the Action and Probability-Based Intention Energies called "Spontaneous Intention."This is the glue that holds the action and re-action "carrier wave" together. 
 
