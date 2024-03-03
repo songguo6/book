@@ -6126,80 +6126,107 @@ SE10:Association and the desire for association.
 
 ME:Is that it? 
 
-我：
+我：就是这样吗？
 
 SE10:In a nutshell,yes.You see,the desire for association does two things: 
 
-10号源实体：
+10号源实体：简而言之，是的。 你看，联想的欲望有两点作用：
 
 - 1.it broadcasts a subtle communication to those it wishes to be in association with. On your planet you are continually broadcasting the desire to meet like-minded people,and you instinctively know who they are and the time to broach the subject matter that you want to enter into discourse with.This broadcast is picked up and received by the target entity,who in turn,responds with a positive response,i.e.,no rejection is transmitted.If there are multiple entities,they all respond together. 
+
 - 2.the energy in between those entities that are currently interfacing with one another extends its influence to that energy that is in between the group of entities and the entity wishing to collaborate with the group.Because the energy that is in between the group members has no assignation,it is "free energy"that adopts the conditions of that which it is surrounded by-in this instance,it is the total content of the collaborating entities'evolution and graduation of self-awareness. 
+
+- 1.它向那些希望与之建立联系的人广播一种微妙的交流。在你们的星球上，你不断地广播你想与志同道合的人见面的愿望，并且你本能地知道他们是谁，以及什么时候提出你想与之交谈的话题。这个广播被目标实体拾取和接收，反过来，目标实体以积极的回应，即，没有拒绝被传送。如果有多个实体，它们会一起回应。
+
+- 2.当前相互接触的实体之间的能量将其影响扩展到实体群组和希望与该群组合作的实体之间的能量。由于群组成员之间的能量没有指定，它是“自由能量”，它采用了它所包围的条件——在这种情况下，它是合作实体的进化和自我意识的逐步提高的全部内容。
 
 In essence,it can be considered as a bubble of sympathetic energy,morphing into that which its associated entities evolve into but from an averaging perspective only,for it adopts the totality of that which it is being influenced by rather than being the best or the worst.Once the entity that has indicated its intention to become associated with the group is engulfed by this energy,for want of a better word,it assumes the content of the energy which is surrounding it.This is equal to the average of the all the associated entities'self-awareness and evolutionary content. 
 
+本质上，它可以被认为是一个同情能量的泡沫，变形为其相关实体的进化，但只是从平均的角度来看，因为它采用的是它所受到影响的整体，而不是最好或最差的。一旦表明其意图与该群体建立联系的实体被这种能量吞没，由于缺乏更好的词，它假定其周围的能量内容。这等于所有相关实体的自我意识和进化内容的平均值。
+
 The result of this is that the new entity,the receiving entity,instantaneously jumps to that point of the evolutionary content of the surrounding energy from the perspective of the average because that is what the energy is-the average.If the new entity naturally has an evolutionary or self-awareness content that is above that of the average,then the average is increased to that of the new average of the new total of associated and collaborative entities. If the entity is below the average,it is pulled up to the average.It does have to be noted here that the individual content of the individual entities are not affected in a negative fashion within this process.A highly evolved entity,therefore,will not lose its evolutionary level or content because a new entity of an evolutionary content lower than that of the average is accepted into the group.Neither will it be increased,unless of course,the average evolutionary content is increased in some way to a level above its own.A new entity requesting acceptance always will be accepted.
+
+其结果是，新的实体，接收实体，立即跳到周围能量的进化内容的平均值，因为这就是能量的平均值。如果新的实体自然具有进化或自我意识的内容高于平均值，那么平均值将增加到新总的关联和协作实体的新平均值。如果实体低于平均值，它将被拉到平均值。这里必须指出的是，在这个过程中，个体实体的个体内容不会受到负面影响。因此，一个高度进化的实体不会因为一个进化内容低于平均值的新实体被接受到群体中而失去其进化水平或内容。当然，除非平均进化内容以某种方式增加到高于自身的水平，否则它也不会增加。一个请求接受的新实体总是会被接受。
 
 Triangulation is possible primarily because of the availability of "free energy,"energy that is of The Origin and particularly sensitive to the influences of evolutionary content and an energy peculiar to those entities destined to become self-aware and,therefore,sentient. Free energy exists between and surrounding evolving entities.It is within and without the environment they exist in.Free energy is particularly attracted to evolutionary content and,therefore,follows sentient entities around as they move and evolve within their environment,or not as the case may be. 
 
+三角测量之所以可能，主要是因为“自由能量”的可用性，“能量”是起源的，对进化内容的影响特别敏感，是一种专属于那些注定要成为自我意识和有意识的实体的能量。自由能量存在于进化实体之间和周围。它在它们存在的环境中和环境之外。自由能量特别被进化内容吸引，因此，随着有意识的实体在其环境中移动和进化，或不随其移动。
+
 Triangulation works in two main ways;"Directional Triangulation"and "Inflational Triangulation."I will explain further even though I know that you will be aware of the process. 
+
+三角测量主要有两种方式：“定向三角测量”和“膨胀三角测量”。尽管我知道你将意识到这个过程，但我还是会进一步解释。
 
 **Directional Triangulation** occurs when a single entity desires association with another single entity or group of entities that are interacting in a collaborative way or venture. Primarily,its function is directional and between the requesting entity and the group or singular entity.It does have a secondary function though-to include in its association those entities that are in the direct path of communication between the group and singular entities or between two entities that desire communion.In this instance,the entities that are caught in the path of the free energy are also added to the association and add to the averaging of evolutionary content or graduation of self-awareness.However,this function only works during the initial manifestation of the free energy link between the entities or the group and the entity.Entities that subsequently cross the path of the association of the free energy are not affected.Unless that is,they desire association and communion,in which case a new path is established.Directional triangulation is what happened to me.
 
+**定向三角化**发生在单个实体希望与另一个单个实体或一组实体以协作方式或风险进行交互时。首先，它的功能是定向的，并且在请求实体和组或单个实体之间。它确实有一个次要的功能，即在其关联中包括那些在组和单个实体之间或两个希望交流的实体之间直接通信的实体。在这种情况下，被困在自由能量路径上的实体也被添加到关联中，并增加进化内容的平均值或自我意识的分级。然而，这个功能只在实体或组与实体之间自由能量链接的初始表现期间有效。随后跨越自由能量关联路径的实体不受影响。除非它们希望关联和交流，在这种情况下，会建立一条新的路径。定向三角化就是发生在我身上的事情。
+
 **Inflational Triangulation** occurs when a number groups of entities desire association with one another simultaneously.In this instance,the area or space in between and around them attracts the free energy,flooding the area in between the groups.Should there be more than three groups,then the area inflated with free energy adopts the geometry relative to the positions of the groups rather than a simple triangle,which would,of course,be geometry relative to the position of three groups.In this function,a larger or super group is created.A super group is three or more groups triangulated together in evolutionary communion.As with directional triangulation,the groups create a free space which adopts an evolutionary content equal to the average.Again in similarity to directional triangulation,those groups and group entity members whose average evolutionary content is lower than that of the new average will have their own evolutionary content elevated to that of the new average. A highly evolved entity will not lose its evolutionary level or content because the new group triangulation evolutionary content lower than that of the average is accepted into the group. Neither will it be increased unless,of course,the average evolutionary content is increased in some way to a level above its own.In this instance,the entities that are caught in the area of the free energy are also added to the association and add to the averaging of evolutionary content or graduation of self-awareness.However,as with Directional Triangulation,this function only works during the initial manifestation of the free energy flooding the area between the groups of entities.Entities that subsequently cross the area of free energy are not affected.Unless that is,they desire association and evolutionary communion.Then a new path is established,linking them to an established group.
+
+**膨胀三角化**发生在许多组实体希望同时与其他实体关联时。在这种情况下，它们之间的区域或空间和周围的区域吸引了自由能量，淹没了群体之间的区域。 如果有超过三个群体，那么这个充满自由能量的区域采用了与群体位置相关的几何形状，而不是一个简单的三角形，当然，这是与三个群体位置相关的几何形状。 在这个功能中，创建了一个更大的或超级群体。 一个超级群体是三个或更多的群体在进化交流中三角化在一起。 与方向三角化一样，这些群体创造了一个自由空间，其进化内容等于平均水平。 再次与方向三角化相似，那些平均进化内容低于新平均水平的群体和群体实体成员将有自己的进化内容提升到新平均水平。一个高度进化的实体不会因为新的群体三角化进化内容低于平均水平被接受到该群体中而失去其进化水平或内容。 当然，除非平均进化内容以某种方式提高到高于自身的水平，否则它也不会增加。在这种情况下，被困在自由能量区域的实体也被加入到协会中，并增加进化内容或自我意识程度的平均值。然而，与方向三角测量一样，这种功能只在自由能量淹没实体群之间的区域的初始表现期间有效。随后跨越自由能量区域的实体不受影响。除非它们渴望协会和进化交流。然后建立一条新路径，将它们连接到一个已建立的团体。
 
 In both Directional Triangulation and Inflational triangulation,those entities that are "caught"in the path of The Original manifestation of the free energy into an evolutionary content have their own evolutionary and graduation of self-awareness increased to that of the average,should their own be lower.If their own content is higher,then they will retain their own levels.In terms of Directional Triangulation,they will remain in the "link" path of the free energy or will move into the group closest to them.In terms of Inflational Triangulation,they will remain in the "area"of the free energy creating the super group. 
 
+在方向三角测量和膨胀三角测量中，那些在自由能量进入进化内容的原始表现路径上“被困”的实体，如果它们自己的进化内容较低，则它们自己的进化内容和自我意识程度会增加到平均水平。如果它们自己的内容较高，则它们将保留自己的水平。在方向三角测量中，它们将保持在自由能量的“链接”路径上，或将移动到最接近它们的团体中。在膨胀三角测量中，它们将保持在自由能量创造超级团体的“区域”中。
+
 Triangulation also works on a much larger scale when super groups link together,linking the area in between themselves with free energy in either a directional or inflational triangulation. 
+
+三角测量在更大的尺度上也起作用，当超级团体连接在一起时，用自由能量在方向或膨胀三角测量中连接他们之间的区域。
 
 These functions are not limited to being within a specific frequency or dimension or, indeed,any other environmental component because free energy crosses these boundaries and ultimately assists in whole civilizations ascending into new frequency levels before they could have achieved it themselves. 
 
+这些功能不限于特定的频率或维度，或者，事实上，任何其他环境成分，因为自由能量跨越这些边界，最终帮助整个文明提升到新的频率水平，而他们自己无法做到。
+
 ME:So this free energy sort of"morphs"into that which it needs to be to aid the evolutionary content of those entities that find themselves within its "perimeter"or "line of fire,"so to speak. 
+
+我：所以这种自由能量有点“变形”，成为它需要帮助的进化内容，这些实体发现自己处于它的“周边”或“火力线”之内。
 
 SE10:Yes. 
 
-10号源实体：
+10号源实体：是的。
 
 ME:And this is how you jumped those seven epochs of evolution? 
 
-我：
+我：这就是你如何跳过那7个进化阶段？
 
 SE10:You have already asked this question,but yes.I was elevated as a result of the function of directional triangulation.I must add here that the use of the word "triangulation"is actually meaningless in this instance,but it is a good enough description for you to use since it is relative to a function that you can relate to.But let me see,yes,I might retract that statement. 
 
-10号源实体：
+10号源实体：你已经问过这个问题了，是的，我被提升是因为方向三角定位的功能。我必须补充的是，在这个例子中使用“三角定位”这个词实际上是没有意义的，但对你来说这是一个足够好的描述，因为它与一个你可以联系到的功能有关。 但让我看看，是的，我可能会收回那个说法。
 
 ME:What!Why? 
 
-我：
+我：什么！为什么？
 
 SE10:Because the mechanics of the function of the triangulation phenomena are actually described by the third dimensional geometric. 
 
-10号源实体：
+10号源实体：因为三角函数的力学现象实际上是用三维几何来描述的。
 
 ME:So how does it do this?What are the mechanics around this sort of function? 
 
-我：
+我：我是这么做的？这种功能的机制是什么？
 
 SE10:It is too delicate for you to comprehend,but I will do my best to give you a suitable example. 
 
-10号源实体：
+10号源实体：这个问题太微妙了，你很难理解，但我会尽力给你一个合适的例子。
 
 The name for the energy I called "free energy"was actually a rather loose term.Free energy is that energy that is both unused in ANY way and that is easily manipulated by the function of an entities"desire."Desire is that point in the creativity process that precedes action.It is also one that is not governed by the law of thought. 
 
+我称之为“自由能量”的能量实际上是一个相当宽泛的术语。自由能量是指那些既没有以任何方式使用，又很容易被某个实体的“欲望”所操纵的能量。欲望是创造过程中先于行动的那个点。它也不受思想法则的支配。
+
 ME:Why is triangulation described by a three dimensional geometric shape? 
 
-我：
+我：为什么三角测量法用一个三维几何形状来描述？
 
 SE10:Because that is how the functionality of direct triangulation is best described.I can see you are frowning. 
 
-10号源实体：
+10号源实体：因为这是直接三角测量功能的最佳描述。我能看到你皱眉了。
 
 ME:I have to advise you that I am somewhat lost,and you haven't even started yet.
 
-我：
+我：我不得不告诉你，我有点迷茫了，而你甚至还没开始。
 
 SE10:OK,I will keep it simpler then.Each geometric represents the following basic information when it is used as a program for creation,so to speak.Here are the basics of what each geometric represents: 
 
-10号源实体：
+10号源实体：好的，我会保持简单。每个几何图形代表以下基本信息，当它被用作一个创造的程序时，可以说。这是每个几何图形代表的基本内容：
 
 The basic energy set employed is this: 
 
@@ -6221,591 +6248,675 @@ The basic energy set employed is this:
 - Its natural positional status in relation to a particular Source Entity or The Origin;
 - Its sentience possibility factor. 
 
+所采用的基本能量集是：
+
+- 每个单个能量的构造；
+- 每个能量之间的兼容性；
+- 每个能量与特定频率的兼容性；
+- 每个能量与事件空间的组件的兼容性；
+- 每个能量与其最近连续体的兼容性；
+- 对于某些类型和水平的创造力，能量的最佳组合；
+- 哪些能量与哪些频率同时兼容；
+- 操纵每个能量需要什么水平的意识；
+- 分心内容是什么(这是衡量一个能量在它所期望的角色中保持在适当位置的能力，而不被其他兼容能量/频率和维商的吸引力分心)；
+- 考虑到上述项目，能量集组装时的功能；
+- 在没有“维护”基础操作的情况下，在已知配置中预期寿命与期望寿命的比较；
+- 在已知配置中，基于维护操作的预期寿命；
+- 单独使用时，单个能量的主要和最佳功能；
+- 个人能量在太阳操纵/合金/非功能状态下的基本结构；
+- 个人能量在与另一种能量/频率/维度/连续体相互作用时的基本结构，有或没有“意图”或“欲望”的想法影响它；
+- 它与特定的源实体或起源相关的自然位置状态；
+- 它的知觉可能性因素。
+
 In the instance of that energy called "free energy"and its use in the triangulation phenomenon,it is an un-programmed energy that is almost,but cannot quite be classified, as"Original Manifestation/Material"and is,therefore,as close to being OM as it can without actually being OM. 
+
+在被称为“自由能量”的能量实例中，以及它在三角测量现象中的使用，它是一种未编程的能量，几乎可以被归类为“原始表现/物质”，因此，它尽可能接近OM，而又不真正成为OM。
 
 ME:Does that mean that free energy is sentient as well?Just like the OM in their various types?
 
-我：
+我：这是否意味着自由能量也有知觉？就像OM的各种类型一样？
 
 SE10:No,not quite.You see,this is an energy that is entirely adaptable to the desires of surrounding sentient entities;it is pure and untainted in every respect.Its only purpose is to support that of the entities it decides to associate itself with,and it particularly prefers to associate itself to imminent evolution. 
 
-10号源实体：
+10号源实体：不，不完全是。你看，这是一种完全适应周围有情的欲望的能量；它在各个方面都是纯洁无瑕的。它的唯一目的是支持它决定与之联系的实体，它特别喜欢与即将到来的进化联系在一起。
 
 ME:Imminent evolution? 
 
-我：
+我：即将到来的进化？
 
 SE10:Yes,imminent evolution.Every entity that is due for an evolutionary shift,that is,an evolutionary shift in both a positive and a negative way has what you might call an aura around it.This aura is the "immediacy"of its evolutionary condition.When an entity is due to evolve or in some cases,devolve(de-evolve),it has a sense of anticipation about it. It knows in every way although in some instances,the "incarnate entity"-that part of the entity that is associated with the physical-is not cognizant that it is about to evolve in some dramatic way.When this is apparent,the free energy is attracted to it.Think of the free energy as the insect you call a mosquito on Earth.It is happy just being a harmless insect most of the time;however,when it is aware of the presence of an animal of the flesh, it is drawn to it in an inexplicable way with its only desire being to drink the blood of that animal.It is most persistent in its desire to partake of the blood of the animal it has sensed. This is the same to some extent for the free energy.The entity that is due to evolve is different in some way.It has the immediacy of evolution about it,and it is this immediacy that the free energy is drawn to.Whether it is evolution or devolution is not an issue to the free energy;it just senses the opportunity for a close and imminent change of evolutionary content of the entity.Once it senses this "difference"in the aura of the imminently evolving entity,so to speak,it takes the path of least resistance to it.
 
-10号源实体：
+10号源实体：是的，即将到来的进化。每一个即将进化的实体，即积极和消极的进化，都有一个围绕它的光环。这个光环是其进化条件的“即时性”。当一个实体即将进化或在某些情况下，退化(反进化)，它有一种预期感。它知道在任何方面，尽管在某些情况下，“化身实体”——实体与物质相关的部分——没有认识到它将以某种戏剧性的方式进化。当这变得明显时，自由能量被吸引到它身上。把自由能量想象成地球上叫做蚊子的昆虫。大多数时候它只是一个无害的昆虫，它很高兴；然而，当它意识到有肉的动物存在时，它以一种无法解释的方式被吸引，它唯一的愿望就是喝那动物的血。它最持久的愿望是分享它感知的动物的血。在某种程度上，这对自由能量来说是相同的。它具有进化的即时性，而自由能量正是被这种即时性所吸引。对于自由能量来说，无论是进化还是下放都不是问题；它只是感觉到这个实体的进化内容即将发生变化的机会。可以说，一旦它感觉到这个即将进化的实体的气氛中的“差异”，它就会采取阻力最小的途径。
 
 ME:What is the path of least resistance?For me,that would be in close contact with the entity or in direct line with the entity about to evolve and those entities that are potentially causing the evolution. 
 
-我：
+我：阻力最小的路径是什么？对我来说，那将是与实体的密切接触，或与即将进化的实体和那些潜在导致进化的实体的直接联系。
 
 SE10:Spot on,and this is how the triangulation process works.The free energy,sensing the location of the entity in the process of immediate evolution,also senses the location and the relative position of itself and the entities that are going to cause the evolution of the entity being subject to the immediacy of evolutionary content should the free energy become the link between the two(as in the case of directional triangulation).Or,in the case of inflational triangulation,it senses the need to flood an area in-between a number of entities or groups of entities that are or have the potential to influence each other from an evolutionary perspective in totality,together with other entities that find themselves in the"line of fire" or area of "flood"also benefitting by pure association of location. 
 
-10号源实体：
+10号源实体：说到点子上了，这就是三角测量法的工作原理。自由能量，感知到实体在即时进化过程中的位置，也感知到自身的位置和相对位置，以及那些将导致实体进化的实体，如果自由能量成为两者之间的联系(如定向三角测量法)，则该实体将受到进化内容的即时性影响。或者，在膨胀三角测量法中，它感知到需要淹没一些实体或实体组之间的区域，这些实体或实体组从进化角度来看是或有潜力相互影响，以及其他发现自己处于“火线”或“洪水”区域的实体，这些实体也受益于纯粹的位置关联。
 
 ME:Are you suggesting that triangulation does not happen without this "free energy" sensing the location of the,how shall I call it,the potential donor of evolution and the potential receiver of evolution and quite literally "getting in the way"or getting in-between them,bridging the gap? 
 
-我：
+我：你是说如果没有这种“自由能量”来感应进化潜在捐赠者和进化潜在接受者的位置，三角测量就不会发生吗？我该怎么称呼它呢？它会“挡在中间”或“夹在中间”，填补差距。
 
 SE10:In a way,yes-but in a way,no.Let me explain.Free energy,although not being totally sentient,does have a rudimentary level of intelligence.It is not the sort of intelligence that an entity of your standing may be endowed with,but it nevertheless does have a rudimentary level of intelligence.This intelligence is used for judging the best place to be to both benefit from the jump in evolutionary content of the entity or entities involved,but it also ensures that it is in the right place for it to happen in a timely way. 
 
-10号源实体：
+10号源实体：在某种程度上，是的，但在某种程度上，不是。让我解释一下。自由能量，虽然不是完全有意识的，但确实有一种初级的智力。它不是那种你所处的实体可能被赋予的智力，但它确实有初级的智力。这种智力用于判断最佳地点，既能从所涉及的实体的进化内容的跳跃中获益，又能确保它在正确的地点以便它能及时发生。
 
 ME:The free energy initiates the evolutionary jump then? 
 
-我：
+我：那么自由能量就开始了进化的跳跃？
 
 SE10:Yes,and in this way,it benefits from the change in evolutionary content of the entity or entities in question.You see,free energy also evolves in a rudimentary way. 
 
-10号源实体：
+10号源实体：是的，这样，它从一个或多个实体的进化内容的变化中获益。你看，自由能量也以一种原始的方式进化。
 
 ME:How does it do that? 
 
-我：
+我：它是如何做到这一点的？
 
 SE10:Quite literally by keeping up with the changes in the evolutionary content of those entities with whom it associates up or down the evolutionary ladder.However,there is more you should know about this energy.When it is in the presence of an entity or group of entities that are about to make an evolutionary jump,one of two things happens.In the event that the evolutionary jump is in a positive fashion,it adopts the new level of evolutionary content of the entities that it associated itself with for the purpose of the triangulation effect.Once this has happened,it can move on to the next evolutionary jump by sensing the immediacy of an evolutionary jump in any other entities that it senses.That is,it disassociates itself with the entity or group of entities it helped to make the evolutionary jump by creating the triangulation link between the two sets or more of entities involved,whether it is by the direct triangulation effect or the inflational triangulation effect.If on the other hand,the evolutionary jump is in a devolutionary way because both directional triangulation and inflational triangulation works in a devolutional sense as well,then the free energy absorbs that evolutionary content that the entity or group of entities lose/s and stays within the new level of devolution where the entities find themselves,maintaining an active association with the devolved entities. 
 
-10号源实体：
+10号源实体：完全按照字面意思来解释，它跟随着那些与它在进化阶梯上或下关联的实体的进化内容的变化。然而，关于这种能量，你应该知道更多。当它在一个或一组即将进行进化跳跃的实体面前出现时，会发生两件事中的一件。如果进化跳跃是积极的，它会为了三角效应而采用与它关联的实体的新进化内容水平。 一旦发生这种情况，它可以通过感知任何其他实体的进化跳跃的即时性而移动到下一个进化跳跃。另一方面，如果进化跳跃是以一种下放的方式进行的，因为方向三角化和膨胀三角化在下放意义上也起作用，那么自由能量就会吸收实体或实体组失去的进化内容，并停留在实体发现自己的新的下放水平内，与下放实体保持积极的联系。
 
 ME:You mean it wins both ways;it is in a "win,win"situation.It takes on board the new evolutionary level of those entities that are in the position of making a progressive evolutionary jump and absorbs the lost evolutionary content of those entities that are in a negative evolutionary jump. 
 
-我：
+我：你的意思是它双赢；它处于“双赢”的局面。它接受了那些处于进行积极进化跳跃位置的实体的新进化水平，并吸收了那些处于消极进化跳跃位置的实体失去的进化内容。
 
 SE10:Yes that summarizes it nicely. 
 
-10号源实体：
+10号源实体：是的，这句话总结得很好。
 
 ME:You said that the free energy maintains its association with those "devolved"entities as well. 
 
-我：
+我：你说过自由能量也与那些“退化”的实体保持着联系。
 
 SE10:Yes. 
 
-10号源实体：
+10号源实体：是的。
 
 ME:Why does it do that?Surely,it would be better off staying in the higher evolutionary level and taking "another"rise upwards when other entities need the effect of triangulation to assist in singular or group evolution. 
 
-我：
+我：为什么要这样做？当然，它会更好留在更高的进化水平，并采取“另一个”上升当其他实体需要三角形效应来协助单一或群体进化。
 
 SE10:That would be the work of an entity that was capable of calculating what it needs to do to benefit from the demise of another so to speak.Since free energy is not an entity,per se,it is not capable of making such a calculated decision,especially a decision that would benefit itself above another. 
 
-10号源实体：
+10号源实体：这将是一个实体的工作，它能够计算出它需要做什么才能从另一个实体的消亡中获益。由于自由能量本身不是一个实体，它不能做出这样的计算决定，特别是一个将使自己比别人获益的决定。
 
 ME:So why does it stay with the newly devolved entity/entities? 
 
-我：
+我：那么为什么它会留在新移交的实体中？
 
 SE10:It is simply a function of the absorption of the evolutionary content.The evolutionary content is not the "property,"so to speak,of the free energy.It can absorb or adopt the evolutionary content of a devolving entity,but it cannot maintain or keep it forever.That is not the purpose of the free energy.In its absorption of the evolutionary content of the devolving entity,it creates an association,one that ensures that the devolved entity or group of entities still have eventual access to that evolutionary content that they have lost. The objective is that when they eventually regain their evolutionary ground or position and are back into a state of the "immediacy"of an evolutionary jump,a proportion of the evolutionary content of the free energy,that evolutionary content which was absorbed by the free energy from the devolving entity or group of entities,is returned to those entities, assisting in the positive evolutionary jump through a new triangulation by giving up that which it has been caretaker for. 
 
-10号源实体：
+10号源实体：它只是一个吸收进化内容的功能。进化内容不是自由能量的“属性”。它可以吸收或采用一个衰退实体的进化内容，但它不能永远保持或保持它。这不是自由能量的目的。在它吸收衰退实体的进化内容时，它创造了一个协会，一个确保衰退实体或实体集团仍然最终有机会获得他们已经失去的进化内容的协会。目标是当它们最终重新获得它们的进化基础或位置，并回到进化跳跃的“即时性”状态时，自由能量的一部分进化内容，即被自由能量从衰退实体或实体集团吸收的进化内容，被返回到这些实体，通过放弃它一直看护的东西，通过一个新的三角形来协助积极的进化跳跃。
 
 ME:So it also acts as a sort of evolutionary battery. 
 
-我：
+我：所以它也是一种进化的电池。
 
 SE10:That is one way of putting it. 
 
-10号源实体：
+10号源实体：这是一种说法。
 
 ME:But hold on here.By giving up that which it has absorbed for the benefit of that/those previously devolved entity/entities and assisting in a,for want of a better word,robust positive evolution,is it not helping those entities to ensure that it evolves itself?Isn't that calculating?Isn't that a sign of a higher level of sentience than that which you are telling me the free energy is capable of? 
 
-我：
+我：但是等一下。为了那些先前退化的实体的利益而放弃它所吸收的东西，并协助一个，为了更好的词，强有力的积极进化，它不是在帮助那些实体确保它自己进化吗？这不是算计吗？这不是比你告诉我的自由能所能达到的更高层次的感知能力的标志吗？
 
 SE10:Oh,so very well done! 
 
-10号源实体：
+10号源实体：哦，做得真好！
 
 ME:Free energy is sentient then? 
 
-我：
+我：那么自由能是有意识的？
 
 SE10:Yes,but not to the extent you are thinking of. 
 
-10号源实体：
+10号源实体：是的，但没有达到你所想的程度。
 
 ME:So it is sentient!
 
-我：
+我：原来是有感情的！
 
 SE10:Yes. 
 
-10号源实体：
+10号源实体：是的。
 
 ME:How sentient? 
 
-我：
+我：怎么有感觉？
 
 SE10:Not very,about as sentient as the incarnate human race. 
 
-10号源实体：
+10号源实体：不是很清楚，大概和转世的人类一样有知觉。
 
 ME:Well,I consider that as being very sentient. 
 
-我：
+我：嗯，我认为这是非常有知觉的。
 
 SE10:No,its not;it's barely awake. 
 
-10号源实体：
+10号源实体：不，它没有，它刚刚醒来。
 
 ME:Touche.Let me recover a moment.You mentioned something in the dialogue above about free energy having a purpose.Is its purpose being only to assist in the triangulation effect and be a storage medium,a "battery"for lost evolutionary content? 
 
-我：
+我：说到点子上了。让我稍微恢复一下。你在上面的对话中提到了自由能量有目的。它的目的是仅仅帮助三角效应，并成为一种存储介质，一个丢失的进化内容的“电池”？
 
 SE10:In the main,yes,but it is capable of much more.But that is not for this dialogue.You had better save that one for your discussion with The Origin. 
 
-10号源实体：
+10号源实体：大体上是的，但是它能做更多的事情。但是这不适合这个对话。你最好把那个留到你和“起源”讨论的时候。
 
 I made a mental note to do so.I was definitely going to get to the bottom of the functionality and "full"purpose of free energy! 
 
+我心里暗暗记着要这么做，我一定要弄清自由能源的功能和“全部”用途！
+
 ### Source Entity Ten's Environment and Entities 
+
+**10号源实体的环境和实体**
 
 ME:This is interesting.You seem to have copied the strategy that is similar to Source Entity Seven. 
 
-我：
+我：这很有趣。你似乎复制了与7号源实体类似的策略。
 
 SE10:No,it's not the same.Look closer at the structure and function. 
 
-10号源实体：
+10号源实体：不，不一样。仔细看结构和功能。
 
 I did as I was told and focused.What I saw was interesting to say the least.
 
+我照着他的话做了，集中注意力。我看到的至少是很有趣的。
+
 ME:This is interesting,to say the least.I see you as the outside of-I was going to say nucleus -but the word "atom"came into my mind;you are this universal spherical shape currently. Inside are your three environments.Hold on,they are rotating around each other.Is that correct? 
 
-我：
+我：至少这是很有趣的。我看到你在外面，我本来想说核，但我想到了“原子”，你现在是这个宇宙球形。里面是你的三个环境。等等，它们在互相旋转。对吗？
 
 SE10:Correct.Both words you used to describe it are applicable.Look deeper into their functionality,for things are not as static as they first appear. 
 
-10号源实体：
+10号源实体：正确。你用来描述它的两个词都是适用的。深入研究它们的功能，因为事情并不像它们第一次出现时那样静态。
 
 ME:You're right.How could I have missed that?Your three environments are not only rotating around each other but also they are rotating around each other in a most random and erratic way-rotating and counter-rotating,I have to add.There appears to be no known orbit.Wait a moment!Was that correct?Two of the environments appeared to collide with each other;they actually passed through each other.Now all three have collided together and passed through each other.You will have to tell me the function of this because I am starting to get a headache.Especially as I have just received the information that you are not the massive entity that I expected you to be-hence,the words"atom"and "nucleus" being in my mind. 
 
-我：
+我：你说得对，我怎么会没注意到呢？你的三个环境不仅在互相旋转，而且它们的旋转方式非常随机和不稳定，我不得不补充说，它们是旋转和反转。似乎没有已知的轨道。等一下！我说的对吗？两个环境似乎在互相碰撞，但实际上它们是相互穿过的。现在三个环境都互相碰撞并穿过对方。你必须告诉我这有什么作用，因为我开始头疼了。特别是我刚刚得到的信息，你不是我所期望的那种巨大的实体，因此我脑海中出现了“原子”和“核”这两个词。
 
 ### As Without,So Within 
 
+**无为而治**
+
 SE10:Good,I am pleased that you are picking up the additional information.I am not massive though;I am a normal size for a Source Entity.It's just that I use my "space"in an efficient way;hence,I appear compact in your mind's eye.You are correct though.These environments are designed to allow the entities that exist within them the opportunity to guide them(the environments)in some way.They are in control of the direction of their environment and how it interacts with those within the other two environments. 
 
-10号源实体：
+10号源实体：很好，我很高兴你能获得额外的信息。虽然我不是巨大的，我是一个正常大小的源实体。我只是以一种有效的方式使用我的“空间”，因此，我在你心目中显得紧凑。但你是正确的。这些环境的设计是为了让存在于其中的实体有机会以某种方式引导它们(环境)。它们控制着它们的环境的方向，以及它与其他两个环境中的实体如何交互。
 
 ME:So what are they doing? 
 
-我：
+我：那他们在干什么？
 
-SE10:They are essentially all going about their business and evolving as a consequence. The major difference between you and your fellow entities in SEl's environment is that all of these entities in all three environments are able to direct the movements of their environments and effect an interaction between the others as they feel fit.What's more, you also picked up on another factor here-my size.With this environment,I have three levels of size,so to speak.I will label the environments one,two and three and will describe them in linear singularity so that you will understand.It is quite simple,but it gets a little bit complicated for someone of your limited incarnate understanding,especially with the interaction of the three environments and what happens to the entities that are part of the function of interaction.The three environments are at three basic levels of existence energetically. 
+SE10:They are essentially all going about their business and evolving as a consequence. The major difference between you and your fellow entities in SE1's environment is that all of these entities in all three environments are able to direct the movements of their environments and effect an interaction between the others as they feel fit.What's more, you also picked up on another factor here-my size.With this environment,I have three levels of size,so to speak.I will label the environments one,two and three and will describe them in linear singularity so that you will understand.It is quite simple,but it gets a little bit complicated for someone of your limited incarnate understanding,especially with the interaction of the three environments and what happens to the entities that are part of the function of interaction.The three environments are at three basic levels of existence energetically. 
 
-10号源实体：
+10号源实体：他们本质上都在做自己的事，并因此而进化，你和你在SE1环境中的同伴实体之间的主要区别是，所有这三个环境中的所有这些实体都能指导其环境的运动，并影响其他它们认为合适的实体之间的相互作用，更重要的是，你也注意到了另一个因素——我的大小，在这个环境中，我可以说有三个大小等级，我会把环境标记为一、二和三，并用线性奇点来描述它们，这样你就能理解了，这很简单，但对于你这种有限的化身理解的人来说，它会变得有点复杂，特别是这三个环境的相互作用，以及作为相互作用功能一部分的实体发生了什么。
 
 ### SE10's Three Environments 
 
+**SE10的三个环境**
+
 #### Environment One-Super Macro Environment 
+
+**环境一：超级宏观环境**
 
 The first environment is best described as a Super Macro environment.It exists in the same "space"as the other three but is based upon the energies that have what you would call a longer bandwidth.For instance,the energy you call gravity has a long bandwidth. This environment is only specific to those energies that exist on these "long"bandwidth frequencies and,hence,are why I have used the word "Super Macro."The energies in this environment tend to be of a functional rather than of an evolutionary nature.That is not to say that the entities within this environment are full of "functional"rather than "evolutionary"content.This is not the case.All entities that have sentience have an evolutionary content,no matter how small it is and how fast they accrue it.There is,of course,an effect on the dimensional aspect of the environment by these long bandwidth frequencies-a decrease in the "space available"in that area which is being supported by the environment. 
 
+第一个环境最好被描述为超级宏观环境。它与其他三个环境存在于相同的“空间”，但基于具有更长带宽的能量。例如，你称之为重力的能量具有很长的带宽。这个环境只特定于存在于这些“长”带宽频率上的那些能量，因此，这就是我使用“超级宏观”一词的原因。这个环境中的能量往往是功能性的，而不是进化的本质。这并不是说这个环境中的实体充满了“功能性”而不是“进化”的内容。事实并非如此。所有具有感知能力的实体都具有进化的内容，无论它有多小，积累得有多快。当然，这些长带宽频率对环境的维度方面产生了影响——环境支持的该区域的“可用空间”减少了。
+
 An aside:I note that you were about to use the words "increase the space available"when typing. 
+
+顺便说一句：我注意到你在打字时要使用“增加可用空间”这句话。
 
 ME:Yes,I was.That was me.I was trying to rationalize the effect that this would have on the space the environment has available by over laying that which I was receiving from you with my own thought process.I spotted this and removed myself from the channeling process. 
 
-我：
+我：是的，我是。那是我。我试图合理化这将对空间环境所能达到的效果，通过将我从你那里接收到的信息与我自己的思维过程重叠。我发现了这一点，并把自己从通灵过程中移除。
 
 SE10:Good.To remove one's self is good practice,for to include one's self can negate the information being sent to you.You would act as a discriminatory filter,a filter with no reference point to make the filter work,or in fact,be relevant to the information being presented.I will continue with this first environment. 
 
-10号源实体：
+10号源实体：很好，去除自我是个好习惯，因为包含自我会否定传送给你的信息。你将扮演一个歧视过滤器，一个没有参考点的过滤器，使过滤器工作，或者事实上，与呈现的信息相关。我将继续第一种环境。
 
 The Super Macro environment,although having a decrease in the useable "space,"is only limited in the total number of available long bandwidth frequencies.It is not limited in the "size"of its area,so to speak.These frequencies are not normally used by sentient entities in any Source Entity environment due to their slower speed of reaction when being manipulated.Consider them like a big boat on Earth,say a "super tanker."They are difficult to steer and take a long time in the turning.
 
+超级宏观环境，虽然在可用的“空间”中有所减少，但仅限于可用长带宽频率的总数。可以说，它在面积的“大小”上不受限制。这些频率通常不会被任何源实体环境中的有情实体所使用，因为它们在被操纵时的反应速度较慢。把它们想象成地球上的大船，比如“超级油轮”。它们很难驾驶，转弯需要很长时间。
+
 #### Environment Two-Macro Environment 
+
+**环境二：宏观环境**
 
 The second environment is best described as a Macro environment.As you can ascertain from the information I have just given you on the“super macro,”the“macro'”uses the frequencies that are to be considered as "normal"or middle width.These frequencies are those that are most frequently used by sentient entities and are preferred simply because they contain the most versatile sets of energies in their environments.They are a little bit medium,a little bit long whilst also being a little bit small.They are a hybrid of every classification of frequency and energetic function.In some respects,they are the most commonly used tools in the energetic tool box,and as a result,they bear the most fruit when working out those plans for evolutionary expansion. 
 
+第二种环境最好被描述为宏观环境。正如你能从我刚刚给你的关于“超级宏观”的信息中确定的那样，“宏观”使用被认为是“正常”或中等宽度的频率。这些频率是那些有情实体最经常使用和首选的频率，仅仅因为它们包含了环境中最通用的能量集。它们有点中等，有点长，同时也有点小。它们是每种频率分类和能量功能的混合体。在某些方面，它们是能量工具箱中最常用的工具，因此，在制定进化扩张计划时，它们会带来最多的成果。
+
 #### Environment Three-Micro or Sub-Macro Environment 
+
+**环境三：微观或亚宏观环境**
 
 The third environment is best described as a Micro or Sub-Macro environment.This environment uses all of the smaller bandwidth frequencies and the energies associated with them.This environment is particularly useful in gaining quick results.Because the frequencies are a very narrow bandwidth,the energies are inherently fast-much,much faster than those in the macro environment.In this environment,therefore,an entity can progress its evolutionary content in a most dramatic way,provided it is in control of the energies being used.Because these energies are fast,they are much more difficult to control and as a result,an entity needs to keep its energetic eye on the progress that is being made when using such energies.It is entirely possible for an entity to lose control of its evolutionary content when working with these energies because events can change so fast that they can cascade out of control in the blink of an energetic eye,so to speak. 
 
+第三种环境最好被描述为微观或亚宏观环境。这种环境使用所有较小的带宽频率和与之相关的能量。这种环境在获得快速结果方面特别有用。由于频率是一个非常狭窄的带宽，能量本质上是快速的-比宏观环境中快得多。因此，在这个环境中，实体可以以最戏剧性的方式推进其进化内容，前提是它控制着所使用的能量。由于这些能量是快速的，它们更难控制，因此，实体需要保持其能量眼睛在使用这种能量时所取得的进展。当使用这些能量时，实体完全有可能失去对其进化内容的控制，因为事件可以改变得如此之快，以至于它们可以在一个充满能量的眼睛眨眼之间失控。
+
 We will go into some detail with each of these environments in turn later in this dialogue, but I will advise you now.It is quite possible for an entity to be working on an evolutionary experiment in one environment,say the micro or sub-macro,and then suddenly find itself in another environment after a clash of environments,say the super macro.In this instance, the entity has to maintain a link (or memory)between that which it was working on in one environment whilst working on a new task in another with a completely different set of frequencies and subsequent energetic base.This is because when its "current"environment clashes with the previous environment and it find itself back in the first environment, it will need to re-commence its original or "previously current"work in that previous environment.In this instance,all entities MUST ensure that all work is both of a self- contained nature and automatic in function. 
+
+我们稍后会逐一讨论这些环境的细节，但我现在就给你们提个醒。一个实体很可能在一个环境中进行进化实验，比如微观或亚宏观环境，然后突然发现自己在环境的碰撞后进入了另一个环境，比如超宏观环境。在这种情况下，实体必须在它在一个环境中工作的同时，在另一个环境中完成一项新任务，而这个新任务的频率和后续的能量基础完全不同。这是因为当它的“当前”环境与之前的环境发生碰撞，它发现自己回到了第一个环境中，它将需要重新开始它在之前环境中的原始或“以前的当前”工作。在这种情况下，所有实体必须确保所有工作都具有自给自足的性质和自动运行的功能。
 
 In all three of these environments the entities are of the same relative size when they move from one environment to another,resulting from the collision between two or three environments.One other thing you need to know is that you have not been able to visualize the sphere that surrounds them,which,of course,is within my own energies.This sphere occupies a single area of space,dimensionally,frequentially and energetically,and,to some extent,"continuumly." 
 
+在所有这三个环境中，当实体从一个环境移动到另一个环境时，它们的相对大小是相同的，这是由两个或三个环境之间的碰撞造成的。你需要知道的另一件事是，你还没有能够想象出包围它们的球体，当然，这是在我自己的能量之内。这个球体占据了一个单一的空间区域，在维度上，频率上和能量上，在某种程度上，“连续地”。
+
 ME:You mean the three "rotating and counter-rotating"environments occupy the same space?
 
-我：
+我：你的意思是这三个“旋转和反转”的环境占据了相同的空间？
 
 SE10:Yes,hence,the Super Macro,Macro and Micro demarcations all occupy the same space concurrently but focus on the energies that are prevalent in the three frequency bandwidths previously described.The illustration you received of the three spheres rotating and counter-rotating around each other and at times clashing with each other is metaphorical only.But it does help you to understand,in some part,the functionality of the interaction of the three environments. 
 
-10号源实体：
+10号源实体：是的，因此，超宏观、宏观和微观界限都同时占据着相同的空间，但它们都集中在前述的三个频带宽度中普遍存在的能量上。 你所收到的三个球体相互旋转和反向旋转，有时相互碰撞的图示只是一个比喻。
 
 ### The Mechanics of Source Entity Ten's Environment/s 
 
+**10号源实体的环境机制**
+
 ME:You need to help me out here.If the environments all occupy the same space,how come they are rotating around each other in the way they are?This tells me that they are all separate. 
 
-我：
+我：你需要帮我一下。如果环境都占据了相同的空间，它们怎么会以这种方式相互旋转？这告诉我它们都是分开的。
 
 SE10:They are separately together and together they are separate. 
 
-10号源实体：
+10号源实体：他们分开地在一起，一起地他们是分开的。
 
 ME:Yes,I sort of understand.I have experienced this description before in my communications with the other Source Entities.It seems to be a common theme,that and the need to evolve in certain ways or indeed in any way possible.But it seems that they interact in a most interesting way,swapping entities as they "clash"with each other.The entities themselves find themselves transported between environments and still needing to maintain a link of some sort with the work that they were performing in the previous environment whilst embarking on new work and evolving in the process. 
 
-我：
+我：是的，我有点理解。我以前在与其他源实体的交流中经历过这种描述。这似乎是一个共同的主题，以及以某种方式或事实上以任何可能的方式进化的需求。但他们似乎以一种最有趣的方式相互作用，在彼此“碰撞”时交换实体。实体本身发现自己在环境之间传输，仍然需要与他们在以前的环境中执行的工作保持某种联系，同时开始新的工作并在过程中进化。
 
 SE10:I see that I will need to explain further.
 
-10号源实体：
+10号源实体：我明白我需要进一步解释。
 
 ME:That's why I am here. 
 
-我：
+我：这就是我来这里的原因。
 
 SE10:Clearly,but there are a number of concepts that you need to understand in the functionality of the three environments before I can continue with a description of their“separate”functionality. 
 
-10号源实体：
+10号源实体：很明显，但是在我继续描述这三个环境的“单独”功能之前，你需要理解这三个环境的功能中的许多概念。
 
-### Continuous Interaction,the Basis for Coping with Perpetual Change on All Levels. 
+### Continuous Interaction,the Basis for Coping with Perpetual Change on All Levels
+
+**持续的互动，应对所有层面的永久性变化的基础**
 
 SE10:The objective of these ever rotating environments is the need for the entity to both cope with and thrive in perpetual and ever-changing environmental conditions.This,as explained above,includes the need to maintain links with the previous work that was being executed in the last environment of domicile. 
 
-10号源实体：
+10号源实体：这些不断旋转的环境的目标是实体需要在永久性和不断变化的环境条件中应对和繁荣。这，如上所述，包括与之前在最后一个住所环境中执行的工作保持联系的需要。
 
 ME:Yes,I can see that the word "cope"is very operative here because in my mind's eye,I can see an image of thousands of links that look like pieces of string connecting the entity to a specific environment and its work there previously.In fact,it is hard to see past the links because there are so many of them.How do they cope? 
 
-我：
+我：是的，我可以看到“应对”这个词在这里非常有效，因为在我的心目中，我可以看到成千上万的链接的图像，它们看起来像一根根的绳子，将实体与特定的环境和它以前在那里的工作连接起来。事实上，很难看到过去的链接，因为它们太多了。他们如何应对？
 
 SE10:They learn how to cope in a most pronounced way. 
 
-10号源实体：
+10号源实体：他们学会了如何以最显著的方式应对。
 
 ME:What do you mean "Pronounced"? 
 
-我：
+我：“Pronounced”是什么意思？
 
 SE10:They literally "pronounce"their need to learn how to work within that sector of their new environment whilst maintaining their link/s with the previous work.This pronunciation is received by those entities that are in the new sector of domicile within the new or recently "transferred to"environment,as well as those who it was previously working with.This pronunciation is specific though to entities that the entity in question is working with or has previously worked with.New working associations are only accepted when there are no "known"associations at the new location.This pronunciation is the basis for the initial interaction between entities when creating links between the environments. 
 
-10号源实体：
+10号源实体：他们从字面上“发音”他们需要学习如何在新环境的部门内工作，同时保持与以前工作的联系。这种发音被那些在新环境或最近“转移到”环境中的新部门的实体所接受，以及那些以前与之合作的实体。这种发音对于实体正在与之合作或以前与之合作的实体来说是特定的。只有在新位置没有“已知”的协会时，才能接受新的工作协会。这种发音是创建环境之间联系时实体之间初始互动的基础。
 
 ME:Wow,I can see that the three environments,although separate,are indeed together. They are held together by myriad links between the entities and their work in previous sectors of their previous and existing environments.The links act almost like millions of bungee ropes.No,I have a better description.It is almost like they are striations of muscle,all operating at different angles in different dimensions and frequencies,moving through each other as a result of their base frequency.The frequencies of the striations are relative to the environment of initial pronunciation with the initial pronunciation being within that area or sector of the environment where the entity found itself immediately after it transferred from one environment to another after a clash of environments. 
 
-我：
+我：哇，我能看到这三个环境，虽然分开，但确实在一起。它们由实体和它们在以前和现有环境的以前部门的工作之间的无数联系连接在一起。这些联系就像数百万根橡皮筋。不，我有一个更好的描述。它就像是肌肉的条纹，都在不同的维度和频率下以不同的角度运作，由于它们的基本频率而相互穿过。条纹的频率与初始发音的环境有关，初始发音在环境的区域或部门内，实体在从一个环境转移到另一个环境后立即发现自己。
 
 SE10:Good,you are getting there.The primary objective of these links is,as previously described,to allow the entity to continue working with,albeit in a remote way,that work which it was previously concentrating on.However,they do much more than just provide a link. 
 
-10号源实体：
+10号源实体：很好，你正在理解。 这些链接的主要目的，如前所述，允许实体继续工作，尽管是以远程方式，它以前集中的工作。然而，它们做的远不止提供一个链接。
 
 ME:Don't tell me they are a communication medium. 
 
-我：
+我：别告诉我它们是一种交流媒介。
 
 SE10:More,they are a method of traversing,of circumnavigating the natural constraints presented to the entity when trying to work with,say,a super macro environmental frequency that is long in its frequency width when its current environment of domicile is within a sector of the sub-micro environment with its extremely narrow band frequencies Consider it like trying to steer a small boat in the open sea one moment and the next moment being required to steer a super tanker through a narrow channel. 
 
-10号源实体：
+10号源实体：更进一步，它们是一种穿越的方法，一种绕过自然限制的方法，当试图与，比如说，一个超宏观环境频率工作时，当其当前居住环境处于亚微观环境的一个扇区中，带宽极窄时，这种超宏观环境频率的频率宽度很长。想象一下，这就像一会儿在公海上驾驶一艘小船，一会儿又被要求驾驶一艘超级油轮通过一个狭窄的通道。
 
 This requirement to "flit"the attention of the entity from one environment to another is what they are learning to cope with.Imagine being in a location where you are in control of your environment to a certain extent one moment and then having to create a pronunciation the next moment to enable you to maintain the control of your work that you had "seconds previously"whilst struggling with working with the links to the environment and its interfaces that were relative to the sector of domicile in the clash previous to the one that you have just experienced.You are being pulled three ways both dimensionally and frequentially.Oh,yes,I forgot to mention that each of the three environments,the Super Macro,the Macro and the sub-macro or Micro are also on a set of different dimensions,each a replication of each other,but relative to the frequencies that are inflating them in the environments that they construct. 
 
+这种要求“飞”实体的注意力从一个环境到另一个环境是他们正在学习如何应对。想象在一个地方，你在某种程度上控制你的环境，然后下一刻不得不创造一个发音，使你能够保持对你的工作的控制，你有“几秒钟之前”，同时努力与环境的链接和它的接口，这是与你刚刚经历的冲突之前的住所部门有关的。你被拉到三个方向，在维度上和频率上。哦，是的，我忘了提及这三个环境中的每一个，超宏观，宏观和亚宏观或微观也是在一套不同的维度上，每一个都是彼此的复制，但相对于它们所构建的环境中膨胀它们的频率。
+
 ME:But isn't that difficult,working in three scales of environment concurrently? 
 
-我：
+我：但同时在三个尺度的环境中工作难吗？
 
 SE10:Yes,of course,it is difficult to work on three scales of environment concurrently. That is the whole point of it.The level of interaction with the different environments,their particular functionalities,and incumbent but temporary set of entities requires constant interaction. 
 
-10号源实体：
+10号源实体：是的，当然，同时处理三个尺度的环境是困难的。这就是它的全部意义所在。与不同环境的互动水平，它们的特定功能，以及现任但临时的实体集需要持续的互动。
 
 But let's take this to the next level of interaction.Multiply the level of interaction necessary to maintain control of the work being achieved in those separate and most differently scaled environments in a concurrent way by two,then three,then ten,then a hundred,then 1,000, then 10,000,then 100,000,then 1,000,000,etc.,etc.,etc.Imagine how hard it is to work with all of those links spread across all of the three environments,including the different sectors or areas of domicile that entities might find themselves within.Then stand back and consider the entities that they need to interact with to maintain those links and all those other links that the other entities are creating/have created,links that perhaps the entity in question has also been involved in maintaining/creating when the pronunciation for help comes from an entity that suddenly appears close by.That is difficult.That is the learning they are exposing themselves to,coping with everything concurrently,all at the same time, whilst coping with more. 
 
+但让我们把这个带到下一个互动的层次。将维持控制工作所需的互动层次乘以2，然后3，然后10，然后100，然后1000，然后10000，然后100000，然后1000000，等等，等等，等等。想象一下，要与所有这些分布在所有三个环境中的链接工作是多么困难，包括实体可能发现自己所在的不同部门或居住地区。然后退后一步，考虑一下它们需要与之互动的实体，以保持这些链接和其他实体正在创建/已经创建的所有其他链接，当一个实体突然出现在附近时，这个实体可能也参与了维护/创建的链接。这是困难的。这是他们正在学习的，同时应对所有的事情，同时应对更多的事情。
+
 ME:This sounds like an immense amount of work for an entity to perform!How does it manage it?I mean,coping is a word that I would not use in this context,for where I am standing,it would be nigh on impossible. 
 
-我：
+我：这听起来是一个实体要完成的巨大工作量！它是如何管理的？我的意思是，在这个语境中，我不会使用“应对”这个词，因为在我看来，这几乎是不可能的。
 
 SE10:That is the main purpose of the work-to cope with the neigh on impossible,but they do cope and they cope very well and become masters.An entity must be able to "multi-task" on a universal and later a multiversal scale if it is to become competent at evolving.This is a necessary process for it to work with,and one that will eventually see it standing side by side with me,so to speak,when The Origin's expansion of its area of self-awareness is activated. 
 
-10号源实体：
+10号源实体：这是工作的主要目的——应对几乎不可能的任务，但他们确实应对了，而且应对得很好，并成为了大师。一个实体必须能够在宇宙尺度上“多任务”，之后是多宇宙尺度上，如果它想在进化中变得有能力的话。这是它工作的一个必要过程，可以说，当起源自我意识范围的扩展被激活时，它最终会看到它与我并肩而立。
 
 ME:Now that's interesting.You are another Source Entity that appears to be planning for the expansion.I take it that your entities will have a role in this expansion.
 
-我：
+我：现在这很有趣。你们是另一个似乎正在计划扩张的源实体。我认为你们的实体将在这次扩张中扮演一个角色。
 
 SE10:Yes,of course.They will become Source Entities in their own right,as will many other entities.Right now though,they are on a multiversal training program in evolving through creating and maintaining tasks in many different ways in many different environments in a continuous and concurrent way.They also have another role to play in the maintenance of the three environments. 
 
-10号源实体：
+10号源实体：是的，当然。他们将成为自己的源实体，就像许多其他实体一样。现在，他们正在进行一个多维训练项目，以持续并发的方式在许多不同的环境中以许多不同的方式创建和维护任务。他们在维护这三个环境中还扮演着另一个角色。
 
 ME:Ah,yes,I thought there was something else.I have been receiving information that through the links between the entities and their work in the different environments,they can actually affect the relationship of the rotational direction and distance between the three environments. 
 
-我：
+我：啊，是的，我还以为还有其他的东西。我收到的信息是，通过实体之间的联系和他们在不同环境中的工作，他们实际上可以影响这三个环境之间的旋转方向和距离的关系。
 
 SE10:Yes,good.They can and do.What's more,and to take it further for you,the whole continuously changing relationship between the three environments is a result of the work of the entities and their links.The directional pull and rotation is a direct result of the emphasis placed on the proclamations being made when an entity finds itself in a new environment after a clash,for the pull is actually the result of a number of entities working together whilst also trying to maintain the evolutionary content of their own work and also trying to get back or return to their previous environment. 
 
-10号源实体：
+10号源实体：是的，很好。他们可以并且确实这样做了。更进一步地，为你解释一下，这三个环境之间整个不断变化的关系是实体及其联系工作的结果。方向上的拉力和旋转是当一个实体在冲突后发现自己在一个新的环境中所做的声明的直接结果，因为拉力实际上是许多实体一起工作的结果，同时还试图保持他们自己工作的进化内容，并试图返回到他们以前的环境。
 
 ME:And they are trying to do that every time they are "shifted"from one environment to another? 
 
-我：
+我：他们每次从一个环境“转移”到另一个环境时，都会尝试这样做吗？
 
 SE10:Yes,hence the myriad links between them,the three environments,and their work. And on top of this is the need to continually interact with each other to control the direction and rotation of the environments as a method of controlling and maintaining the myriad links to the work they are performing. 
 
-10号源实体：
+10号源实体：是的，因此他们之间，这三个环境和他们的工作之间有无数的联系。最重要的是需要不断地相互交流，以控制环境的方向和旋转，作为控制和维护他们正在执行的工作的无数联系的一种方法。
 
 ME:This all sounds a bit too convoluted to me! 
 
-我：
+我：这对我来说有点太复杂了！
 
 SE10:Believe me you are doing well in understanding this small part.There is much,much more!
 
-10号源实体：
+10号源实体：相信我，你理解这小部分已经很好了。还有很多很多！
+
+（图13：三个环境：超宏观、宏观、微观/亚微观以及环境和实体之间一些联系的例子）
 
 ![Figure 13: The Three Environments: Super Macro, Macro, Micro/Sub-Micro and Example of Some of the Links Between Environments and Entities](img/s6-048.png)
 
 ME:I believe you!We talked about the three environments of the Super Macro,Macro and Micro/Sub-Micro a few days ago when you illustrated the frequency characteristics that were associated with the three environments.Can you elaborate further and include the basis for existence in these three most different environments?
 
-我：
+我：我相信你！几天前，当你阐述了与这三个环境相关的频率特征时，我们谈到了超宏观、宏观和微观/亚微观这三个环境。你能进一步阐述并包括这三个最不同环境中存在的基础吗？
 
 SE10:Yes,of course.But note this first.These environments are not typical of that which you expect from using the words macro and micro for these relate to size and not to what I will call bandwidth and the frequencies associated with bandwidth,or indeed wave length. 
 
-10号源实体：
+10号源实体：是的，当然。 但首先请注意这一点。这些环境不是你从使用宏观和微观这两个词中所期望的典型环境，因为这些与大小有关，而不是我所说的带宽以及与带宽相关的频率，或者实际上是波长。
 
 ME:Fine.I think I have that one-just.I think the best way forward here would be the basis for existence in these environments rather than the nuts and bolts of the mechanics, although I can see that the mechanics may be interesting for some readers. 
 
-我：
+我：好，我认为我已经有了，我认为最好的方法是建立在这些环境中生存的基础，而不是机械的螺丝钉，尽管我可以看到机械可能对一些读者来说很有趣。
 
 ### The Basis for Existence in the Super Macro Environment 
 
+**超宏观环境中存在的基础**
+
 SE10:I will continue then.As previously stated,the basis or essence of existence in the Super Macro is the need for the entity to experience the difficulty in manipulating the energies in an environment where the frequencies are predominantly "long"in their bandwidth.A "long bandwidth"is not a description that you will have come across before,so I will need to describe the mechanics or meaning behind the use of this terminology before we can carry on with this and the other two sections.As you are already aware,bandwidth is the measure of the width of a range of frequencies,but a"long"bandwidth is specific to those frequencies with a long wavelength only within a specific bandwidth. 
 
-10号源实体：
+10号源实体：我将继续。如前所述，在超宏观环境中存在的基础或本质是实体需要经历在频率带宽主要为“长”的环境中操纵能量的困难。“长带宽”不是你以前遇到过的描述，所以在我们继续这个和其他两个部分之前，我需要描述这个术语背后使用的机械或意义。如你所知，带宽是测量频率范围宽度的标准，但“长”带宽只针对特定带宽内波长较长的频率。
 
 ME:Doesn't that affect the number of frequencies that can be used in a certain bandwidth then? 
 
-我：
+我：那这不会影响到在某一带宽内可以使用的频率的数量吗？
 
 SE10:Correct.There are a dramatically smaller number of frequencies available in the Super Macro environment.
 
-10号源实体：
+10号源实体：正确。在超级宏环境中可用的频率数量要少得多。
 
 ME:But wouldn't that make it slower in its functionality?Or even reduce the potential for simultaneous "frequency-based"environments? 
 
-我：
+我：但是这不会使它在功能上变慢吗？或者甚至减少同时“基于频率”环境的潜力？
 
 SE10:To some extent,yes,but we are talking about a completely different set of frequencies than that which you experience in your environment.However,we can refer to them in this way if this necessitates understanding. 
 
-10号源实体：
+10号源实体：在某种程度上，是的，但是我们正在谈论的频率与你在你周围环境中所经历的频率完全不同。然而，如果需要理解的话，我们可以这样称呼它们。
 
 ME:OK,thanks.Let's see how we go.We can always drop into Earth-based descriptions of terminology if we need. 
 
-我：
+我：好的，谢谢。让我们看看我们如何前进。如果我们需要，我们可以随时进入地球基础术语的描述。
 
 SE10:In this environment,the entity is working with those frequencies that,although are high in frequency,are long in wavelength.The example I gave earlier was gravity,a phenomena you have in your own physical universe for that which you call "attractivity." Attractivity is a common energy that is predominant in all three environments but is specific in scale to the wave length of the frequencies being used. 
 
-10号源实体：
+10号源实体：在这种环境中，实体与那些频率一起工作，尽管频率很高，但波长很长。我之前给的例子是重力，你在自己的物理宇宙中有一个现象，你称之为“吸引力”。吸引力是一种常见的能量，在所有三个环境中都占主导地位，但具体到所使用的频率的波长。
 
 In this environment the entities have to "wrestle"with the enormity of the constructs they create when using the energies associated with these wave lengths. 
 
+在这种环境下，当使用与这些波长相关的能量时，实体必须与他们创造的构造的巨大性“搏斗”。
+
 ME:Yes,I have just received the image of a huge component that an entity created for an even larger component of a massive construct.It was creating this with many others as well.They all needed to help each other with the manufacture of the "final assembly,"so to speak.Wait a moment.This component is really massive.I am just receiving an image of an example of how massive it is.If we use the Earth's solar system as an example of the scale they are working with,this component would span the distance between the Earth and Saturn.
 
-我：
+我：是的，我刚刚收到了一个巨大的组件的图像，一个实体为一个巨大的构造的更大组件而创建。它正在与许多其他实体一起创建这个。他们都需要在“最终组装”的制造中互相帮助。 等等。这个组件真的很大。我刚刚收到了一个它有多大的例子的图像。如果我们用地球的太阳系作为他们正在工作的规模的例子，这个组件将跨越地球和土星之间的距离。
 
 SE10:That would be a slight exaggeration,not in how big it is but in how small it isn't. 
 
-10号源实体：
+10号源实体：这有点夸张，不是说它有多大，而是说它没有多小。
+
+！[图14： 一个加固钢梁跨越五个星系的概念图像](img/s6-049.png)
 
 ME:What? 
 
-我：
+我：什么？
 
 SE10:Let me explain.In actuality this component as you call it is much bigger than that.Re-calibrate the focus of your mind's eye. 
 
-10号源实体：
+10号源实体：让我解释一下，实际上你所说的这个部分比那个大得多，重新调整你心灵之眼的焦点。
 
 ME:No way!Are those galaxies,or what would pass for galaxies in this environment? 
 
-我：
+我：不可能！这些是星系吗？或者说在这种环境下，能被称为星系的东西？
 
 SE10:Yes,but no.The objective is not to compare galaxy size but the relative size compared to that which you are aware of,which,in this instance,is the relative size and distance of some of the closest galaxies to your own,of which this component is relative to.The image you saw was an area of local density that appeared to be planetary in shape but was actually galactic in size.Your memory logged onto the overall shape and overlaid that which was recognized as "massive"in comparison to your physical size to that which you were being presented.In essence your brain got the scale wrong simply because it received the image of a galaxy that looked similar to that planet you call Saturn. 
 
-10号源实体：
+10号源实体：是的，但不是。目标不是比较星系的大小，而是与你所知道的相对大小，在这种情况下，是与你最近的一些星系的相对大小和距离，这个部分与之相关。你看到的图像是一个局部密度的区域，看起来像行星的形状，但实际上是银河的大小。你的记忆记录了整体的形状，并覆盖了与你的物理尺寸相比被认为是“巨大的”与你所看到的相比。本质上，你的大脑把尺度弄错了，只是因为它接收到了一个星系的图像，看起来像你称之为土星的行星。
 
 ME:That makes sense.But what doesn't make sense is the size of the entities.They were tiny in comparison,almost miniscule. 
 
-我：
+我：这说得通。但是说不通的是这些实体的大小。它们相比之下很小，几乎微不足道。
 
 SE10:Those entities are correct in scale for that particular environment.They may be small, but they are able to exist within and work with those long wave frequencies.In actual fact, they are beyond the scaling of the environment that they are working with because they need to be able to work with the scaling that is presented to them when working in any of the three environments and their associated bandwidths.
 
-10号源实体：
+10号源实体：这些实体在特定环境中的规模是正确的。它们可能很小，但它们能够存在于这些长波频率中并与之一起工作。事实上，它们超出了它们正在工作的环境的规模，因为它们需要能够在三个环境中任何一个环境中以及它们相关的带宽中工作。
 
 ME:And whilst they are working with this environment,they are also maintaining their links with other simultaneous work in the other two environments,plus that which they were previously working with in this environment. 
 
-我：
+我：当他们在这个环境中工作时，他们也保持着与其他两个环境中同时进行的工作的联系，以及他们之前在这个环境中工作的内容。
 
 SE10:Correct. 
 
-10号源实体：
+10号源实体：正确。
 
 ME:Phew.I wish my readers could have seen this image.The closest I can get to describing it is to tell them to imagine the biggest RSJ(Re-enforced Steel Joist)they can,and then imagine it spanning four or five galaxies!
 
-我：
+我：唉，我希望我的读者们能看到这张图片。我能做的最好的描述就是告诉他们去想象一个最大的RSJ(加筋钢托梁)，然后想象它跨越了四五个星系！
+
+（图14：跨越五个星系的钢筋桁架概念图）
 
 ![Figure 14: Conceptual Image of a Re-Enforced Steel Joist Spanning Five Galaxies](img/s6-049.png)
 
 SE10:That would be reasonable. 
 
-10号源实体：
+10号源实体：那会很合理的。
 
 ME:Thank you.If I were to put the "links"to the entities'work in the current and other environments to one side and concentrate on just the entities and what they are doing for a moment,that would make it simpler for me to convey.
 
-我：
+我：谢谢。如果我把这些实体在当前和其他环境中工作的“链接”放在一边，只专注于实体和他们正在做的事情，这会让我的表达更简单。
 
 SE10:That would be a reasonable thing to do.If I were in your shoes,so to speak,I would want to do the same. 
 
-10号源实体：
+10号源实体：那倒是一件合理的事。如果我处在你的地位，可以说，我也想做同样的事。
 
 ME:Good.So is everything that these entities work with massive in comparison to them? 
 
-我：
+我：很好。那么这些实体所做的一切与它们相比是巨大的吗？
 
 SE10:Only in terms of what you would call the physical representation of scale.The real basis for existence in this environment is learning to work with the longer energetic wave length and the subsequent reduction in available frequencies together with the scaling issues.The "size"of the entity is not the question here-more how it copes with the limitations of such an environment. 
 
-10号源实体：
+10号源实体：只在你所说的物理尺度的表征方面。在这个环境中存在的真正基础是学习与更长的高能波长一起工作，以及随后可用频率的减少和缩放问题。实体的“大小”不是问题所在，而是它如何应对这种环境的限制。
 
 ME:In this environment,I saw an entity with a component for a much larger construct. What was that construct? 
 
-我：
+我：在这个环境中，我看到一个实体有一个组件，是一个更大的构造。那个构造是什么？
 
 SE10:The actual construct is immaterial in this instance,for it is not the means to an end.It is simply a tool for the entity to use whilst in this particular sector of this environment.It is something to do whilst being there.Think of it in terms of the need to do a crossword puzzle whilst you are on holiday.It is something that allows you to exercise the mind whilst not being within the stressful situation of needing to "deliver"an end product within a known or agreed upon timescale. 
 
-10号源实体：
+10号源实体：在这种情况下，实际的构造是不重要的，因为它不是达到目的的手段。它只是实体在这种环境的特定部门中使用的工具。它是在那里做的事情。把它想象成你在度假时需要做填字游戏。它是让你锻炼大脑的东西，而不会处于需要在已知或商定的时间内“交付”最终产品的紧张情境中。
 
 ME:So the constructs have no function? 
 
-我：
+我：所以这些结构没有任何功能？
 
 SE10:They have function;they would not be constructs if they did not have a function of some sort. 
 
-10号源实体：
+10号源实体：它们有功能；如果它们没有某种功能，它们就不是构造。
 
 ME:So what is the function of these super macro constructs?
 
-我：
+我：那么这些超宏结构的功能是什么呢？
 
 SE10:To focus the attention. 
 
-10号源实体：
+10号源实体：集中注意力。
 
-ME:That's it?To focus the attention? 
+ME:That's it? To focus the attention? 
 
-我：
+我：就这样？为了集中注意力？
 
 SE10:Correct.You see,when an entity is in the position of needing to be in control of multiple workloads within multiple environments,it needs something to focus its attention on whilst it is in the environment that it finds itself in,for it could easily find that its focus on its current location is lost,the previous location and workload taking some level of priority over the more immediate priority of working in the new sector within the new environment.Consider it an anchor,what you would call "being grounded." 
 
-10号源实体：
+10号源实体：正确。你看，当一个实体处于需要控制多个环境中的多个工作负载的位置时，它需要一些东西来集中注意力，同时它在它发现自己所处的环境中，因为它很容易发现它对当前位置的关注是丢失的，以前的位置和工作负载在新环境中的新部门中比更直接的工作优先级有某种程度的优先级。把它当作一个锚，你可能会称之为“被接地”。
 
 ME:Ah yes,that works.I can relate to that.I have one final question before we move on to the Macro environment. 
 
-我：
+我：啊，是的，这很有效。我可以联系到这一点。在我们进入宏观环境之前，我还有最后一个问题。
 
 SE10:Fire away. 
 
-10号源实体：
+10号源实体：开火吧。
 
 ME:What happens to these constructs when they are finished or when the entity is transferred on to the next sector in the next environment? 
 
-我：
+我：当这些构造完成或当实体被转移到下一个环境中的下一个部门时，会发生什么？
 
 SE10:If the construct is to all intents and purposes finished,it is either assigned to be a smaller component in a larger construct,or it is perpetuated in some way so as not to lose the link between those entities that still need to experience that which they were working on in this environment.On the other hand,if there are entities that no longer need it,even though they are working on it or have actually finished that which they were working on with that particular construct,it is reduced back to its components'energies for the next set of entities to use in a new construct.
 
-10号源实体：
+10号源实体：如果一个构造已经完全完成，它要么被分配到一个更大的构造中作为一个更小的组件，要么以某种方式永久保存，以便不丢失那些仍然需要在这个环境中进行操作的实体之间的联系。 另一方面，如果有实体不再需要它，即使它们正在使用它或已经完成了它们正在使用这个特定构造的操作，它将被还原为其组件的能量，以供下一组实体在一个新的构造中使用。
 
 ### The Basis for Existence in the Macro Environment 
 
+**在宏观环境中存在的基础**
+
 ME:OK,thank you for the clarification.I find it really interesting that entities create something just to maintain their high level of concentration. 
 
-我：
+我：好的，谢谢你的澄清。我发现实体创造一些东西只是为了保持它们的高度集中，这真的很有趣。
 
 SE10:I don't see why.Humankind does it all of the time;it's quite a common pastime. 
 
-10号源实体：
+10号源实体：我不明白为什么。人类一直都在这样做，这是一种很普通的消遣。
 
 ME:Yes,I see.But then I don't.Ah!Do you mean physically or energetically? 
 
-我：
+我：是的，我明白了。但是我没有。啊！你是指身体上还是精力上？
 
 SE10:Both.You need to concentrate on the physical to help maintain its usefulness.Let me explain.There are groups of races of entities in every Source Entity's environment whose role it is to maintain that environment for the benefit of those who wish to use it for their evolutionary benefit,and your physical universe is an excellent example of such an environment-its very existence is maintained by those who use it for their own needs. What I am getting to here is that the maintenance entities can only do so much in terms of the maintenance of their assigned environment.The rest,the "setting"the "stage,"so to speak,is achieved by those entities who are the"users"of the environment. 
 
-10号源实体：
+10号源实体：两者都有。你需要集中精力在物质上，以帮助维持它的有用性。让我解释一下。在每个源实体的环境中，都有许多种族的实体，它们的角色是维护那个环境，为了那些希望利用它来获得进化利益的人的利益，而你们的物质宇宙就是这样一个环境的绝佳例子——它的存在就是由那些为了他们自己的需要而使用它的人来维持的。我在这里要说的是，维护实体在维护他们所分配的环境方面只能做这么多。其余的，所谓的“设置”和“舞台”，是由那些环境的“用户”来完成的。
 
 In your environment everything that you see is created by you to help you concentrate on the task at hand to experience that which you decided to experience when in the physical.Every incarnate entity is working on two levels,the physical and the energetic. The physical is working as a self-correcting program in a computer while the energetic is assimilating the experiential data and collecting evolutionary content as a result.The physical and the energetic work together to create local changes to the environment needed to affect an optimized evolutionary experience.The collective local changes create a world environment. 
 
+在你们的环境中，你们所看到的一切都是你们创造的，以帮助你们集中精力于手头的任务，去体验你们决定在物质层上要体验的东西。每一个化身实体都在两个层面上工作，物质层和能量层。物质层就像电脑中的自我修正程序一样工作，而能量层则吸收经验数据，并收集进化内容。物质层和能量层共同工作，创造出对环境的局部改变，以影响优化的进化体验。集体的局部改变创造出一个世界环境。
+
 This world environment is maintained by the entities in the environment concentrating on the "individualized but nevertheless collective"requirement of a common construct that allows the evolutionary process itself to evolve to meet the needs of the evolutionary requirements of the individual and collective combined.In the "theatre"of physical existence,the "actors,"humankind,go about the business of adapting the stage of the theater on a daily basis.New buildings get built,and old ones are pulled down;new inventions are developed and made with old inventions being superseded and scrapped.The whole landscape is changing on a continual basis.This change is due to the need to create something to maintain the high level of personal and collective concentration necessary to perpetuate the function of,and,therefore,existence of,the theater and its various stages. This is what you all do in your physical environment;this is what my entities need to do as well.It's just that they do it in a different way,for they are experiencing a different kind of existence. 
+
+这个世界环境是由环境中的实体来维持的，它们集中于共同构造的“个性化但却集体的”需求，这种构造允许进化过程本身进化，以满足个人和集体结合的进化需求。在物质存在的“剧场”中，“演员”人类，每天都在调整剧场的舞台。新的建筑物被建造，旧的被拆除；新的发明被开发和制造，旧的发明被取代和废弃。整个景观在不断地变化。这种变化是由于需要创造一些东西来保持个人和集体的高度集中，这是使剧院的功能和它的各个阶段得以永存所必需的。这就是你们在你们的物质环境中所做的；这也是我的实体需要做的。只是他们做事的方式不同，因为他们正在经历一种不同的存在。
 
 ME:Wow,I didn't expect information about my own environment. 
 
-我：
+我：哇，我没想到还有关于我自己环境的信息。
 
 SE10:It is a useful comparator to use. 
 
-10号源实体：
+10号源实体：这是一个有用的比较器。
 
 ME:I thank you for taking the time and energy to explain it to me. 
 
-我：
+我：我感谢你花费时间和精力给我解释。
 
 SE10:It was a necessary pleasure.Now to the task of explaining the basis for my entities' existence in the Macro environment.
 
-10号源实体：
+10号源实体：这是必要的乐趣。现在来解释我的实体在宏观环境中存在的基础。
 
 The bandwidth and associated frequencies are essentially,and mostly from your perspective,neutral.This means that the energies that are available due to the "again" limited frequency set are more manageable.The constructs being created by the entities are closer to their own scaling,so to speak.This means the entities create things that are,in effect,useful to them on the scale that they normally exist within.To put it in a level of terminology that you can understand.Should the entity desire to exist for a period of time in a dwelling,the dwelling that is created would be relative to the energetic frequency of the entity and the area of energy it occupies within its current working environment.It would not be the size of a planet when it only needs to be the size of a house. 
 
+带宽和相关频率本质上，从你的角度来看，基本上是中性的。这意味着由于“再次”有限的频率集而可用的能量更容易管理。可以说，实体创建的结构更接近它们自己的尺度。这意味着实体创建的东西，实际上，对它们通常存在的尺度是有用的。把它放在一个你能理解的术语水平上。如果实体希望在一个住所中存在一段时间，那么创建的住所将与实体的能量频率和它在当前工作环境中占据的能量面积有关。它不会是一个行星的大小，而只需要一个房子的大小。
+
 ME:I see.So using the example of the RSJ in the last environment-it wouldn't span the galaxies;it would span the gap in the walls,so to speak. 
 
-我：
+我：我明白了。所以用上一个环境中的RSJ的例子——它不会跨越星系；它会跨越墙上的缝隙，可以这么说。
 
 SE10:That is one way of looking at it,yes. 
 
-10号源实体：
+10号源实体：这是一种看待它的方法，是的。
 
 ME:I can't help feeling that I am missing something here though.It's as if I know there is something else that I need to ask you to explain about the function of this/these environments.I can't quite get my head around it,but the explanations we have been using are not as accurate as I would like. 
 
-我：
+我：我忍不住觉得我在这里错过了什么。就像我知道我需要你解释一下这个/这些环境的功能。我不能完全理解它，但我们一直在使用的解释并不像我所希望的那样准确。
 
 SE10:They are not"accurate,"per se,for you would not be able to understand the intricacies of the details of this environment-even now after being exposed to the environments of the other nine Source Entities before me.This is a limitation of the physical and one that is difficult to work with.Think of it as trying to explain the functionality of the most modern computer to a human from the Dark Ages.It would be pretty much impossible.This is where I am with you. 
 
-10号源实体：
+10号源实体：他们本质上是不“准确”的，因为你们无法理解这个环境的细节的错综复杂——即使现在在我之前暴露在其他9个源实体的环境中。这是一个物理上的限制，而且很难处理。想象一下，试图向一个来自黑暗时代的人解释最现代的计算机的功能。这几乎是不可能的。这就是我和你们在一起的地方。
 
 ME:Thank you for that reference.I would like you to give it a go though. 
 
-我：
+我：谢谢你的推荐。我希望你能试一试。
 
 SE10:OK.Let's see what we can do.The scaling is a function of the length of the frequencies employed.To some extent,I will use the description I used in both the Super Macro and the Macro in the Micro as figurative examples rather than actuality.Although there is an element of correctness in the figurative illustrations used,the correctness is relative to the knowledge of the entity being taught,so to speak.In the example of the Macro environment, the length of the frequencies means that there are more frequencies available to the entity within the available bandwidth.Moreover,they are shorter than those used in the Super Macro. 
 
-10号源实体：
+10号源实体：好的，让我们看看我们能做什么。缩放是频率长度的函数。在某种程度上，我将使用我在超宏和微观中的宏中使用的描述作为比喻性的例子而不是实际情况。尽管在所使用的比喻性例子中有一个正确的元素，但这种正确性是相对于正在被教授的实体的知识而言的。在宏环境的例子中，频率的长度意味着在可用带宽内有更多的频率可供实体使用。此外，它们比超宏中使用的要短。
 
 This means that more detail can be added to that which is created by the entities engaging in the creativity process.Think of it in terms of an increase in base resolution.A good example would be the way an image of low resolution would appear pixelated in comparison to a higher resolution image that has,for instance,ten times the number of pixels available for the generation of the same image.In this instance,the increase in resolution means that the image loses its jagged edges and gains smooth edges instead.As with the example of the image,the quality of the work,the creative work,is much higher as a result of the increased number of frequencies available.Its resolution is increased and the scaling of that being created is capable of being reduced as a result. 
 
+这意味着可以添加更多的细节，由参与创造性过程的实体创建。从基本分辨率的增加的角度来考虑它。一个很好的例子是，与高分辨率图像相比，低分辨率图像会显得像素化，例如，生成相同图像的像素数量是高分辨率图像的10倍。在这种情况下，分辨率的增加意味着图像失去了锯齿状的边缘，获得了光滑的边缘。与图像的例子一样，由于可用频率的增加，工作的质量，创造性的工作，要高得多。它的分辨率提高了，因此被创建的规模能够被缩小。
+
 ME:So you are suggesting three things here:
 
-我：
+我：所以你在这里建议三件事：
 
 - 1.the Macro environment has more frequencies to work with as a result of the smaller wave length within the available bandwidth in comparison to the Super Macro;
 - 2.this reduction in wave length makes the scale of the constructs created by the entities both more manageable and more in keeping with their own size or scaling;
 - 3.the details behind the construct/s are increased due the increase of available materials which results in the increase of frequencies. 
 
+- 1.宏观环境有更多的频率，因为与超级宏观相比，在可用带宽内的波长更短；
+- 2.这种波长的减少使得实体创建的结构的规模更容易管理，也更符合它们自己的大小或缩放；
+- 3.由于可用材料的增加导致频率的增加，结构背后的细节也增加了。
+
 SE10:Good.Also note that the energies available also increase as a result of the increase in frequencies within that bandwidth,further increasing the available materials that can be used in the constructs. 
 
-10号源实体：
+10号源实体：很好。还要注意，由于带宽内频率的增加，可用能量也增加了，进一步增加了可用于结构的可用材料。
 
 ME:I have just picked up some additional information about the scaling that results from the change in wavelengths. 
 
-我：
+我：我刚刚得到了一些关于波长变化导致的缩放的额外信息。
 
 SE10:Go on. 
 
-10号源实体：
+10号源实体：继续。
 
 ME:The constructs being created in all three environments are essentially the same in shape and function.The concentration required to construct them is based upon the need to work on a new construct but using a different set of materials,so to speak.The materials being available are relevant to the energies manifested by the wave length of the frequencies obtainable in the bandwidth presented to the entity within its current environment.In essence,the building blocks used get bigger as a result of the scaling and the types of building blocks available.For instance,their shape and availability in different materials is changed as a result.Hence,the construct that spanned a couple of galaxies in the Super Macro would need to be this size to create it in the detail necessary to ensure that all its features and functions were incorporated into it using the available materials that result from the change or reduction in available frequencies and subsequent reduction in energies in that longer wave length environment.In the Macro,there are many more frequencies, energies and materials that can be used due to the smaller wave length of the frequencies in the available bandwidth,so the construct can be reproduced in all its functionality at a much smaller scale.That scale is only available as a result of the smaller wave lengths available in this environment;i.e,the building blocks are much smaller and have more variations in shape and material. 
 
-我：
+我：在所有三个环境中创建的构造在形状和功能上基本上是相同的。构建它们所需的集中是基于对一个新构造的需求，但使用了不同的材料，可以这么说。可用的材料与当前环境中呈现给实体的带宽中可获得的频率波长所表现的能量有关。本质上，由于缩放和可用的建筑块类型，所使用的建筑块变得更大。例如，它们在不同材料中的形状和可用性因此发生了变化。因此，在超宏观中跨越几个星系的构造需要这样的尺寸，以确保其所有特征和功能都纳入了使用可用材料的细节中，这些可用材料是由于可用频率的变化或减少以及在更长的波长环境中能量的减少而产生的。在宏观上，由于可用带宽中频率的波长更短，因此可以使用更多的频率、能量和材料，因此构造可以在更小的规模下复制其所有功能。 这种规模只能在这种环境中由于更小的波长而获得，即，构建模块要小得多，并且在形状和材料上有更多的变化。
 
 SE10:So to answer the question in a basic sense is that the basis for existence in the Macro is the ability to work with those frequencies,wave lengths and associated energies whose scaling is similar to that of the scaling of the entity itself.In essence,it is an anchor,a foundation for them to work with. 
 
-10号源实体：
+10号源实体：所以从基本意义上回答这个问题，在宏观存在的基础是能够与那些频率、波长和相关能量一起工作，这些能量的比例与实体本身的比例相似。本质上，这是一个锚，一个他们工作的基础。
 
 ### The Basis for Existence in the Micro or Sub-Macro Environment 
 
