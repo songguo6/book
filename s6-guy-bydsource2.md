@@ -6920,507 +6920,567 @@ SE10:So to answer the question in a basic sense is that the basis for existence 
 
 ### The Basis for Existence in the Micro or Sub-Macro Environment 
 
+**微观或亚宏观环境中存在的基础**
+
 ME:Right,it looks like I'm on a "roller"here.Can I describe what I am receiving from you about the last environment that you have called the Sub-Macro or Micro environment? 
 
-我：
+我：好吧，看起来我在这里像在“滚动”。我能描述一下我从你那里得到的关于最后一个环境的信息吗？你称之为亚宏观或微观环境。
 
 SE10:Before you start,I will very quickly explain the basis for existence in the Sub-Macro/ Micro environment. 
 
-10号源实体：
+10号源实体：在开始之前，我将非常快速地解释在亚宏观/微观环境中存在的基础。
 
 ME:Please do. 
 
-我：
+我：请吧。
 
 SE10:The basis for existence in the Sub-Macro/Micro is to be the link for the three environments of the Super Macro,Macro and Sub-Macro/Micro by using the frequencies, energies and materials available in the Sub-Macro/Micro environment.In essence,to be the strongest by being the smallest.OK,you carry on now;be my guest. 
 
-10号源实体：
+10号源实体：在亚宏观/微观环境中生存的基础是利用亚宏观/微观环境中的频率、能量和材料，成为超宏观、宏观和亚宏观/微观三个环境的连接点。本质上，就是做最小的那个，才能成为最强的那个。好了，现在你开始吧，请随意。
 
 ME:Thank you.From what I can see in my mind's eye this environment is a natural progression from the other two environments of the Super Macro and the Macro.That is,it uses the progressive movement down the wavelengths to produce more frequencies again that are within the available bandwidth,figuratively speaking-those frequencies that are of the short wavelength only,that is,are the "short"bandwidths.As with the other environments,the objective is to create the constructs necessary to hold their attention whilst in this particular section of the environment.Those constructs are similar to,if not the same as,those which were constructed in the other environments.The difference here is the need to concentrate on using the frequencies,energies and materials that are only available in this environment. 
 
-我：
+我：谢谢。从我脑海中看到的，这个环境是其他两个环境的自然发展，即超宏观和宏观。也就是说，它使用波长向下的渐进运动来产生更多的频率，这些频率在可用带宽内，比方说，这些频率只有短波长，也就是“短”带宽。与其他环境一样，目标是创造必要的结构，以保持他们的注意力，同时在这个环境的特定部分。这些结构类似于，如果不是相同的，那些在其他环境中构建的结构。这里的区别是需要集中使用频率，能量和材料，这些都只能在这个环境中使用。
 
 These "building blocks,"for want of a better word,are microscopic in comparison to those used in the Macro environment.In fact,I will recalibrate my description here;they would be classified as being sub-microscopic,the microscopic being also available in the Macro environment.One could classify it as being a "Sub-Nano"environment if a more understandable word was required. 
 
+这些“构建块”，由于缺乏更好的词，与宏观环境中所使用的那些相比是微观的。事实上，我将重新调整我的描述；它们将被归类为亚微观的，微观的也存在于宏观环境中。如果需要一个更容易理解的词，可以将其归类为“亚纳米”环境。
+
 SE10:Good.You are doing well.Please carry on. 
 
-10号源实体：
+10号源实体：很好。你做得很好。请继续。
 
 ME:Within this environment the same constructs can be created in their entirety but on a sub-microscopic basis.This allows the frequencies,energies and materials that are manifest in the environment to be used for areas of intricate details or areas of the construct where a higher resolution construct is necessary. 
 
-我：
+我：在这个环境中，可以以亚微观的方式创建完整的结构。这使得环境中的频率、能量和材料可以用于复杂细节的区域，或者需要更高分辨率的结构的区域。
 
 Hold on,this is interesting.Am I getting this right? 
 
+等等，这很有趣。我理解对了吗？
+
 At this level,or should I say within this environment,all constructs can be totally reproduced.By this I mean that a construct in the Super Macro can be totally reproduced in the Macro,and a construct in the Super Macro and the Macro can be totally reproduced in the Sub-Macro or Micro-right up to reproducing the scale of the construct.On the flip side though,a construct cannot be made to the same scale of the Macro in the Super Macro,and a construct cannot be made to the same scale as the Sub-Macro/Micro in either the Super Macro or the Macro. 
+
+在这个层面上，或者我应该说在这个环境中，所有的构造都可以完全复制。我的意思是，超宏观中的构造可以在宏观中完全复制，超宏观和宏观中的构造可以在亚宏观或微观中完全复制，直到复制构造的规模。另一方面，一个构造不能在超宏观中达到与宏观相同的规模，一个构造不能在超宏观或宏观中达到与亚宏观/微观相同的规模。
 
 SE10:Correct.That is a function of the frequencies,energies and materials available at the wavelengths specified as being prevalent in these three environments,but it is not one that is used.I will explain further.In the description of the basis for existence within this environment,I stated that it was to be the link between all three environments.In being this link,you start to see the bigger picture of what is being presented to the entity. 
 
-10号源实体：
+10号源实体：正确。这是频率、能量和材料的函数，这些频率和能量和材料在三个环境中普遍存在，但它不是被使用的频率。我将进一步解释。在描述这个环境中存在的基础时，我指出它是三个环境之间的联系。作为这个联系，你开始看到呈现给实体的更大的画面。
 
 ME:You are not saying that the three environments,although separate,are actually part of a singular function. 
 
-我：
+我：你的意思是这三个环境虽然是分开的，但实际上是一个单一功能的一部分。
 
 SE10:Did I not say that they were separately together earlier in this dialogue? 
 
-10号源实体：
+10号源实体：我不是说过他们在对话的前面是分开在一起的吗？
 
 ME:Yes,you did.I believe I also noted that the statement "separately together"was a common theme that had been used a number of times by the other Source Entities.
 
-我：
+我：是的，你说过。我相信我也注意到了“分别在一起”的说法是一个被其他来源实体多次使用的共同主题。
 
 SE10:Yes,interesting isn't it,for as we are all separate in our function,we are all ultimately together with The Origin.
 
-10号源实体：
+10号源实体：是的，很有趣不是吗？因为我们虽然各司其职，但最终我们都与原点在一起。
 
 I will continue.Your comment that the reproducibility of that which in the different environments is a function of the scale,frequencies,energies and materials is correct,but that is not the ultimate purpose of my environment "in totality.I will show you an image. 
 
+我继续，你所说的在不同环境中的再现性是规模，频率，能量和材料的函数，是正确的，但那不是我环境的最终目的，我将给你看一个图像。
+
 What I saw next was amazing.I saw the three environments overlaid upon each other in a way that I had not yet seen in the previous images that had shown the environments randomly spinning and rotating around each other.Their spinning and rotating was a function of the pull of the links the entities had created to link together the constructs they had made in the different sectors of the different environments.I now saw it all together.Each of the constructs was part of a bigger construct with each being a micro,small,medium,large,or super large part of a construct.This construct existed in all three environments concurrently but not simultaneously because each construct was in a different sector.As I looked closer,I saw something else that was both stunning and beautiful.When seen concurrently with the Macro and Super Macro,the small,Sub-Macro/Micro constructs acted as links between themselves and the Macro and Super Macro constructs.They were the sub-components that connected the bigger components together to create a bigger construct,which in turn,was used to create a bigger construct,and so on.In all instances,the constructs from the Sub-Macro/Micro were used as the connectivity between them. As I looked out even further,the Sub-Macro/Micro looked like a venial system,terminating in a cradle of some sort to attach the Macro or Super Macro component/construct to it.It all looked like one big living multiversal construct.
+
+接下来我看到的令人惊讶。我看到三个环境以一种我以前从未见过的方式相互重叠，这些环境显示了它们随机地围绕彼此旋转。它们的旋转和旋转是实体创造的链接的拉动功能，这些链接将它们在不同环境的不同部门中创建的构造连接在一起。现在我把它都看到了。每个构造都是一个更大构造的一部分，每个构造都是微观、小型、中型、大型或超大型构造的一部分。这个构造同时存在于所有三个环境中，但不是同时存在的，因为每个构造都在不同的部门。当我仔细观察时，我看到了一些既惊人又美丽的东西。当与宏观和超宏观同时看到时，小的、亚宏观/微观构造充当了它们自己与宏观和超宏观构造之间的链接。它们是将更大的组件连接在一起以创建更大的构造的子组件，反过来，它们被用来创建更大的构造，等等。在所有情况下，来自亚宏观/微观的构造被用作它们之间的连接。当我进一步观察时，亚宏观/微观看起来像一个微观系统，以某种摇篮的形式结束，将宏观或超宏观组件/构造附加到它上面。它看起来像一个巨大的活的多维构造。
 
 SE10:Very,very well done.Think of it as a 3D chess board.The objective of building the constructs is to build something that exists in all three environments simultaneously with certain parts being necessary in one of the other two environments both independently and concurrently.The ultimate construct is a singular environment that is constructed of all three environmental wavelengths,including the frequencies,energies and materials present in these environments-hence,the links between the entities,the environments they find themselves in,and the constructs they are working on. 
 
-10号源实体：
+10号源实体：非常，非常出色。把它想象成一个3D棋盘。构建构造的目标是构建一些同时存在于所有三个环境中的东西，其中的某些部分是其他两个环境中独立且并发的必要部分。最终的构造是一个单一的环境，它是由所有三个环境波长构建的，包括这些环境中的频率、能量和材料，因此，实体之间的联系，它们所处的环境，以及它们正在进行的构造。
 
 When I was initially typing this dialogue,I was not sure I was getting the right information at first.It seemed a bit haphazard,specifically since I was receiving additional information about the remaining Source Entities at the same time.(See "in closure"below.)I had specific concerns when I started to see the links between the three environments,the differences in their functions and the entities within them.It just didn't make sense to me.It was as if I had gotten the different Source Entities'information mixed up in some way.It wasn't until half-way through the explanation of the basis for existence in the Sub-Macro/micro environment that it all started to slot into place for me. 
 
+当我最初输入这个对话时，我并不确定我最初得到了正确的信息。这似乎有点偶然，特别是因为我同时收到了关于其余源实体的附加信息。(见下面的“结论”)当我开始看到这三个环境之间的联系，它们的功能和实体之间的差异时，我有一些特别的担忧。对我来说这没有意义。就好像我以某种方式把不同的源实体的信息混淆了。直到在亚宏观/微观环境中存在的基础的解释中途，我才开始明白。
+
 Source Entity Ten had explained its environment in three ways.It had separated out the basic structure of the environments into environmental functions based upon the frequencies available in the wavelengths specified within the bandwidths-clearly stating the functions of scaling.It had identified the evolutionary functions of the entities and the work necessary for them to evolve,and it had described the relationship of the Sub-Macro/Micro with the Macro and the Super Macro and ultimately the bigger picture-to create a construct that existed in three environments concurrently with each of the constructs being dependent on the other.The "coupe de gras"being what the entities were ultimately creating-a series of constructs that tied all three environments together,inextricably creating a single environment-hence,the need for the entities to work together to manipulate the positional location of the three environments and the inevitable swapping of entities.They were weaving a construct together-a mega-massive multiversal construct that was linked together by their own links.These links were the glue,so to speak,that held together their constructs-their contribution to the bigger construct,a co- joined environment that depended upon the linking together of the wavelengths,frequencies, energies and materials associated with the three different environments.They were creating a single environment out of the components of three.They were creating an environment that was more useful and functional as an evolutionary playground than that of the three environments in their singularity-thus,effectively disassembling that which was separate and creating a whole through the use of the materials available.They were learning how to reverse engineer a multiverse and evolving in the process. 
+
+10号源实体以三种方式解释了它的环境。它把环境的基本结构分离成环境功能，这些功能是基于带宽内指定波长中可用的频率——清楚地说明了缩放功能。它已经确定了实体的进化功能和它们进化所必须的工作，它描述了亚宏观/微观与宏观和超宏观的关系，并最终描绘了更大的图景——创造一个同时存在于三个环境中的构造，每个构造都依赖于另一个构造。 “草的切片”是实体最终创造的——一系列将所有三个环境绑在一起的构造，不可分割地创造了一个单一的环境——因此，需要实体一起工作，以操纵三个环境的位置和不可避免的实体交换。 它们正在编织一个构造——一个由它们自己的链接连接在一起的巨型多维构造。 这些链接可以说是粘合剂，将它们的构造结合在一起——它们对更大构造的贡献，一个联合环境，它依赖于与三个不同环境相关的波长、频率、能量和材料的连接。 它们正在从三个组件中创造一个单一的环境。他们创造了一个比奇点中的三个环境更有用、更具功能性的环境，作为进化的游乐场，因此，有效地拆分了分离的物质，并通过使用现有的材料创造了一个整体。他们正在学习如何逆向工程多元宇宙，并在这个过程中进化。
 
 ### The Entities of Source Entity Ten and How They Create 
 
+**10号源实体的实体及其创造方式**
+
 I was acutely aware that I was running out of time with Source Entity Ten.We had discussed a lot about the function of Triangulation and the OM and a bit about the structure of its environment.The issue was I had nothing on the entities that were able to work in three different environments with what seemed like thousands upon thousands of links to the different items of work that they were working on in the different sectors of the Super Macro,Macro and Sub- Macro/Micro environments concurrently.It was truly mind-boggling and,quite frankly,from my limited human standpoint,one that made me shudder at the immense workload.It made my own workload that I was just holding it together with,look ridiculously small.I resolved not to moan about how much work the Source Entity had bestowed upon me-I did ask for it in the first place-and gathered myself together to gain more information about the entities that existed and worked with these "entity-controlled,"rotating and counter-rotating environments. 
+
+我敏锐地意识到我与10号源实体的时间不多了。我们已经讨论了很多关于三角定位和OM的功能，以及一些关于其环境结构的问题。问题是我没有任何关于实体的东西，这些实体能够在三个不同的环境中工作，它们似乎有成千上万的链接到不同的工作项目，它们同时在超宏观、宏观和亚宏观/微观环境的不同部门工作。这真是令人难以置信，坦率地说，从我有限的人类角度来看，这让我在巨大的工作量面前颤抖。它使我自己的工作量看起来小得可笑。我决心不抱怨源实体赋予了我多少工作——我确实在第一时间要求它——并集中精力获取更多关于实体的信息，这些实体存在并与这些“实体控制的”旋转和反旋转环境一起工作。
 
 ME:I am running out of time with you. 
 
-我：
+我：我没有时间和你在一起了。
 
 SE10:How can you possibly run out of that which does not exist? 
 
-10号源实体：
+10号源实体：你怎么可能用完不存在的东西？
 
 ME:Good point.But I do feel that we are coming to the end of our dialogue,and,as a result,I need to tie up some of my loose ends with you. 
 
-我：
+我：有道理。但是我确实感觉到我们的对话快结束了，因此，我需要和你把一些零散的结尾联系起来。
 
 SE10:How many lifetimes do you have?You will never get anywhere near the scratch in the surface. 
 
-10号源实体：
+10号源实体：你有多少个生命？你永远也无法接近表面的划痕。
 
 ME:You're right,and I would guess that I would never be able to get anywhere near scratching the surface. 
 
-我：
+我：你说得对，我想我永远也无法接近它的表面。
 
 SE10:No,but what you have done is open the door to the recognition that there is much more than that which is created by your own Source Entity.Not only that,but you have been able to portray a reasonable summary of the workings of my environment-which is to be applauded.However,as you say,you have a limited amount of time with me,so we should continue the dialogue in the way that you desire-with a short explanation/description about my entities. 
 
-10号源实体：
+10号源实体：不，但是你所做的已经打开了认识的大门，认识到比起你自己的源实体所创造的，还有更多的东西。不仅如此，你已经能够对我的环境的工作进行合理的概述，这是值得称赞的。然而，正如你所说，你和我在一起的时间是有限的，所以我们应该继续以你希望的方式进行对话，对我的实体进行简短的解释/描述。
 
 ME:Yes,please.I am most intrigued about their physicality,their form factor,their energetic factor,work,etc.
 
-我：
+我：是的，请。我对他们的身体，他们的形式因素，他们的能量因素，工作等最感兴趣。
 
 SE10:Fine.Let's describe their form factor first.It won't take long for they don't have one as such. 
 
-10号源实体：
+10号源实体：好的，让我们先来描述一下它的外形因素。这不会花太长时间，因为它没有这样的外形因素。
 
 ME:Well,I expect that many entities don't actually have a form factor,but what I am interested in is what they do to cope with their workload.Do they create a body of some sort to perform their tasks? 
 
-我：
+我：嗯，我认为许多实体实际上没有一个外形因素，但我感兴趣的是它们如何处理工作负载。它们会创造某种身体来执行任务吗？
 
 SE10:You will note in the previous dialogue that creation of constructs within the three environments was explained in the physical tense.This was not "a slip of the tongue,"so to speak,nor was it a useful example used for illustration.The constructs were physical but not of the physicality you would expect to experience.In this instance,the physicality is one that is shared between the creator and the created during the creation process. 
 
-10号源实体：
+10号源实体：在前面的对话中，你将会注意到在三个环境中构造的创造是用物理时态来解释的。这并不是“口误”，或者说，这并不是一个用来说明的有用的例子。这些构造是物理的，但不是你所期望体验的物理性。在这种情况下，物理性是在创造过程中创造者和被创造者之间共享的。
 
-ME:How do you mean?The entities are physical for a short period only?That they are physical only for that period during the process of creating the constructs they are working on? 
+ME:How do you mean? The entities are physical for a short period only?That they are physical only for that period during the process of creating the constructs they are working on? 
 
-我：
+我：你的意思是？实体只在短时间内是物理的？它们只在创建它们正在工作的构造的过程中的那个时期是物理的？
 
 SE10:Yes,but I will explain further.My entities are purely energetic in nature.They exist in the energies associated with the environments they work with whilst still maintaining their own scaling and base frequencies.Their energies and subsequent frequencies are independent of the environments they work with and within.However,they have the ability to manipulate their energies to replicate those energies and frequencies,including the wavelengths of the frequencies they are working with,so that they are indistinguishable from that which they are working with. 
 
-10号源实体：
+10号源实体：是的，但我会进一步解释。我的实体本质上是纯粹的能量。它们存在于与它们工作环境相关的能量中，同时仍然保持它们自己的比例和基本频率。它们的能量和后续频率与它们工作的环境和内部无关。然而，它们有能力操纵它们的能量来复制那些能量和频率，包括它们工作频率的波长，这样它们就无法与它们工作频率区分开来。
 
 ME:I am starting to get an image of one of them working on a construct.Hold on.It's disappeared. 
 
-我：
+我：我开始看到他们中的一个正在建造一个建筑物。等等，它消失了。
 
 SE10:No,it hasn't.Perceive closer and examine that which is before you. 
 
-10号源实体：
+10号源实体：不，它没有。更近地感知和检查你面前的一切。
 
-ME:Oh,I see,or should I say,I perceive?The entity IS the construct that it is working on.Is that correct?
+ME:Oh,I see,or should I say,I perceive? The entity IS the construct that it is working on.Is that correct?
 
-我：
+我：哦，我明白了，或者我应该说我理解了？实体就是它所工作的构造，对吗？
+
+（图15：实体即构造）
 
 ![Figure 15: The Entity is the Construct](img/s6-050.png)
 
 SE10:Correct.To enable them to maintain the link with that which they are working on in all the many thousands of their construction tasks,they need to become that which they are working on.They create the blueprint for the construct that they are creating and,in doing so,attract those energies that are destined to become the construct by creating an attractive force to bring them into play. 
 
-10号源实体：
+10号源实体：正确，为了使他们能够在成千上万的建设任务中保持与他们正在从事的联系，他们需要成为他们正在从事的。他们为他们正在创造的构造创造了蓝图，在这样做的时候，通过创造一种吸引力来吸引那些注定要成为构造的能量，使它们发挥作用。
 
 ME:This sounds very much like the way the human body is constructed.We have the etheric body with which the physical body is modeled upon and etheric template with which I now understand is that which the spirituo-physical is modeled upon whilst being the form for the etheric body to fill. 
 
-我：
+我：这听起来很像人类身体的构造方式。我们有以太体，物理体是模仿以太体的模板，我现在理解的是，以太体是灵性物理的模仿模板，同时是以太体填充的形式。
 
 SE10:It is similar but not as interactive as that which is created by my entities,for your body is constant throughout its manifestation while they are constantly manipulating theirs to meet the demands of the construct,location and environment.They need to create the form factor for that part of the construction program that they are working on. They attract the frequencies,energies and resultant materials to them by their intention to create.Creation is an immensely powerful force of attraction and one that is omniversally employed throughout The Origin.When they attract the materials in the energies and frequencies required to support that which they are creating they allow those materials to bond to them and themselves.The entity effectively becomes a lattice-work or frame-work for the material to attach itself to.When the material floods into and onto the lattice work of the entity,it becomes one with the entity.It is the entity and the entity is the material -whatever that material is and in whatever combination of frequencies,energies and materials are desired.Once the construct is stable and functional in every aspect required by the entity,the entity itself gradually releases itself from the task of being the lattice or framework for the material it has attracted to itself.It can only do this when the material used takes on the form of that lattice or framework in its own right,becoming that which the entity intended it to become. 
 
-10号源实体：
+10号源实体：它类似但不如我的实体所创造的那样互动，因为你的身体在整个表现过程中是恒定的，而他们不断操纵自己的身体来满足构造、位置和环境的要求。他们需要为他们正在从事的建筑程序的那个部分创造形式因素。他们通过意图创造来吸引频率、能量和结果材料。创造是一种极其强大的吸引力，一种在起源中被广泛使用的吸引力。 当他们吸引所需的能量和频率来支持他们正在创造的材料时，他们允许这些材料与他们和他们自己结合。一旦构造在实体所需的各个方面都稳定和功能化，实体本身就逐渐从作为它所吸引的材料的格子或框架的任务中解脱出来。只有当所使用的材料本身就具有这种格子或框架的形式，成为实体所希望它成为的那种形式时，它才能做到这一点。
 
 ME:How does the entity separate itself from the construct it made if it,itself,is one with the construct?It is the construct. 
 
-我：
+我：如果实体本身就是构造的一部分，那么它如何将自己与构造分开？它就是构造。
 
 SE10:When it creates the construct,it allows the material to "invade and share"the energies that it is in its entirety.They take on-board every aspect of that which the entity is-as the construct with one exception.They do not take on-board or absorb that which IS the entity -its consciousness,its "sentience"although they do take on-board one important aspect of the entity's personality,so to speak. 
 
-10号源实体：
+10号源实体：当它创造构造时，它允许材料“入侵和分享”它整体的能量。它们把实体的每个方面都纳入其中，作为构造，只有一个例外。它们不把实体本身纳入其中或吸收，它的意识，它的“感觉”，尽管它们确实把实体的个性的一个重要方面纳入其中，可以这么说。
 
 ME:And what is that? 
 
-我：
+我：那是什么？
 
-SE10:It absorbs and becomes one with the "desire"of the entity to BE that construct which the entity has become,albeit in transience,and to create that which it desires to create. 
+SE10:It absorbs and becomes one with the "desire" of the entity to BE that construct which the entity has become,albeit in transience,and to create that which it desires to create. 
 
-10号源实体：
+10号源实体：它吸收并成为与实体的“欲望”的一部分，以成为实体已经成为的构造，尽管在短暂的时间内，并创造它欲望创造的东西。
 
 ME:So the material becomes an extension of the will or desire of the entity. 
 
-我：
+我：所以物质成为了意志或欲望的延伸。
 
 SE10:Yes.This process,although gradual,happens on a regular enough basis or of a high enough frequency to allow the creation of the majority of the construct necessary to be able to leave it and oversee its continued construction whilst in a new sector of another environment after the swapping out of entities resulting from the clashing of environments. 
 
-10号源实体：
+10号源实体：是的，这个过程，虽然渐进的，发生在一个足够有规律的基础之上或者说发生在一个足够高的频率上，以允许大部分必要构造的创建能够离开它并且监督其持续的构建，同时在另一个环境的新部门中，在环境冲突导致实体交换后。
 
 The process of detachment from the construct necessitates the materials being used in the construct to become one with the entity,as previously stated.Once the entity is satisfied that the materials are in the correct configuration,position and function,it starts to remove its consciousness from that which it has attracted in the desire to create and starts to either extend itself into additional parts or functions of that construct or remove itself entirely if it has finished that which it desired to create.The entity can and usually does start the detachment process once a critical mass of material has been attracted to the lattice or framework of the construct and the material attracted has taken on-board the desire of the entity to be that which it was attracted to be.Once the entity has removed itself from the construct,the gathering of materials does not finish,for the desire of the attraction of additional materials is now fully integrated into the very substance of the material itself. As a result,the attraction-based creation process continues until the construct is complete. The construct,containing within its very being,the blueprint of its form and function then starts to behave and function in a truly autonomous way,correct and true to the constructional and functional plan to which it was created. 
 
+从构造中分离的过程需要在构造中使用的材料与实体成为一体，如前所述。一旦实体满意材料在正确的配置、位置和功能，它开始从它在创造的欲望中吸引的意识中移除它，并开始将自己扩展到构造的其他部分或功能中，或者如果它已经完成了它想要创造的，则完全移除它。 实体可以，而且通常开始分离过程，一旦临界质量的材料被吸引到构造的晶格或框架中，被吸引的材料已经接受了实体的愿望，成为它被吸引成为的实体。 一旦实体从构造中移除自己，材料的收集并没有结束，因为吸引其他材料的愿望现在完全融入了材料本身的实质。因此，基于吸引的创造过程继续下去，直到构造完成。这个构造，包含在其存在之中，其形式和功能的蓝图，然后开始以真正自主的方式表现和运作，正确和真实地反映了它被创造出来的结构和功能计划。
+
 ME:Thank you.Now I feel that I have that which I came into contact with you for.The communication feels whole(complete)now. 
 
-我：
+我：谢谢你！现在我感觉我已经得到了当初和你联系时想要的东西。交流现在感觉很完整了。
 
 SE10:And so it is.Now you can move on to your next "focused"communication.I use the word focused with my metaphorical tongue in cheek,and I know that you know what I mean. 
 
-10号源实体：
+10号源实体：就是这样。现在你可以继续进行下一次“有重点的”交流了。我用“有重点的”这个词是打个比方，我知道你知道我的意思。
 
 ME:Thank you.I know that we will talk again. 
 
-我：
+我：谢谢你。我知道我们还会再聊的。
 
 SE10:We will,for it will be when The Origin Speaks. 
 
-10号源实体：
+10号源实体：我们会的，因为当起源说话的时候，它就会发生。
 
 Suddenly the link with Source Entity Ten dissolved,and I was left with three links connected to me,in lieu of the four,and a rather strange image in my mind's eye to explain the rather cryptic note that Source Entity Ten left me.In my mind's eye,I was in communion with The Origin,that is,a part of The Origin,that part of itself that was focused upon and extended in communication with me.It was surrounded by its creations,the Source Entities.They were all intensively listening in.My eyes started to water.I was crying-another sign that validated the truth of that which was to come.
+
+突然与源实体10的联系消失了，我只剩下3个连接到我的链接，而不是4个，在我脑海中出现一个相当奇怪的图像来解释源实体10离开我的那个相当神秘的提示。在我脑海中，我正在与源头交流，也就是说，源头的一部分，源头本身的一部分被集中在与我的交流中并延伸。它被它的创造物包围着，源实体。他们都在集中地倾听。我的眼睛开始流泪。我在哭泣——另一个迹象证实了即将到来的真相！
+
+（图16：与SE10的联系消失了，与SE11、SE12和源头的联系仍然存在，其他源实体在看着）
 
 ![Figure 16: The Link With SE10 Dissolves, and the Links With SE11, SE12 and The Origin Remain. The Other Source Entities Watch on.](img/s6-051.png)
 
 ## Chapter Five - Source Entity Eleven 
 
+**第5章：11号源实体**
+
 ### A Billion Entities as One 
+
+**十亿个实体合为一体**
 
 During the dialogue with Source Entity Ten,I had noticed that I was entering into some level of concurrent but intermittent communication with Source Entity Eleven and also picking up bits of information from Source Entity Twelve,albeit projected thoughts about who or what was close to it and was seeking communion from it.Communion was something that it was not aware of as an experience,so the information was garbled and erratic.Most of it was not worth journaling at the moment.I found this a relief as it gave me the opportunity to concentrate on the dialogue with Source Entity Eleven (see below)rather than continuing to do what I had been doing, which was flitting between Source Entities Ten,Eleven,Twelve(in minority)and,of course,The Origin.I noted though,that although I had noticed four connections running simultaneously,I was able to concentrate on Source Entity Ten and Eleven's links with more clarity.I decided to use this as an opportunity to continue with what was now Source Entity Eleven's turn in some sort of isolation although I did recognize that Source Entity Twelve and,of course,The Origin could "chip in"at any moment.Putting this potentially distracting thought process to one side,I continued with the dialogue that was already established with Source Entity Eleven. 
 
+在与源实体10的对话中，我注意到我正在进入某种程度的并发但间歇性的与源实体11的交流，同时也从源实体12那里获取了一些信息，尽管投射的想法是谁或什么接近它，并正在寻求与它的交流。交流是一种它没有意识到的一种体验，所以信息是混乱和不稳定的。当时大部分都不值得记录。我发现这是一种解脱，因为它给了我一个机会来专注于与源实体11的对话(见下文)，而不是继续做我一直在做的事情，即在源实体10、11、12(少数)之间切换，当然还有起源。我注意到，尽管我注意到了4个连接同时运行，但我能够更清晰地专注于源实体10和11的联系。我决定利用这个机会继续以某种孤立的方式进行现在是源实体11的轮到，尽管我确实认识到源实体12，当然，起源可以随时“插入”。把这个潜在的分散注意力的思维过程放在一边，我继续与源实体11建立的对话。
+
 ### Initial Communication with the Collective That Is Source Entity Eleven 
+
+**与11号源实体的集体的初始交流**
 
 As I focused on Source Entity Eleven with increased intention,I felt the rather odd feeling of trying to listen to a multitude of individuals all at the same time.I found it a little difficult to understand which one of the countless communications was directed to me.Which one should I commence the dialogue with first?Was one of them a "spokesbeing,"or was I going to communicate with several beings at the same time,either separately or together (there was that reference to being "separately together"again!),or was the plan to communicate with a particular being relative to the question being asked?I didn't know.As I honed the focus of my intention,I started to gain more information about this diversified Source Entity. 
 
+当我以更大的意图专注于源实体11时，我感到一种试图同时倾听许多个体的奇怪感觉。我发现很难理解无数的交流中哪一个是直接针对我的。我应该先与哪一个开始对话？其中一个是“代言人”，还是我要同时与几个存在进行交流，要么单独地，要么一起(又一次提到了“单独地在一起”)，或者计划与一个特定的存在进行交流，与被问到的问题相关？我不知道。当我磨练了意图的焦点时，我开始获得更多关于这个多样化的源实体的信息。
+
 Source Entity Eleven had split itself into over a billion separate entities-the number,Ifelt,being an example for my own benefit only.No one was the leader or at the head of the group.The essence that was Source Entity Eleven was no longer singular;it was a full and total collection of entities with all of the minute singular entities and minds that resulted from such a severe division.This was not the same as my own Source Entity or as the other Source Entities had done when they created the entities that populated their own environments,for they maintained their own singularity,a singularity that was above those entities that they created.This one was a full and total division,including the loss of an overall singular state of being.Everything was in miniature with one exception-the perimeter of the environment that was Source Entity Eleven, which was still in place as one.But it was not sentient;it was an automatically maintained barrier between its creations and the energy that was The Origin.I saw a group of entities coalesce before me like fish in the water-the water being the area of the Source Entity that was Source Entity Eleven's energetic environment.It had a goldfish bowl feel about it,except that this was no goldfish bowl.They all came towards me,and their initial communication echoed in my head.
+
+第11个源实体已经分裂成十亿多个独立的实体——我感觉这个数字只是为了我自己方便而举的例子。没有人是这个团体的领导者或首领。第11个源实体的本质不再是单一的；它是实体的完整而全面的集合，包含了所有由如此严峻的分裂而产生的微小单一实体和思想。这和我自己的源实体或其他源实体在创造它们自己的环境中的实体时所做的不同，因为它们保持了自己的单一性，一个在它们创造的实体之上的一个单一性。这一次是一个完整而全面的分裂，包括整体单一存在状态的丧失。一切都缩小了，只有一个例外——第11个源实体的环境的周长，仍然保持为一个整体。但它没有意识；它是在它的创造物和源头能量之间自动维持的屏障。我看到一群实体在我面前合并，就像鱼在水中一样——水是源实体的区域，也就是第11个源实体的能量环境。它有一个金鱼缸的感觉，除了它不是金鱼缸。他们都向我走来，他们最初的交流在我的脑海中回响。
+
+（图17：在我们对话开始时11号源实体）
 
 ![Figure 17: Source Entity Eleven at the Start of Our Dialogue](img/s6-052.png)
 
-SE11 (collectively):We acknowledge your presence.You are out-side of us.Strange!State your business.We aim to serve. 
+SE11 (collectively):We acknowledge your presence.You are out-side of us.Strange! State your business.We aim to serve. 
 
-11号源实体（集体）：
+11号源实体集体：我们知道你在这里。你在我们外面。奇怪！说说你的事。我们旨在服务。
 
 ME:I can enter into your energy if you wish. 
 
-我：
+我：如果你愿意，我可以进入你的能量。
 
 SE11 (collectively):We would prefer this. 
 
-11号源实体（集体）：
+11号源实体集体：我们更喜欢这个。
 
 I entered into the sphere that was Source Entity Eleven's automatically maintained perimeter and internal "space"and immediately felt the swarm of smaller entities gather around me.I was covered-totally.I tried to move around the space that was the only recognizable way of describing Source Entity Eleven as a singularity with the hope of moving away from the plethora of entities that surrounded me,but all they did was follow me.I was just about to ask for some "personal space"when the area behind me cleared.The entities,clearly sensing my requirements/need for a gap between myself and the "swarm"capitulated (I wasn't sure whether to be concerned or not)and suddenly moved away,creating a semi-spherical amphitheatre in front of me,made totally out of the entities themselves.I had a large audience,but even though it was large,I knew that this was not the total number of entities that Source Entity Eleven created and devolved down into.There were uncountable numbers of other entities elsewhere within the environment.I got the feeling that these were the "face"of the totality that was Source Entity Eleven. 
 
+我进入了实体11自动维持的周边和内部“空间”的范围，立刻感觉到一大群较小的实体聚集在我周围。我被完全覆盖了。我试图在空间里移动，这是唯一可以识别的描述实体11作为一个奇点的方式，希望能离开我周围的过多实体，但它们所做的就是跟着我。我正要要求一些“个人空间”，当我身后的区域被清空了。这些实体，显然感觉到我的要求/需要我自己和“群落”之间有一个差距，投降了(我不确定是否应该担心)，突然离开，在我面前创造了一个半球形的圆形剧场，完全由实体本身构成。我有一个很大的观众群，但即使它很大，我知道这不是实体11创造和降落的实体的总数。在环境的其他地方还有无数的其他实体。我感觉这些是实体11整体的“面孔”。
+
 SE11 (collectively):We do not seek to disturb you;we only seek your comfort and communion. 
 
-11号源实体（集体）：
+11号源实体集体：我们不寻求打扰你们；我们只寻求你们的安慰和交流。
 
 ME:Thank you.I appreciate that.I was starting to get a little bit claustrophobic with you all so close to me. 
 
-我：
+我：谢谢。我很感激。你们都离我这么近，我开始有点幽闭恐惧症了。
 
 SE11(collectively):We apologize for our initial actions for we are not yet in the mindset for communication with one such as you.You are independent of us,and that is a difference we are not/have not been exposed to. 
 
-11号源实体（集体）：
+11号源实体集体：我们为我们最初的行为道歉，因为我们还没有准备好与你这样的人交流。你独立于我们，而这是我们没有/还没有接触到的差异。
 
 ME:But you must all be able to work as a singular entity at times;you must have come across the need to communicate singularly because you are all singular even though you are a collective. 
 
-我：
+我：但是你们必须能够在某些时候作为一个单一的实体工作；你们必须遇到单独交流的需要，因为即使你们是一个集体，你们也是单独的。
 
 SE11 (collectively):We do have individual function,but we do not function as individuals. We operate together in all things in all ways.
 
-11号源实体（集体）：
+11号源实体集体：我们确实有个人的功能，但我们不是作为个人来运作的。我们一起以各种方式做所有的事情。
 
 We find this an optimal way of operating for it removes the need to think for others on an individual basis. 
 
+我们发现这是一个最佳的操作方式，因为它消除了在个人基础上为他人考虑的需要。
+
 ME:I feel honored that you accepted me into your environment so quickly,specifically as you have not been exposed to an individual with individual will and decision-making ability. 
 
-我：
+我：我很荣幸你们这么快就接受了我，特别是在你们还没有接触到一个有个人意志和决策能力的人的情况下。
 
 SE11(collectively):It was not so difficult for us to accept you for you are part of a much bigger collective,and we are all part of that-for The Origin is the origin of all,and we are all part of The Origin,even those small parts of The Origin. 
 
-11号源实体（集体）：
+11号源实体集体：我们接受你并不是那么困难，因为你是一个更大集体的一部分，而我们都是那个集体的一部分——因为起源是一切的起源，我们都是起源的一部分，即使是那些起源的小部分。
 
 ME:What do you mean "small parts of The Origin"? 
 
-我：
+我：“小部分的起源”是什么意思？
 
 SE11(collectively):You know them as the OM.You are of the OM;that is why we accept you. We know of you even though we do not have OM. 
 
-11号源实体（集体）：
+11号源实体集体：你们知道他们是OM。你们是OM的，这就是为什么我们接受你们。即使我们没有OM，我们也知道你们。
 
 ME:Why don't you have any associated OM? 
 
-我：
+我：为什么你们没有任何相关的OM?
 
 SE11(collectively):It was not part of the creation process that We/I were part of.I used We/ I here,for We/I were in singularity then.We shall use "We"from now on. 
 
-11号源实体（集体）：
+11号源实体集体：我们/我所参与的创造过程并不是其中的一部分。我在这里使用了“我们/我”，因为那时我们/我是单数的。从现在起，我们将使用“我们”。
 
 ME:OK,I understand,but I thought that all Source Entities had OM associated with them. 
 
-我：
+我：好的，我明白了，但我认为所有的源实体都与OM相关联。
 
 SE11 (collectively):No,we do not have OM,and Source Entities Five and Twelve do not have OM.Although in essence we are all OM of sorts as a result of being created by The Origin with The Origin using its own energy in the creation process.No,that energy in isolation did not attract itself to us and,therefore,is not part of us.We are interested in you though, for you are Pure OM and,therefore,not associated with a particular Source Entity,which is interesting because you are so small in comparison to Pure OM. 
 
-11号源实体（集体）：
+11号源实体集体：不，我们没有OM，源实体5和源实体12也没有OM。虽然本质上我们都是各种OM，因为我们都是由源头创造的，源头在创造过程中使用了自己的能量。 不，那个孤立的能量没有吸引自己到我们身上，因此，不是我们的一部分。我们对你们感兴趣，因为你们是纯粹的OM，因此，没有与特定的源实体相关联，这很有趣，因为你们与纯粹的OM相比是如此之小。
 
 ME:Well that might be because I am currently incarnate,so I assume that only a small part of me is focused on contacting you and conducting this dialogue. 
 
-我：
+我：那可能是因为我现在是化身，所以我假设只有一小部分的我专注于联系你和进行这次对话。
 
 SE11 (collectively):Mmmmm,it is not often that a Pure OM in-carnates,let alone at the frequency that you have incarnated at.It's so low its painfull!!! 
 
-11号源实体（集体）：
+11号源实体集体：嗯，一个纯粹OM化身的频率并不高，更别说你们所化身的频率了。频率太低了，痛苦极了！！！
 
 ME:Tell me about it. 
 
-我：
+我：跟我说说吧。
 
 SE11 (collectively):Please do tell us about it.You are in it! 
 
-11号源实体（集体）：
+11号源实体集体：请告诉我们吧，你也参与了！
 
 ME:I could,but that's not what I am here for.I am here to find out information about you. 
 
-我：
+我：我可以，但是我来这儿不是为了这个。我来这儿是想了解关于你的一些情况。
 
 SE11(collectively):What do you want to know about us? 
 
-11号源实体（集体）：
+11号源实体集体：你们想了解我们什么？
 
 ME:Basically,as much as I can without losing my ability to understand it. 
 
-我：
+我：基本上，在不失去理解能力的情况下，尽可能多地听。
 
 SE11 (collectively):Then we should start with our functionality. 
 
-11号源实体（集体）：
+11号源实体集体：那么我们应该从我们的功能性开始。
 
 ME:That would be a fantastic start. 
 
-我：
+我：那将是一个极好的开始。
 
 ### The Functionality of Source Entity Eleven 
 
+**源实体11的功能**
+
 ME:Ok,so where shall we start? 
 
-我：
+我：好的，那我们从哪里开始呢？
 
 SE11(collectively):Where do you want to start? 
 
-11号源实体（集体）：
+11号源实体集体：你想从哪里开始？
 
 ME:Let's try the basis of your functionality and why your functionality is the way it is. 
 
-我：
+我：让我们尝试一下你的功能的基础，以及为什么你的功能是这样。
 
 SE11 (collectively):Then we shall tell you from the start.
 
-11号源实体（集体）：
+11号源实体集体：那我们就从头说起吧。
 
 When we were in singularity,we sought to differentiate from that which was being achieved by those Source Entities that were already enacting their strategy.They sought to create a "multiverse"of sorts out of their own volume and then filled it full of smaller versions of themselves.When each Source Entity had achieved this diversification,moving away from that which is natural,they mostly decided to maintain their own singularity as an overseeing force.That is,except for Source Entities Five,Seven,and Twelve.Twelve,of course,not being self-aware didn't really count.Source Entity Five remaining singular made it drop out of this analysis,as did Source Entity Seven who diversified into three separate Source Entities first before creating its entities.We/I decided not to go down this well- trodden route and decided to do something different entirely. 
 
+当我们在奇点时，我们试图与那些已经实施了他们策略的源实体所实现的有所区别。他们试图从他们自己的体积中创造出各种各样的“多维宇宙”，然后用他们自己的小版本填满它。当每个源实体都实现了这种多样化，远离自然时，他们大多决定保持自己的奇点作为一种监督力量。那就是，除了源实体5、7和12。当然，12没有自我意识并不算数。源实体5保持单一使它从这个分析中消失，就像源实体7在创造它的实体之前首先多样化成三个独立的源实体一样。我们/我决定不走这条老路，决定做一些完全不同的事情。
+
 ME:So you decided to remove the element of singularity by creating a total collective,one without an overseeing force but nevertheless maintaining it within a known environment, an environment that was automatically maintained. 
 
-我：
+我：所以你决定通过创造一个完全的集体来消除奇点的元素，一个没有监督力量但却在一个已知的环境中维持它，一个自动维持的环境。
 
 SE11(collectively):Not quite,it is merely a perimeter and not an environment,per se.How could we be diversified and yet still part of an environment?That would mean that we had some part of us that was still aligned to that which we were when singular.No,this is just a perimeter,a fence,so to speak,where we decide not to venture beyond. 
 
-11号源实体（集体）：
+11号源实体集体：不完全是，它只是一个边界，而不是一个环境，本质上。我们怎么可能既多样化，又仍然是环境的一部分？那将意味着我们有一部分仍然与我们单一时是一致的。不，这只是一个边界，一个围栏，可以说，我们决定不冒险超越。
 
 Now this was an interesting development and one that I hadn't considered.Although Source Entity Eleven had diversified into over a billion (a number used for my benefit)individualized, but collective units of itself,it had still maintained a perimeter around its collective "self."The perimeter itself was not actually part of Source Entity Eleven.It couldn't be,for it had diversified and was merely a self-imposed perimeter fence.This area,I was being told as I typed this text, housed the same area that Source Entity Eleven had before its decision to diversify.The smaller units of Source Entity Eleven naturally decided to stay within this area rather than spread out amongst the totality of the current area of self-awareness that was The Origin.Thinking about it though,it was entirely logical.They would not operate as a collective if they separated themselves out too far,or so I thought.I decided to ask the question of the collective that had positioned itself in front and around me like a 3/4 hemispherical hollow sphere. 
 
+现在这是一个有趣的发展，一个我没有考虑过的。 虽然11号实体来源已经多样化成超过十亿个(数字是为了方便我使用)个体化，但它本身的集体单位，它仍然保持着围绕集体“自我”的周长。周长本身并不是十一号实体来源的一部分。它不可能是，因为它已经多样化，只是一个自我强加的周长围栏。这个区域，在我打这篇文章的时候，我被告知，容纳了11号实体来源决定多样化之前的同一区域。十一号实体来源的较小单位自然决定留在这个区域内，而不是分散在当前自我意识的整体区域，即起源。 尽管这样想，这是完全符合逻辑的。如果他们分开太远，他们就不会作为一个集体运作，或者我认为。我决定问这个集体的问题，它把自己放在我前面和周围，就像一个3/4半球形的中空球体。
+
 ### Source Entity Eleven's Self-Imposed Perimeter 
+
+**11号源实体自我强加的边界**
 
 ME:I find it interesting that you stay within this area.I recognize from the information you sent me that it is a self-imposed perimeter of the same area that was occupied by you before you were diversified.Why restrict yourselves in this area when you could wander the vastness of The Origin? 
 
-我：
+我：我发现你们呆在这个区域很有趣。我从你们发给我的信息中认出，这是你们多元化之前所占领的同一个区域的自我强加的边界。为什么你们可以漫游在浩瀚的起源时，却把自己限制在这个区域？
 
 SE11 (collectively):We do not desire to do so.As you noted in your narration a moment ago,we could,if we so desired,spread out within the area that is the current area of self- awareness of The Origin,but we have chosen to stay within this self-induced perimeter so that we can concentrate on the work we are doing.Moving outside this perimeter,as you call it,would distract us from that which we are working on. 
 
-11号源实体（集体）：
+11号源实体集体：我们不希望这样做。正如你刚才在你的叙述中提到的，如果我们愿意，我们可以从目前的起源自我意识区域中分散出去，但是我们选择留在这个自我诱导的周边，这样我们可以集中精力做我们正在做的事情。如你所说，走出这个周边，会让我们从我们正在做的事情中分心。
 
 ME:Are you aware of what is in existence outside of this self-imposed perimeter? 
 
-我：
+我：你意识到在这个自我强加的边界之外存在着什么吗？
 
 SE11(collectively):Yes,of course.Are we not a Source Entity?
 
-11号源实体（集体）：
+11号源实体集体：是的，当然。我们不是一个源实体吗？
 
 ME:Err,yes,I suppose.It's just that I have not considered the possibility that a Source Entity can have its singularity of mind diversified so much and still be able to operate as if it were one. 
 
-我：
+我：呃，是的，我想。只是我没有考虑到一个源实体可以有如此多样化的思维奇点，并且仍然能够像一个源实体一样运作。
 
 SE11(collectively):Well,we do.Let us explain why we stay where we are and why we stay together collectively and in totality. 
 
-11号源实体（集体）：
+11号源实体集体：我们确实需要。让我们解释一下为什么我们待在这里，为什么我们集体地、整体地待在一起。
 
 We stay within the area of the primary creation where we were in singularity because there is no need for us to move yet.None of the Source Entities move around the area that they were created within because there is no need,for each Source Entity is working on its own contribution towards its personal evolution and,therefore,The Origin's evolution.It is a very insular thing and one that requires concentration of the Source Entity itself.Moving around that which we are aware of is just an unnecessary distraction.We know that we will need to move at some point,and we know when that point will be.It's just that it isn't now. 
 
+我们呆在最初的创造区域内，我们处于奇点，因为我们还没有必要移动。没有一个源实体在他们被创造的区域周围移动，因为没有必要，因为每个源实体都在为自己的个人进化做贡献，因此，起源的进化。这是一个非常孤立的事情，需要源实体本身的专注。我们所知道的移动只是一个不必要的分心。我们知道我们需要在某个时刻移动，我们知道那个时刻是什么时候。只是现在不是。
+
 ME:When will it be? 
 
-我：
+我：什么时候？
 
 SE11 (collectively):When The Origin evolves past its current level of self-awareness and moves outwards into that wider and greater area that it is cognizant of but not experientially aware of.Then and only then will we move ourselves and only then will we consider further separation or re-integration into singularity.The decision to stay within this area was a collective one to ensure that we maintained the spirit of the original decision to diversify whilst being a collective.As just stated,no one Source Entity currently is actively moving around the area within The Origin that they exist within. 
 
-11号源实体（集体）：
+11号源实体集体：当起源进化到超越它当前的自我意识水平，向外移动到它所认识但没有经验意识到的更广阔和更大的区域时，那时，只有那时，我们才会移动自己，只有那时，我们才会考虑进一步分离或重新整合到奇点。留在这一区域的决定是一个集体决定，以确保我们保持最初决定的精神，即在作为一个集体的同时实现多样化。正如刚才所说，目前没有一个源实体正在他们所存在的起源区域内积极移动。
 
-ME:How is that?In the dialogue that created The History of God,my own Source Entity described all of you doing anything and everything you could to experience the dimensions, frequencies and energies within The Origin.I even drew some illustrations to show my readers what I experienced. 
+ME:How is that? In the dialogue that created The History of God,my own Source Entity described all of you doing anything and everything you could to experience the dimensions, frequencies and energies within The Origin.I even drew some illustrations to show my readers what I experienced. 
 
-我：
+我：怎么会这样？在创造了《源头简史》的对话中，我自己的源实体描述了你们所有人做任何事情和所有事情，以体验起源中的维度、频率和能量。我甚至画了一些插图，向我的读者展示我的经历。
 
 SE11(collectively):Yes,at that point in our existence we were singular,we were one,and the other Source Entities were "becoming"so to speak.None of them had either developed their strategy for evolutionary progression at that point (and so they could do what they liked), nor had they considered creating an environment of sorts and filling it with smaller units of themselves.As you may have been told before,we were all having fun. 
 
-11号源实体（集体）：
+11号源实体集体：是的，在我们存在的那个时刻，我们是单一的，我们是一个，而其他的源实体可以说是在“成为”。他们中没有人发展出进化进程的策略(所以他们可以做他们喜欢做的事)，也没有考虑过创造一个环境，并用他们自己的小单位填充它。
 
 ME:So what happened?Why did you all stop moving around and having fun? 
 
-我：
+我：那发生了什么事？为什么你们都停止了活动和玩乐？
 
 SE11 (collectively):We started to work on our own strategies for evolution,and this takes concentration.Once we had fully understood the reasons for our own existence and had subjected ourselves to all of the dimensions,frequencies and associated energies necessary to give us a good basic knowledge base of that which we are and that which we exist within,we settled down to create our strategies for experiencing,learning and evolving. In essence,we had achieved that which we needed to achieve from our very personal perspectives and now needed to move on to the in-depth opportunities presented to us by being able to experiment with that which we "were."The need to move around The Origin was,therefore,negated as we all concentrated on our evolutionary tasks-apart from Source Entity Twelve,that is-which is where we are now;performing our evolutionary tasks by being a fully diversified version of that which we were in the singular.Our evolutionary plan was designed to be contained within the area previously inhabited by that which we were as Source Entity Eleven in a singular state.That is why we stay within this perimeter and do not venture outside. 
 
-11号源实体（集体）：
+11号源实体集体：我们开始致力于我们自己的进化策略，这需要专注。一旦我们完全理解了我们自己存在的原因，并使自己服从于所有维度、频率和相关能量，这些能量是必要的，以给我们一个良好的基础知识基础，让我们知道我们是谁，我们存在于哪里，我们就开始创建我们的经验、学习和进化的策略。本质上，我们已经实现了我们从我们非常个人的角度需要实现的目标，现在需要通过能够实验我们“曾经”是的，来继续向我们呈现的深入机会前进。因此，围绕起源移动的需求被否定了，因为我们都专注于我们的进化任务——除了12号源实体，也就是我们现在所在的地方；通过成为我们单数状态下的完全多样化的版本来执行我们的进化任务。我们的进化计划被设计为包含在我们作为11号源实体单数状态下之前居住的区域内。这就是为什么我们呆在这个周边而不冒险出去。
 
 ME:Will this not change when The Origin expands its area of self-awareness? 
 
-我：
+我：当起源扩展了自我意识的领域，这不会改变吗？
 
 SE11 (collectively):As we have recently stated to you,we are not of a collective mind to be able to ascertain that which is not a pressing decision that we have to make,but the possibility of returning to singularity is one of the options that we will consider when we are in experience of this event with The Origin.As you can appreciate,there are so many options open to us at that point that we have not even thought about discussing them with you.Your own imagination is sufficient enough to be able to suggest a few choice scenarios in isolation from ourselves. 
 
-11号源实体（集体）：
+11号源实体集体：正如我们最近向你们所声明的，我们不是集体意识，因此无法确定我们必须做出的紧迫决定，但回到奇点的可能性是我们在经历起源事件时将考虑的选择之一。正如你们所能理解的，在这一点上，我们有如此多的选择，我们甚至没有想过与你们讨论它们。你们自己的想象力足以独立于我们自己提出一些选择方案。
 
 ME:Thank you.I am sure that the readers of this dialogue will also be able to make up their own scenarios of how you could re-organize yourselves at that point in The Origin's existence. 
 
-我：
+我：谢谢，我相信这段对话的读者们也能够构思出他们自己的情节，关于你们在起源存在的那个点上如何重新组织你们自己。
 
 ### Purpose of Being a Diverse Source Entity and Synergetic Effects of Being an OM or a Source Entity 
 
+**作为一个多元化源实体的目的和作为OM或源实体的协同效应**
+
 ME:I would like to get back on track a bit and discuss the deeper reason/s behind your decision to become the diverse entity that you are now,including the benefits of such an existence in the diverse but collective format that you have. 
 
-我：
+我：我想回到正轨，讨论一下你决定成为你现在这样多元化实体的更深层原因，包括以你所拥有的多元化但集体的形式存在的好处。
 
 SE11 (collectively):From your physical and temporarily singular existence,you will find it a difficult concept to understand,simply because you are able to make what you think are rational decisions based upon a set of known experiences and criteria. 
 
-11号源实体（集体）：
+11号源实体集体：从你们的身体和暂时的单一存在来看，你会发现这是一个难以理解的概念，仅仅是因为你们能够基于一组已知的经验和标准做出你们认为是理性的决定。
 
-ME:Wait a moment.Did you say temporarily singular existence in reference to my own condition?Was that referring to the physical or the energetic? 
+ME:Wait a moment.Did you say temporarily singular existence in reference to my own condition? Was that referring to the physical or the energetic? 
 
-我：
+我：等一下。你说暂时的单一存在是指我自己的状况吗？是指身体上的还是精神上的？
 
 SE11 (collectively):We were referring to both the current state that you are in and the normal state that you have when in the energetic. 
 
-11号源实体（集体）：
+11号源实体集体：我们指的是你目前的状态和你在能量中时所拥有的正常状态。
 
 ME:Can you explain further?It might help with my ability to understand your "thought" process as we progress our dialogue. 
 
-我：
+我：你能进一步解释吗？随着我们对话的进展，这可能有助于我理解你的“思维”过程。
 
 SE11 (collectively):Yes,we will.Any of the OM-that is,any of the four categories of OM either in purity or hybrid state-can group together and benefit from the synergetic effects of becoming a collective,if only from a temporary basis.By that I mean that any combination of OM can commune in "metaconcert"with an OM/Source Entity Hybrid, Captive OM,Non-Captive OM or Pure OM and create a collective that can benefit from the synergetic effects of such an act.The synergetic effect is strongest when OM of the same type are in metaconcert,particularly with the Pure OM,but the synergetic effect of any OM metaconcert is marked enough to warrant the desire to commune in this way. 
 
-11号源实体（集体）：
+11号源实体集体：是的，我们会。任何OM——即纯粹或混合状态的四类OM中的任何一种——都可以聚集在一起，并从成为集体的协同效应中受益，即使只是暂时的。我的意思是，任何OM的组合都可以与OM/源实体混合物、俘虏OM、非俘虏OM或纯OM在“元协定”中交流，并创建一个可以从这种行为的协同效应中受益的集体。当同类型的OM在元协定中时，协同效应最强，特别是与纯OM，但任何OM元协定的协同效应都足以证明以这种方式交流的愿望。
 
-ME:Is that it?Is that the reason why you decided to be a collective rather than retain your singularity and create a multiverse and populate it with billions of smaller entities? 
+ME:Is that it? Is that the reason why you decided to be a collective rather than retain your singularity and create a multiverse and populate it with billions of smaller entities? 
 
-我：
+我：是吗？这就是为什么你们决定成为一个集体，而不是保留你们的独特性，创造一个多元宇宙，并让数十亿个更小的实体居住在其中？
 
 SE11 (collectively):Yes,that is one of the reasons,amongst others,for our decision to become "diverse"more than singular.When we saw the way in which the other Source Entities were creating their own environments and developing their own strategies for gathering evolutionary content,we stood back and waited until last-last that is,if we don't count Source Entity Twelve. 
 
-11号源实体（集体）：
+11号源实体集体：是的，这是我们决定变得“多样化”而非单一的原因之一。当我们看到其他源实体创造他们自己的环境，发展他们自己的策略来收集进化内容的方式时，我们退后一步，直到最后——如果我们不把源实体12算在内的话。
 
 ME:You deliberately waited to see what the others were doing to ensure that you were not doing the same thing. 
 
-我：
+我：你故意等着看别人在做什么，以确保你不会做同样的事情。
 
 SE11 (collectively):Yes,we made sure that we were all doing different things and that the whole landscape of opportunity for collecting evolutionary content was diversified.You see, we had already made the decision to become diverse and had to make sure that none of the others would follow the same path.Clearly some of the entities in each of the Source Entities'environments are based upon the collective mind strategy,and we looked on with keen interest to ensure that it did not become that which we desired to become-it did not and has not occurred subsequently.We also knew of the synergetic effect of constant metaconcert from the observations of the first fully collective entities to be created by your own Source Entity-what you call Source Entity One-and felt this to be a desirable function to exist in. 
 
-11号源实体（集体）：
+11号源实体集体：是的，我们确保我们都在做不同的事情，并且整个收集进化内容的机会的景观是多样化的。你看，我们已经做出了变得多样化的决定，必须确保没有其他人会遵循同样的道路。很明显，每个源实体的环境中的一些实体是基于集体思维策略的，我们以强烈的兴趣来确保它不会成为我们希望成为的——它没有，后来也没有发生。我们还知道从第一个完全集体实体的观察中，由你自己的源实体创建的恒定元协奏的协同效应——你称之为源实体一——并感觉这是一个值得存在的功能。
 
 ME:So you also waited for the product of the work of their creations before making the final decision. 
 
-我：
+我：所以你也等着他们的作品创作出来后再做最终决定。
 
 SE11(collectively):We did more than that-we initiated a gradual diversification to see if this effect was applicable to our own energies.We weren't sure if the effect of synergy was a function of the dynamics of the energies used in the creation process of the Source Entities or if it was independent of Source Entity creation and,therefore,a general function of diversification. 
 
-11号源实体（集体）：
+11号源实体集体：我们做的不止这些，我们开始了逐步的多样化，看看这个效果是否适用于我们自己的能量。我们不确定协同的效果是否是源实体创造过程中所使用的能量动力学的一个功能，或者它是否独立于源实体的创造，因此，是一个多样化的一般功能。
 
 ### Optimization of Synergetic Effects Though Diversification as an Iterative Process 
 
+**通过多样化作为迭代过程来优化协同效应**
+
 ME:Is it a general function then or relative to Source Entity creativity only?That is, creativity performed by a Source Entity in lieu of an entity created by a Source Entity? 
 
-我：
+我：这是一个通用的功能还是仅仅与源实体的创造力相关？也就是说，由源实体执行的创造力代替由源实体创建的实体？
 
 SE11(collectively):Initially,we established that the synergetic effects were relative to the creativity of the collective by the Source Entity-in this instance,"us"while we were in a semi-diverse state,that is,in a condition during the experimentation where only a certain percentage was diversified.The rest was maintained in singularity and in total separation from that part of us that was diversified.Through the separated greater part of us,we were, therefore,able to measure the level of synergetic effect versus the number of component parts within the diversified unit. 
 
-11号源实体（集体）：
+11号源实体集体：最初，我们确定协同效应与源实体的集体创造力有关，在这种情况下，“我们”处于半多元化状态，也就是说，在实验过程中，只有一定比例的个体是多元化的。其余的个体保持单一，与多元化的部分完全分离。因此，通过分离的大部分个体，我们能够测量协同效应的水平，以及多元化单元中组成部分的数量。
 
 ME:Why did you maintain a larger part of yourselves in singularity? 
 
-我：
+我：为什么你们在奇点中保持了更大的一部分自己？
 
 SE11 (collectively):We wanted to create the perfect strategy for our evolutionary work.This resulted in the need to experiment and gain the optimal condition.In order to support the possibility of a number of iterations,we,therefore,needed to ensure that we could return to a known starting point and modify the strategic direction as necessary in creating a new iteration for analysis. 
 
-11号源实体（集体）：
+11号源实体集体：我们想为我们的进化工作创建完美的策略。这导致了实验和获得最佳条件的需要。为了支持多次迭代的可能性，因此，我们需要确保我们能够回到一个已知的起点，并在创建新的迭代进行分析时，根据需要修改战略方向。
 
 ME:So you diversified in stages then,checking the strength of the synergetic effect as you went,so to speak.
 
-我：
+我：所以你们分阶段进行多元化，可以这么说，你们在进行过程中检查了协同效应的强度。
 
 SE11 (collectively):Correct.You see,the effect of being in collectivity was also coming into play,even though we were not fully diversified nor in a full collective. 
 
-11号源实体（集体）：
+11号源实体集体：正确。你看，集体的影响也开始发挥作用，尽管我们既不是完全多样化也不是完全集体。
 
 ME:You had a skewed distribution of diversified Source Entity Energy versus singular Source Entity energy. 
 
-我：
+我：你有一个扭曲的分布，多样化的源实体能量与单一的源实体能量相比。
 
 SE11 (collectively):Yes. 
 
-11号源实体（集体）：
+11号源实体集体：是的。
 
-ME:Eventually then,you established the "perfect"scenario of diversification that you wished to achieve. 
+ME:Eventually then,you established the "perfect" scenario of diversification that you wished to achieve. 
 
-我：
+我：最终，你建立了你希望实现的“完美”多元化方案。
 
 SE11(collectively):Yes.As stated above,we noted that two things were happening.Firstly, the strength of the synergetic effect increased geometrically with the number of entities within the collective.Secondly,we noticed that our computational power-the ability to consider many more scenarios,including other thought processes-increased as the number of the individual units within the collective increased. 
 
-11号源实体（集体）：
+11号源实体集体：是的。如上所述，我们注意到发生了两件事。首先，协同效应的强度随着集体内实体数量的增加呈几何级数增长。其次，我们注意到我们的计算能力——考虑更多情景的能力，包括其他思维过程——随着集体内个体数量的增加而增加。
 
 ME:Sounds like you discovered a very valid reason for being a collective rather than a singular unit of Source Entity energy. 
 
-我：
+我：听起来你发现了一个非常合理的理由，作为一个集体而不是一个单一的源实体能量单位。
 
 SE11 (collectively):You would think so,but we discovered a limitation to this strategy because the geometric increase in synergy did not increase "ad infinitum." 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Go on. 
 
@@ -7428,7 +7488,7 @@ ME:Go on.
 
 SE11 (collectively):We noted that an optimal number of units within a collective could be reached from a synergetic perspective where the number of entities in the collective could be increased,but the strength of the synergetic effect did not.In fact,it reduced.
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:You mean it "tailed off"?! 
 
@@ -7436,7 +7496,7 @@ ME:You mean it "tailed off"?!
 
 SE11(collectively):Yes,and it was significant.This was a great surprise as we had already developed a strategy for significant levels of diversification based upon a collectively suggested level of synergetic effect achievable at a known number of entities within the collective. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ### Quality Is Better Than Quantity 
 
@@ -7446,7 +7506,7 @@ ME:So what happened?Why did it tail off?
 
 SE11 (collectively):There was an effect,a sort of "bow wave"effect.I need to explain it better for you.Let us access your mind and memory. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Please do so. 
 
@@ -7454,7 +7514,7 @@ ME:Please do so.
 
 SE11 (collectively):Ah yes,this will suffice.You have a theory about attaining a velocity that you call "light speed"or the speed of light.This theory states that the closer you get to the speed of light,the mass of the light particle,the photon,increases.The mass of the light particle causes"drag."This drag increases as the mass increases creating so much drag that the photon,the light particle,never actually crosses its maximum speed,the speed of light.This is the same for any other particle that you would like to accelerate up to that speed.The speed of light has a self-governing effect that makes sure that its function is maintained for that for which it was designed-to provide illumination,heat, communication,transportation and some of the lower levels of the creativity process.
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:We do also have a theory that if a photon,a light particle,was to cross over this barrier, it would change its nature and become a tachyon. 
 
@@ -7462,7 +7522,7 @@ ME:We do also have a theory that if a photon,a light particle,was to cross over 
 
 SE11 (collectively):Yes,but that relies upon the photon changing its state beforehand, shedding the velocity accrued mass and becoming the theoretical tachyon particle exactly at the point of change over necessary to go faster than the speed of light.You might like to think of it as providing an "afterburner"effect to the particle.In essence,the photon is a tachyon particle in disguise.It gets up to the speed it can whilst in the lower physical frequencies and then loses that part of its physicality necessary for it to continue accelerating beyond that of its speed as a photon particle.It does this by changing its frequency at the point of change of speed,effectively releasing itself from the constraints of the frequencies of the lower physical universe. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:So taking this illustration into context then,you are suggesting the higher the number of entities,the greater the resistance created.This resistance has a stalling effect on the level of synergy that can be attained,causing it to tail off. 
 
@@ -7470,7 +7530,7 @@ ME:So taking this illustration into context then,you are suggesting the higher t
 
 SE11 (collectively):Correct. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Why? 
 
@@ -7478,7 +7538,7 @@ ME:Why?
 
 SE11 (collectively):Because of the sheer number.When we attained a certain number of individual units of Source Entity,which is by the way,what we have now,we achieve a balance between the collective ability to work together and the number necessary to create the optimal synergetic effect.It becomes a multiple of a multiple of a multiple of the total number of individual units of Source Entity energy.It is "multipolous."
 
-11号源实体（集体）：
+11号源实体集体：
 
 When we go above this balance,the effects of the processing power of the collective units of Source Entity energy starts to interfere with the synergetic effect.In essence,the synergetic effect is reduced as a function of the ability to control that which created it.It loses its synergy! 
 
@@ -7488,7 +7548,7 @@ ME:Can you not change the dynamic in some way to allow the synergetic effect to 
 
 SE11(collectively):Very good suggestion.But in effect all we would do is create a twinning effect,which is still recognized by the function of synergy.It is also more difficult to control from the perspective of a "collective"because the "twins"need to work together as a local collective of two and then work together with the larger collective of the total collective units of Source Entity energy. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:What about doing some parallel processing where you have two larger collectives of Source Entity energy of the number required to achieve the optimal level of synergy with the synergetic effect at the highest level achievable and,therefore,in balance with the number of units.The two would be then linked together with a small energetic link.Would that not double the synergetic effect?
 
@@ -7496,7 +7556,7 @@ ME:What about doing some parallel processing where you have two larger collectiv
 
 SE11 (collectively):Yes,it would,but it would also create two collectives,both of which would be constrained in their ability to take advantage of such an increase in the synergetic and collective processing effect by the size of the energetic link between them. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Ah,yes.Thinking about it we seem to have a similar issue with dual and quad core microprocessors as they still work effectively in isolation and need a processor to collate and present in a collated and collective way that which they have worked on in an individual basis,thereby giving the impression of the work of one single microprocessor. 
 
@@ -7504,7 +7564,7 @@ ME:Ah,yes.Thinking about it we seem to have a similar issue with dual and quad c
 
 SE11 (collectively):You do,and this will not change until you change your method of processing data. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Thank you.We talked momentarily about the different types of OM and how they perform differently whilst in metaconcert.Can you explain a bit about that for me? 
 
@@ -7512,7 +7572,7 @@ ME:Thank you.We talked momentarily about the different types of OM and how they 
 
 SE11 (collectively):The quality of the entity's energy also has an effect on the level of synergy achieved.For instance,the synergetic effect is higher if the entity is of Source Entity energy.The synergetic effect is lower if the entity is created by a single unit of Source Entity energy or a collective of Source Entity energy.This is the same for the OM.The "pure"OM create a higher level of synergy when in metaconcert together than the"OM/Source Entity" hybrid energies in metaconcert,who will create a lower level of synergy.Those captive and Non-Captive OM also have a natural reduction in synergy based upon their energetic quality being "in between"the two "book ends"of the Pure OM and the OM/Source Entity hybrids The mixing of different types of OM in metaconcert reduces the synergetic effect even more. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:So what you are saying is that there is a compatibility problem with the energy signatures of the entities seeking the synergetic effect of collectivity.They must coalesce in collectives of the same not be able to enjoy the levels of synergy available to collectives whose participants are all from the same energies. 
 
@@ -7520,7 +7580,7 @@ ME:So what you are saying is that there is a compatibility problem with the ener
 
 SE11 (collectively):Correct. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Additionally,there are an optimal number of participants that can be integrated into the collective before the synergetic effect becomes inefficient. 
 
@@ -7528,7 +7588,7 @@ ME:Additionally,there are an optimal number of participants that can be integrat
 
 SE11(collectively):Correct. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Well,that is an interesting concept to understand,and it is one that was not expected- specifically that we are,in essence,limited in our potential synergy. 
 
@@ -7536,7 +7596,7 @@ ME:Well,that is an interesting concept to understand,and it is one that was not 
 
 SE11(collectively):Yes,it is interesting and a very important piece of evolutionary content. You see,it teaches us to be efficient in our application of self and the diversification of self. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ### Optimal Synergy vs.the Number of Collective Entities in Problem Resolution 
 
@@ -7546,7 +7606,7 @@ ME:One of the pieces of information I have just received tells me that you use t
 
 SE11 (collectively):Yes,we have created a map.What you would call a "look-up"table and inserted it into our collective self.This on-board mapping tells us instantaneously how many individual units of our collective state would be required to solve a problem or complete a task in the most efficient way if they were working as a collective and,therefore, invoking the effect of synergy. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:That's most interesting.So taking this into context,if you had a task to do and you worked out that you needed,say,100 units of the collective to complete this task,you would look at the synergetic effects of the collective and work out,albeit instantaneously,how many individual units of the collective,working in metaconcert and,therefore,invoking synergy would equal the optimal number of 100. 
 
@@ -7554,7 +7614,7 @@ ME:That's most interesting.So taking this into context,if you had a task to do a
 
 SE11 (collectively):Yes,very well done.In this instance and as an example only,we would need 42 units working in metaconcert. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:But that's an incredible change in the level of efficiency compared to that achieved by a group of entities working together but not in metaconcert. 
 
@@ -7562,7 +7622,7 @@ ME:But that's an incredible change in the level of efficiency compared to that a
 
 SE11 (collectively):Isn't it just?And now,I hope,you can see why we decided to become a collective and not create a multiverse and populate it with smaller individualized units, which may or may not be capable of metaconcert or,indeed,may or may not desire to work in such an efficient manner.Not that any method of working is incorrect,for we all have to contribute to the evolution of The Origin;the greater the number of different ways of achieving this task,the better.It is just that we have chosen to take this particular route to helping The Origin solve that which it desires solving in preference to any other.As a result. we are achieving a very high level of experience and subsequent evolutionary content. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ### A Decision Still To Be Made
 
@@ -7572,7 +7632,7 @@ ME:I am receiving more information about your decision.Hold on.Is this correct?Y
 
 SE11 (collectively):Yes,we are.You see,we are analyzing all the different ways or routes that the other Source Entities have made and are looking to see if what they have achieved is best achieved in the collective metaconcert and,therefore,synergetic state.We are doing this to see if there are any errors in the calculations that gave us our synergetic look-up table.The effect of this is that we might still revert back to the state of non-collectivity-but only for the use of certain tasks. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:How are you doing that? 
 
@@ -7580,7 +7640,7 @@ ME:How are you doing that?
 
 SE11 (collectively):We are copying some of the tasks of the other entities,those created by those Source Entities that have split themselves to create smaller individualized units of themselves to work in the minute details of their multiverse or environments.We are checking to see if our route and understanding of synergy is valid and/or if it needs re- calibrating in some way,shape or form. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:And does it need re-calibrating? 
 
@@ -7588,7 +7648,7 @@ ME:And does it need re-calibrating?
 
 SE11 (collectively):Not massively.We have been most fastidious in our computations and every check we have done is proving our assumptions and experiences to be justified. However,we have not yet worked out all of the scenarios that we need to employ to help us all agree on the current configuration of our synergetic look-up table.Although it doesn't need much work,there is a modification we might want to do due to the level of accuracy.
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:How long will that take? 
 
@@ -7596,7 +7656,7 @@ ME:How long will that take?
 
 SE11 (collectively):Quite some time yet.We are only a quarter of the way through our testing of the mapping.We do have to say that as a result of the work and evidence created so far,we are becoming very confident that this configuration is efficient,effective and repeatable. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:What do you mean"repeatable"? 
 
@@ -7604,7 +7664,7 @@ ME:What do you mean"repeatable"?
 
 SE11 (collectively):We are checking to see if there is a relationship between the optimal number of entities employed,those working separately together in a specific task,the number of entities in metaconcert-and,therefore,in a synergetic state-giving an effective number of entities equal to those working separately together,and the task itself. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:I am sorry;you have lost me for a moment.Can you elaborate for me? 
 
@@ -7612,7 +7672,7 @@ ME:I am sorry;you have lost me for a moment.Can you elaborate for me?
 
 SE11 (collectively):We are establishing if there is a level of what you would call "correlation" between tasks that demand a certain number of entities outside metaconcert,the equal number in metaconcert,and the tasks themselves.So,let me simplify this for you.If task "A"requires 100 entities outside metaconcert or 42 entities in metaconcert,can the same number of entities in metaconcert,and,therefore,in synergy,also be used for task"B"which also requires 100 entities outside metaconcert?Or is there some effect created by the task on the synergetic number that affects the number of entities necessary to complete the task outside of metaconcert? 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:And you still haven't established this yet?
 
@@ -7620,7 +7680,7 @@ ME:And you still haven't established this yet?
 
 SE11 (collectively):Yes and no. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:What do you mean,yes and no? 
 
@@ -7628,7 +7688,7 @@ ME:What do you mean,yes and no?
 
 SE11 (collectively):We established that this was a 99.999%correct assumption in the last round of testing.However we want to get this last level of error,0.001%out of the equation, so we have made some minor adjustments and are in the process of re-testing. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Hold on.You have been testing your assumptions on the level of accuracy of the look-up table? 
 
@@ -7636,7 +7696,7 @@ ME:Hold on.You have been testing your assumptions on the level of accuracy of th
 
 SE11 (collectively):Yes,of course. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:But why? 
 
@@ -7644,7 +7704,7 @@ ME:But why?
 
 SE11 (collectively):To understand the error factor,if any.But as you can see from the information we have given you,we noticed that we have an error factor of 0.001% 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Yes,I noticed that,but is that level of accuracy enough for you to work with? 
 
@@ -7652,7 +7712,7 @@ ME:Yes,I noticed that,but is that level of accuracy enough for you to work with?
 
 SE11 (collectively):No.We need total accuracy.Listen.As a result of us being able to work out the error factor,we have been able to use an interim condition as a "correction factor" as an interim fix to the problem we have.In fact,apart from those units of this collective chosen to discuss various subjects about ourselves with you in this dialogue,we have been using all other available entities to solve this problem. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:It's that big a problem?
 
@@ -7660,7 +7720,7 @@ ME:It's that big a problem?
 
 SE11(collectively):Yes,of course it is.0.001%is what you call the "proverbial barn door." This level of inaccuracy can cause severe issues with the work of those entities chosen to undertake the work that they have been assigned. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:So what you are doing now is finalizing the corrections to the existing/latest computations.When you have understood these corrections,you will put them in place and utilize them in the "computer program"/"look-up"table for identifying the optimal number of entities necessary for a particular role,both in the metaconcert condition and the non- metaconcert condition. 
 
@@ -7668,7 +7728,7 @@ ME:So what you are doing now is finalizing the corrections to the existing/lates
 
 SE11(collectively):Correct.But don't get wound up with semantics here.This is not holding us back.We are still moving forward with the work that we set out to do.What you have experienced here is just that which is happening from an experimental basis.We are still and have been working on the task The Origin gave to us at the start of our awakening process-that being the need to experience,learn and evolve. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:What you are telling me then is that your side line is project that you are improving the synergetic effect by modification of that which the entities do or that which is required to achieve the 100%correlation between the task,number of entities in metaconcert and the number of entities not in metaconcert. 
 
@@ -7676,7 +7736,7 @@ ME:What you are telling me then is that your side line is project that you are i
 
 SE11 (collectively):Correct! 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:And what is the point of this work?What it's the underlying need to do this? 
 
@@ -7684,7 +7744,7 @@ ME:And what is the point of this work?What it's the underlying need to do this?
 
 SE11 (collectively):It may seem like we are doing work for the sake of it,but know this-when we have established 100%efficiency in our use of the synergetic effects of placing collective units of us in metaconcert to achieve any task,we will be able to increase the number of tasks we want to work on whilst decreasing the number of collective entities involved in any one task.In this way we will increase our evolutionary content by a factor equal to the synergetic effect,accelerating both our own evolution and the evolution of The Origin.It is a most important task that we do here. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ### When a Collective Is Not a Collective 
 
@@ -7696,7 +7756,7 @@ ME:Throughout our conversations I have noticed that you use the words"metaconcer
 
 SE11 (collectively):It does.You see,there are many different classifications of collective and, therefore,there are many different ways in which to reach the synergetic effect.There are also many different levels of efficiency that can be achieved within the synergetic effect. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Now you are whetting my appetite.You say that there are many different classifications of collective.I thought that there could only be one type of collective-a collective. 
 
@@ -7704,7 +7764,7 @@ ME:Now you are whetting my appetite.You say that there are many different classi
 
 SE11 (collectively):No,there are many.As a singular being that has the ability to commune in metaconcert,you would understand this better when you are in the energetic;however, in your current incarnate condition,you will find this difficult to understand.Nevertheless, it is an important concept for you to convey,for it will expand the knowledge base of your mankind in this area. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 There are four main types of collectivity with variations of these four in-between.They are explained as follows. 
 
@@ -7744,7 +7804,7 @@ ME:I have to say that I didn't expect that many versions of a collective.Nor did
 
 SE11 (collectively):That is not all of them. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:What do you mean?These are just examples? 
 
@@ -7752,7 +7812,7 @@ ME:What do you mean?These are just examples?
 
 SE11(collectively):There are versions that are hybrids of those that we have just described to you,but they are self-explanatory insomuch as they rely on the compartmentalization of the collective to allow such activity to take place whilst the rest of the collective operates in the dominant collective format.An additional collective to the four above is one that is fluidic in nature. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 **Fluidic Collective** 
 
@@ -7762,7 +7822,7 @@ ME:Do you mean that it is always changing?
 
 SE11 (collectively):Yes,the whole collective is constantly changing as a response to the demands of its current task. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 I receive an image of ever-increasing quality;it is the image of a vast network where every entity is joined together.It looks like a huge fishing net.Each of the points where the thread of the fishing net is joined represents an entity,a unit of the collective with the thread of the fishing net being the lines of communication between the entities and groups of entities in metaconcert.As I look at this net,I see it connecting and disconnecting with single entities or groups of entities being included or "un-included"in the metaconcert.The connections that are in use are represented by the threads glowing in white light.It flashes on and off with whole areas of entities in what I can only describe as a 3D network,winking in and out of connectivity with the whole.It looks like the way a neural network might perform.For a moment,I thought it looked like a "net"of LED Christmas lights,all being turned on and off in a random way.As I look deeper and with more focus,I see that there is a pattern to the frequency ofillumination of the lines of communication and those entities or groups of entities being included in the metaconcert.I decide to ask the collective that was Source Entity Eleven to both clarify what I am seeing and elaborate where necessary.
 
@@ -7772,7 +7832,7 @@ ME:Is this a true representation of the functionality of this type of collective
 
 SE11 (collectively):Yes it is.But please note that this is just a very small example for you to work with.In reality what you are seeing is the microscopic representation of how this type of collective functions.Consider it like looking through an electron microscope that is able to focus upon the components of the components of the components of an atom in your physical universe.Then consider that the entire collective is the "physical"size of your "physical"universe.This will give you an idea of the scale involved here. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:But the level of detail is immense then? 
 
@@ -7780,7 +7840,7 @@ ME:But the level of detail is immense then?
 
 SE11 (collectively):Of course,it is. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:So what was I seeing?That is,what was the significance of the illuminated areas and the threaded areas being illuminated? 
 
@@ -7788,7 +7848,7 @@ ME:So what was I seeing?That is,what was the significance of the illuminated are
 
 SE11 (collectively):It is exactly as you saw it.I can see you frowning,so I will explain further.The "pulsing"of the light on the lines of communication was,indeed,an example of the inclusion of the various units of the collective.The communications though are not what you would call 3D,for it is a multidimensional structure with each of the units of the collective capable of being introduced to the function of metaconcert as part of the whole, as a separate and independent entity unit,as part of a group of entities,as part of a series of groups,or as an operative entity of multiple groups operating both independently or collectively. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Are you suggesting that an entity can have several functions and group associations simultaneously? 
 
@@ -7796,7 +7856,7 @@ ME:Are you suggesting that an entity can have several functions and group associ
 
 SE11 (collectively):Yes,of course.That is the whole point of the multidimensionality of this type of collective.In essence,what is happening is that the collective is operating as a whole,a collective of groups,and a collective of singular entity units.The functionality of this type of collective is such that it is capable of switching on and out of the collective,the various groups or single units at will,depending upon the type of work being considered. The singular units are either used in isolation or as an integral part of multiple groups.The direction of the lines of communication are switched to those areas of the collective where there is reduction in demand of the metaconcert state when there is an increase in demand for such a state elsewhere within the collective.Once the "work"is done,the number of entities is reduced to ensure that the optimal use of the "resource"is maintained. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:So how is this controlled/maintained?It must be extremely difficult. 
 
@@ -7804,7 +7864,7 @@ ME:So how is this controlled/maintained?It must be extremely difficult.
 
 SE11(collectively):In this type of collective structure,there is a group of entities which are part of an integrated network that "infiltrates"the totality of the collective and monitors the level of work being done versus the number of entities and the levels of synergy being achieved.This group controls both the connectivity of the individual entities that make up the whole whilst knowing the best individual entity units to use for the tasks presented. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Are you suggesting that the individual units of the collective are "individual"in terms of their functionality and are selected by the "controlling"group of entities to perform their roles relative to their level or type of functionality?
 
@@ -7812,7 +7872,7 @@ ME:Are you suggesting that the individual units of the collective are "individua
 
 SE11(collectively):In a nutshell,yes.There is one additional piece of information you need to know about though. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:And that is? 
 
@@ -7820,7 +7880,7 @@ ME:And that is?
 
 SE11 (collectively):That the so called "controlling"entities are also part of the "bag"of entity-based tools,so to speak. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:So they not only control the function of the collective,observing and switching in and out those entities necessary to ensure an efficient level of synergetic functionality,they are also part of this functionality,switching themselves in and out of the collective groups as and when required. 
 
@@ -7828,7 +7888,7 @@ ME:So they not only control the function of the collective,observing and switchi
 
 SE11 (collectively):Yes. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Is this type of collective a popular one? 
 
@@ -7836,7 +7896,7 @@ ME:Is this type of collective a popular one?
 
 SE11 (collectively):No,because it is difficult to maintain and control.It also demands a critical mass of a certain type of entity to become viable. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:I would imagine it would be quite slow in its application to problem resolution/ evolutionary content because of the need to use what I can only imagine to be a high number of entities in the management of such a fluidic metaconcert. 
 
@@ -7844,7 +7904,7 @@ ME:I would imagine it would be quite slow in its application to problem resoluti
 
 SE11 (collectively):It's not slow.It's quite fast in comparison to the other collective configurations.It's just that it's not totally efficient all the time. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Why is it then?
 
@@ -7852,7 +7912,7 @@ ME:Why is it then?
 
 SE11 (collectively):Because it needs to be maintained by those entities that maintain its optimal level of functionality,which makes them inefficient.Also,it leaves vast areas of entities unused,and,therefore,out of metaconcert when the collective is operating at its supposed optimal efficiency. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:This tells me that the number of individual entities within the collective can ultimately be reduced. 
 
@@ -7860,7 +7920,7 @@ ME:This tells me that the number of individual entities within the collective ca
 
 SE11(collectively):Correct. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:So why wouldn't a collective that establishes this case when in this configuration do exactly that-reduce its number? 
 
@@ -7868,7 +7928,7 @@ ME:So why wouldn't a collective that establishes this case when in this configur
 
 SE11(collectively):They do,and in the process,they create a new collective,which adopts any of the other configurations,depending upon the quality of the individual entities concerned. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:So the quality of the entities within the collective has as effect on the type of collective they become as a whole? 
 
@@ -7876,7 +7936,7 @@ ME:So the quality of the entities within the collective has as effect on the typ
 
 SE11 (collectively):Yes,it always does. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ### Source Entity Eleven,a Collective of Units of Singular Sentience 
 
@@ -7890,7 +7950,7 @@ ME:Having just spent the last few days discussing the virtues of the different t
 
 SE11(collectively):Yes,we are,and the title tells it all-should you want to decipher it. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 I read the title two or three times before the penny dropped.Source Entity Eleven's functionality was twofold.The title of the description told both sides of the coin.In the first dialogue that described this collective type/genre,I/we had focused upon the individualized entities that made up Source Entity Eleven as being just that-a collective of individualized units grouped together to make a collective.A collective that could use any number of permutations of singularity, collectivity and synergy to achieve that which it desired at any one point.But what I was seeing now was an echo-a remembrance of that which it was before it diversified into the billion or so individualized units that might or might not work in metaconcert with that choice being dependent upon the task.Therefore,"the collective of units of singular sentience"referred to the singularity that Source Entity Eleven was before diversification.The description,literally true for both conditions,was more visible in its current state. 
 
@@ -7898,7 +7958,7 @@ As I thought about this more,I started to receive some help,information-wise.Whe
 
 SE11 (collectively):We thought you might enjoy that little conundrum.You see,we needed to see if you were capable of expansive thought via exposure to conflicting conditions that are both correct but,nevertheless,improbable when seen together.Consider it like having to describe black as being white,which is,in turn,black.It is an impossible possibility,which is,nevertheless,both possible and probable,and,indeed,highly likely,should you have the capability of being expansive enough to work with the data that is put before you-which you have.Based upon this,we will continue this dialogue and present to you further details on the individualized units that we are collectively. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Wait a moment.Are you suggesting that you have been testing my ability to understand you? 
 
@@ -7906,7 +7966,7 @@ ME:Wait a moment.Are you suggesting that you have been testing my ability to und
 
 SE11 (collectively):Yes,of course.Why are you surprised? 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:It's just that I didn't expect it. 
 
@@ -7914,7 +7974,7 @@ ME:It's just that I didn't expect it.
 
 SE11(collectively):If we are all one,how can we be singular,and if we are all singular,how can we be all one!The answer is that we are all the collective totality of the entity we call The Origin.You do see that,don't you? 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Yes,of course.It's one of the great realities of the omniverse,of "The Absolute,""The Origin.”
 
@@ -7922,7 +7982,7 @@ ME:Yes,of course.It's one of the great realities of the omniverse,of "The Absolu
 
 SE11(collectively):Good.Then we shall continue. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ### Source Entity Eleven's Individualized Units-A Synergetic Conundrum 
 
@@ -7934,7 +7994,7 @@ ME:All through this dialogue you have alluded to the "fact"that you are made up 
 
 SE11(collectively):Yes,you are. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Can you explain why this is?It almost seems to add to the conundrum of what you are. 
 
@@ -7942,7 +8002,7 @@ ME:Can you explain why this is?It almost seems to add to the conundrum of what y
 
 SE11 (collectively):And now you know why we gave you that little test.We needed to see if you could accept the information we were sending you for what it is and not filter it in any way that would make the data more acceptable to your own memory base and,therefore, filter out the necessary detail. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Oh,OK.Now I really do see the impetus behind the need to test me.I agree with you.It would have been somewhat limiting to know that most of what you were going to send me would have been lost in translation,so to speak. 
 
@@ -7950,7 +8010,7 @@ ME:Oh,OK.Now I really do see the impetus behind the need to test me.I agree with
 
 SE11(collectively):Moreover,it would have been pointless from our perspective. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:OK.Let's move on then.What is the benefit of having entities that are,in effect, collectives in their own right?
 
@@ -7958,7 +8018,7 @@ ME:OK.Let's move on then.What is the benefit of having entities that are,in effe
 
 SE11 (collectively):We will need to go back to the time of diversification to answer that question.If you remember,when we diversified and were checking the efficiency of the number of entities in metaconcert,in collectivity,versus the optimal synergetic effects available as a result of that number in metaconcert. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Yes,I remember. 
 
@@ -7966,7 +8026,7 @@ ME:Yes,I remember.
 
 SE11 (collectively):Then you will also note that we said that we could not increase the number of entities in metaconcert above a certain level due to the subsequent reduction in the synergetic effect. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Yes,I remember that as well.I also remember that you stated that there was no way in which you could increase the number of entities by stealth and,therefore,"bypass"the "law"that limits the number of entities that can be in metaconcert whilst still achieving the optimal levels of synergy. 
 
@@ -7974,7 +8034,7 @@ ME:Yes,I remember that as well.I also remember that you stated that there was no
 
 SE11 (collectively):Well,there is a way.We just discovered it. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:What!How can that happen?You were so sure a couple of weeks ago that this could not be bypassed and that there must be lines of communication between the groups of entities in metaconcert,and these communication lines would invariably slow things up. 
 
@@ -7982,7 +8042,7 @@ ME:What!How can that happen?You were so sure a couple of weeks ago that this cou
 
 SE11(collectively):We did.But that was a long time ago. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:No it wasn't.It was no more than a couple of weeks ago! 
 
@@ -7990,7 +8050,7 @@ ME:No it wasn't.It was no more than a couple of weeks ago!
 
 SE11 (collectively):That is in your linear time.Remember only event space exists and not linear or what you sometimes call"clock"time.If we were to use clock time as a metric that you can use to understand what has been happening in the background,then we can say that several hundred millennia have passed.Or should we say there have been several event spaces navigated since then. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Now I know why you were checking me out!OK,what's the latest news then? 
 
@@ -7998,7 +8058,7 @@ ME:Now I know why you were checking me out!OK,what's the latest news then?
 
 SE11 (collectively):We decided to return to the basics of what we will now call the "macro" collective of a single entity.We saw that when we were in that configuration,we had an optimal number of entities that could be in metaconcert before the synergetic effects reduced or tailed off. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Yes,we have discussed this before. 
 
@@ -8006,7 +8066,7 @@ ME:Yes,we have discussed this before.
 
 SE11(collectively):Yes,we have,but that was the clue.We fed back the explanation of what we were during our discussion with you into a new event space,an event space that was necessary to allow further experimentation.In essence,we were running two event spaces concurrently,one in communication with you,and the other experimenting with the new "strategy."The new strategy took what you would recognize as several hundred millennia to run but the results were fantastic. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:So can you advise me of the theory behind the construction of your entities as they are now? 
 
@@ -8016,7 +8076,7 @@ I had to work hard to keep up!
 
 SE11 (collectively):Each entity is a collective of a single entity.As such,it is presented to the outside world as a singular entity,not a collective and,therefore,circumnavigates the synergy law since each collective is considered as a single unit and,therefore,is registered as such whilst in metaconcert.Hence,it is possible to have an optimal number of "individual collectives of units of singular sentience"and still achieve the synergetic effects required. What's more,we discovered that we can create collectives of collectives of a collective of units of singular sentience.Each collective whilst in metaconcert would agree to the law of synergy. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:You have discovered a way to "nest"collectives and,therefore,maximize your synergetic effects beyond that available through singular entity units joining together in metaconcert. 
 
@@ -8024,7 +8084,7 @@ ME:You have discovered a way to "nest"collectives and,therefore,maximize your sy
 
 SE11 (collectively):We have.What's more,in doing this,we have been able to use all the individualized units that were created in the diversification,thus,affecting a clean series of collectives of units of singular sentience gaining optimized synergy from the bottom layer to the top layer of the collective of units of singular sentience,so to speak.We have multiplied our metaconcert synergetic efficiency by untold "multipolous"amounts,as a result.We are pleased. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:I bet you are! 
 
@@ -8038,7 +8098,7 @@ As if sensing my concern,the collective that was Source Entity Eleven decided to
 
 SE11(collectively):Don't think for a moment that this is all laid on for YOU.You are nowhere near significant enough to activate ALL of the major events that are happening whilst you are communicating with us. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:That's it.Bring me back down to Earth! 
 
@@ -8046,7 +8106,7 @@ ME:That's it.Bring me back down to Earth!
 
 SE11 (collectively):No,we don't want to do that.It's too far down the frequencies.All we want to convey to you is this:you are one in a million,a rarity so to speak,especially when incarnate in the frequencies associated with the Earth.In some instances,communication with an entity such as yourself will kick-off a thought process that we would not have embarked upon as soon as we did when communicating with you.It is simply because you are totally individual as an entity and offer a point of view that is not necessarily high on our priority that we decided to take a wild card approach to our analysis of synergy.We used you as the "unknown variable."You "thought"of something,albeit momentarily,and we acted upon it.What you aren't aware of is how long we thought about it before acting. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:How long did you think about it?
 
@@ -8054,7 +8114,7 @@ ME:How long did you think about it?
 
 SE11 (collectively):Several thousand years in your book.At the point of receiving the thought we decided to "hive off"a considerable percentage of our "totality"to working with the possibility that this thought could present to us. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:And what was the thought? 
 
@@ -8062,7 +8122,7 @@ ME:And what was the thought?
 
 SE11 (collectively):It wasn't so much the thought as the title and the thought behind the title. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:You mean when I was typing down the words I used to describe the different types of collective. 
 
@@ -8070,7 +8130,7 @@ ME:You mean when I was typing down the words I used to describe the different ty
 
 SE11(collectively):Yes.Especially the one used to describe our state.It got a large proportion of us thinking and calculating and by the time you had finished typing,we collected enough data to allow us to make the decision to drop a number of our existing experiments and work on that which was based upon your thought. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:So I was here at the right time! 
 
@@ -8078,7 +8138,7 @@ ME:So I was here at the right time!
 
 SE11(collectively):No,we had that possibility mapped out already.It's just that it was too close to another possible strategy that we had already calculated as being of limited success to bring it close enough to our attention to warrant further focused consideration.You simply tipped the balance,so to speak.
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Well,I am glad to be heavy enough to have tipped that particular balance. 
 
@@ -8086,7 +8146,7 @@ ME:Well,I am glad to be heavy enough to have tipped that particular balance.
 
 SE11(collectively):As we have recently stated,you are not the center of attention here although you are of interest.It's just that you happened to make a random thought that caught our attention,imagination and subsequent action.Now let's move on,for we are starting to run out of that event space commodity you like to call time. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 You wanted to know more details about the functionality of the individualized units of our collective. 
 
@@ -8096,7 +8156,7 @@ ME:I do.
 
 SE11 (collectively):Then we shall advise you of the three main variants we have here.As with most creativity,there is an element of variability in the manufacturing process.This variability is manifested in the optimal functionality of the individual unit concerned. When we diversified,we achieved this condition in stages.You may remember from the start of this dialogue that we were experimenting in the efficiency of the collective configuration in some considerable way and time before we decided to commit our totality to being in the collective state. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Yes,I do remember that you suggested that you were a percentage collective and a percentage singularity at certain points in your existence. 
 
@@ -8104,7 +8164,7 @@ ME:Yes,I do remember that you suggested that you were a percentage collective an
 
 SE11 (collectively):Yes,good.Then you will also remember what your own Source Entity told you about its own creativity process,that it was not "perfect"in its repeatability. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Yes,I definitely remember that.That is the reason we have entities that are "sentient," energetic humanity and above;those that are "semi-sentient"animals and those instinctive races of entities;and the "non-sentient"entities,the automata-so to speak;the purely instinctive and below,such as the plant and mineral kingdoms on Earth.
 
@@ -8112,7 +8172,7 @@ ME:Yes,I definitely remember that.That is the reason we have entities that are "
 
 SE11 (collectively):Good memory.Then you will be aware of the fact that each of these entity "types"or "classes"are also capable of evolutionary advancement at a rate concurrent with their level of sentience. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Yes,I recognize that opportunity as well. 
 
@@ -8120,7 +8180,7 @@ ME:Yes,I recognize that opportunity as well.
 
 SE11 (collectively):Fantastic because this is a similar function experienced by ourselves when we diversified.We didn't,however,lose concentration during the creativity process as your own Source Entity did because we had 100%concentration on what we were doing when we entered into the final diversification process. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:So what happened then?What resulted in the three main variants of entity? 
 
@@ -8128,7 +8188,7 @@ ME:So what happened then?What resulted in the three main variants of entity?
 
 SE11 (collectively):Calculation. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:What?Calculation?What does that mean? 
 
@@ -8138,7 +8198,7 @@ ME:What?Calculation?What does that mean?
 
 SE11(collectively):In essence,we decided to create entities that conformed to a hierarchical state. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:So what was this hierarchical state? 
 
@@ -8150,7 +8210,7 @@ SE11 (collectively):
 - b. Function,resulting from command and control; 
 - c. Adaption.
 
-11号源实体（集体）：
+11号源实体集体：
 
 I will explain their roles in more detail for you because some of their roles and responsibilities are obvious whereas others are not.None of these entities are senior to the other in any way,shape,or form-they are all as important as each other. 
 
@@ -8172,7 +8232,7 @@ ME:This feels like the beginnings of a integrated circuit,or better still,the ar
 
 SE11(collectively):Yes,we can see how you may make that analogy,for in certain instances that is what we almost become,a super massive processor on a Source Entity scale.This is one of the ways in which we work with the evolutionary tasks that we set ourselves. 
 
-11号源实体（集体）：
+11号源实体集体：
 
 ### A Top-down Visualization of the "New Source Entity Eleven" 
 
@@ -8188,7 +8248,7 @@ ME:I must take the opportunity to both discuss this new configuration with you a
 
 SE11(collectively):Yes,and so you should.If you like,we can do this together to ensure that you do not duplicate any of the previous text too much.
 
-11号源实体（集体）：
+11号源实体集体：
 
 ME:Yes,I would very much like that. 
 
