@@ -7480,629 +7480,695 @@ ME:Sounds like you discovered a very valid reason for being a collective rather 
 
 SE11 (collectively):You would think so,but we discovered a limitation to this strategy because the geometric increase in synergy did not increase "ad infinitum." 
 
-11号源实体集体：
-
-ME:Go on. 
-
-我：
+11号源实体集体：你可能会这么想，但我们发现这种策略有局限性，因为协同作用的几何增长不会“无限”增长。
 
 SE11 (collectively):We noted that an optimal number of units within a collective could be reached from a synergetic perspective where the number of entities in the collective could be increased,but the strength of the synergetic effect did not.In fact,it reduced.
 
-11号源实体集体：
+11号源实体集体：我们注意到，从协同的角度来看，集体内的单位数量可以达到最优值，而集体中的实体数量可以增加，但协同效应的强度并没有增加。事实上，它减少了。
 
 ME:You mean it "tailed off"?! 
 
-我：
+我：你是说它“尾巴变长”了？
 
 SE11(collectively):Yes,and it was significant.This was a great surprise as we had already developed a strategy for significant levels of diversification based upon a collectively suggested level of synergetic effect achievable at a known number of entities within the collective. 
 
-11号源实体集体：
+11号源实体集体：是的，这是很重要的。这是一个很大的惊喜，因为我们已经开发了一个基于集体建议的协同效应水平的多样化战略，该战略是在集体内已知的实体数量下实现的。
 
 ### Quality Is Better Than Quantity 
 
+**质量胜于数量**
+
 ME:So what happened?Why did it tail off? 
 
-我：
+我：那发生了什么？为什么它会逐渐减弱？
 
 SE11 (collectively):There was an effect,a sort of "bow wave"effect.I need to explain it better for you.Let us access your mind and memory. 
 
-11号源实体集体：
+11号源实体集体：有一个效果，一种“弓形波”效果。我需要更好地为您解释它。让我们进入您的思想和记忆。
 
 ME:Please do so. 
 
-我：
+我：请这样做。
 
 SE11 (collectively):Ah yes,this will suffice.You have a theory about attaining a velocity that you call "light speed"or the speed of light.This theory states that the closer you get to the speed of light,the mass of the light particle,the photon,increases.The mass of the light particle causes"drag."This drag increases as the mass increases creating so much drag that the photon,the light particle,never actually crosses its maximum speed,the speed of light.This is the same for any other particle that you would like to accelerate up to that speed.The speed of light has a self-governing effect that makes sure that its function is maintained for that for which it was designed-to provide illumination,heat, communication,transportation and some of the lower levels of the creativity process.
 
-11号源实体集体：
+11号源实体集体：啊，是的，这就够了。你们有一个关于达到一种速度的理论，你们称之为“光速”或光速。这个理论认为，你越接近光速，光粒子，即光子的质量就越大。光粒子的质量会引起“阻力”。这种阻力随着质量的增加而增加，产生了如此多的阻力，以至于光子，即光粒子，从未真正超越它的最大速度，即光速。这对任何其他你想加速到那个速度的粒子都是一样的。光速具有自我调节的效果，以确保其功能保持为其设计的功能——提供照明、加热、通信、运输和一些较低水平的创造过程。
 
 ME:We do also have a theory that if a photon,a light particle,was to cross over this barrier, it would change its nature and become a tachyon. 
 
-我：
+我：我们也有理论认为，如果一个光子，一个轻粒子，要穿过这个障碍，它会改变它的性质，变成一个超光速粒子。
 
 SE11 (collectively):Yes,but that relies upon the photon changing its state beforehand, shedding the velocity accrued mass and becoming the theoretical tachyon particle exactly at the point of change over necessary to go faster than the speed of light.You might like to think of it as providing an "afterburner"effect to the particle.In essence,the photon is a tachyon particle in disguise.It gets up to the speed it can whilst in the lower physical frequencies and then loses that part of its physicality necessary for it to continue accelerating beyond that of its speed as a photon particle.It does this by changing its frequency at the point of change of speed,effectively releasing itself from the constraints of the frequencies of the lower physical universe. 
 
-11号源实体集体：
+11号源实体集体：是的，但这取决于光子事先改变其状态，甩掉速度累积质量，并在改变所需的速度超过光速的点上变成理论上的超光速粒子。你可能会认为它为粒子提供了“加力”效应。本质上，光子是伪装的超光速粒子。它在较低的物理频率上达到它可以达到的速度，然后失去作为光子粒子继续加速超过其速度所需的部分物质。
 
 ME:So taking this illustration into context then,you are suggesting the higher the number of entities,the greater the resistance created.This resistance has a stalling effect on the level of synergy that can be attained,causing it to tail off. 
 
-我：
+我：所以把这个例子放到上下文中，你的意思是实体的数量越多，产生的阻力就越大。这种阻力对可以达到的协同水平有一种停滞效应，导致它减弱。
 
 SE11 (collectively):Correct. 
 
-11号源实体集体：
+11号源实体集体：正确。
 
 ME:Why? 
 
-我：
+我：为什么？
 
 SE11 (collectively):Because of the sheer number.When we attained a certain number of individual units of Source Entity,which is by the way,what we have now,we achieve a balance between the collective ability to work together and the number necessary to create the optimal synergetic effect.It becomes a multiple of a multiple of a multiple of the total number of individual units of Source Entity energy.It is "multipolous."
 
-11号源实体集体：
+11号源实体集体：因为数量太多。当我们获得一定数量的源实体个体单位时，顺便说一下，我们现在就有了，我们就达到了集体合作能力和创造最佳协同效应所需数量之间的平衡。它变成了源实体能量个体单位总数的倍数的倍数的倍数。它是“多极的”。
 
 When we go above this balance,the effects of the processing power of the collective units of Source Entity energy starts to interfere with the synergetic effect.In essence,the synergetic effect is reduced as a function of the ability to control that which created it.It loses its synergy! 
 
+当我们超越这个平衡，源实体能量的集体单位的处理能力的影响开始干扰协同效应。本质上，协同效应作为控制创造它的能力的功能被减少了。
+
 ME:Can you not change the dynamic in some way to allow the synergetic effect to continue to increase in the geometric fashion it is supposed to.For instance,can you not link two units together in some small way,effectively creating one unit out of two from the perspective of the synergetic effect,thereby doubling the effect and creating a multiple of the synergetic effect? 
 
-我：
+我：你不能以某种方式改变动态，让协同效应继续以几何方式增加吗？例如，你不能以某种小的方式将两个单位连接在一起，从协同效应的角度有效地创建一个单位，从而使效果加倍，并创建一个倍数的协同效应吗？
 
 SE11(collectively):Very good suggestion.But in effect all we would do is create a twinning effect,which is still recognized by the function of synergy.It is also more difficult to control from the perspective of a "collective"because the "twins"need to work together as a local collective of two and then work together with the larger collective of the total collective units of Source Entity energy. 
 
-11号源实体集体：
+11号源实体集体：非常好的建议。但实际上我们所做的只是创造一个双生子效应，这仍然被协同功能所识别。从“集体”的角度来看，它也更难控制，因为“双生子”需要作为两个人的局部集体一起工作，然后与源实体能量的全部集体单位的更大的集体一起工作。
 
 ME:What about doing some parallel processing where you have two larger collectives of Source Entity energy of the number required to achieve the optimal level of synergy with the synergetic effect at the highest level achievable and,therefore,in balance with the number of units.The two would be then linked together with a small energetic link.Would that not double the synergetic effect?
 
-我：
+我：如果我们做一些平行处理，你有两个更大的能量源实体集合，达到最佳的协同水平，协同效果达到最高水平，因此，与单位数量平衡。然后，两个能量源实体通过一个小的能量链接连接在一起。这不会使协同效果加倍吗？
 
 SE11 (collectively):Yes,it would,but it would also create two collectives,both of which would be constrained in their ability to take advantage of such an increase in the synergetic and collective processing effect by the size of the energetic link between them. 
 
-11号源实体集体：
+11号源实体集体：是的，它会，但它也会创造两个集体，这两个集体在利用协同和集体处理效应的增加方面，都会受到它们之间能量联系大小的限制。
 
 ME:Ah,yes.Thinking about it we seem to have a similar issue with dual and quad core microprocessors as they still work effectively in isolation and need a processor to collate and present in a collated and collective way that which they have worked on in an individual basis,thereby giving the impression of the work of one single microprocessor. 
 
-我：
+我：啊，是的。 想想看，我们似乎有一个类似的问题与双核和四核微处理器，因为他们仍然有效地隔离工作，需要一个处理器来整理和呈现在一种整理和集体的方式，他们已经在单个的基础上工作，从而给人一种单个微处理器工作的印象。
 
 SE11 (collectively):You do,and this will not change until you change your method of processing data. 
 
-11号源实体集体：
+11号源实体集体：你确实是这样，而且这种情况不会改变，除非你改变了处理数据的方法。
 
 ME:Thank you.We talked momentarily about the different types of OM and how they perform differently whilst in metaconcert.Can you explain a bit about that for me? 
 
-我：
+我：谢谢。我们刚刚谈到了不同类型的OM以及它们在元音乐会中的表现。你能为我解释一下吗？
 
 SE11 (collectively):The quality of the entity's energy also has an effect on the level of synergy achieved.For instance,the synergetic effect is higher if the entity is of Source Entity energy.The synergetic effect is lower if the entity is created by a single unit of Source Entity energy or a collective of Source Entity energy.This is the same for the OM.The "pure"OM create a higher level of synergy when in metaconcert together than the"OM/Source Entity" hybrid energies in metaconcert,who will create a lower level of synergy.Those captive and Non-Captive OM also have a natural reduction in synergy based upon their energetic quality being "in between"the two "book ends"of the Pure OM and the OM/Source Entity hybrids The mixing of different types of OM in metaconcert reduces the synergetic effect even more. 
 
-11号源实体集体：
+11号源实体集体：实体的能量质量也对所达到的协同水平有影响。例如，如果实体是源实体能量，协同效果会更高。如果实体是由单个源实体能量单位或源实体能量集体创建的，协同效果会更低。OM也是如此。在元协定中，“纯”OM比“OM/源实体”混合能量创造更高的协同水平，而后者将创造更低的协同水平。那些俘获和非俘获OM也有自然的协同减少，因为它们的能量质量处于“纯OM”和“OM/源实体”混合物的两个“书末端”之间。在元协定中混合不同类型的OM会进一步降低协同效果。
 
 ME:So what you are saying is that there is a compatibility problem with the energy signatures of the entities seeking the synergetic effect of collectivity.They must coalesce in collectives of the same not be able to enjoy the levels of synergy available to collectives whose participants are all from the same energies. 
 
-我：
+我：所以你的意思是，在寻求集体协同效应的实体的能量特征方面存在一个兼容性问题。他们必须在相同的集体中结合，而不能享受到集体成员都来自相同能量的协同水平。
 
 SE11 (collectively):Correct. 
 
-11号源实体集体：
+11号源实体集体：正确。
 
 ME:Additionally,there are an optimal number of participants that can be integrated into the collective before the synergetic effect becomes inefficient. 
 
-我：
+我：此外，在协同效应变得无效之前，可以将参与者整合到集体中的最佳数量。
 
 SE11(collectively):Correct. 
 
-11号源实体集体：
+11号源实体集体：正确。
 
 ME:Well,that is an interesting concept to understand,and it is one that was not expected- specifically that we are,in essence,limited in our potential synergy. 
 
-我：
+我：嗯，这是一个有趣的概念，理解它，这是一个出乎意料的概念，特别是我们，在本质上，限制了我们的潜在协同作用。
 
 SE11(collectively):Yes,it is interesting and a very important piece of evolutionary content. You see,it teaches us to be efficient in our application of self and the diversification of self. 
 
-11号源实体集体：
+11号源实体集体：是的，这是很有趣的，也是进化论中非常重要的内容。你看，它教导我们要在自我的应用和自我的多样化方面高效。
 
 ### Optimal Synergy vs.the Number of Collective Entities in Problem Resolution 
 
+**问题解决中的最佳协同与集体实体数量**
+
 ME:One of the pieces of information I have just received tells me that you use this knowledge of optimal synergetic effect versus the number of participating collective entities to solve certain problems or effect changes to that which you have manifest in various levels of acceleration. 
 
-我：
+我：我刚刚收到的信息之一告诉我，您使用最佳协同效应与参与集体实体数量的知识来解决某些问题或影响变化，以便在不同程度的加速中表现出来。
 
 SE11 (collectively):Yes,we have created a map.What you would call a "look-up"table and inserted it into our collective self.This on-board mapping tells us instantaneously how many individual units of our collective state would be required to solve a problem or complete a task in the most efficient way if they were working as a collective and,therefore, invoking the effect of synergy. 
 
-11号源实体集体：
+11号源实体集体：是的，我们已经创造了一个地图。你们会称之为“查找”表，并将其插入到我们的集体自我中。这个板载映射会立即告诉我们，如果我们的集体状态作为一个集体工作，那么需要多少个个体单位以最有效的方式解决一个问题或完成一项任务，从而调用协同效应。
 
 ME:That's most interesting.So taking this into context,if you had a task to do and you worked out that you needed,say,100 units of the collective to complete this task,you would look at the synergetic effects of the collective and work out,albeit instantaneously,how many individual units of the collective,working in metaconcert and,therefore,invoking synergy would equal the optimal number of 100. 
 
-我：
+我：这是最有趣的。所以把这个放到上下文中，如果你有一个任务要做，你计算出你需要，比如说，100个集体单位来完成这个任务，你会看到集体的协同效应，并计算出，尽管是瞬间的，有多少个集体单位在元协定中工作，因此，调用协同将等于最佳数量100。
 
 SE11 (collectively):Yes,very well done.In this instance and as an example only,we would need 42 units working in metaconcert. 
 
-11号源实体集体：
+11号源实体集体：是的，做得很好。在这个例子中，仅作为一个例子，我们需要42个单位在元协奏中工作。
 
 ME:But that's an incredible change in the level of efficiency compared to that achieved by a group of entities working together but not in metaconcert. 
 
-我：
+我：但是与一组实体一起工作但不是在元协定中实现的效率相比，这是一个令人难以置信的效率水平变化。
 
-SE11 (collectively):Isn't it just?And now,I hope,you can see why we decided to become a collective and not create a multiverse and populate it with smaller individualized units, which may or may not be capable of metaconcert or,indeed,may or may not desire to work in such an efficient manner.Not that any method of working is incorrect,for we all have to contribute to the evolution of The Origin;the greater the number of different ways of achieving this task,the better.It is just that we have chosen to take this particular route to helping The Origin solve that which it desires solving in preference to any other.As a result. we are achieving a very high level of experience and subsequent evolutionary content. 
+SE11 (collectively):Isn't it just? And now,I hope,you can see why we decided to become a collective and not create a multiverse and populate it with smaller individualized units, which may or may not be capable of metaconcert or,indeed,may or may not desire to work in such an efficient manner.Not that any method of working is incorrect,for we all have to contribute to the evolution of The Origin;the greater the number of different ways of achieving this task,the better.It is just that we have chosen to take this particular route to helping The Origin solve that which it desires solving in preference to any other.As a result. we are achieving a very high level of experience and subsequent evolutionary content. 
 
-11号源实体集体：
+11号源实体集体：这难道不公平吗？现在，我希望你能明白为什么我们决定成为一个集体，而不是创造一个多维宇宙，并用更小的个体单位来填充它，这些个体单位可能有也可能没有能力进行元协调，或者，事实上，可能有也可能没有意愿以这样一种有效的方式工作。 并不是说任何工作方法都是不正确的，因为我们都必须为起源的进化做出贡献；实现这一任务的不同方法越多，就越好。只是我们选择了这条特殊的路线来帮助起源解决它希望解决的问题，而不是其他任何问题。
 
 ### A Decision Still To Be Made
 
+**一个尚未做出的决定**
+
 ME:I am receiving more information about your decision.Hold on.Is this correct?You are still making it? 
 
-我：
+我：我正在接收关于你的决定的更多信息。等等。这是真的吗？你还在做决定吗？
 
 SE11 (collectively):Yes,we are.You see,we are analyzing all the different ways or routes that the other Source Entities have made and are looking to see if what they have achieved is best achieved in the collective metaconcert and,therefore,synergetic state.We are doing this to see if there are any errors in the calculations that gave us our synergetic look-up table.The effect of this is that we might still revert back to the state of non-collectivity-but only for the use of certain tasks. 
 
-11号源实体集体：
+11号源实体集体：是的，我们正在分析所有其他源实体所采取的不同方式或路线，并观察他们所取得的成就是否在集体元协定中最好地实现，因此，在协同状态下。我们这样做是为了查看在计算中是否存在任何错误，这些计算给我们提供了协同查找表。其结果是，我们仍然可能恢复到非集体状态，但仅限于某些任务的使用。
 
 ME:How are you doing that? 
 
-我：
+我：你是怎么做到的？
 
 SE11 (collectively):We are copying some of the tasks of the other entities,those created by those Source Entities that have split themselves to create smaller individualized units of themselves to work in the minute details of their multiverse or environments.We are checking to see if our route and understanding of synergy is valid and/or if it needs re- calibrating in some way,shape or form. 
 
-11号源实体集体：
+11号源实体集体：我们正在复制其他实体的一些任务，这些任务是由那些源实体创造的，这些源实体已经分裂自己，创造了更小的个性化单位，以便在他们的多元宇宙或环境的细微细节中工作。我们正在检查，看看我们的路线和对协同的理解是否有效，以及/或者是否需要以某种方式、形状或形式重新校准。
 
 ME:And does it need re-calibrating? 
 
-我：
+我：那它需要重新校准吗？
 
 SE11 (collectively):Not massively.We have been most fastidious in our computations and every check we have done is proving our assumptions and experiences to be justified. However,we have not yet worked out all of the scenarios that we need to employ to help us all agree on the current configuration of our synergetic look-up table.Although it doesn't need much work,there is a modification we might want to do due to the level of accuracy.
 
-11号源实体集体：
+11号源实体集体：不是大规模的。我们在计算中一直非常谨慎，我们所做的每一次检查都证明了我们的假设和经验是合理的。然而，我们还没有制定出所有需要采用的方案，以帮助我们所有人同意我们的协同查找表的当前配置。虽然它不需要太多的工作，但由于准确性水平，我们可能想要做一个修改。
 
 ME:How long will that take? 
 
-我：
+我：那要多久呢？
 
 SE11 (collectively):Quite some time yet.We are only a quarter of the way through our testing of the mapping.We do have to say that as a result of the work and evidence created so far,we are becoming very confident that this configuration is efficient,effective and repeatable. 
 
-11号源实体集体：
+11号源实体集体：还需要一段时间。我们对映射的测试才进行了四分之一。我们必须说，由于迄今为止所做的工作和创造的证据，我们变得非常有信心，这种配置是高效的、有效的和可重复的。
 
 ME:What do you mean"repeatable"? 
 
-我：
+我：“可重复”是什么意思？
 
 SE11 (collectively):We are checking to see if there is a relationship between the optimal number of entities employed,those working separately together in a specific task,the number of entities in metaconcert-and,therefore,in a synergetic state-giving an effective number of entities equal to those working separately together,and the task itself. 
 
-11号源实体集体：
+11号源实体集体：我们正在检查是否存在一种关系，即在特定任务中单独工作的实体的最佳数量，在元协定的实体数量，因此，在协同状态下的实体数量等于单独工作的实体数量，以及任务本身。
 
 ME:I am sorry;you have lost me for a moment.Can you elaborate for me? 
 
-我：
+我：对不起，我一时听不懂你说的话。你能详细解释一下吗？
 
 SE11 (collectively):We are establishing if there is a level of what you would call "correlation" between tasks that demand a certain number of entities outside metaconcert,the equal number in metaconcert,and the tasks themselves.So,let me simplify this for you.If task "A"requires 100 entities outside metaconcert or 42 entities in metaconcert,can the same number of entities in metaconcert,and,therefore,in synergy,also be used for task"B"which also requires 100 entities outside metaconcert?Or is there some effect created by the task on the synergetic number that affects the number of entities necessary to complete the task outside of metaconcert? 
 
-11号源实体集体：
+11号源实体集体：我们正在建立一个级别，即在需要在元音乐会之外的一定数量的实体的任务之间，在元音乐会中相同数量的实体和任务本身之间，是否存在一种你所称的“相关性”。所以，让我为你简化一下。如果任务“A”需要在元音乐会之外的100个实体或在元音乐会中的42个实体，那么在协同中，同样数量的元音乐会实体能否用于同样需要在元音乐会之外的100个实体的任务“B”？或者，任务对协同数量产生的影响是否会影响完成元音乐会之外任务所需的实体数量？
 
 ME:And you still haven't established this yet?
 
-我：
+我：你还没有建立这个吗？
 
 SE11 (collectively):Yes and no. 
 
-11号源实体集体：
+11号源实体集体：是的，也不是。
 
 ME:What do you mean,yes and no? 
 
-我：
+我：你什么意思，是和不是？
 
 SE11 (collectively):We established that this was a 99.999%correct assumption in the last round of testing.However we want to get this last level of error,0.001%out of the equation, so we have made some minor adjustments and are in the process of re-testing. 
 
-11号源实体集体：
+11号源实体集体：我们在上一轮测试中确定这是一个99.999%正确的假设，然而我们想把最后的0.001%的误差从等式中剔除，所以我们做了一些小的调整，正在重新测试中。
 
 ME:Hold on.You have been testing your assumptions on the level of accuracy of the look-up table? 
 
-我：
+我：等等，你已经测试了你的假设，关于查找表的准确性水平？
 
 SE11 (collectively):Yes,of course. 
 
-11号源实体集体：
+11号源实体集体：是的，当然。
 
 ME:But why? 
 
-我：
+我：但是为什么？
 
 SE11 (collectively):To understand the error factor,if any.But as you can see from the information we have given you,we noticed that we have an error factor of 0.001% 
 
-11号源实体集体：
+11号源实体集体：如果有误差因素，要了解误差因素。但是正如你从我们给你的信息中看到的，我们注意到我们有0.001%的误差因素。
 
 ME:Yes,I noticed that,but is that level of accuracy enough for you to work with? 
 
-我：
+我：是的，我注意到了，但是这个准确度水平足以让你工作吗？
 
 SE11 (collectively):No.We need total accuracy.Listen.As a result of us being able to work out the error factor,we have been able to use an interim condition as a "correction factor" as an interim fix to the problem we have.In fact,apart from those units of this collective chosen to discuss various subjects about ourselves with you in this dialogue,we have been using all other available entities to solve this problem. 
 
-11号源实体集体：
+11号源实体集体：不，我们需要完全准确。听着，由于我们能够计算出误差因子，我们已经能够使用一个过渡条件作为“修正因子”，作为我们问题的临时修复。事实上，除了这个集体选择的那些单位在这个对话中与你讨论关于我们自己的各种主题外，我们一直在使用所有其他可用的实体来解决这个问题。
 
 ME:It's that big a problem?
 
-我：
+我：有那么大的问题吗？
 
 SE11(collectively):Yes,of course it is.0.001%is what you call the "proverbial barn door." This level of inaccuracy can cause severe issues with the work of those entities chosen to undertake the work that they have been assigned. 
 
-11号源实体集体：
+11号源实体集体：是的，当然是。0.001%就是你们所说的“众所周知的谷仓门”。这种程度的不准确性会给那些被选中承担被分配任务的实体的工作带来严重的问题。
 
-ME:So what you are doing now is finalizing the corrections to the existing/latest computations.When you have understood these corrections,you will put them in place and utilize them in the "computer program"/"look-up"table for identifying the optimal number of entities necessary for a particular role,both in the metaconcert condition and the non- metaconcert condition. 
+ME:So what you are doing now is finalizing the corrections to the existing/latest computations.When you have understood these corrections,you will put them in place and utilize them in the "computer program"/"look-up"table for identifying the optimal number of entities necessary for a particular role,both in the metaconcert condition and the non-metaconcert condition. 
 
-我：
+我：所以你现在正在做的是最终确定对现有/最新计算的修正。当你理解了这些修正后，你将把它们放在适当的位置，并在“计算机程序”/“查找”表中利用它们，以确定特定角色所需的最佳实体数量，无论是在元音乐会条件下还是非元音乐会条件下。
 
 SE11(collectively):Correct.But don't get wound up with semantics here.This is not holding us back.We are still moving forward with the work that we set out to do.What you have experienced here is just that which is happening from an experimental basis.We are still and have been working on the task The Origin gave to us at the start of our awakening process-that being the need to experience,learn and evolve. 
 
-11号源实体集体：
+11号源实体集体：正确。但不要在这里被语义所困扰。这并没有阻碍我们前进。我们仍然在向前推进我们着手去做的工作。你们在这里所经历的只是从实验基础上发生的。我们仍然并且一直在做起源在我们觉醒过程开始时给我们的任务——那就是体验、学习和进化的需要。
 
 ME:What you are telling me then is that your side line is project that you are improving the synergetic effect by modification of that which the entities do or that which is required to achieve the 100%correlation between the task,number of entities in metaconcert and the number of entities not in metaconcert. 
 
-我：
+我：你的意思是，你的副线项目是通过修改实体所做的或实现任务、元音乐会实体数量和非元音乐会实体数量之间的100%相关性所需的实体数量来改善协同效应。
 
 SE11 (collectively):Correct! 
 
-11号源实体集体：
+11号源实体集体：正确！
 
 ME:And what is the point of this work?What it's the underlying need to do this? 
 
-我：
+我：那么这项工作的目的是什么？做这件事的潜在需求是什么？
 
 SE11 (collectively):It may seem like we are doing work for the sake of it,but know this-when we have established 100%efficiency in our use of the synergetic effects of placing collective units of us in metaconcert to achieve any task,we will be able to increase the number of tasks we want to work on whilst decreasing the number of collective entities involved in any one task.In this way we will increase our evolutionary content by a factor equal to the synergetic effect,accelerating both our own evolution and the evolution of The Origin.It is a most important task that we do here. 
 
-11号源实体集体：
+11号源实体集体：看起来我们是为了工作而工作，但要知道，当我们已经在使用协同效应方面建立了100%的效率，将我们的集体单位置于元协调中以完成任何任务时，我们将能够增加我们想要完成的任务数量，同时减少任何一项任务中涉及的集体实体数量。
 
 ### When a Collective Is Not a Collective 
 
+**当一个集体不再是一个集体**
+
 I was starting to think that Source Entity Eleven is operating like a big synergetic computer, calculating the best way to use the synergetic effects invoked by the use of metaconcert whilst in the collective.I also noticed that I was starting to home in on an area of personal interest that Source Entity Eleven was working on. I was starting to realize that there was a distinct difference in the way a collective can and does work and that this was its area of interest,but it is embedded in the work of optimizing the effect of synergy.I was also aware that we had spent quite a long time on this subject of synergy,so I was eager to bring it to a natural close and move on to the next subject.With this in mind,I decided to use this as my next question for Source Entity Eleven with a view to moving on afterwards. 
+
+我开始认为，源实体11就像一个大的协同计算机一样运作，计算在集体中使用元协定所调用的协同效应的最佳方式。我也注意到，我开始回到源实体11正在研究的个人兴趣领域。我开始意识到，一个集体可以和确实工作的方式有明显的区别，这是它的兴趣领域，但它嵌入在优化协同效应的工作中。我也意识到，我们在协同这个主题上花了很长时间，所以我渴望让它自然地结束，并转向下一个主题。考虑到这一点，我决定把它作为我对源实体11的下一个问题，以便之后继续前进。
 
 ME:Throughout our conversations I have noticed that you use the words"metaconcert"and "synergy"a lot.It's almost as if even though you are a collective,the collective has to work in the methodology of being in metaconcert before it can evoke the synergetic effect.
 
-我：
+我：在我们的对话中，我注意到你经常使用“元协定”和“协同”这两个词。这几乎就像即使你是一个集体，这个集体也必须在元协定中工作，才能唤起协同效应。
 
 SE11 (collectively):It does.You see,there are many different classifications of collective and, therefore,there are many different ways in which to reach the synergetic effect.There are also many different levels of efficiency that can be achieved within the synergetic effect. 
 
-11号源实体集体：
+11号源实体集体：确实如此。你看，集体有很多不同的分类，因此，有很多不同的方式来达到协同效应。在协同效应中，也可以达到很多不同的效率水平。
 
 ME:Now you are whetting my appetite.You say that there are many different classifications of collective.I thought that there could only be one type of collective-a collective. 
 
-我：
+我：你现在在勾起我的兴趣。你说集体有很多不同的分类。我以为只有一种类型的集体-集体。
 
 SE11 (collectively):No,there are many.As a singular being that has the ability to commune in metaconcert,you would understand this better when you are in the energetic;however, in your current incarnate condition,you will find this difficult to understand.Nevertheless, it is an important concept for you to convey,for it will expand the knowledge base of your mankind in this area. 
 
-11号源实体集体：
+11号源实体集体：不，有很多。作为一个有能力在元音协奏中交流的个体，当你们处于能量状态时，你们会更好地理解这一点；然而，在你们当前的化身条件下，你们会发现这很难理解。尽管如此，这是一个你们要传达的重要概念，因为它将扩大你们人类在这个领域的知识基础。
 
 There are four main types of collectivity with variations of these four in-between.They are explained as follows. 
 
+有四种主要的集体类型，在这四种类型之间还有一些变体。
+
 ### Four Types of Collectivity 
+
+**四种集体类型**
 
 **Basic Collective**
 
+**基本集体**
+
 The basic collective is a collective of entities that exist as a collective mind with each of the units of the collective being just that-a unit.In this version,the units of the collective are devoid of any form of singular thought.They function as an individual unit under the control of the collective.They are,if you like,automatons pre-programmed to do the task that they are working on.However,although they do not have any personal sentience,their programmable capacity,so to speak,is connected to the whole,creating a collective mind.This "collective"mind is the sentience,the intelligence,the thinking force behind the collective in totality.There is an optimal number required for this type of collective to be effective in its function,but that optimal number can vary depending upon the environmental conditions the collective exists within and the form factors of the entities that make up the collective.Just to give you an idea though,the average minimal number of entities required to support minimal collective functionality is 300,000. 
+
+基本集体是作为集体思维存在的实体集合，集体的每个单元都是一个单元。在这个版本中，集体的单元缺乏任何形式的单一思想。它们作为一个单独的单元在集体的控制下运行。如果你愿意，它们是预先编程的自动机，来完成它们正在进行的任务。然而，尽管它们没有任何个人的感知能力，但它们的可编程能力，可以这么说，是与整体相连的，创造了一个集体思维。这个“集体”思维是集体背后的整体感知、智能和思考力量。这种类型的集体需要一个最佳数量才能有效地发挥其功能，但这个最佳数量可以根据集体存在的环境条件和组成集体的实体的形式因素而变化。只是为了让你有一个概念，支持最小集体功能所需的平均最小实体数量是300,000。
 
 Small groups can function together as a collective,but they are under the control of the whole collective and not the smaller group collective generated as a result of splitting off individual units in order to create the group.This collective is not capable of invoking a synergetic effect as they are not effective when singular.This collective always stays together in the same environment or moves to a new environment together. Communication with other collectives or individualized entities with individual and free thought is done via the collective interface.Singular units cannot survive on their own. 
 
+小群体可以作为一个集体一起工作，但它们受整个集体的控制，而不是受为了创建群体而分离个体单元而产生的小群体集体的控制。这个集体无法调用协同效应，因为它们在单一时是无效的。这个集体总是呆在同一个环境中，或者一起移动到新的环境中。与其他集体或具有个人和自由思想的个体实体的通信是通过集体接口完成的。单一的个体无法独自生存。
+
 You may suggest that your ants are this type of mind,but that is not the case because ants have a greater level of individuality than you are aware and are,therefore,under a different classification. 
+
+你可能会认为你的蚂蚁是这种类型的思维，但事实并非如此，因为蚂蚁的个体性比你意识到的要高得多，因此，它们属于不同的分类。
 
 **Collective of Units of Singular Sentience**
 
+**单一感知单元的集体**
+
 In this collective each of the individual units of the collective has its own sentience content.It is capable of individualized thought and individualized decision processes.This type of collective is very useful because individual units of the group can be split off from the total collective and be capable of becoming a smaller group collective.Members of this collective are normally split into groups of entities that are similar in skill base and can,therefore,invoke a group-based level of synergy,based upon the grouping together of entities that are of the same nature from an individual ability perspective. 
+
+在这个集体中，每个个体单元都有自己的感知内容。它能够进行个性化的思考和个性化的决策过程。这种类型的集体非常有用，因为群体的个体单位可以从整个集体中分离出来，并能够成为一个更小的群体集体。这个集体的成员通常被分成技能基础相似的实体组，因此，可以调用基于群体的协同水平，基于从个体能力角度来看具有相同性质的实体的分组。
 
 This type of grouping is preferred when the group needs to complete a certain type of task where the other types of entities in the collective would not be able to conduct the work necessary to complete the task in an effective and efficient manner.An example that you could use is group of entities that are skilled in boring holes to create burrows but would not be of much use transporting food stocks by air.There are multifunctional groups created, however. 
 
+当群体需要完成某种类型的任务时，这种类型的分组是首选的，而集体中的其他类型的实体无法以有效和高效的方式进行完成任务所必需的工作。你可以使用的一个例子是，一群擅长钻孔来创建洞穴的实体，但不会在空中运输食物储备方面发挥太大作用。然而，也有多功能的群体。
+
 These groups are created when it is necessary for the collective to create a new collective, a new colony if you like,in a new environmental location.In this instance,the group created would contain the minimum number of the different types of entities in the newly created collective necessary to ensure the perpetuation of that collective as an individual and self-sustaining collective.The entities in this type of collective have the ability to work individually,but they could only work on an individual basis for the good of the whole or group collective and at the request of the whole or group collective.They could not seek individualized work as a result of an individualized thought process. 
+
+当集体有必要在新的环境位置创建一个新的集体时，创建这些群体，如果你喜欢的话，可以创建一个新的殖民地。在这种情况下，新创建的群体将包含在新创建的集体中，为确保该集体作为一个独立的、自我维持的集体的永续生存所必需的不同类型实体的最小数量。这种类型的集体中的实体有能力独立工作，但他们只能在个人的基础上为整个或群体集体的利益工作，并应整个或群体集体的要求工作。他们不能由于个人化的思维过程而寻求个人化的工作。
 
 As with the basic collective,communication with other collectives or individualized entities with individual and free thought is done via the collective interface.The synergetic effects are the most pronounced in this type of collective,specifically within those groups or collectives of groups of entities of the same energetic function or skill base.Singular units can survive on their own but need to find a group to ensure existence is sustained.Your insects are a lower level version of this type of collective. 
 
+与基本集体一样，与其他集体或具有个人和自由思想的个体的交流是通过集体接口完成的。这种类型的集体的协同效应是最显著的，特别是在那些具有相同的能量功能或技能基础的实体群体或集体中。单个单位可以自己生存，但需要找到一个群体来确保生存。你们的昆虫是这种类型的集体的较低水平版本。
+
 We,Source Entity Eleven,are this type of collective,but our individualized functions are based upon our energetic content and computational skills.Although we rarely work alone, we are capable of doing so. 
+
+我们，源实体11，就是这种类型的集体，但我们个性化的功能是基于我们的能量内容和计算技能。虽然我们很少单独工作，但我们有能力这样做。
 
 **Separately Together Collective**
 
+**分开在一起的集体**
+
 The "separately together"collective is a hybrid of the collective and is created of individualized units of singular sentience,and the fully individualized entity that does not need to be in a collective for any reason.In this instance,each unit of the collective has fully individualized sentience and,therefore, thought processes.They also have fully individualized functionality both energetically and creativity-wise.This collective is powerful in so much as it is the best of both worlds, so to speak.They can operate at full collective functionality in all the ways specified in the collective of units of singular sentience version above,and they can operate as a fully functioning individualized unit with individual free will and the ability to go with the collective or not,as the case may be,if and when associated with it.As a collective,they are very diffuse by nature.They can all be together in the same environmental location,or they can be spread out into every possible location within each of the Source Entities or,indeed, The Origin,and some are.They are always in contact and communication with each other and generally found working on their own for their own evolutionary content.They work together in full collectivity when there is a specific benefit in entering into a task collectively rather than in the "separately together"condition.They communicate with other entities, both collective and singular in the singular.They are a fully self-sustaining creative entity. The OM are this type of collective but only when they desire to be so,for they can opt out should an OM so desire. 
+
+“分开在一起”的集体是集体的混合体，由单一感知的个性化单元和完全个性化的实体创建，这些实体不需要以任何理由存在于集体中。在这种情况下，集体的每个单元都有完全个性化的感知和思想过程。它们在能量和创造力方面也具有完全个性化的功能。可以说，这个集体是两个世界最好的。它们可以以上述单一感知版本的集体单元中指定的所有方式在完全的集体功能下运行，它们可以作为一个功能完善的个性化单元运行，具有个人自由意志和与集体或不与集体一起的能力，如果和它相关联，情况可能会有所不同。作为一个集体，它们本质上非常分散。它们可以全部在同一环境位置，或者它们可以分散到每个源实体或起源中每一个可能的位置，其中一些是。他们总是相互联系和沟通，通常发现他们自己为自己的进化内容而工作。当集体进入一项任务比“分开一起”条件下有特定的好处时，他们在完全的集体中一起工作。他们与其他实体进行沟通，包括集体和单个实体。他们是一个完全自给自足的创造性实体。OM是这种类型的集体，但只有当他们希望这样做时，他们才能选择退出。
 
 **Temporary Collective**
 
+**临时集体**
+
 The Temporary Collective is one where individualized units of a particular Source Entity desire to work in metaconcert in order to work on a task that is best "actioned"as a collective rather than a group of individuals simply working together. This collective type also has the ability to invoke synergy that will benefit all the members of the metaconcert by increasing the efficiency and,therefore,the work throughout the collective.This type of collective is generally a temporary collective condition born of the need for a mutual solution to a mutual problem or task.The individual entities in this collective need to be highly evolved to invoke the synergetic effects associated with being in metaconcert,specifically because of the temporary nature of the collective.Although temporary collectives are usually created out of small numbers of individualized entities, they can and have attracted large number of entities when the task at hand demands a high collective membership.Communications with outside entities/collectives when in the collective are conducted by a "spokes-entity." 
+
+临时集体是指特定源实体的个体化单元希望在元协定中工作，以便在作为一个集体而不是一组简单地一起工作的个人中完成一项任务。这种集体类型还有能力调用协同，通过提高效率，从而提高整个集体的工作效率，使所有成员受益。这种类型的集体通常是临时的集体条件，产生于对共同问题或任务的共同解决方案的需求。这个集体中的个体实体需要高度进化，以调用与元协定相关的协同效应，特别是因为集体的临时性质。虽然临时集体通常由少量个体实体创建，但当手头的任务需要高度的集体成员时，它们可以并已经吸引了大量实体。在集体中与外部实体/集体的通信由“发言人实体”进行。
 
 ME:I have to say that I didn't expect that many versions of a collective.Nor did I expect the difference in synergy. 
 
-我：
+我：我不得不说，我没想到集体有那么多版本。我也没有想到协同作用的差异。
 
 SE11 (collectively):That is not all of them. 
 
-11号源实体集体：
+11号源实体集体：那不是所有的人。
 
-ME:What do you mean?These are just examples? 
+ME:What do you mean? These are just examples? 
 
-我：
+我：你什么意思？这些只是例子吗？
 
 SE11(collectively):There are versions that are hybrids of those that we have just described to you,but they are self-explanatory insomuch as they rely on the compartmentalization of the collective to allow such activity to take place whilst the rest of the collective operates in the dominant collective format.An additional collective to the four above is one that is fluidic in nature. 
 
-11号源实体集体：
+11号源实体集体：有些版本是我们刚才向你描述的那些的混合体，但它们是自解释的，因为它们依赖于集体的划分，以允许这种活动发生，而集体的其余部分则以主导的集体形式运作。
 
 **Fluidic Collective** 
 
+**流体集体**
+
 ME:Do you mean that it is always changing? 
 
-我：
+我：你的意思是它总是在变化吗？
 
 SE11 (collectively):Yes,the whole collective is constantly changing as a response to the demands of its current task. 
 
-11号源实体集体：
+11号源实体集体：是的，整个集体在不断地改变，以响应当前任务的要求。
 
 I receive an image of ever-increasing quality;it is the image of a vast network where every entity is joined together.It looks like a huge fishing net.Each of the points where the thread of the fishing net is joined represents an entity,a unit of the collective with the thread of the fishing net being the lines of communication between the entities and groups of entities in metaconcert.As I look at this net,I see it connecting and disconnecting with single entities or groups of entities being included or "un-included"in the metaconcert.The connections that are in use are represented by the threads glowing in white light.It flashes on and off with whole areas of entities in what I can only describe as a 3D network,winking in and out of connectivity with the whole.It looks like the way a neural network might perform.For a moment,I thought it looked like a "net"of LED Christmas lights,all being turned on and off in a random way.As I look deeper and with more focus,I see that there is a pattern to the frequency ofillumination of the lines of communication and those entities or groups of entities being included in the metaconcert.I decide to ask the collective that was Source Entity Eleven to both clarify what I am seeing and elaborate where necessary.
 
+我收到一个质量不断提高的图像；这是一个巨大的网络的图像，每个实体都连接在一起。它看起来像一个巨大的渔网。渔网线连接的每个点都代表一个实体，一个集体的单位，渔网线是元音乐会中的实体和实体组之间的通信线路。当我看着这个网时，我看到它与元音乐会中包含或“不包含”的单个实体或实体组连接和断开连接。正在使用的连接由白光闪烁的线表示。它闪烁着整个区域的实体，我只能将其描述为一个3D网络，在与整体的连接中闪烁。它看起来像神经网络可能执行的方式。有一段时间，我认为它看起来像一个LED圣诞灯的“网”，所有这些灯都以随机的方式打开和关闭。当我更深入地观察和更专注地观察时，我看到通信线路和那些被包含在元音乐会中的实体或实体组的照明频率有一个模式。我决定问这个集合，就是源实体11，来澄清我所看到的，并在必要的地方详细说明。
+
 ME:Is this a true representation of the functionality of this type of collective? 
 
-我：
+我：这是这种类型的集合的功能的真实表现吗？
 
 SE11 (collectively):Yes it is.But please note that this is just a very small example for you to work with.In reality what you are seeing is the microscopic representation of how this type of collective functions.Consider it like looking through an electron microscope that is able to focus upon the components of the components of the components of an atom in your physical universe.Then consider that the entire collective is the "physical"size of your "physical"universe.This will give you an idea of the scale involved here. 
 
-11号源实体集体：
+11号源实体集体：是的，但请注意，这只是一个非常小的例子，供你们研究。在现实中，你们所看到的是这种类型的集体如何运作的微观表现。把它想象成通过一个电子显微镜观察，它能够聚焦在你们的物理宇宙中一个原子的组分的组分的组分上。然后考虑整个集体是你们的“物理”宇宙的“物理”大小。这将使你们对这里涉及的规模有一个概念。
 
 ME:But the level of detail is immense then? 
 
-我：
+我：但是细节的层次是巨大的？
 
 SE11 (collectively):Of course,it is. 
 
-11号源实体集体：
+11号源实体集体：当然，是的。
 
 ME:So what was I seeing?That is,what was the significance of the illuminated areas and the threaded areas being illuminated? 
 
-我：
+我：那么我看到了什么？也就是说，被照亮的区域和被照亮的线程区域的意义是什么？
 
 SE11 (collectively):It is exactly as you saw it.I can see you frowning,so I will explain further.The "pulsing"of the light on the lines of communication was,indeed,an example of the inclusion of the various units of the collective.The communications though are not what you would call 3D,for it is a multidimensional structure with each of the units of the collective capable of being introduced to the function of metaconcert as part of the whole, as a separate and independent entity unit,as part of a group of entities,as part of a series of groups,or as an operative entity of multiple groups operating both independently or collectively. 
 
-11号源实体集体：
+11号源实体集体：这正是你所看到的。我能看到你皱眉，所以我将进一步解释。光线在通信线路上的“脉动”，确实是包含集体中各种单位的一个例子。尽管通信不是你所说的3D，因为它是一个多维结构，集体中的每个单位都可以作为整体的一部分，作为一个单独和独立的实体单位，作为一组实体的一部分，作为一系列组的一部分，或作为多个组的操作实体，独立或集体地运作。
 
 ME:Are you suggesting that an entity can have several functions and group associations simultaneously? 
 
-我：
+我：你的意思是一个实体可以同时具有多个功能和组关联吗？
 
 SE11 (collectively):Yes,of course.That is the whole point of the multidimensionality of this type of collective.In essence,what is happening is that the collective is operating as a whole,a collective of groups,and a collective of singular entity units.The functionality of this type of collective is such that it is capable of switching on and out of the collective,the various groups or single units at will,depending upon the type of work being considered. The singular units are either used in isolation or as an integral part of multiple groups.The direction of the lines of communication are switched to those areas of the collective where there is reduction in demand of the metaconcert state when there is an increase in demand for such a state elsewhere within the collective.Once the "work"is done,the number of entities is reduced to ensure that the optimal use of the "resource"is maintained. 
 
-11号源实体集体：
+11号源实体集体：是的，当然。这就是这种类型的集体的多维度的全部意义所在。本质上，正在发生的事情是，集体作为一个整体，一个团体的集体，一个单一实体单位的集体，在运作。这种类型的集体的功能是这样的，它能够根据所考虑的工作类型，随意切换集体、各种团体或单个单位。单一单位要么被孤立地使用，要么作为多个团体的组成部分。当集体内其他地方对元协定状态的需求增加时，通信线路的方向会被切换到对元协定状态需求减少的集体区域。一旦“工作”完成，实体的数量就会减少，以确保“资源”的最佳使用。
 
 ME:So how is this controlled/maintained?It must be extremely difficult. 
 
-我：
+我：那么这个是如何控制/维护的？这肯定非常困难。
 
 SE11(collectively):In this type of collective structure,there is a group of entities which are part of an integrated network that "infiltrates"the totality of the collective and monitors the level of work being done versus the number of entities and the levels of synergy being achieved.This group controls both the connectivity of the individual entities that make up the whole whilst knowing the best individual entity units to use for the tasks presented. 
 
-11号源实体集体：
+11号源实体集体：在这种类型的集体结构中，有一组实体，它们是“渗透”到集体整体的集成网络的一部分，并监控所做工作的水平与实体的数量和所达到的协同水平的对比。这个组既控制了组成整体的单个实体的连接性，又知道了用于所呈现任务的最佳单个实体单元。
 
 ME:Are you suggesting that the individual units of the collective are "individual"in terms of their functionality and are selected by the "controlling"group of entities to perform their roles relative to their level or type of functionality?
 
-我：
+我：你的意思是，集体中的个体单位就其功能而言是“个体的”，并由“控制”实体的群体选择，以执行与其功能级别或类型相关的角色？
 
 SE11(collectively):In a nutshell,yes.There is one additional piece of information you need to know about though. 
 
-11号源实体集体：
+11号源实体集体：简而言之，是的。不过，还有一个额外的信息你需要知道。
 
 ME:And that is? 
 
-我：
+我：那是什么？
 
 SE11 (collectively):That the so called "controlling"entities are also part of the "bag"of entity-based tools,so to speak. 
 
-11号源实体集体：
+11号源实体集体：可以这么说，所谓的“控制”实体也是基于实体的工具“包”的一部分。
 
 ME:So they not only control the function of the collective,observing and switching in and out those entities necessary to ensure an efficient level of synergetic functionality,they are also part of this functionality,switching themselves in and out of the collective groups as and when required. 
 
-我：
+我：所以他们不仅控制集体的功能，观察和切换那些必要的实体以确保协同功能的有效水平，他们也是这个功能的一部分，在需要的时候切换自己进出集体群体。
 
 SE11 (collectively):Yes. 
 
-11号源实体集体：
+11号源实体集体：是的。
 
 ME:Is this type of collective a popular one? 
 
-我：
+我：这种类型的集体很受欢迎吗？
 
 SE11 (collectively):No,because it is difficult to maintain and control.It also demands a critical mass of a certain type of entity to become viable. 
 
-11号源实体集体：
+11号源实体集体：不，因为它很难维护和控制。它还需要某种类型的实体达到临界质量才能变得可行。
 
 ME:I would imagine it would be quite slow in its application to problem resolution/ evolutionary content because of the need to use what I can only imagine to be a high number of entities in the management of such a fluidic metaconcert. 
 
-我：
+我：我认为它在解决问题/进化内容方面会相当缓慢，因为需要使用我只能想象的在管理这种流体元音乐会中大量的实体。
 
 SE11 (collectively):It's not slow.It's quite fast in comparison to the other collective configurations.It's just that it's not totally efficient all the time. 
 
-11号源实体集体：
+11号源实体集体：它并不慢。与其他集体配置相比，它相当快。只是它不是一直完全有效。
 
 ME:Why is it then?
 
-我：
+我：那为什么呢？
 
 SE11 (collectively):Because it needs to be maintained by those entities that maintain its optimal level of functionality,which makes them inefficient.Also,it leaves vast areas of entities unused,and,therefore,out of metaconcert when the collective is operating at its supposed optimal efficiency. 
 
-11号源实体集体：
+11号源实体集体：因为它需要由那些维护其最佳功能水平的实体来维护，这使得它们效率低下。此外，它留下了实体的大量未用区域，因此，当集体以其假定的最佳效率运行时，它就处于元协定之外。
 
 ME:This tells me that the number of individual entities within the collective can ultimately be reduced. 
 
-我：
+我：这告诉我，集体中的个体实体数量最终可以减少。
 
 SE11(collectively):Correct. 
 
-11号源实体集体：
+11号源实体集体：正确。
 
 ME:So why wouldn't a collective that establishes this case when in this configuration do exactly that-reduce its number? 
 
-我：
+我：那么为什么一个集体在这种情况下，不减少它的数量呢？
 
 SE11(collectively):They do,and in the process,they create a new collective,which adopts any of the other configurations,depending upon the quality of the individual entities concerned. 
 
-11号源实体集体：
+11号源实体集体：他们这样做，在这个过程中，他们创造了一个新的集体，它采用任何其他的配置，这取决于有关的个体实体的质量。
 
 ME:So the quality of the entities within the collective has as effect on the type of collective they become as a whole? 
 
-我：
+我：所以集体内部个体的质量对他们成为整体的集体类型有影响？
 
 SE11 (collectively):Yes,it always does. 
 
-11号源实体集体：
+11号源实体集体：是的，它总是这样。
 
 ### Source Entity Eleven,a Collective of Units of Singular Sentience 
 
+**第11源实体，一个奇异感知单元的集合**
+ 
 I had noticed that we had spent considerable time discussing collectives and how they operate, so I decided to leave the questioning on this particular subject and move on to the next.Though what I found interesting here was the number of different collectives and the possibilities of there being hybrids,mixtures of these basic types of varying different ratios.I also found it interesting that the type they became was a function of the quality of the individual entity units within the collective,specifically those individual entities that clearly didn't need to be within a collective but chose to be so for the greater good of the whole,so to speak.From my vantage point,the synergetic effects were the prime motivation to move from an all-encompassing autonomous individual entity to one that is a minor part in a much bigger collective-based entity. 
+
+我注意到我们已经花了相当多的时间讨论集合以及它们如何运作，所以我决定把这个问题留给这个特定的主题，然后继续下一个。虽然我在这里发现有趣的是不同集合的数量以及存在混合物的可能性，这些基本类型的混合物的比例各不相同。我还发现有趣的是，它们变成的类型是集合内个体实体单位质量的函数，特别是那些显然不需要在集合内，但为了整体的更大利益而选择这样做的个体实体。从我的有利位置来看，协同效应是从一个无所不包的自主个体实体到一个更大的基于集合的实体中的一个小部分的主要动机。
 
 My mind returned to the task at hand,and I decided to focus on the individual but collective entities that Source Entity Eleven was.However,even though I had the desire to move on,I couldn't help feel that the subject of collective types or "genres"had not quite gone away.How could it?I was communicating with the biggest collective anyone or thing on Earth had ever communicated with.I stood back for a while,catching my mental breath.Having caught my mental breath and established that I had renewed vigor to steer the direction of this dialogue,I re-established contact with the collective that was Source Entity Eleven. 
 
+我的思想回到手头的任务上，我决定把重点放在“第11源实体”这个个体但却是集体的实体上。然而，尽管我有继续前进的愿望，但我还是忍不住觉得集合类型或“类型”的主题还没有完全消失。怎么可能？我正在与地球上任何人或事物曾经与之交流过的最大的集体进行交流。我退后了一会儿，恢复精神上的呼吸。恢复精神上的呼吸后，我恢复了精力，可以继续掌控这次对话的方向，我与“11号源实体”这个集体重新建立了联系。
+
 ME:Having just spent the last few days discussing the virtues of the different types of collectives,I am eager to get to grips with what you really are.An entity as large and as expansive as yourself,even in a diversified collective state,must be more than that which you described yourselves as "the collective of units of singular sentience." 
 
-我：
+我：过去几天一直在讨论不同类型的集体的优点，我渴望了解你们的真正面目。一个像你们这样庞大而广阔的实体，即使在多样化的集体状态下，也一定比你们所描述的“单一感知单元的集体”要多。
 
 SE11(collectively):Yes,we are,and the title tells it all-should you want to decipher it. 
 
-11号源实体集体：
+11号源实体集体：是的，我们是，标题说明了一切-如果你想破译它的话。
 
 I read the title two or three times before the penny dropped.Source Entity Eleven's functionality was twofold.The title of the description told both sides of the coin.In the first dialogue that described this collective type/genre,I/we had focused upon the individualized entities that made up Source Entity Eleven as being just that-a collective of individualized units grouped together to make a collective.A collective that could use any number of permutations of singularity, collectivity and synergy to achieve that which it desired at any one point.But what I was seeing now was an echo-a remembrance of that which it was before it diversified into the billion or so individualized units that might or might not work in metaconcert with that choice being dependent upon the task.Therefore,"the collective of units of singular sentience"referred to the singularity that Source Entity Eleven was before diversification.The description,literally true for both conditions,was more visible in its current state. 
 
+我读了两三遍标题才恍然大悟。第11号源实体的功能是双重的。描述的标题告诉了硬币的两面。在描述这种集体类型/体裁的第一段对话中，我/我们把注意力集中在组成第十一号源实体的个体化实体上，因为它只是一个由个体化单元组合在一起的集体。一个可以使用任何数量的奇点、集体和协同的排列组合的集体，以实现它在任何一点上想要的。但我现在看到的是一个回声——在它多样化成大约十亿个个体化单元之前的记忆，这些单元可能或可能不工作在元协调中，这个选择取决于任务。因此，“单一感知单元的集体”指的是第十一号源实体在多样化之前的奇点。这个描述，对于两种情况都是真实的，在它当前的状态下更加明显。
+
 As I thought about this more,I started to receive some help,information-wise.When in a collective,Source Entity Eleven was just that,a collective.But the problem was that it was not always in a collective in "totality"because other parts of it had different tasks to perform so it could not truly be called a collective.It was,therefore,only when it was in a collective in "totality"that it became singular.It became a collective with a combined and collective but singular level of sentience.Although it was a collective state,in this state it achieved that which it was when in true singularity-a singular mind with each of the individualized units giving up their individuality on a temporary basis to support the need to be singular in "totality."Each of them,therefore,became but a cell,a neuron in a larger entity,performing only that function necessary for that part of the totality within which it was part.I found this fascinating. 
+
+随着我思考的深入，我开始得到一些信息上的帮助。当在一个集体中时，第十一号源实体只是一个集体。但问题是它并不总是在“整体”的集体中，因为它的其他部分有不同的任务要完成，所以它不能真正被称为一个集体。因此，只有当它在“整体”的集体中时，它才变成了单一的。它变成了一个具有结合的、集体的但单一的感知水平的集体。虽然它是一个集体状态，但在这种状态下，它实现了它在真正的单一性中所实现的——一个单一的头脑，其中每个个体化单位暂时放弃了他们的个体性，以支持在“整体”中成为单一的需要。因此，它们中的每一个都变成了一个细胞，一个更大实体中的神经元，只执行其所在的整体的一部分所必需的功能。我发现这很有趣。
 
 SE11 (collectively):We thought you might enjoy that little conundrum.You see,we needed to see if you were capable of expansive thought via exposure to conflicting conditions that are both correct but,nevertheless,improbable when seen together.Consider it like having to describe black as being white,which is,in turn,black.It is an impossible possibility,which is,nevertheless,both possible and probable,and,indeed,highly likely,should you have the capability of being expansive enough to work with the data that is put before you-which you have.Based upon this,we will continue this dialogue and present to you further details on the individualized units that we are collectively. 
 
-11号源实体集体：
+11号源实体集体：我们认为你可能会喜欢这个小难题。你看，我们需要看看你是否能够通过暴露在相互矛盾的条件下进行扩展思考，这些条件都是正确的，但放在一起时却不太可能。想想看，就像必须把黑描绘成白，反过来，它又是黑的。这是一个不可能的可能性，然而，既可能又可能，实际上，很有可能，如果你有足够的扩展能力来处理摆在你面前的数据，你已经有了。在此基础上，我们将继续这个对话，并向你展示我们集体的个性化单位的进一步细节。
 
 ME:Wait a moment.Are you suggesting that you have been testing my ability to understand you? 
 
-我：
+我：等一下。你是说你一直在测试我理解你的意思的能力吗？
 
 SE11 (collectively):Yes,of course.Why are you surprised? 
 
-11号源实体集体：
+11号源实体集体：是的，当然。你为什么惊讶？
 
 ME:It's just that I didn't expect it. 
 
-我：
+我：只是我没有想到。
 
 SE11(collectively):If we are all one,how can we be singular,and if we are all singular,how can we be all one!The answer is that we are all the collective totality of the entity we call The Origin.You do see that,don't you? 
 
-11号源实体集体：
+11号源实体集体：如果我们都是一体，我们又怎么可能是单一的，如果我们都是单一的，我们又怎么可能是一体的！答案是我们都是我们称之为“起源”的实体的整体。你明白了，对吗？
 
 ME:Yes,of course.It's one of the great realities of the omniverse,of "The Absolute,""The Origin.”
 
-我：
+我：是的，当然。这是宇宙中最伟大的现实之一，“绝对”，“起源”。
 
 SE11(collectively):Good.Then we shall continue. 
 
-11号源实体集体：
+11号源实体集体：好的，那我们继续。
 
 ### Source Entity Eleven's Individualized Units-A Synergetic Conundrum 
 
+**源实体11的个性化单元——一个协同难题**
+
 After that little "revelation,"I was somewhat puzzled.Why would Source Entity Eleven be testing me?From my perspective,I was clearly able to or should I say eventually be able to understand the information which was being given to me even if it was significantly truncated and tailored towards my supposed "physical"limitations.As I typed,I started to receive more information from Source Entity Eleven-information that told me that there was much,much more to discuss on the subject of Source Entity Eleven's Individual Entities.WhatIglimpsed in my mind's eye was mind-bending,to say the least.I decided to "re-focus"and continue the dialogue with a view to getting to the bottom of what I was seeing. 
+
+在那次小小的“启示”之后，我有点困惑。为什么源实体11会测试我？从我的角度来看，我显然能够或者应该说最终能够理解给我的信息，即使它被显著地截断并针对我所谓的“物理”限制进行剪裁。当我打字时，我开始从源实体11那里接收到更多的信息——信息告诉我，关于源实体11的个人实体这个主题，还有很多很多要讨论的东西。我脑海中所看到的至少是令人费解的。我决定“重新聚焦”，继续对话，以便弄清我所看到的到底是什么。
 
 ME:All through this dialogue you have alluded to the "fact"that you are made up of individualized entities,but I have just picked up something else about the structure of your entities.It appears that they are collectives in their own right.Am I on the right track here? 
 
-我：
+我：在整个对话中，你都暗示了“事实”，即你是由个性化的实体组成的，但我刚刚发现了关于你实体结构的其他一些东西。它们似乎是自己的集体。我在这里走对了吗？
 
 SE11(collectively):Yes,you are. 
 
-11号源实体集体：
+11号源实体集体：是的，你们是。
 
 ME:Can you explain why this is?It almost seems to add to the conundrum of what you are. 
 
-我：
+我：你能解释一下为什么吗？这似乎增加了你是什么的谜题。
 
 SE11 (collectively):And now you know why we gave you that little test.We needed to see if you could accept the information we were sending you for what it is and not filter it in any way that would make the data more acceptable to your own memory base and,therefore, filter out the necessary detail. 
 
-11号源实体集体：
+11号源实体集体：现在你知道我们为什么要给你那个小测试了。我们需要看看你是否能接受我们发送给你的信息，不以任何方式过滤它，使数据更容易被你自己的记忆库接受，因此，过滤掉必要的细节。
 
 ME:Oh,OK.Now I really do see the impetus behind the need to test me.I agree with you.It would have been somewhat limiting to know that most of what you were going to send me would have been lost in translation,so to speak. 
 
-我：
+我：哦，好吧。现在我真的明白了你需要测试我的动机。我同意你的观点。如果知道你将要发送给我的大部分内容在翻译中丢失，那么可以说，这将是有点受限的。
 
 SE11(collectively):Moreover,it would have been pointless from our perspective. 
 
-11号源实体集体：
+11号源实体集体：而且，从我们的角度来看，这将是毫无意义的。
 
 ME:OK.Let's move on then.What is the benefit of having entities that are,in effect, collectives in their own right?
 
-我：
+我：好的，我们继续。拥有实体的好处是什么，实际上，它们本身就是集体的？
 
 SE11 (collectively):We will need to go back to the time of diversification to answer that question.If you remember,when we diversified and were checking the efficiency of the number of entities in metaconcert,in collectivity,versus the optimal synergetic effects available as a result of that number in metaconcert. 
 
-11号源实体集体：
+11号源实体集体：我们需要回到多元化的时候来回答这个问题。如果你还记得，当我们多元化的时候，我们正在检查元音乐会中实体数量的效率，在集体中，与元音乐会中该数量的最佳协同效应相比。
 
 ME:Yes,I remember. 
 
-我：
+我：是的，我记得。
 
 SE11 (collectively):Then you will also note that we said that we could not increase the number of entities in metaconcert above a certain level due to the subsequent reduction in the synergetic effect. 
 
-11号源实体集体：
+11号源实体集体：那么你也会注意到，我们说过我们不能将元协定中的实体数量增加到一定水平以上，因为随后的协同效应会减少。
 
 ME:Yes,I remember that as well.I also remember that you stated that there was no way in which you could increase the number of entities by stealth and,therefore,"bypass"the "law"that limits the number of entities that can be in metaconcert whilst still achieving the optimal levels of synergy. 
 
-我：
+我：是的，我也记得。我还记得你说过，你没有办法通过隐形来增加实体的数量，因此，“绕过”限制元协定中实体数量的“法则”，同时仍然可以实现最佳的协同水平。
 
 SE11 (collectively):Well,there is a way.We just discovered it. 
 
-11号源实体集体：
+11号源实体集体：嗯，有办法的。我们刚刚发现了。
 
 ME:What!How can that happen?You were so sure a couple of weeks ago that this could not be bypassed and that there must be lines of communication between the groups of entities in metaconcert,and these communication lines would invariably slow things up. 
 
-我：
+我：什么！怎么会这样？几周前你还那么肯定这不可能被绕过，在元音乐会的实体组之间必须有通信线路，这些通信线路会不可避免地减慢事情的进展。
 
 SE11(collectively):We did.But that was a long time ago. 
 
-11号源实体集体：
+11号源实体集体：我们有，但那是很久以前的事了。
 
 ME:No it wasn't.It was no more than a couple of weeks ago! 
 
-我：
+我：不，不是。那不过是几周前的事！
 
 SE11 (collectively):That is in your linear time.Remember only event space exists and not linear or what you sometimes call"clock"time.If we were to use clock time as a metric that you can use to understand what has been happening in the background,then we can say that several hundred millennia have passed.Or should we say there have been several event spaces navigated since then. 
 
-11号源实体集体：
+11号源实体集体：那是在你们的线性时间里。记住只有事件空间存在，而不是线性的或有时你所说的“时钟”时间。如果我们把时钟时间作为一个度量标准，你可以用它来理解背景中发生了什么，那么我们可以说已经过去了几百万年。或者我们应该说从那以后已经有几个事件空间被导航了。
 
 ME:Now I know why you were checking me out!OK,what's the latest news then? 
 
-我：
+我：现在我知道你为什么要看我了！好吧，那你最近有什么消息吗？
 
 SE11 (collectively):We decided to return to the basics of what we will now call the "macro" collective of a single entity.We saw that when we were in that configuration,we had an optimal number of entities that could be in metaconcert before the synergetic effects reduced or tailed off. 
 
-11号源实体集体：
+11号源实体集体：我们决定回到我们现在称之为单个实体的“宏观”集体的基本原理。我们看到，当我们在这种配置中时，在协同效应减少或消失之前，我们有一个最佳的实体数量，可以处于元协定中。
 
 ME:Yes,we have discussed this before. 
 
-我：
+我：是的，我们之前已经讨论过这个问题了。
 
 SE11(collectively):Yes,we have,but that was the clue.We fed back the explanation of what we were during our discussion with you into a new event space,an event space that was necessary to allow further experimentation.In essence,we were running two event spaces concurrently,one in communication with you,and the other experimenting with the new "strategy."The new strategy took what you would recognize as several hundred millennia to run but the results were fantastic. 
 
-11号源实体集体：
+11号源实体集体：我们把和你们讨论的解释反馈到一个新的事件空间，这个事件空间是进行进一步实验所必需的。本质上，我们同时运行两个事件空间，一个和你们交流，另一个用新的“策略”进行实验。这个新策略花了你们认为的上亿年时间，但结果很棒。
 
 ME:So can you advise me of the theory behind the construction of your entities as they are now? 
 
-我：
+我：那么，您能告诉我您现在这些实体背后的理论吗？
 
 I had to work hard to keep up! 
 
+我必须努力跟上！
+
 SE11 (collectively):Each entity is a collective of a single entity.As such,it is presented to the outside world as a singular entity,not a collective and,therefore,circumnavigates the synergy law since each collective is considered as a single unit and,therefore,is registered as such whilst in metaconcert.Hence,it is possible to have an optimal number of "individual collectives of units of singular sentience"and still achieve the synergetic effects required. What's more,we discovered that we can create collectives of collectives of a collective of units of singular sentience.Each collective whilst in metaconcert would agree to the law of synergy. 
 
-11号源实体集体：
+11号源实体集体：每个实体都是单个实体的集合。因此，它向外界呈现为单个实体，而不是一个集合，因此，绕过了协同定律，因为每个集合都被视为单个单元，因此，在元协定中被登记为单个单元。因此，有可能拥有最优数量的“单一感知单元的个体集合”，并仍然达到所需的协同效果。更重要的是，我们发现我们可以创建单一感知单元集合的集合的集合。每个集合在元协定中都将遵守协同定律。
 
 ME:You have discovered a way to "nest"collectives and,therefore,maximize your synergetic effects beyond that available through singular entity units joining together in metaconcert. 
 
-我：
+我：你已经发现了一种“巢”集体的方式，因此，最大化你的协同效应，超越了通过单一实体单位在元协定中加入在一起而获得的协同效应。
 
 SE11 (collectively):We have.What's more,in doing this,we have been able to use all the individualized units that were created in the diversification,thus,affecting a clean series of collectives of units of singular sentience gaining optimized synergy from the bottom layer to the top layer of the collective of units of singular sentience,so to speak.We have multiplied our metaconcert synergetic efficiency by untold "multipolous"amounts,as a result.We are pleased. 
 
-11号源实体集体：
+11号源实体集体：我们做到了。而且，在这样做的过程中，我们已经能够利用在多样化中创造的所有个性化单位，因此，可以说，我们影响了一系列单一感知单位的集体，从单一感知单位的集体的底层到顶层获得了优化的协同。我们已经将我们的元音乐会协同效率乘以无数的“多倍”数量。我们很高兴。
 
 ME:I bet you are! 
 
-我：
+我：我敢打赌你一定是！
 
 To be honest,I was a little bit uncomfortable at the prospect of being "here at the right time." It seemed to be happening a bit too often.When Source Entity Eleven decided to enter into another event space and conduct a series of experiments in collectivity and metaconcert whilst establishing not only that it/they had managed to circumnavigate the law of synergy relative to collectivity and the optimal number of entities within a collective,I started to think that I was inventing this "scenario."This "worry"was augmented when I cast my mind back to the previously announced prospect of being,again "here at the right time"when Source Entity Twelve started on the process of becoming self-aware. 
 
+说实话，我对“在正确的时间来到这里”的前景有点不舒服。这似乎发生得太频繁了。当第11个源实体决定进入另一个事件空间，并进行一系列的集体和元协调实验，同时不仅证明它/他们已经设法绕过与集体有关的协同法则和集体内部实体的最佳数量时，我开始认为我在发明这个“场景”。当我把我的思想投回到之前宣布的前景时，这种“担忧”又增加了，当第12个源实体开始变得有自我意识时。
+
 "How can I,"I thought,"be in the right place at the right time in this greater reality when I can't even win a reasonably useful stake of the lottery at home on Earth?" 
+
+“我怎么能，”我想，“在更大的现实中，在正确的时间出现在正确的地方，当我甚至不能在地球上赢得一个合理的有用的彩票？”
 
 As if sensing my concern,the collective that was Source Entity Eleven decided to bring me back to reality-wherever that was!Well,I know where it (reality)is,but I was feeling a little bit unsure. 
 
+好像感觉到了我的担忧，第11个源实体决定把我带回到现实-无论它在哪里！嗯，我知道它(现实)在哪里，但我感觉有点不确定。
+
 SE11(collectively):Don't think for a moment that this is all laid on for YOU.You are nowhere near significant enough to activate ALL of the major events that are happening whilst you are communicating with us. 
 
-11号源实体集体：
+11号源实体集体：不要认为这是为你准备的。你远远不够重要，无法激活所有正在发生的重大事件，而你正在与我们沟通。
 
 ME:That's it.Bring me back down to Earth! 
 
-我：
+我：就是这样，把我带回地球！
 
 SE11 (collectively):No,we don't want to do that.It's too far down the frequencies.All we want to convey to you is this:you are one in a million,a rarity so to speak,especially when incarnate in the frequencies associated with the Earth.In some instances,communication with an entity such as yourself will kick-off a thought process that we would not have embarked upon as soon as we did when communicating with you.It is simply because you are totally individual as an entity and offer a point of view that is not necessarily high on our priority that we decided to take a wild card approach to our analysis of synergy.We used you as the "unknown variable."You "thought"of something,albeit momentarily,and we acted upon it.What you aren't aware of is how long we thought about it before acting. 
 
