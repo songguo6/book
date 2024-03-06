@@ -8172,103 +8172,107 @@ ME:That's it.Bring me back down to Earth!
 
 SE11 (collectively):No,we don't want to do that.It's too far down the frequencies.All we want to convey to you is this:you are one in a million,a rarity so to speak,especially when incarnate in the frequencies associated with the Earth.In some instances,communication with an entity such as yourself will kick-off a thought process that we would not have embarked upon as soon as we did when communicating with you.It is simply because you are totally individual as an entity and offer a point of view that is not necessarily high on our priority that we decided to take a wild card approach to our analysis of synergy.We used you as the "unknown variable."You "thought"of something,albeit momentarily,and we acted upon it.What you aren't aware of is how long we thought about it before acting. 
 
-11号源实体集体：
+11号源实体集体：不，我们不想那样做。那太低频了。我们只想告诉你：你是百万里挑一的，可以说是稀世珍宝，特别是当你化身在地球的频率上时。在某些情况下，与一个像你这样的实体的交流会启动一个思维过程，我们不会在与你交流时立即开始。这只是因为你是一个完全独立的实体，并提供了一个不一定是我们优先考虑的观点，我们决定采取一种通配符的方法来分析我们的协同作用。我们把你当作“未知变量”。你“想到”了某件事，尽管是瞬间的，我们就采取了行动。你不知道的是，我们在采取行动之前考虑了多久。
 
 ME:How long did you think about it?
 
-我：
+我：你考虑了多久？
 
 SE11 (collectively):Several thousand years in your book.At the point of receiving the thought we decided to "hive off"a considerable percentage of our "totality"to working with the possibility that this thought could present to us. 
 
-11号源实体集体：
+11号源实体集体：在你们的书中几千年。在接收到这个思想的时刻，我们决定“分离开来”我们“整体”的相当大比例，以便处理这个思想可能呈现给我们的可能性。
 
 ME:And what was the thought? 
 
-我：
+我：那想法是什么？
 
 SE11 (collectively):It wasn't so much the thought as the title and the thought behind the title. 
 
-11号源实体集体：
+11号源实体集体：与其说是标题，不如说是标题背后的思想。
 
 ME:You mean when I was typing down the words I used to describe the different types of collective. 
 
-我：
+我：你的意思是我打字的时候，我用这些词来描述不同类型的集体。
 
 SE11(collectively):Yes.Especially the one used to describe our state.It got a large proportion of us thinking and calculating and by the time you had finished typing,we collected enough data to allow us to make the decision to drop a number of our existing experiments and work on that which was based upon your thought. 
 
-11号源实体集体：
+11号源实体集体：是的，特别是用来描述我们状态的那个。它让我们大部分人思考和计算，当你打完字的时候，我们收集了足够的数据，让我们决定放弃一些现有的实验，并致力于那个基于你的想法的实验。
 
 ME:So I was here at the right time! 
 
-我：
+我：所以我来得正是时候！
 
 SE11(collectively):No,we had that possibility mapped out already.It's just that it was too close to another possible strategy that we had already calculated as being of limited success to bring it close enough to our attention to warrant further focused consideration.You simply tipped the balance,so to speak.
 
-11号源实体集体：
+11号源实体集体：不，我们已经把这种可能性列出来了。只是它和我们已经计算过的另一种可能的策略太接近了，而我们已经计算过这种策略的成功率有限，所以我们没有足够的注意力去进一步集中考虑它。可以说，你只是打破了平衡。
 
 ME:Well,I am glad to be heavy enough to have tipped that particular balance. 
 
-我：
+我：嗯，我很高兴我足够重要，能够打破那个特殊的平衡。
 
 SE11(collectively):As we have recently stated,you are not the center of attention here although you are of interest.It's just that you happened to make a random thought that caught our attention,imagination and subsequent action.Now let's move on,for we are starting to run out of that event space commodity you like to call time. 
 
-11号源实体集体：
+11号源实体集体：正如我们最近所说，你不是这里的关注焦点，虽然你引起了我们的兴趣。只是你碰巧随意地想了一下，引起了我们的注意、想象和随后的行动。现在让我们继续前进，因为我们快要用光你们喜欢称之为时间的事件空间商品了。
 
 You wanted to know more details about the functionality of the individualized units of our collective. 
 
+你想知道更多关于我们集体的个性化单元的功能细节。
+
 ME:I do. 
 
-我：
+我：是的。
 
 SE11 (collectively):Then we shall advise you of the three main variants we have here.As with most creativity,there is an element of variability in the manufacturing process.This variability is manifested in the optimal functionality of the individual unit concerned. When we diversified,we achieved this condition in stages.You may remember from the start of this dialogue that we were experimenting in the efficiency of the collective configuration in some considerable way and time before we decided to commit our totality to being in the collective state. 
 
-11号源实体集体：
+11号源实体集体：那么我们应该向您建议我们这里的三个主要变量。与大多数创造性一样，在制造过程中存在着可变性因素。这种可变性表现在有关单个单元的最佳功能上。当我们多样化时，我们分阶段实现这一条件。你可能还记得从对话开始时，我们在决定将我们的整体置于集体状态之前，以某种相当的方式和时间对集体配置的效率进行了实验。
 
 ME:Yes,I do remember that you suggested that you were a percentage collective and a percentage singularity at certain points in your existence. 
 
-我：
+我：是的，我确实记得你说过，在你生命的某些时刻，你有一部分是集体，有一部分是个体。
 
 SE11 (collectively):Yes,good.Then you will also remember what your own Source Entity told you about its own creativity process,that it was not "perfect"in its repeatability. 
 
-11号源实体集体：
+11号源实体集体：是的，很好。然后你也会记得你自己的源实体告诉你的关于它自己的创造过程，它在可重复性上并不“完美”。
 
 ME:Yes,I definitely remember that.That is the reason we have entities that are "sentient," energetic humanity and above;those that are "semi-sentient"animals and those instinctive races of entities;and the "non-sentient"entities,the automata-so to speak;the purely instinctive and below,such as the plant and mineral kingdoms on Earth.
 
-我：
+我：是的，我确实记得，这就是为什么我们有“有知觉的”实体，有活力的人和以上；那些是“半有知觉的”动物和那些本能的种族实体；和“无知觉的”实体，自动机-可以说；纯粹的本能和以下，如地球上的植物和矿物王国。
 
 SE11 (collectively):Good memory.Then you will be aware of the fact that each of these entity "types"or "classes"are also capable of evolutionary advancement at a rate concurrent with their level of sentience. 
 
-11号源实体集体：
+11号源实体集体：好记性。然后你将意识到这些实体“类型”或“类别”中的每一个也能够以与它们的知觉水平并行的速度进化。
 
 ME:Yes,I recognize that opportunity as well. 
 
-我：
+我：是的，我也意识到了这个机会。
 
 SE11 (collectively):Fantastic because this is a similar function experienced by ourselves when we diversified.We didn't,however,lose concentration during the creativity process as your own Source Entity did because we had 100%concentration on what we were doing when we entered into the final diversification process. 
 
-11号源实体集体：
+11号源实体集体：太棒了，因为我们在进行多元化时也经历过类似的功能。然而，在创造性过程中，我们并没有像你们的源实体那样失去注意力，因为我们在进入最终的多元化过程时，对我们所做的事情有100%的注意力。
 
 ME:So what happened then?What resulted in the three main variants of entity? 
 
-我：
+我：那么发生了什么？是什么导致了实体的三个主要变体？
 
 SE11 (collectively):Calculation. 
 
-11号源实体集体：
+11号源实体集体：计算。
 
-ME:What?Calculation?What does that mean? 
+ME:What? Calculation? What does that mean? 
 
-我：
+我：什么？计算？那是什么意思？
 
 ### Entities Conforming to a Hierarchical State 
 
+**符合层次状态的实体**
+
 SE11(collectively):In essence,we decided to create entities that conformed to a hierarchical state. 
 
-11号源实体集体：
+11号源实体集体：本质上，我们决定创建符合层次状态的实体。
 
 ME:So what was this hierarchical state? 
 
-我：
+我：那么这个等级制度是什么？
 
 SE11 (collectively):
 
@@ -8278,59 +8282,97 @@ SE11 (collectively):
 
 11号源实体集体：
 
+- a. 指挥和控制；
+- b. 由指挥和控制产生的功能；
+- c. 适应性。
+
 I will explain their roles in more detail for you because some of their roles and responsibilities are obvious whereas others are not.None of these entities are senior to the other in any way,shape,or form-they are all as important as each other. 
+
+我将更详细地为您解释它们的角色，因为它们的某些角色和职责是显而易见的，而另一些则不是。这些实体在任何方面、形状或形式上都不会比其他实体高级，它们都是同等重要的。
 
 **Command and Control**
 
+**命令和控制**
+
 Those entities endowed with the Command and Control role are those entities that are able to make decisions about how and when to create the varying densities of collectivity and subsequent synergetic effects relevant to the tasks that are presented to them as a result of being in a collective existence that is working towards the optimal evolutionary condition.They can assign entities of the "function"class to work on that which is necessary.A recent example would be that calculation and experimentation that allowed us to circumnavigate the synergetic law of maximum collectivity.These entities plan that which needs to be actioned and negotiate with others of their class for the "functional"and "adaptational"resource necessary to be successful in their project.They are also of an energy that allows them to also participate in the work of the "functional"and "adaptational"classes of entities. 
 
+那些被赋予命令和控制角色的实体，能够决定如何以及何时创建不同的集体密度，以及与呈现给它们的任务相关的后续协同效应，这些任务是集体存在的结果，是朝着最优进化条件努力的结果。他们可以指派“功能”类实体来完成必要的工作。最近的一个例子是计算和实验，这让我们能够绕过最大集体的协同法则。这些实体计划需要采取的行动，并与其类别的其他实体协商，以获得在项目中成功所需的“功能”和“适应性”资源。它们也具有一种能量，使它们也能参与“功能”和“适应性”类实体的工作。
+
 **Function**
+ 
+**功能**
 
 The Function entities are those whose role is to take that which has been planned by the Command and Control entities and work it into something relative,repeatable and robust.This can only be achieved by applying multiple approaches to solve the particular problem passed along to them via the Command and Control entities.In most instances,the Command and Control and the Function entities swap roles to verify the functionality of that which has been developed.Doing this ensures that there are no areas of error that can or have been introduced.These entities are also capable of becoming that which they create, thereby allowing easy transportation of that which has been successful to other areas of the collective.
 
+功能实体的角色是接受命令和控制实体已经计划好的任务，并将其转化为相对的、可重复的和健壮的东西。这只能通过应用多种方法来解决通过命令和控制实体传递给它们的特定问题来实现。在大多数情况下，命令和控制实体和功能实体交换角色，以验证已经开发的功能。这样做可以确保没有错误的领域，可以或已经被引入。这些实体也能够成为它们创建的实体，从而允许将已经成功地传输到集体的其他领域。
+
 **Adaptation**
+
+**适应性**
 
 The Adaptation entities are the "coupe de gras"of the three entities because they are able to become either of the previous two entities to undertake seamlessly without a period of normalization that which the others are doing.They are the multifunctional tool in the tool box,so to speak,and are capable of doing any of the workload requirements in both an individual and collective state.Their main strengths are their ability to compartmentalize themselves to the point where they can commune with individuals or collectives of all three conditions simultaneously-thus,creating a bridge between working functions of the various collectives.Because they can replicate each entity state or type in a totally faithful condition,they create a seamless connection between collectives of dedicated entity types that allows a larger,multifunctional collective condition to be developed. 
 
+适应性实体是这三个实体中的“coupe de gras”，因为它们能够成为前两个实体中的任何一个，在没有一段时间的正常化的情况下无缝地承担其他实体正在做的事情。它们是工具箱中的多功能工具，可以说，它们能够在单个和集体状态下完成任何工作负载需求。它们的主要优势是它们能够将自己分隔开来，以便能够同时与所有三个条件的个人或集体交流，从而在各种集体的工作功能之间建立一座桥梁。 因为它们能够在完全忠实的情况下复制每个实体状态或类型，它们在专用实体类型的集体之间创建了一个无缝连接，允许开发更大的多功能集体条件。
+
 ME:This feels like the beginnings of a integrated circuit,or better still,the architecture of a microprocessor where certain parts of the processor are dedicated to certain types of functionality. 
 
-我：
+我：这感觉就像集成电路的开端，或者更好的是，微处理器的结构，其中处理器的某些部分专门用于某些类型的功能。
 
 SE11(collectively):Yes,we can see how you may make that analogy,for in certain instances that is what we almost become,a super massive processor on a Source Entity scale.This is one of the ways in which we work with the evolutionary tasks that we set ourselves. 
 
-11号源实体集体：
+11号源实体集体：是的，我们能看出你如何做这个类比，因为在某些情况下，我们几乎变成了，一个源实体规模的超级大规模处理器。这是我们处理我们自己设定的进化任务的方式之一。
 
 ### A Top-down Visualization of the "New Source Entity Eleven" 
 
+**“新源实体11”自上而下的可视化**
+
 Recently in this dialogue with Source Entity Eleven,I had been advised of a change it had made that had resulted in its ability to circumnavigate the law of synergetic effect.It had also gone to some length to advise me that I was not the reason for its solving this particular conundrum but merely a catalyst.I was much more comfortable about because I was more than concerned about my own ego getting in the way and creating that which it desired to be seen and overlaying that into the channelled information rather than allowing me to receive pure unfiltered information from Source Entity Eleven.I was totally aware,of course,that there was a level of filtering of the information by Source Entity Eleven itself.However,I knew that was a necessary requirement to ensure that I was able to work with the information and concepts surrounding the information received and not let it fall fallow through my lack of understanding. 
+
+在最近与源实体11的对话中，我被告知它所做的改变，导致了它绕过协同效应法则的能力。它还花了很长的时间来告诉我，我并不是它解决这个特殊难题的原因，而仅仅是一个催化剂。我感到更舒服，因为我更关心我自己的自我妨碍了它，创造了它希望被看到的东西，并将其覆盖到所传达的信息中，而不是让我从11号源实体那里接收纯粹的未经过滤的信息。当然，我完全意识到，11号源实体本身对信息有一定程度的过滤。然而，我知道这是一个必要的要求，以确保我能够处理所接收到的信息和围绕这些信息的概念，而不是让它因为我缺乏理解而荒废。
 
 Source Entity Eleven's success in circumnavigating the law of synergetic effect had resulted in its changing its configuration as a collective to that which it could achieve with all its units of "singularity sentience"in play.This included those that had been hived off to communicate with me.They suddenly felt different-cleaner,more efficient,waste-free,sharp!New! 
 
+11号源实体成功地绕过了协同效应的法则，导致它改变了作为一个集体的配置，以便它可以实现所有“奇点感知”单元的发挥。这包括那些被分离出来与我交流的单元。它们突然感觉不同了——更干净、更有效率、没有浪费、更敏锐！全新的！收到这个奇妙成功的通知几天后，我开始收到一个最有趣的图像，其中有一些关于11号源实体新配置的细节。它令人惊讶，我决定从说明和描述的角度与这篇文章的读者分享。
+
 A couple of days after receiving notification of this wondrous success,I started receiving a most interesting image of some of the detail/s of the new Source Entity Eleven configuration.It was amazing to see and one that I resolved to share with the readers of this text from both an illustrative and descriptive perspective. 
+
+在收到这个神奇成功的通知几天后，我开始收到一个最有趣的图像，其中有一些新的源实体十一配置的细节。看到它真是太神奇了，我决定从一个说明和描述的角度与这篇文章的读者分享。
 
 ME:I must take the opportunity to both discuss this new configuration with you and describe it to the readers of this book. 
 
-我：
+我：我必须抓住这个机会，既与你讨论这个新的配置，又向这本书的读者描述它。
 
 SE11(collectively):Yes,and so you should.If you like,we can do this together to ensure that you do not duplicate any of the previous text too much.
 
-11号源实体集体：
+11号源实体集体：是的，你应该这样做。如果你愿意，我们可以一起做，以确保你不会过多地重复任何之前的文本。
 
 ME:Yes,I would very much like that. 
 
-我：
+我：是的，我非常愿意。
 
 I settled down to focus on the image that had presented itself in front of me again.I had previously noted how the effect of being a collective of units of singular sentience had the effect of circumnavigating the law of synergy by the collective presenting itself to the outside environment as a singular unit.I moved away from that part of Source Entity Eleven that was communicating with me.As I looked from a greater distance,I noticed that I saw the whole of Source Entity Eleven as a singular Entity;it looked just like a sphere with a very thin boundary or perimeter. There was no indication of collectivity at all.I found this quite interesting. 
 
+我坐下来，把注意力集中在再次出现在我面前的图像上。我以前注意到，作为一个单一感知单元的集体，其效果是如何通过集体向外部环境呈现自己作为一个单一单元来规避协同法则。我离开了与我交流的那部分“十一号实体源”。当我从更远的地方看时，我注意到我看到整个“十一号实体源”是一个单一的实体；它看起来就像一个边界或周长非常细的球体。根本没有集体的迹象。我发现这很有趣。
+
 I moved my vantage point back towards the area where I was previously communicating with that part of Source Entity Eleven that was assigned to communicate with me.As I did so,my resolution got better,and I could see each of the individual entities in front of me.Initially,they had the same appearance as Source Entity Eleven did from a distance-that is,they appeared to be singular in appearance and profile. 
+
+我把有利位置移回我之前与指定与我交流的那部分“十一号实体源”交流的地方。当我这样做时，我的分辨率变好了，我可以看到我面前的每一个个体实体。最初，它们的外观与从远处看“十一号实体源”是一样的——也就是说，它们的外观和侧面看起来都是单一的。
 
 I then felt the need to get closer to one or two of them.As I moved in closer,I could see past the outer perimeter of the one closest to me.Inside was a plethora of individual units all in collectivity,all in metaconcert.The feeling of oneness was all-encompassing,enthralling, inviting,and succumbing.I moved away for a moment,and the imagery of all these entities in collectivity within this perimeter disappeared,and I was confronted with what appeared to be a single entity again. 
 
+然后我感到有必要靠近其中的一两个。当我走近时，我能穿过离我最近的那个实体的外周。里面是过多的个体单元，全都处于集体中，全都处于元协调中。这种一体的感觉包罗万象，令人着迷，诱人，令人屈服。我离开了一会儿，所有这些实体在这个周长范围内集体的意象消失了，我再次面对着一个单一的实体。
+
 "This is a good illusion,"I thought,"good enough to fool an omniversal law,a law of synergetic effect!"
+
+“这是一个很好的错觉，”我想，“足以骗过一个普适的法则，一个协同效应的法则！”
 
 I moved back in towards the entity.At the perimeter's edge,the truth behind the entity again became perceivable,and I saw all of the entities inside in collectivity and metaconcert.The totality of this entity was such that it was at the maximum number of component parts to allow the maximum synergetic effect to take place-and no more.Outside of this entity's perimeter, I noted that it,itself,was one of an optimal number of entities required to achieve maximum synergy.This was a two-layer effect. 
 
+我回到这个实体。在周长的边缘，实体背后的真相再次变得可感，我看到所有实体都在集体中，处于元协调中。这个实体的整体是这样的，它有最大数量的组成部分，以允许最大程度的协同效应发生——仅此而已。在这个实体的周长之外，我注意到它本身就是达到最大协同效应所需的最优数量的实体之一。这是一个双层效应。
+
 Something caught my attention.Within this second layer entity,itself a collective in disguise,I gained the need to zoom in again and look at one of its singular units.Again,from the perspective of being on the outside,it appeared to bejust that-a singular unit,but as I shifted my perception beneath the outside perimeter,I was greeted by yet another collective in the optimal number in metaconcert to effect the maximum synergetic outcome.I started to wonder how far this layering would go when Source Entity Eleven decided to elaborate.I pulled back to face the part of it that was addressing me. 
+
+有件事引起了我的注意。在这个第二层实体内部，它本身就是一个伪装的集体，我需要再次放大，看看它的一个单个单元。再一次，从外部的角度来看，它似乎只是一个单个单元，但当我把我的感知转移到外部边缘之下时，我又看到了另一个集体，它以最优数量的元协定来产生最大的协同结果。我开始想知道当源实体十一决定详细说明时，这种分层会走多远。我后退几步，面对它正在对我说话的那部分。
 
 ### The Collective That Became Singular Whilst Being a Collective! 
 
