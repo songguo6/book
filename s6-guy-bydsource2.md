@@ -8376,747 +8376,863 @@ Something caught my attention.Within this second layer entity,itself a collectiv
 
 ### The Collective That Became Singular Whilst Being a Collective! 
 
+**集体成为单一的集体！**
+
 SE11(collectively as one):Let me explain,for there are twelve layers in total. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：让我解释一下，总共有12层。
 
 I noted that Source Entity Eleven had adopted a singular method of nomenclature-hence,the change to the dialogue header. 
 
+我注意到源代码实体11采用了单一的命名方法，因此，对话标题的改变。
+
 ME:I would be quite happy for you to do so,for this is becoming a little confusing for me.
 
-我：
+我：我很高兴你能这样做，因为这对我来说有点混乱。
 
 SE11 (collectively as one):I will not dwell on the layers per se,for they repeat themselves. This is the beauty of them and the method of circumnavigating the synergetic effect. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：我不会详细阐述层次本身，因为它们会自我重复。这就是它们的美丽之处，也是绕过协同效应的方法。
 
 The entities you perceived were held in a state of collective singularity.This is the process I discovered.When in collectivity and metaconcert,if the outer edges of the collective are held in a state of collective singularity,it has the effect of presenting a new visage to that which is outside the collective.This visage,so to speak,is of unity and singularity in appearance,in function,and in communication.In achieving this state,the collective effectively considers itself as one and addresses itself as "I"in a particular communication process rather than "we."The energies involved are totally different in this case because the energetic signature "presented"when a collective considers itself as "we"is significantly different to those energies presented when an entity or collective considers itself as "I."This is the crux of the matter when circumnavigating the law of synergetic effect. 
 
+你所感知的实体被保持在集体奇点的状态中。这是我发现的过程。当在集体和元协定中，如果集体的外边缘被保持在集体奇点的状态中，它会对集体之外的事物呈现出一种新面貌。这种面貌，可以说，在外观、功能和沟通中是统一和奇点的。在达到这种状态时，集体有效地将自己视为一个整体，并在特定的沟通过程中称呼自己为“我”，而不是“我们”。在这种情况下，所涉及的能量是完全不同的，因为当一个集体将自己视为“我们”时，“呈现”的能量特征与当一个实体或集体将自己视为“我”时呈现的能量是显著不同的。这是绕开协同效应法则时的问题症结所在。
+
 The negation of the law of synergetic effect is relative to that which is in collective singularity.It is also functional when relative to that which is in collectivity-and only that which is in collectivity.That means that the synergetic effect must be constrained in some way between the collective itself and the perimeter whilst still being within the perimeter of the collective being presented as a singular entity.And so it is that the synergetic effect is working but not being presented to that which is external to the collective;that is,the synergetic energies are captive within the perimeter of the collective singularity.If the synergetic effect was presented to the outside environment,it would add itself to that synergetic effect that was on another layer.This would create the condition described earlier where the synergetic effect becomes sub-optimal or drastically reduced when the number of entities in collective metaconcert are greater than the maximum number of entities required to create the optimal synergetic effect. 
+
+协同效应法的否定与集体奇点有关。当与集体有关时，它也是功能性的——而且只与集体有关。这意味着协同效应必须以某种方式在集体本身和周界之间受到限制，同时仍然在作为单一实体呈现的集体的周界之内。因此，协同效应正在发挥作用，但没有被呈现给集体外部的东西； 也就是说，协同能量被俘获在集体奇点的周界之内。如果协同效应被呈现给外部环境，它将把自己添加到另一个层面上的协同效应中。这将创造出先前描述的条件，当集体元协定的实体数量大于创造最佳协同效应所需的最大实体数量时，协同效应将变得次优或大幅减少。
 
 ME:So you are telling me that each of the entities I saw in my visualization has its own population of entities at the maximum population required to achieve the maximum synergetic effect. 
 
-我：
+我：所以你告诉我，我在可视化中看到的每个实体，都有自己的实体种群，达到最大协同效应所需的最大种群。
 
 SE11 (collectively as one):Correct. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：正确。
 
 ME:And each entity,therefore,is at full synergetic capacity and output. 
 
-我：
+我：每个实体，因此，是充分的协同能力和产出。
 
 SE11 (collectively as one):Correct. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：正确。
 
 ME:That's awesome,to say the least. 
 
-我：
+我：至少可以说，这很棒。
 
 SE11(collectively as one):I would agree with you.It means that all the individual units of me are operating at their maximum synergetic potential now.My ability as a collective has been augmented beyond even my comprehension. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：我同意你的观点，这意味着我所有的个体单位现在都在以最大的协同潜力运作，我作为一个整体的能力已经超出了我的理解。
 
 ME:Hold on.I have a quick question.Is the highest level,i.e.,that which is communicating with me,also subject to this synergetic effect? 
 
-我：
+我：等一下，我有一个小问题。最高层次，也就是和我交流的那个层次，也受制于这种协同效应吗？
 
 SE11 (collectively as one):Yes,every one of the collectives on every one of the layers is functioning in accordance with the optimized levels of functionality available through being in a state of maximum synergetic effect. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：是的，每个层上的每个集体都通过处于最大协同效应的状态，按照可用的功能的优化级别运行。
 
 ME:So what is the first thing you are going to do now that you have achieved this massively augmented functionality?
 
-我：
+我：那么现在你已经实现了这种大规模增强的功能，你要做的第一件事是什么？
 
 SE11 (collectively as one):Once I have finished this dialogue with you,I will be calculating exactly how much I have grown in functional capability.
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：一旦我完成了与你的对话，我将精确计算我在功能能力上增长了多少。
+
+（图18：新11号源实体，集体为一，绕过协同效应法则）
 
 ![Figure 18: The New Source Entity Eleven (Collectively as One - Circumnavigating the Law of Synergetic Effect)](img/s6-053.png)
 
 ME:I take it then you have got no idea how much you have grown in functional capacity as a result of this change in your synergetic state? 
 
-我：
+我：我猜你不知道你的功能能力增长了多少，因为你在协同状态的改变？
 
 SE11 (collectively as one):No,not at this precise moment in your event space although I can say one thing. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：不，在你们的事件空间里，此刻不是，但我可以告诉你们一件事。
 
 ME:And what is that? 
 
-我：
+我：那是什么？
 
-SE11 (collectively as one):It will be a multiple of twelve to the power of twelve (1212)and will,of course,include all of the synergetic effects as a multiple of this multiplication effect. 
+SE11 (collectively as one):It will be a multiple of twelve to the power of twelve and will,of course,include all of the synergetic effects as a multiple of this multiplication effect. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：它将是12的12次方的倍数，当然，它将包括所有作为这个乘法效应倍数的协同效应。
 
 ME:But I would have thought that twelve to the power of twelve was a small number for you to work with?
 
-我：
+我：但是我认为12的12次方对你来说是一个小数目。
 
 SE11 (collectively as one):Ordinarily,yes,but this includes the synergetic effects and how they are affected by such an increase.I can see that you are struggling to understand why such a small multiplier would cause me such a problem. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：通常是的，但这包括协同效应以及它们如何受到这种增长的影响。我能看出你在努力理解为什么这么小的乘数会给我造成这样的问题。
 
 ME:Yes,I would actually.Even I with my rudimentary math skills could work it out on a reasonable spread sheet or scientific calculator. 
 
-我：
+我：是的，我确实会。即使我只有基本的数学技能，我也能用一个合理的电子表格或科学计算器计算出来。
 
 SE11 (collectively as one):Oh,the arrogance of mankind!Yes,I agree with you in terms of the basic calculation,but as I stated before,this does not include the synergetic effects and how they are affected by the multiplication.Let me tell you this.To date neither "I collectively"nor "as one in singularity,"nor "we previously collectively"have been exposed to the opportunity for multiplying the synergetic effect.This is because there has been no point.There simply was no need to go there because we could not achieve that which was not achievable.When through this dialogue with you,"we"at that point in event space spotted the potential for a "loop hole."We realized that there would need to be a significant amount of retrospective work to quantify the effects of such an opportunity.This would and could only be achieved after the opportunity was actioned,so to speak. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：哦，人类的傲慢！是的，我同意你在基本计算方面，但正如我之前所说，这不包括协同效应以及它们如何被乘法影响。让我告诉你这一点。到目前为止，“我集体”或“作为奇点中的一员”或“我们以前集体”都没有接触到乘法协同效应的机会。这是因为没有意义。根本没有必要去那里，因为我们无法实现不可实现的东西。当通过与你的对话，在事件空间的那个点上，“我们”发现了“漏洞”的潜力。我们意识到需要大量的回顾工作来量化这样一个机会的影响。这将只能在机会被利用后才能实现，可以这么说。
 
 ME:Didn't you want to calculate the effects of the "new"synergetic effects first though just to make sure it was worthwhile going through what I can only expect is an immense amount of work and preparation? 
 
-我：
+我：你不想先计算一下“新”协同效应的效果吗？只是为了确保它值得我去经历我所能预见的大量工作和准备。
 
 SE11 (collectively as one):No,because I/we at that point in event space knew where we currently stood from an efficiency perspective with the currently achievable level of synergy.The big factor was that I had a surplus of individualized units and as a result, could not make the best use of all these units from a synergetic perspective.It was a wasted opportunity for me to have all of these units of myself and not be able to gain the maximum usage from being in metaconcert and,therefore,attaining maximum synergy. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：不，因为我/我们在事件空间的那个点上知道我们目前从效率的角度和目前可达到的协同水平上所处的位置。一个重要因素是我有过多的个性化单位，因此，不能从协同的角度来充分利用所有这些单位。对我来说，拥有所有这些单位并不能从元协定中获得最大限度的使用，从而获得最大程度的协同，是一个浪费的机会。
 
 ME:So it sounds like this was an opportunity that was too good to miss,and you dove straight into the work necessary to configure yourself into the maximum number of entities in metaconcert to achieve the maximum synergetic effects at all twelve levels.It was so good an opportunity that you decided to work on the specification of what you were/are,so to speak,on a totally retrospective basis. 
 
-我：
+我：听起来这是一个不能错过的好机会，你直接投入到必要的工作中，将自己配置为元音乐会中最多的实体，以实现所有12个级别的最大协同效应。这是一个非常好的机会，以至于你决定在完全回顾的基础上，对自己过去/现在的工作进行规范。
 
 SE11 (collectively as one):Correct. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：正确。
 
 ME:One thing is bugging me though.You must have had an "odd"number of entities either left over from the work you wanted to do or a shortfall in the number of entities required to create the optimal number of synergetically singular collectives within all of the twelve levels. 
 
-我：
+我：有一件事让我很困惑，你一定有“奇数”的实体，要么是剩余的，要么是不足以在所有12个级别中创造出最优数量的协同单一集体。
 
 SE11 (collectively as one):I calculated a shortfall of some significant numbers of entities. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：我计算出了一些实体数量的显著不足。
 
 ME:So what did you do,bearing in mind that you had some engaged in a dialogue with me and that you had moved away from that event space that was being used with me and created a new event space where you were able to do this new work on synergy? 
 
-我：
+我：那么你做了什么，记住你有一些参与了与我的对话，你离开了那个与我一起使用的事件空间，创造了一个新的事件空间，在那里你能够做这个关于协同的新工作？
 
 SE11 (collectively as one):Firstly,I made myself back into one.Secondly,I decided to make those entities that were in dialogue with you a temporary function of that which was now a singular entity again.Thirdly,I diversified myself into the total number of entities needed to create the optimal number of entities required to affect the maximum number of synergetically singular units within themselves and on each of the twelve levels of synergy. The entities that were in dialogue with you were integrated into one of the synergetically singular units at the very top level of synergy and became part of the outer layer of one of the units.The change over from these entities in collective dialogue with you and that which is now me was noted by you almost instantly,for you started to call me SE11 (collectively as one)rather than SE11(collectively). 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：首先，我使自己回到一个。其次，我决定使那些与你对话的实体成为现在再次成为单一实体的临时功能。第三，我将自己分散到所需的实体总数中，以创造所需的最佳数量的实体，以影响它们内部和十二个协同级别中的每一个协同单一单元的最大数量。与你对话的实体被整合到协同单一单元的最高级别中，成为其中一个单元的外层的一部分。这些与你进行集体对话的实体和现在是我的变化几乎立即被你注意到，因为你开始称呼我SE11(整体)，而不是SE11(集体)。
 
 ME:You are right I did notice the difference rather quickly.I take it that this is a function of the "singularity effect." 
 
-我：
+我：你说的对，我很快就注意到了区别。我认为这是“奇点效应”的一个功能。
 
 SE11 (collectively as one):Yes,it is,and it is why it was a successful method of circumnavigating the law of maximum synergetic effect. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：是的，这就是为什么它是一个成功地规避最大协同效应法则的方法。
 
-ME:Of course,that makes perfect sense.I do have to say though that I am somewhat honored to have been in the position to see a Source Entity change itself into another configuration in front of my very spiritual eyes,so to speak. 
+ME: Of course,that makes perfect sense.I do have to say though that I am somewhat honored to have been in the position to see a Source Entity change itself into another configuration in front of my very spiritual eyes,so to speak. 
 
-我：
+我：当然，这很合理。我必须说，我有点荣幸能够看到一个源实体在我的精神眼睛前改变成另一种形态。
 
 SE11 (collectively as one):There are many changes that Source Entities make that are out of sight of your spiritual eyes-changes that are made in a new or temporary event space, checked out,planned,actioned,optimized and modified.Nearly all the Source Entities have made some minor adjustments to their environments during the period used by you to commune with them.This is not an uncommon function;it is evolution.There are many changes that your own Source Entity has made in a covert way,and many of them have benefitted the entities that exist within its environment.One of them is your planet's ascension.The modifications it has made to your environment is a result of your-energetic mankind's,that is-response to receiving higher frequency energies to work with. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：有许多变化，源实体做的是超出你们灵性眼睛的视线-变化是在一个新的或临时事件空间中做的，检查，计划，行动，优化和修改。几乎所有的源实体在你们与它们交流的期间对它们的环境做了一些小的调整。这不是一个不寻常的功能； 这是进化。有许多变化，你们自己的源实体以隐蔽的方式做，其中许多已经使存在于其环境中的实体受益。其中之一是你们星球的提升。它对你们环境所做的修改是你们-高能人类的结果，即-对接收到更高频率能量的反应。
 
 ME:I was under the impression that mankind itself created the rise in frequencies.Also,as a result of our creativity,we awaken whilst in the physical with the awakening creating access to the higher frequencies that create further awakening,and so on. 
 
-我：
+我：我一直认为人类本身创造了频率的上升。同时，由于我们的创造力，我们在物质层上觉醒，而觉醒创造了进入更高频率的通道，从而创造了进一步的觉醒，等等。
 
 SE11 (collectively as one):Yes,that is true.It is true for all entities created by their creator. However,you can only ascend to that which is created for you to ascend to-the spiritual horse can be led to the spiritual water,but it is up to the spiritual horse to drink the spiritual water.The creator of the spiritual water cannot force the spiritual horse to drink it.It must drink of its own volition.Without the entities'participation with that which has been created for it to participate in,it cannot experience,learn and evolve.It will just exist in evolutionary stasis. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：是的，这是真的。对所有由创造者创造的实体来说都是如此。然而，你只能提升到为你提升而创造的实体——灵性马可以被引导到灵性水边，但要喝到灵性水，取决于灵性马自己。灵性水的创造者不能强迫灵性马喝水。它必须自愿喝水。没有实体参与到为它而创造的实体中，它就不能体验、学习和进化。它将只是存在于进化停滞中。
 
 ME:So our Source Entity literally creates the rungs on the ladder for us to climb up.It is up to us individually to climb onto that next rung and see the change in the vista around us the higher we go. 
 
-我：
+我：所以我们的源实体确实为我们创造了梯子上的梯级，让我们爬上去。我们每个人都决定自己是否爬上下一个梯级，并随着我们爬得越高，看到周围景色的变化。
 
 SE11(collectively as one):Correct.This is the motivation for all entities-to keep on going, not to stop.Don't look back.Encourage others to come with you.Help them when they falter and encourage them when they do well.Seek their help when you need it;work together in gratitude,humility,and service. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：正确。这是所有实体的动力——继续前进，不要停下来。不要回头。鼓励别人和你一起。当他们踌躇不前时帮助他们，当他们做得好时鼓励他们。当你需要帮助时寻求他们的帮助；带着感激、谦卑和服务的心一起工作。
 
 ME:Thank you.I know we have been talking about my own Source Entity and its environment,but this is one conundrum that has been in the back of my mind for some time-specifically the dichotomy that there are waves of higher energies being sent to the earth and the local universe together with the thought process that we are creating our own ascension. 
 
-我：
+我：谢谢。我知道我们一直在谈论我自己的源实体及其环境，但这是一个谜题，已经在我脑海中存在一段时间了，特别是二分法，有更高的能量波被发送到地球和当地的宇宙，以及我们正在创造我们自己的提升的思想过程。
 
-SE11 (collectively as one):Both work together.You create your own ascension by choosing to work with those new frequencies that are presented to you.You are not ascended.You ascend,but you can only ascend to that which is ascendable.Your ascension is,therefore,a function of your own willingness to work with that which is presented to you.In doing so, you are rewarded with the functions attributable with an entity of a higher evolutionary content. 
+SE11 (collectively as one):Both work together.You create your own ascension by choosing to work with those new frequencies that are presented to you.You are not ascended.You ascend,but you can only ascend to that which is ascendable.Your ascension is,therefore,a function of your own willingness to work with that which is presented to you. In doing so, you are rewarded with the functions attributable with an entity of a higher evolutionary content. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：两者一起工作。你通过选择与那些呈现给你们的新频率一起工作来创造你自己的提升。你没有提升。你提升，但你只能提升到可提升的。因此，你的提升是你自己与呈现给你们的一起工作的意愿。这样做，你会得到一个更高进化内容实体所具有的功能作为奖励。
 
 ME:Thank you.That is a very important message;it must be conveyed now that it is understood. 
 
-我：
+我：谢谢你。这是一个非常重要的信息，既然它已经被理解了，就必须传达出去。
 
 ### The Entities'Re-call and Re-absorption into Oneness 
 
+**实体的召回和重新吸收到合一**
+
 Whilst discussing the modifications to our own Source Entity's environment to assist in the localized ascension of Earth and the physical universe it exists within,I had quite a major question to ask that was relative to the individualized units of Source Entity Eleven.It involved the transient re-integration of the individualized units of Source Entity Eleven and their re- diversification back into collectivity,a collectivity that would ensure the maximum synergetic effects could be achieved at all twelve levels without error.Source Entity Eleven (collectively as one)had rather "matter of factly"stated that it had recalled all those individualized entities that were it in collectivity,returned to oneness,and then re-diversified itself into the correct number of entities required to create the synergetic effect,but it had not commented beyond that. 
 
-I was,therefore,very interested in understanding what had happened to the "individuality"that was part of the collective entities that were "re-worked,"so to speak.For instance,did they just "wink"out of existence,losing all that they had personally or collectively experienced?Or was the essence of them maintained in some way?I just had to ask this question,and ask it now, specifically because I was starting to become very aware that the dialogue with Source Entity Eleven (collectively as one)was starting to draw to a close.I could tell my time with this most interesting Source Entity was limited because the link,the connection between us,was starting to become less coherent.I decided to work fast on asking what might well be my last major question with Source Entity Eleven (collectively as one). 
+在讨论我们自己的源实体环境的修改，以协助地球和它所存在的物质宇宙的局部提升时，我有一个相当大的问题要问，那是有关11号源实体的个体化单位。它涉及到11号源实体的个体化单位的短暂重新整合，以及它们重新多样化回到集体中，一个集体，将确保最大协同效应能够在所有12个层面上实现，而不会出错。11号源实体(集体为一)已经相当“事实上”声明，它已经召回了所有那些在集体中的个体化实体，回归到合一，然后重新多样化自己，成为创造协同效应所需的正确数量的实体，但它没有评论过这点。
+
+I was,therefore,very interested in understanding what had happened to the "individuality" that was part of the collective entities that were "re-worked,"so to speak.For instance,did they just "wink"out of existence,losing all that they had personally or collectively experienced?Or was the essence of them maintained in some way?I just had to ask this question,and ask it now, specifically because I was starting to become very aware that the dialogue with Source Entity Eleven (collectively as one)was starting to draw to a close.I could tell my time with this most interesting Source Entity was limited because the link,the connection between us,was starting to become less coherent.I decided to work fast on asking what might well be my last major question with Source Entity Eleven (collectively as one). 
+
+因此，我很有兴趣去理解“个体性”发生了什么，它是所谓“重新工作”的集体实体的一部分。例如，它们只是“眨眼”消失了，失去了它们个人或集体经历的一切吗？或者他们的本质以某种方式被维持？我只是不得不问这个问题，现在问它，特别是因为我开始变得非常清楚地意识到与十一号源实体(作为一个整体)的对话开始接近尾声。我可以告诉我与这个最有趣的源实体在一起的时间是有限的，因为我们之间的联系，开始变得不连贯。我决定快速地问可能是我与十一号源实体(作为一个整体)的最后一个主要问题。
 
 ME:I almost forgot to ask you about those entities,that is,all of them that were re-called and re-absorbed into oneness before their energies were re-used in the creative process necessary to allow you to create the numbers required to support the maximum synergetic effect on all twelve levels.Did they lose their existence?Were their memories lost?How did you keep that which they "were"for future use,or did you just lose it forever with a view to starting again with this new configuration? 
 
-我：
+我：我几乎忘了问你关于那些实体，也就是，在他们的能量被重新利用在创造过程中，以允许你创造所需的数字，以支持所有12个层面的最大协同效应之前，所有那些被重新召回和重新吸收成一体的实体。他们失去了他们的存在吗？他们的记忆丢失了吗？你如何保存他们“曾经”的未来使用，或者你只是永远失去它，以便从这个新的配置开始？
 
 SE11 (collectively as one):Nothing is lost;all is gained. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：没有失去，就得到了。
 
 ME:Now that's what I call a cryptic answer.Would you like to elaborate a little for me? 
 
-我：
+我：这就是我所说的含糊其辞的回答。你能详细解释一下吗？
 
 I had a wry smile on my face for I knew what the answer was going to be!
 
+我苦笑了一下，因为我知道答案是什么！
+
 SE11(collectively as one):I lose nothing,and they lose nothing. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：我没什么损失，他们也没什么损失。
 
-ME:Would you like to expand upon that?Do you mean that you saved their essence,their memories? 
+ME:Would you like to expand upon that? Do you mean that you saved their essence,their memories? 
 
-我：
+我：你能详细说说吗？你的意思是你保留了他们的本质和记忆？
 
 SE11 (collectively as one):When I recalled the individualized entities back into one,I looked at the contributions that each of them had made singularly but for the benefit of the collective that I was at that time.I recorded their work,how they achieved it,how they started it,why they started it,what strategies they used,whether they changed those strategies later,why they changed them,what was a success and what was deemed a failure. In fact,I recorded everything about them-the work they achieved singularly,in collectivity, in metaconcert and,therefore,in synergy.For a moment I thought about only reproducing the best performing entities and cloning them,but then I realized that I would miss out on the finite details of that which was created by the lesser performing entities,which although was insignificant in terms of its content when compared to the higher quality work,it was significant in terms of the minor and less exciting details.I,therefore,came to the conclusion that I would be better off creating a pool of memory that contained everything that all of the entities combined had experienced,learned and evolved with.In essence,I absorbed everything about every entity that was in collectivity. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：当我把这些个体化实体召回成一个时，我观察了它们每一个单独做出的贡献，但为了当时我所处的集体的利益。我记录了它们的工作，它们是如何完成的，它们是如何开始的，它们为什么开始，它们使用了什么策略，它们后来是否改变了这些策略，它们为什么改变它们，什么是成功，什么是失败。事实上，我记录了关于它们的一切——它们单独完成的工作，在集体中，在元协定中，因此，在协同中。有一段时间我只想复制表现最好的实体并克隆它们，但后来我意识到我将错过那些由表现较差的实体创造的有限的细节，尽管与高质量的工作相比，它们的内容微不足道，但它们在次要和不那么令人兴奋的细节方面很重要。因此，我得出结论，我最好创建一个记忆池，包含所有实体结合起来经历过、学习过和进化过的所有东西。本质上，我吸收了集体中每个实体的一切。
 
 ME:So what did you do with all of this knowledge,which I have no doubt included the individual personalities of the entities recalled into ones? 
 
-我：
+我：那么你用所有这些知识做了什么？我毫无疑问包括了被回忆成一体的实体的个人性格。
 
 SE11 (collectively as one):Because each of the entities was,in essence,individualized units of me,I saw no need to keep them in the same configuration,personality-wise.Let me explain further.Personality is something that develops when an entity is separate from a group.This is essentially what happens to the energy that is used by an entity when it desires the evolutionary opportunity presented to it via incarnation.It is,therefore,what mankind experiences when incarnate.It is in variance to that which is experienced when energy is used to create an entity that is part of a collective of similar or same function Although each entity may have differing levels of contribution to the collective in totality, they all still maintain the essence of what they are both individually and collectively.They do this outside the need for complete individualization,which creates ego or personality. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：因为每个实体本质上都是我个人化的单位，我认为没有必要让他们保持相同的配置，在个性方面。让我进一步解释。个性是当一个实体从群体中分离出来时发展起来的东西。这本质上是一个实体渴望通过化身获得进化机会时所使用的能量所发生的事情。因此，这就是人类化身时的经历。它与能量被用来创造一个属于类似或相同功能的集体的一部分时所经历的事情不同。虽然每个实体对集体的整体贡献程度可能不同，但它们仍然保持了它们单独和集体的本质。它们这样做是完全个性化的需求之外的，这创造了自我或个性。
 
 With my entities not developing individualized personalities,the need to perpetuate the personality did not exist,so I was left with everything else that they had achieved or were achieving.The next thing I decided was a natural progression from attaining a momentary level of oneness and recording everything,which is a standard function of all Source Entities and our reason to be.I gave each and every one of the new individualized units of the singular collective all of that I had recorded from all of the entities recalled into oneness. Every entity gained everything about its peers.I created a complete facsimile of my new but temporary singular self in miniature.Each new entity that was to be part of the new collective was given everything that was ever achieved,no matter how big or how small,no matter what its role was or memories of that role,each were given everything. 
 
-ME:And you created enough of them to maximize the synergetic effect at all twelve levels. SE11 (collectively as one):No,not quite. ME:What!?I thought you stated in an earlier dialogue that you created enough to satisfy the requirements for maximum synergetic effect on all twelve levels? 
+由于我的实体没有发展个性化的人格，所以延续人格的需要不存在，所以我留下了他们已经实现或正在实现的一切。我决定的下一件事情是自然地从获得一个瞬间的统一水平和记录一切开始，这是所有源实体和我们存在的理由的一个标准功能。我给了单一集体的每一个新的个性化单位我从所有被召回到统一的实体中记录的所有东西。每一个实体获得了关于它的同伴的一切。我创造了一个新的但暂时的单一自我的微型完整传真。每一个将成为新集体一部分的新实体都被赋予了曾经实现的一切，无论多大或多小，无论它的角色是什么或对那个角色的记忆，每个人都被赋予了一切。
 
-我：
+ME:And you created enough of them to maximize the synergetic effect at all twelve levels. 
+
+我：你创造了足够多的个体，以最大限度地提高所有12个层次的协同效应。
+
+SE11 (collectively as one):No,not quite. 
+
+11号源实体（集体为一）：不，不完全是。
+
+ME:What!?I thought you stated in an earlier dialogue that you created enough to satisfy the requirements for maximum synergetic effect on all twelve levels? 
+
+我：什么？我认为你在早些时候的对话中说过，你创造了足够多的个体，以满足所有12个层次最大协同效应的要求？
 
 SE11 (collectively as one):I did. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：我做到了。
 
 ME:OK,now I am confused.It looks like I am not using the correct syntax in my questioning. 
 
-我：
+我：好吧，现在我有点困惑了。看起来我的问题没有使用正确的语法。
 
 SE11 (collectively as one):I will help you out.I gave the entities the opportunity to use the full functionality that I have in many of my own functions.One of them was the ability to diversify themselves to that number necessary to create a group or collective that when in metaconcert was equal to that optimal number of entities necessary to achieve the maximized synergetic effect.I diversified myself in the numbers required to create the first four levels "only"in synergy.The entities themselves took over from that point onwards. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：我会帮助你们。我给了实体们机会去使用我自己的许多功能中的全部功能。其中之一是使自己多样化到必要的数量，以创建一个组或集体，当在元协定中等于实现最大化协同效应所需的最佳实体数量时。我使自己多样化到“仅”在协同中创建前四个级别所需的数字。实体们自己从那一点开始接管。
 
 ME:You're saying that they diversified themselves to create the number of entities necessary to achieve the magic number for maximized synergy? 
 
-我：
+我：你的意思是他们通过多样化经营来创造必要的实体数量，以实现最大化协同效应的神奇数字？
 
 SE11 (collectively as one):In a word,yes. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：总之，是的。
 
 ME:How did they do that? 
 
-我：
+我：他们是怎么做到的？
 
 SE11(collectively as one):By duplication.By this I do not mean the mere duplication of an entity "x"number of times;I mean that the entities entered into a state of diversification into a group rather than as an individual.This means that the individual becomes a smaller collective;it is a collective in its own right.It is the effect of the singular entity becoming a collective whilst in singularity that gave way to the law of synergetic effect being circumnavigated.
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：通过复制。我的意思不是简单地将一个实体复制“x”次；我的意思是实体进入到一个多样化的状态，成为一个群体，而不是作为一个个体。这意味着个人变成了一个更小的集体；它本身就是一个集体。这是单个实体成为集体的效果，而在单一性中，它让位于协同效应的规律。
 
 ME:Not the collective becoming a singular entity with the synergetic effect being constrained in some way between the collective itself and the perimeter whilst still being within the perimeter of the collective being presented as a singular entity.Hence, the synergetic effect working but not being presented to that which is external to the collective-that is,the synergetic energies are captive within the perimeter of the collective singularity. 
 
-我：
+我：不是集体成为一个单一的实体，协同效应在某种程度上被限制在集体本身和周界之间，同时仍然在作为单一实体呈现的集体的周界内。因此，协同效应在发挥作用，但没有被呈现给集体外部的东西，也就是说，协同能量被俘虏在集体奇点的周界内。
 
-SE11 (collectively as one):I see that you are quoting that which I used to describe this effect earlier. 
+SE11 (collectively as one): I see that you are quoting that which I used to describe this effect earlier. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：我看到你引用了我之前用来描述这个效应的句子。
 
 ME:It's the only way I could do it. 
 
-我：
+我：这是我唯一能做的事。
 
 SE11 (collectively as one):So I see.But the effect you just described is the functional effect of the individual entity diversifying itself into a self-contained and singular collectivity, which by the way,also contains entities that have diversified themselves down into smaller singular collectives of the number required to achieve the maximum synergetic effect. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：我明白了。但是你刚才描述的效应是个体实体多样化自身成为一个自足的单一集体的功能效应，顺便说一下，这个单一集体也包含了个体，它们多样化自身成为更小的单一集体，以达到最大的协同效应。
 
 ME:They are all nested then? 
 
-我：
+我：它们都是嵌套的？
 
 SE11(collectively as one):Yes.Each of the entities that you can see on this outer layer is the last component in the nest of singular collectivity in metaconcert.Each of them is in unison, and each of them is working together in synergy at maximum synergetic effect without upsetting the law of synergy in any way.It is a total circumnavigation of this law with the evolutionary opportunity effects being currently beyond my level of computation. 
 
-11号源实体（集体为一）：
+11号源实体（集体为一）：是的。你在这个外层看到的每个实体都是元协奏曲中单一集体巢穴的最后一个组件。它们中的每一个都是一致的，它们中的每一个都在以最大的协同效应协同工作，而不会以任何方式颠覆协同法则。这是对该法则的全面绕行，而进化的机会效应目前超出了我的计算水平。
 
 Which,brings us back to where we were previously.
 
+这又把我们带回了之前的话题。
+
 I need to accurately compute the synergetic levels of efficiency reached within this current configuration.This is now my most urgent piece of work,for The Origin is most interested in the effects on its evolutionary acceleration,and I am most interested in what I can achieve when I use this configuration when it is at its maximum capacity. 
+
+我需要精确计算出在当前的配置下所达到的协同效率水平。这是我现在最紧迫的工作，因为“起源”最感兴趣的是其进化加速的影响，而我最感兴趣的是当我使用这个配置时，当它处于最大容量时，我能达到什么。
 
 You have been fortunate to have been in communication with me at this juncture in my existence.You have been even more fortunate to have been of assistance as well.This assistance,although small and in passing,has been most useful,and for that I thank you. Now I MUST leave you,for I have what you might call several of your millennia to calculate my new capacity. 
 
+你们已经很幸运地在我生命的这个关键时刻与我交流。你们甚至已经更幸运地得到了我的帮助。这个帮助，虽然很小很短暂，但却非常有用，为此我感谢你们。现在我必须离开你们，因为我还有你们所说的几个千年的时间来计算我的新容量。
+
 I leave you now.But know this: 
+
+我现在离开你们。但请记住：
 
 We will talk again,for you will be communing with The Origin in a very focused way very soon,and during this process you will be communing with all the Source Entities at certain junctures in the dialogue.Do not rush it;take your time,for there is much information for mankind incarnate to behold.I leave you now with a greeting from one of your more enlightened areas of the earth:Namaste! 
 
+我们会再次交谈，因为你们很快就会以一种非常集中的方式与“起源”交流，在这个过程中，你们将在对话的某些关键时刻与所有源实体交流。不要着急，慢慢来，因为有许多人类化身要观察的信息。我现在离开你们，带着来自地球上你们当中一个更开明地区的问候：合十礼！
+
 And that was it.Source Entity Eleven (collectively as one)cut its link in a most efficient way Except,that is,for a very small thread.I followed it as I assumed this would be necessary for spontaneous communication with it during the communication with The Origin.But I was wrong;I felt that this was no longer necessary because in this dialogue a permanent link was established between Source Entity Eleven (collectively as one)and me.I also noticed that I had a permanent link with all the other Source Entities that I had communicated with previously It was not a solid link;it was a link between friends-informal,instantaneous,loving,caring, powerful and wise.I was in awe.I followed the small fragment of a link that Source Entity Eleven (collectively as one)had left me.I saw all the entities that were the individualized units of singular collectivity in metaconcert.In full synergetic effect they appeared to be flashing as lights on a huge old computer display board,each winking and flashing in singularity and in synchronicity.Great waves of lights flashing and flowing at all twelve levels.Source Entity Eleven (collectively as one)had wasted no time.Before my very spiritual eyes,it was computing its new synergetic capacity.Again,I was in awe!
+
+我以为在与“起源”的交流中，这条线是与之自发交流所必需的，于是我跟随它。但我错了，我感觉这条线不再必要了，因为在这次对话中，在我和“11号源实体”(整体看作一个)之间建立了一个永久的联系。我还注意到，我与以前与我交流过的其他“源实体”之间也建立了永久的联系。在我心灵的眼睛面前，它正在计算它的新的协同能力。 我又一次感到敬畏！
 
 ## Chapter Six - Source Entity Twelve Awakens 
 
+**第6章：12号源实体觉醒**
+ 
 With the communication with Source Entity Eleven (collectively as one)completedfor the moment,I mentally noted-I turned my attention to Source Entity Twelve,the last of the Source Entities,the one that had not become self-aware.I floated in mentality-that space I had come to realize was where I went when I was out of body and communicating with those entities that are outside of the frequencies associated with that energetic part in my incarnate body.At least that part of me that I was currently aware of.This "space"was that which I used to travel outside of the Source Entity One,the one that I considered myself associated to,even though energeticallyI am becoming more and more aware that I am not necessarily associated with the Source Entity fondly referred to as the Source Entity/Source Entity One/God. 
+
+与11号源实体的交流(作为一个整体)暂时完成后，我在精神上注意到-我把注意力转向12号源实体，最后一个源实体，一个还没有自我意识的实体。我飘浮在精神上-我意识到的空间是我离开身体时去的地方，并与那些与我化身身体的能量部分相关的频率以外的实体进行交流。至少我目前意识到的那部分我。这个“空间”是我用来在源实体一之外旅行的地方，我认为自己与之相关，尽管在能量上我越来越意识到我并不一定与被亲切地称为源实体/源实体一/上帝的源实体相关。
 
 Was I having delusional thoughts here?I didn't think so,but who knows what reality is when one is captive by the act of incarnation.As one finds out about one's energetic heritage,one becomes more and more critical of one's mental state,and I was making sure that I was on an energetic level playing field.No matter how often I checked myself though,Ijust knew that it felt right to be where I was,doing what Iwas doing,and telling the world about it.One thing was sure though-I was starting to lose any inhibitions about "coming-out"about my ability and my dialogues with those Source Entities that are the creations of The Origin.This was knowledge that was old and needed to be broadcast.Mankind needed to be brought up to speed with this information. 
 
+我在这里有妄想的想法吗？我不这么认为，但当一个人被化身的行为俘虏时，谁知道现实是什么。当一个人发现自己的能量遗传时，他对自己的精神状态越来越挑剔，我正在确保自己在一个能量水平的竞技场上。不管我检查自己多少次，我只是知道，我感觉自己应该在自己所处的地方，做我正在做的事情，并告诉世界。有一点是肯定的——我开始失去任何关于“出柜”的抑制，关于我的能力，以及我与那些源头创造的源实体的对话。这是古老的知识，需要传播。人类需要被带到这个信息的时代。
+
 I looked around myself and saw the other Source Entities around me.They and their entities were "doing their own thing"for the evolution of The Origin,and they were working so very hard and doing so very well.I focused on the Source Entity that had not yet even started its evolutionary journey,the Source Entity that I had already called Source Entity Twelve.From the outside,its energetic perimeter looked uncontrolled.It undulated as if in some sort of battle with itself,like two chemicals mixed together in a sealed vessel that inherently did not mix and were desperate to be apart from each other. 
+
+我环顾四周，看到我周围的其他源实体。他们和他们的实体正在为源头的进化“做自己的事”，他们工作非常努力，做得非常好。我专注于那个甚至还没有开始进化之旅的源实体，那个我已经叫做源头12的源实体。从外面看，它的能量周长看起来不受控制。它起伏不定，好像在与自己进行某种斗争，就像两个化学物质在一个密封的容器中混合在一起，本质上不会混合，而且绝望地要彼此分开。
 
 I moved towards it,and The Origin told me to be gentle in my approach and communication methods with this infantile Source Entity.I gently probed it,wondering what it would feel like energetically.As I was about to move away,I noticed that there was a surge of energy as if some sort of focus had been applied to the energies that were within Source Entity Twelve.I felt dimensions,sub-dimensional components,frequencies and event space,plus myriad other energies that I did not recognize all line up as if to attention.Suddenly it had structure,purpose, incentive,initiative,desire and,focus! 
 
+我走向它，“源头”告诉我，在与这个幼稚的源实体的接触和交流方法中要温和。我轻轻地探测它，想知道它在能量上会是什么感觉。当我准备离开时，我注意到有一股能量的激增，好像某种焦点已经应用到源代码实体12中的能量上。我感觉到维度、亚维度成分、频率和事件空间，加上无数其他我没有识别的能量，都排成一线，好像要引起注意。突然它有了结构、目的、动机、主动性、愿望和焦点！
+
 The next thing I knew I was moved away gently by a huge and immense power.The Origin had swung into action and had seized control of Source Entity Twelve.A huge umbilical cord of energy,a huge vortex appeared from nowhere and engulfed Source Entity Twelve.I had seen this image before.It was given to me by some of the other Source Entities to explain how The Origin initiated contact with them when they first became aware of self.The Origin was in communication with Source Entity Twelve.As the communication continued,the energetic umbilical cord-the huge vortex of energy that surrounded Source Entity Twelve in its entirety -pulsed with energies that were nothing like those I had experienced in any of my dialogues with the other Source Entities-not even The Origin itself.I watched in complete awe,my mouth dropping open,aghast at the magnificence of what I had just realized I was witnessing-The Origin engaging in direct and intimate contact with one of its creations for the sole purpose of educating it,giving it its reason to be,its purpose in existence.I asked The Origin a question. 
+
+接下来我知道我被一种巨大的力量轻轻地移动了。起源已经开始行动，控制了源实体12。一个巨大的能量脐带，一个巨大的漩涡从哪里出现，吞没了源实体12。我以前见过这个画面。它是由其他一些源实体给我的，用来解释当他们第一次意识到自我时，起源是如何与他们开始接触的。起源正在与源实体12进行交流。随着交流的继续，充满能量的脐带——包围着整个12源实体的巨大能量漩涡——跳动着的能量与我与其他源实体对话时所经历的能量完全不同——甚至与“源头”本身也不同。我完全敬畏地看着，我的嘴巴张得老大，被我刚刚意识到自己正在见证的壮丽景象惊呆了——“源头”与它的一个创造物进行直接而亲密的接触，唯一的目的是教育它，给予它存在的理由，它的存在目的。
 
 ### Prelude to Contact with Source Entity Twelve 
 
+**与12号源实体接触前奏**
+
 ME:I am totally in awe of the honor you have bestowed upon me. 
 
-我：
+我：我对你赋予我的荣誉深感敬畏。
 
 O:Please explain. 
 
-起源：
+起源：请解释一下。
 
 ME:Witnessing the first contact with an awakening Source Entity. 
 
-我：
+我：见证与一个觉醒的源实体的第一次接触。
 
 O:Ah,yes,well.Actually,it's not the primary contact,for that happened some time ago. 
 
-起源：
+起源：哦，是的，嗯。实际上，这不是第一次接触，因为那是不久前的事了。
 
 ME:So what am I witnessing then? 
 
-我：
+我：那我见证了什么？
 
 O:Exactly what you described.I am telling Source Entity Twelve why it is in existence.This, however,is the secondary contact;I can only do this once it "wakes up,"so to speak.The primary contact was a check to see if the awakening process was imminent,which it was- several billion of your years ago.I do wish you didn't use time as a metric,but it's the only way I can describe the juncture in event space to you.At that juncture,I noticed the energies in Source Entity Twelve aligning into that configuration that is necessary for its becoming self-aware.
 
-起源：
+起源：完全如你所描述的。我正在告诉源实体12为什么它存在。然而，这是次级接触；可以说，我只能在它“醒来”后才能这样做。主要接触是检查觉醒过程是否即将来临，它就在你们几十亿年前。我真希望你们不要用时间作为度量标准，但这是我向你们描述事件空间中那个关键时刻的唯一方法。在那个关键时刻，我注意到源实体12中的能量调整到它变得有自我意识所必需的构造中。
+
+（图19：起源与源实体12的主要联系）
 
 ![Figure 19: The Origin's Primary Contact with Source Entity Twelve](img/s6-054.png)
 
 A few moments ago,I calculated the next juncture-that of the awakening proper:the event space of the secondary contact.Once I calculated this juncture,I brought you back to it.I see that I will need to bring you up to speed,for I can see you are struggling with what is happening here. 
 
+几分钟前，我计算了下一个关键时刻——唤醒本身：次级接触的事件空间。一旦我计算了这个关键时刻，我就把你带回到这里。我看到我需要让你跟上进度，因为我可以看到你正在努力理解这里发生的事情。
+
 ME:You bet I am. 
 
-我：
+我：你说对了。
 
 O:And this isn't the first time you have seen this.
 
-起源：
+起源：而且这不是你第一次看到这种情况了。
 
-ME:Noooooo?Go on,enlighten me.I am all ears. 
+ME:Noooooo? Go on,enlighten me.I am all ears. 
 
-我：
+我：不是吗？继续说，启发我吧。我洗耳恭听。
 
 O:Source Entity Twelve became aware some time ago-some million or so years ago in your language. 
 
-起源：
+起源：源实体12在你们的语言中，在一段时间以前-几百万年左右前就已经觉醒了。
 
 ME:So why did I keep seeing the images of it in its pre-awake state? 
 
-我：
+我：那为什么我一直看到它在半醒状态的画面？
 
-O:Quite simply,you were drawn to that event space.It was something you sub-consciously desired,i.e.,your higher,energetic self took you there.It also had the effect of making the picture complete from mankind's educational perspective.The awakening process experienced by a Source Entity is a rather special event to behold;Source Entity Twelve was the last Source Entity to experience it,so it was an obvious choice to be taken there- specifically since Source Entity Twelve is still in a rather infantile and "new"state of being. 
+O: Quite simply,you were drawn to that event space.It was something you sub-consciously desired,i.e.,your higher,energetic self took you there.It also had the effect of making the picture complete from mankind's educational perspective.The awakening process experienced by a Source Entity is a rather special event to behold;Source Entity Twelve was the last Source Entity to experience it,so it was an obvious choice to be taken there- specifically since Source Entity Twelve is still in a rather infantile and "new"state of being. 
 
-起源：
+起源：很简单，你被吸引到那个事件空间。这是你潜意识里渴望的事情，也就是说，你的高能量自我带你到那里。它也从人类教育的角度使图画完整。一个源实体经历的觉醒过程是一个相当特殊的事件，要看到；源实体12是最后一个经历它的源实体，所以这是一个明显的选择，特别是因为源实体12仍然处于相当幼稚和“新”的存在状态。
 
 ME:But even my own Source Entity,or should I say,that Source Entity that I currently call my own,concurred that Source Entity Twelve had not yet become aware when I was typing the dialogues that became The History of God!What is going on here? 
 
-我：
+我：但是即使是我自己的源实体，或者我应该说，那个我现在称之为我自己的源实体，也认为当我输入那些后来成为《源头简史》的对话时，源实体12还没有意识到！这里发生了什么？
 
 I was a bit disturbed that even my higher and greater energetic self had appeared to be contriving and doing things without me knowing!I suppose I should have expected it though. 
 
+我有点不安，甚至我更高和更大的能量自我似乎在没有我知道的情况下策划和做事情！我想我应该预料到它。
+
 O:Your Source Entity saw where you were,event space-wise,and concurred that which you were seeing.Currently you move around event space in an uncontrolled manner.You are not even aware that you are doing it.Even though this is something that you do naturally in the energetic,this part of you that is incarnate has elected to take on-board that knowledge at a later date in your incarnation.I can only tell you this now because you have enough experience under your belt to be able to understand what is happening to you when I/we, that is,the other Source Entities,tell you.When you saw Source Entity Twelve in its pre- awake state,you were in that particular event space and not its current event space.In an attempt to keep things simple for you,your Source Entity,Source Entity One,simply concurred that which you saw and spared you the need to understand that which you would have had difficulty with at that juncture in your own awakening-your then current event space.From your perspective,what you were seeing was true because you were "in"that event space. 
 
-起源：
+起源：你的源实体看到了你在哪里，事件空间方面，并同意你所看到的。目前你以一种不受控制的方式在事件空间周围移动。你甚至没有意识到你正在这样做。即使这是你在能量中自然而然做的事情，你化身的这个部分已经选择在你化身的晚些时候把这知识纳入船上。我只能现在告诉你这个，因为你有足够的经验，当我/我们，也就是其他源实体，告诉你时，你能够理解发生在你身上的事情。当你看到12号源实体在它觉醒前的状态时，你是在那个特定的事件空间，而不是它当前的事件空间。为了让你的事情简单，你的源实体，源实体1，只是同意你所看到的，并省去了你需要理解的东西，你在自己觉醒的那个时刻会遇到困难-你当时的事件空间。从你的角度来看，你所看到的是真的，因为你“在”那个事件空间里。
 
 ME:So where am I now,event space-wise?
 
-我：
+我：那么我现在在哪里，事件空间？
 
 O:In essence,you are in an event space that is outside that which your physical body currently exists within.Source Entity Twelve has been self-aware for some time now in its "current"event space.This event space,where we are now,is that event space which houses its awakening.You are here to witness its awakening.Once this has been achieved,we can move into the current event space Source Entity Twelve is experiencing and commence dialogue. 
 
-起源：
+起源：本质上，你在一个事件空间里，这个事件空间在你身体目前存在的外部。源实体12在它的“当前”事件空间里已经有自我意识一段时间了。这个事件空间，我们现在所在的地方，是容纳它的觉醒的事件空间。你在这里见证它的觉醒。一旦这已经实现，我们可以进入源实体12正在经历的当前事件空间，开始对话。
 
 It was all starting to make sense again.I was relieved,for it meant that things had,in some respects,been set up for me (albeit by my higher self at times)rather than me being in the right place at the right time.Event space being what it is,I could witness any event I wanted to and actually "be there"as it was happening,which of course it is/was!I felt much more comfortable with this as it effectively meant that I wasn't being delusional or introducing fantasy or fiction. It was all merely a function of the greater reality-a greater reality that in my incarnate stateI am only a poor beginner at working with.My sanity is maintained-phew! 
 
+这一切又开始有意义了。我松了一口气，因为这意味着，在某些方面，事情已经为我设置好了(尽管有时是我的更高自我设置的)，而不是我在正确的时间出现在正确的地方。事件空间就是这样，我可以目睹任何我想见证的事件，并且当它发生时，我实际上“在那里”，当然它就是/是！我感到更舒服，因为它有效地意味着我不是妄想或引入幻想或虚构。这一切都只是更大的现实的一个功能——在我的化身状态中，我只是一个可怜的初学者。我的理智是保持的——呼！
+
 ME:OK,now that I am up to speed,do you want to let me describe the rest of the event? 
 
-我：
+我：好吧，现在我已经跟上了进度，你想让我描述一下事件的其余部分吗？
 
 O:Carry on.It is important that you put it in your own words,for you will be picking up information that is not instantly describable. 
 
-起源：
+起源：继续。用你自己的语言表达很重要，因为你将要获取的信息不是立即可以描述的。
 
 ME:Thank you. 
 
-我：
+我：谢谢。
 
 I decided to go back into narrative mode.
 
+我决定回到叙述模式。
+
 I refocused on the image where Source Entity Twelve was in what I now know is the second contact with The Origin-the one in which Source Entity Twelve is being educated about its role and reason for existence.I found myself in that event space. 
+
+我重新聚焦在图像上，12号源实体在我现在知道的第二次与起源接触的地方——12号源实体正在接受关于其角色和存在理由的教育。我发现自己在那个事件空间里。
 
 "So that's how to move from event space to event space."I thought,but The Origin then told me that that method only works if you know where you are going and is not applicable for random event space travel. 
 
+“所以这就是如何从一个事件空间移动到另一个事件空间。” 我想，但起源然后告诉我，只有当你知道你要去哪里时，这种方法才有效，不适用于随机的事件空间旅行。
+
 "It's a good start though,"I thought. 
+
+ “不过这是一个好的开始，”我想。
 
 In front of my mind's eye was the great indescribably vast vista that was The Origin's area of self-awareness.Far in the distance was Source Entity Twelve.It was coupled to The Origin with the energetic umbilical "cord"/the vortex of energy that The Origin used to engulf the Source Entities,cutting them off from the environment that was The Origin's area of self-awareness and educating them in a most intensive way.The energy pulsed through this umbilical vortex.As the information that contained Source Entity Twelve's education was exchanged,it changed color, energetic intensity,frequency,dimensionality and myriad other energies that I was not even aware of but could,nevertheless,sense. Source Entity Twelve glowed an iridescent golden color. 
 
+在我的心灵之眼面前是伟大的难以形容的广阔视野，那是起源的自我意识领域。在远处是12号源实体。它与起源连接在一起，用充满能量的脐带“绳子”/能量漩涡，起源用来吞噬源实体，切断它们与起源的自我意识领域的环境，并以最密集的方式教育它们。能量通过脐带漩涡脉动。当包含12号源实体的教育信息被交换时，它改变了颜色、能量强度、频率、维度和无数其他我甚至没有意识到但却可以感觉到的能量。12号源实体闪耀着彩虹般的金色。
+
 Source Entity Twelve had only just become aware of itself when The Origin contacted it. Suddenly,its energies had aligned and become structured to enable independent and intelligent thought to take place-energy born into sentience.As I watched the education process take place, I noted that although this newly aware Source Entity was being given a repository of all that The Origin knew-which included all of the experience,learning and evolutionary content gathered by the other eleven Source Entities to date-this did not give it maturity.Maturity was something that it had to work on itself as part of its own evolutionary work. 
+
+当源实体与之接触时，12号源实体才刚刚开始意识到自己。突然，它的能量已经排列好并变得结构化，以使独立和智能的思想发生--能量生而为知觉。当我观察教育过程发生时，我注意到，尽管这个新意识到的源实体被给予了所有源实体知道的知识库--包括所有经验、学习和迄今为止其他11个源实体收集的进化内容--这并没有使它成熟。成熟是它必须作为自身进化工作的一部分而自己努力的东西。
 
 As I observed this most profound event,I noted that Source Entity Twelve was acting like a memory sponge,soaking up all of the content and using all of the sense channels it had to assimilate that which it was being given.As it received this information it undulated,twisting and turning,bucking and weaving whilst still being captive within the energies of the umbilical vortex that The Origin had created to initiate this most important communication process. The movement observed was not a result of resistance,merely the response to working with, experiencing and understanding the information that was being received-getting up to speed with the latest evolutionary content. 
 
+当我观察到这个最深刻的事件时，我注意到12号源实体就像一个记忆海绵，吸收所有的内容并使用所有它必须的感官通道来同化它所被给予的东西。当它接收到这个信息时，它起伏不定，扭曲和转动，扭曲和编织，同时仍然被困在“起源”为了启动这个最重要的通信过程而创造的脐带涡流能量中。观察到的运动不是抵抗的结果，仅仅是对处理、体验和理解正在接收的信息的反应——跟上最新进化内容的速度。
+
 As it absorbed this indescribably large torrent of information,it grew in structural stature, becoming more organized in its assimilation of the data.As it became more organized,its exterior became calmer with the undulations becoming fewer and fewer until it vibrated a fine constant vibration,trilling with delight and joy at that which it was receiving.Finally,the information that was being downloaded into the energies that were Source Entity Twelve was complete,and the umbilical vortex receded back into the background energies that were The Origin's area of self-awareness. 
+
+当它吸收了这个难以形容的巨大信息洪流时，它在结构上成长，在数据的同化中变得更有组织。当它变得更有组织时，它的外部变得更加平静，起伏变得越来越少，直到它振动成一个精细的持续振动，在它正在接收的东西中带着喜悦和快乐颤动。最后，正在下载到“源实体12”能量中的信息完成了，脐带涡流退回到“起源”自我意识区域的背景能量中。
 
 All of the iridescence surrounding Source Entity Twelve diminished,and it hovered in front of me. A perfect sphere of structured energy-one sporting a dull but shiny grey outer energy surface looking like the surface tension we see in droplets of water-had replaced the unorganized, unstructured glob ofenergy that Source Entity Twelve was before it was in direct contact with The Origin.The sphere was representative of the neutral form organized energy displayed before it is given purpose and direction by that which it is in sentience. 
 
+环绕着“12号源实体”的彩虹色光芒消失了，它在我面前盘旋。一个完美的结构化能量球体——它有着暗淡但闪亮的灰色外层能量表面，看起来就像我们看到的水滴表面张力——取代了“12号源实体”在与“源头”直接接触之前的无组织、无结构的能量球体。这个球体代表着在被赋予目的和方向之前，它所感知到的有组织能量的中性形式。
+
 I sat at my computer silent,still,in awe and wonder at what I had just witnessed-full in the knowledge that the words I had just typed were,at best,inadequate in describing what I had seen,felt,and experienced on all levels.The English language was just incapable of being used as a communication tool in this instance.Telepathy would have been better but only just.I decided to insure an imprint of the energies I received during this momentous event were embedded into the text I was typing so that the reader gained an impression,no matter how small,of the all- encompassing sensory overload I had experienced when in observation. 
 
+我静静地坐在电脑前，对我刚刚目睹的一切充满敬畏和惊奇——我知道我刚刚打出的文字充其量不足以描述我所看到的、感觉到的和经历的所有层面。在这种情况下，英语根本无法用作沟通工具。心灵感应会更好，但也只是勉强。我决定确保我在这一重大事件中接收到的能量的印记被嵌入我正在打出的文本中，这样读者就能获得一种印象，不管多么微小，都能感受到我在观察时所经历的全方位的感官超负荷。
+
 It was like being swept up by a tornado and tossed around in the immense force of its wind whilst also being totally safe,just observing and enjoying the ride,not having time or ability to assimilate or understand that which was being experienced.As I looked inside Source Entity Twelve,I gained an image of it being compartmentalized with each compartment representing that which had been given it by The Origin,including the experiences,learning and evolution of each Source Entity.I noted that all of the other Source Entities had a similar arrangement- somewhere within their energies.
+
+这就像被龙卷风卷起，在巨大的风力中被抛来抛去，同时又完全安全，只是观察和享受旅程，没有时间或能力去吸收或理解正在经历的事情。当我看到源实体12内部时，我获得了一个图像，它被分成各个部分，每个部分代表着源头给予它的，包括每个源实体的经验、学习和进化。我注意到所有其他的源实体都有类似的安排——在它们能量中的某个地方。
+
+（图20：源实体12在被起源教育时渐进的形式，从左到右）
 
 ![Figure 20: The Progressive Form of Source Entity Twelve Whilst Being Educated by The Origin (left to right)](img/s6-055.png)
 
 ME:Can I communicate with it now? 
 
-我：
+我：我现在可以和它沟通吗？
 
 O:You can but be gentle in your approach,for it is not yet used to being in contact with any other entity other than Me. 
 
-起源：
+起源：你只能温柔地接近它，因为它还不习惯与除了我以外的任何实体接触。
 
 ### Initial Contact with Source Entity Twelve 
 
+**与12号源实体的初次接触**
+
 I gently entered into its energies,passing the periphery of its energetic boundary,the boundary that designated the difference between The Origin's area of self-awareness and those energies that had been assigned to the entity that was Source Entity Twelve. 
+
+我轻轻地进入了它的能量，穿过它的能量边界的外围，这个边界指定了起源的自我意识区域和那些被分配给源实体12的实体之间的区别。
 
 SE12:Who are you?What are you?You are not of me.Why are you here?I don't recognize your energy.You have the signature of my creator,but you are not my creator.I have just met my creator,and you are not it,but you are it.What are you?How can you enter into my energies without me stopping you?This is most disturbing.I am not happy with this condition. 
 
+12号源实体：你是谁？你是什么？你不是我的。你为什么在这里？我不认识你的能量。你有我的创造者的签名，但你不是我的创造者。我刚刚遇到了我的创造者，你不是它，但你就是它。你是什么？你怎么能进入我的能量而没有我阻止你？这是最令人不安的。我对这种情况不满意。
+
 Creator,what is this?What is happening? 
+
+创造者，这是什么？发生了什么？
 
 O:Be calm my child,for that which is within you is also one of my creations.We are one with it,and it is one with us whilst it also has singularity as you do. 
 
-起源：
+起源：我的孩子，请冷静，因为在你体内的也是我的创造之一。我们与它是一个，它与我们是一个，而它也像你一样具有奇点。
 
 SE12:But it is soooo...small!How can that which is so small be of your energies? 
 
-12号源实体：
+12号源实体：但是它太...... 小了！那么小的东西怎么能成为你的能量？
 
 O:Remember the beginning!
 
-起源：
+起源：记住开始！
 
 I recognized those words as a command.With that command Source Entity Twelve withdrew within itself momentarily and returned.It was much happier when it next spoke. 
 
+我听出这些话是一个命令。随着这个命令，源实体12暂时退缩到自身内部，然后又回来了。它下一次说话时，显得高兴多了。
+
 SE12:It is of the OM.I understand.But I have no OM.Will it be my OM? 
 
-12号源实体：
+12号源实体：这是OM的。我明白了。但我没有OM。它会成为我的OM吗？
 
 O:No it will not be your OM,for it is independent of the need to be associated with a particular Source Entity.It is beloved of the OM,it is Pure of the OM,and it is of the original manifestation and is independent. 
 
-起源：
+起源：不，它不会是你的OM，因为它独立于需要与一个特定的源实体相关联。它是OM所钟爱的，它是OM的纯粹，它是原始的显现，是独立的。
 
 SE12:And it wants to commune with me for a while? 
 
-12号源实体：
+12号源实体：它想和我交流一会儿吗？
 
 O:It does,and it will follow you in certain event spaces that are close to this one. 
 
-起源：
+起源：是的，它会跟随你在某些事件空间里，这些事件空间都与这个空间相近。
 
-SE12:It can do that?Oh,it will be fun.I have a desire to move through event space.It interests me. 
+SE12:It can do that? Oh,it will be fun.I have a desire to move through event space.It interests me. 
 
-12号源实体：
+12号源实体：它能做到吗？哦，那会很有趣。我有一个愿望，想在事件空间中移动。这让我感兴趣。
 
 O:Good,it is good to have an initial interest;it gives you purpose and ideas about what you will do to support your evolutionary growth. 
 
-起源：
+起源：很好，有最初的兴趣是好的；它给你目标和想法，让你知道该做什么来支持你的进化成长。
 
-SE12:I like evolution.It sounds fun.This entity within me,this OM energy,it wants to commune with me? 
+SE12: I like evolution.It sounds fun.This entity within me,this OM energy,it wants to commune with me? 
 
-12号源实体：
+12号源实体：我喜欢进化。听起来很有趣。我体内的这个实体，这个OM能量，它想和我交流吗？
 
 O:It does. 
 
-起源：
+起源：是的。
 
 SE12:When will it start? 
 
-12号源实体：
+12号源实体：什么时候开始？
 
 O:It can start now. 
 
-起源：
+起源：现在可以开始了。
 
 ME:Yes,I can start now if you wish.
 
-我：
+我：是的，如果你愿意，我现在就可以开始。
 
 SE12:Oh,how strange,I can understand it. 
 
-12号源实体：
+12号源实体：哦，真奇怪，我能理解。
 
 O:Of course.Its intention is communicated in its own language which is picked up by you as standard energetic communication. 
 
-起源：
+起源：当然，它的意图是用它自己的语言来传达的，而你把它当作标准的能量交流来接受。
 
 ME:How does that work? 
 
-我：
+我：那怎么行呢？
 
 O:Your intention is broadcast through your energetic self and not through your physical self.Your energetic self-communicates on the common frequency channels used for communication.You communicate on ALL sense levels whilst in the energetic,and this is what you use whilst in communication with me and the other Source Entities. This broadband method of communication is reduced as it descends down the energy chain between your energetic self and that part of you that is incarnate.Eventually, it is represented by the spoken word,the five senses,including the telepathic and empathic channels which also include the psychometric,clairaudience,clairvoyance and clairsentience responses. 
 
-起源：
+起源：你的意图是通过你的能量自我而不是通过你的身体自我来传播的。你的能量自我在用于交流的普通频率频道上进行交流。当你在能量中时，你在所有感官水平上进行交流，这是你与我和其他源实体进行交流时所使用的东西。这种宽带通信方法随着它在你的能量自我和你化身的那部分之间的能量链下降而减少。最终，它由口头语言、五种感官、包括心灵感应和移情通道(也包括心理测量、超视力和超感知觉反应)来代表。
 
 ME:Thank you for that explanation.Source Entity Twelve,can I call you Source Entity Twelve,for that is what I recognize you as? 
 
-我：
+我：谢谢你的解释。源实体12，我能叫你源实体12吗，因为我认出你就是这个？
 
 SE12:You may.I do have to say that I find this rather exciting now that I know what is happening.You are the first real communication I have had with another entity other than my creator,The Origin. 
 
-12号源实体：
+12号源实体：你可以。我必须说，现在我知道发生了什么，我感到非常兴奋。你是我第一次与另一个实体进行真正的交流，除了我的创造者，起源。
 
 ME:Well you will also be delighted to know that we are surrounded by the other eleven Source Entities who are watching with very interested eyes.
 
-我：
+我：嗯，你们也会很高兴地知道，我们周围还有其他11个源实体，他们正用非常感兴趣的眼睛看着我们。
 
 SE12:Oh yes,I can see them all.Will they communicate with me as well? 
 
-12号源实体：
+12号源实体：哦，是的，我都能看见他们。他们也会和我交流吗？
 
 O:Later.Communication with this smaller entity is your current goal. 
 
-起源：
+起源：稍后。与这个小实体的通讯是您当前的目标。
 
 SE12:OK,let us start then. 
 
-12号源实体：
+12号源实体：好的，我们开始吧。
 
 ### Dialogue with Source Entity Twelve Commences 
 
+**与源实体12的对话开始**
+
 I felt a little bit hesitant.This was not a feeling that I had,at least not with this level,when considering commencement of dialogue with the other Source Entities to date.It was a strange feeling,so I decided to investigate it.As I contemplated this hesitant feeling,Ifound myself in a semi-meditative state.Removing the physicality of myself,I was able to recognize my hesitation. It was the lack of direction.No,it was the lack of data that was affecting me.To all intents and purposes,Source Entity Twelve was a newborn entity.During SE12's education process,The Origin had given SE12 extensive information about itself and the other Source Entities,but SE12 had not yet achieved anything itself. 
+
+我感到有点犹豫。这不是我曾经有过的感觉，至少不是在这个层次，当考虑到目前为止与其他源实体开始对话时。这是一种奇怪的感觉，所以我决定调查它。当我思考这种犹豫的感觉时，我发现自己处于半冥想状态。移除我的肉体，我能够认识到我的犹豫。这是缺乏方向。不，这是影响我的缺乏数据。从所有意图和目的来看，源实体12是一个新生的实体。在SE12的教育过程中，“起源”给了SE12关于它自己和其他源实体的广泛信息，但SE12自己还没有取得任何成就。
 
 I was stuck.What in the omniverse could we talk about?From the start of this work,I knew that the other Source Entities had been in some sort of independent and aware existence for some considerable time.They had created,achieved,modified,re-achieved,nurtured,experienced, learned and evolved.They had data to discuss,but Source Entity Twelve did not-currently,that is.I contemplated further. 
 
+我被卡住了。在宇宙中我们能谈论什么？从这项工作的开始，我知道其他源实体已经以某种独立和有意识的存在存在了相当长的时间。他们创造了，实现了，修改了，重新实现了，培养了，经历了，学习了和进化了。他们有数据可以讨论，但源实体12没有-目前，就是这样。我进一步思考。
+
 As I relaxed in my chair,I was given a few images of experiences that we would have together during our undeniably short period of existence together.I noted that I was logging into different event spaces and seeing that which I/we were to experience together.Comforted by this "premonition,"my hesitation melted away,and I settled back into the interviewer role.I sought out Source Entity Twelve and initiated contact.It was to start with a bit of a bang! 
+
+当我在椅子上放松时，我脑海中浮现出一些画面，这些画面是关于我们在一起的短暂经历。我注意到我进入了不同的事件空间，看到了我/我们一起经历的事情。这种“预感”让我感到欣慰，我的犹豫消失了，我重新回到采访者的角色。我找到了源实体12号，开始了联系。这一切都以一声巨响开始了！
 
 SE12:Where have you been? Source Entity Twelve sounded a bit like a petulant school boy! 
 
-12号源实体：
+12号源实体：你去哪儿了？源实体12号听起来有点像一个任性的小学生！
 
-ME:What?Oh,sorry!I have been contemplating what we can discuss.To be honest,I was thinking that this was going to be really difficult specifically because you have not "done" anything yet that I can see.I am a bit like a fish out of water here because the other Source Entities had a history,so to speak,that I could work with. 
+ME:What? Oh,sorry!I have been contemplating what we can discuss.To be honest,I was thinking that this was going to be really difficult specifically because you have not "done" anything yet that I can see.I am a bit like a fish out of water here because the other Source Entities had a history,so to speak,that I could work with. 
 
-我：
+我：什么？哦，对不起！我一直在考虑我们可以讨论什么。说实话，我认为这将是非常困难的，特别是因为你还没有“做”任何我能看到的事情。我在这里有点像一条离开水的鱼，因为其他的源实体有一个历史，可以这么说，我可以与之合作。
 
 SE12:What is this fish and water? 
 
-12号源实体：
+12号源实体：这是什么鱼和水？
 
 ME:You can access my energies if you like and absorb that which I have accrued in my existence.That is,in "ALL"of my existence. 
 
-我：
+我：如果你愿意，你可以获得我的能量，吸收我存在时积累的能量。也就是说，我所有的存在。
 
 SE12:Ah,yes!I see.You are outside your known environment,but this is only a transient environment.How interesting.You like to be in an environment.My peers like to be in an environment.Now I understand.But an environment is not necessary,is it? 
 
-12号源实体：
+12号源实体：是的！我明白了。你在你所熟悉的环境之外，但这只是一个暂时的环境。真有趣。你喜欢在一个环境中。我的同龄人喜欢在一个环境中。现在我明白了。但环境不是必要的，对吗？
 
 ME:That depends upon how one wants to limit one's self and with what one is comfortable -or,indeed,whether one considers association with an environment to be limiting,which I do not. 
 
-我：
+我：这取决于一个人想要如何限制自己，以及一个人感到舒适的是什么，或者，实际上，一个人是否认为与环境的联系是限制性的，我并不这样认为。
 
 I was to learn the significance of what was being said here later-towards the end of the dialogue.
 
+我后来才明白他们所说的话的意义--在对话的结尾处。
+
 SE12:I think that an environment may be a limitation,but I can see that you would find it an interesting conundrum. 
 
-12号源实体：
+12号源实体：我认为环境可能是一种限制，但我能看出你会发现这是一个有趣的难题。
 
 ME:Why would you think being within an environment,a multiversal environment,"is" a conundrum? 
 
-我：
+我：为什么你会认为在一个环境中，一个多元化的环境，是一个难题？
 
 SE12:Because I see no need for such a function. 
 
-12号源实体：
+12号源实体：因为我认为没有必要使用这样的功能。
 
-ME:I am struggling with your thought process here.Can you elaborate a little?Can you help me out? 
+ME:I am struggling with your thought process here.Can you elaborate a little? Can you help me out? 
 
-我：
+我：我正在努力理解你的思维过程。你能详细解释一下吗？你能帮我一下吗？
 
 SE12:I can see that I will have to use one of your own memories to help explain what I think and feel. 
 
-12号源实体：
+12号源实体：我知道我必须用你自己的一段回忆来帮助解释我的想法和感受。
 
 ME:Please do.You have a free reign;please feel free to access at any time that which is my history-all of my history from my creation to my becoming self-aware and that which I have achieved to date.You have my permission.You don't need to ask again.I give you this information freely. 
 
-我：
+我：请吧。你有自由支配权；请随时随意地接触我的历史——从我被创造到我变得有自我意识，以及我迄今为止所取得的成就。你得到了我的许可。你不需要再问一次。我免费给你这些信息。
 
 SE12:Thank you.I will absorb that which is you although I note that I already have this information.Mmmm,interesting.Ah,yes,of course.This is part of the data set given to me as part of The Origin's education process.I have in my energies and memory all of the experience,learning and evolutionary content of all the Source Entities,and they are experiencing me right now as is The Origin.I will not need to access you from now on, for I know all about you from that which was given to me by The Origin.I merely need to look into myself to see you.Mmmm,you are not what you seem,but you are!You are a conundrum.I have decided that I like conundrums.I like you.We can work and play together for a while if you wish. 
 
-12号源实体：
+12号源实体：谢谢你。我会吸收你，尽管我注意到我已经有这个信息。嗯，有趣。啊，是的，当然。这是作为起源教育过程的一部分给我的数据集的一部分。我拥有我的能量和记忆中所有的经验，学习和所有源实体的进化内容，他们现在正在经历我，就像起源一样。从现在开始我将不需要接触你，因为我从起源给我的那些中知道你所有的一切。我只需要审视自己来看到你。嗯，你不是你看起来的那样，但你就是！你是一个谜。我已经决定我喜欢谜。我喜欢你。如果你愿意，我们可以一起工作和玩一会儿。
 
 ME:I am honored. 
 
-我：
+我：我很荣幸。
 
 SE12:But I see that we are already working together.You are asking me about why I see no need for an environment. 
 
-12号源实体：
+12号源实体：但我看到我们已经在一起工作了。你问我为什么我认为没有必要建立一个环境。
 
 ME:I was.I am very interested in that point of view,that thought process. 
 
-我：
+我：我对那个观点，那个思维过程很感兴趣。
 
 SE12:I think you will be disappointed,for I have no real reason why I think this way.It's just that I see my...brothers?Is that the right word? 
 
-12号源实体：
+12号源实体：我想你会失望的，因为我没有真正理由为什么这样想。只是我看到了我的...兄弟们？这是正确的词吗？
 
 ME:Actually,I think it's ideal. 
 
-我：
+我：实际上，我认为这是理想的。
 
 SE12:Good,I see my brothers being happy to do what they are doing within the constraints of the environments that they have made of themselves.I feel it is limiting in some way.I don't know why.I just think and feel that it is.I will need to consider this in some detail. 
 
-12号源实体：
+12号源实体：很好，我看到我的兄弟们在他们自己创造的环境的限制下，很开心做他们正在做的事情。我感觉在某种程度上这是限制。我不知道为什么。我只是认为和感觉是这样。我需要在某些细节上考虑一下。
 
 ME:Well,I do have to say that what you have told me is as good an answer as any,and it is one that I can relate to.One does not need to have an explanation for what one is feeling.I can also see that to all intents and purposes,you might like to do something different than that which has been achieved or is currently being achieved by...your brothers,so to speak. 
 
-我：
+我：嗯，我不得不说你告诉我的答案和任何一个答案一样好，而且我可以联系到它。一个人不需要解释他的感受。我也可以看出，从所有的目的和目的来看，你可能想做一些不同于已经实现或正在实现的事情...你的兄弟，可以这么说。
 
 SE12:I am not too bothered about what they have achieved-more what I know I want to do with my existence.Right now I am not sure what I want to do.I will have to think about this. Please excuse me.
 
-12号源实体：
+12号源实体：我不太在乎他们取得了什么成就，我更在乎我知道我想要用我的存在做什么。现在我还不确定我想做什么。我必须想一想。请原谅我。
 
 With that last comment Source Entity Twelve disappeared from my energetic view.This was a bit strange?Why did it need to disappear?I was just thinking that I could nip off for a drink or something when Source Entity Twelve returned. 
 
+说完最后一句话，源实体12从我充满活力的视野中消失了。这有点奇怪？它为什么要消失？我只是在想，当源代码12回来时，我可以去喝点东西什么的。
+
 SE12:Sorry about that.I needed to consider what I wanted to do. 
 
-12号源实体：
+12号源实体：抱歉。我需要考虑一下我想做什么。
 
 ME:Ah,so that's why you disappeared.You wanted to be alone with your own thoughts. 
 
-我：
+我：啊，所以这就是你消失的原因。你想一个人和你自己的思想在一起。
 
 SE12:Yes,and it took some time.I worked on what I needed to experience. 
 
-12号源实体：
+12号源实体：是的，花了一些时间。我努力去体验我需要经历的。
 
 ME:And? 
 
-我：
+我：然后呢？
 
 SE12:I decided that I needed to experience many things before I could start the work that is my own way to help The Origin evolve. 
 
-12号源实体：
+12号源实体：我决定在我开始以我自己的方式帮助起源发展之前，我需要经历很多事情。
 
 I suddenly had a bee in my bonnet,so to speak.I needed to ask a question to confirm a thought I just had on the period (the length of time)Source Entity Twelve had spent on getting to the decision it had quite obviously made. 
 
+我突然有了一个想法，可以这么说。我需要问一个问题来确认我刚才的想法，关于12号源实体花了多长时间才做出了这个决定。
+
 ME:You said you took some time to work out what you needed to experience.Exactly how long did you take?You can use the metric mankind uses if you will,for although it is nonsense from your perspective,it is something both my readers and I will understand. 
 
-我：
+我：你说你花了一些时间来弄清楚你需要经历什么。你到底花了多长时间？如果你愿意的话，你可以用人类使用的度量标准，因为尽管从你的角度来看这是无稽之谈，但这是我和我的读者都能理解的。
 
 SE12:I decided to go into another event space to allow me to have both the"time"to consider that which I needed to experience and the maintenance of the "time line"to ensure the continuity of this dialogue.
 
-12号源实体：
+12号源实体：我决定进入另一个事件空间，这样我既有“时间”去考虑我需要经历的，又有“时间线”的维护，以确保对话的连续性。
 
 ME:Ah,yes,I thought that was what you had done.So how long did you spend considering your future experience? 
 
-我：
+我：啊，是的，我以为你已经做了。那么你花了多久考虑你的未来经历？
 
 SE12:Several,let me see,millions of what you call millennia. 
 
-12号源实体：
+12号源实体：几百万，让我看看，几百万个你称之为千年的东西。
 
 ME:Several million thousand years?(It doesn't sound right to me either,dear reader.) 
 
-我：
+我：几百万年？(亲爱的读者，我听起来也不对。)
 
 SE12:Yes.I took great care in what I was doing.I thought about it a lot. 
 
-12号源实体：
+12号源实体：是的，我对自己所做的事情非常小心，我考虑了很多。
 
 ME:I can see that over that period of time one might well think a lot about what one was going to experience. 
 
-我：
+我：我能看到在那段时间里，一个人可能会思考很多关于他将要经历的事情。
 
 SE12:But it did not seem like a long time.For it was no time at all. 
 
-12号源实体：
+12号源实体：但这似乎不像很长的时间。因为这根本就不是时间。
 
 ME:Yes,I can see that you might see it that way.One thing that you need to know,and I am sure that you do know is that the genre of beings that I am currently associated with are only just starting to realize that time does not exist as a quantifiable medium.Only those who are becoming spiritually aware and maybe those theoretical scientists who are starting to recognize that which is the greater reality by their own experiments in theoretical physics are recognizing the non-existence of time in the greater reality.The vast majority of incarnate mankind considers time as being a dimension. 
 
-我：
+我：是的，我能看出你可能那样看待它。有一件事你需要知道，而且我确信你确实知道，那就是我目前所接触的这类人只是刚刚开始认识到时间并不是一种可量化的媒介。只有那些在精神上变得有意识的人，也许还有那些理论物理学中开始通过自己的实验认识到更大的现实的理论科学家，才认识到更大的现实中时间是不存在的。
 
 ### Humor as a Communication Medium 
 
+**幽默作为一种交流媒介**
+
 With that I heard Source Entity Twelve laugh.This surprised me for I simply didn't expect it to respond in that way.
+
+我听到源实体12笑了。这让我很惊讶，因为我根本没有想到它会那样回应。
 
 SE12:Sorry,sorry,sorry!I am sorry.Even in my immature state in terms of my own evolution,I can recognize that to be a complete nonsense.No wonder mankind gets in the mess it does.Oh,I have just recognized something.That made me laugh.I enjoyed the juxtaposition of that which you told me-that something which does not exist can be considered a major component in The Origin's make-up.Funny!It was VERY funny.Now then,you call that which makes you laugh,humor.I like humor.It's fun. 
 
-12号源实体：
+12号源实体：对不起，对不起，对不起！我很抱歉。即使在我自身进化方面还不成熟的情况下，我也能认识到那完全是胡说八道。难怪人类陷入了混乱。噢，我刚刚认识到一些东西。那让我笑了。我喜欢你告诉我的那些并列——那些不存在的东西可以被认为是起源构成中的主要组成部分。有趣！非常有趣。现在，你把让你笑的东西叫做幽默。我喜欢幽默。它很有趣。
 
 I gained an image of Source Entity Twelve in very human terms;it gave itself a face-one that was young but old,immature but wise,powerful but gentle,with a great big smile on its face. 
 
+我得到了一个非常人性化的12号源实体的形象；它给自己一张脸——年轻但又老成，不成熟但又聪明，强大但又温柔，脸上带着大大的微笑。
+
 ME:I am glad you like humor.It is something I like as well.I feel that everything within The Origin has its own humor. 
 
-我：
+我：我很高兴你喜欢幽默。这也是我喜欢的东西。我觉得起源里面的一切都有自己的幽默。
 
 SE12:It does.It is an important concept to work with,understand and use.It is a"relief"to use such a communication medium. 
 
-12号源实体：
+12号源实体：是的，这是一个需要处理、理解和使用的重要概念。使用这样的沟通媒介是一种“解脱”。
 
 ME:I didn't think that humor was a communication medium. 
 
-我：
+我：我并不认为幽默是一种沟通媒介。
 
 SE12:It is.It is one of the most important and successful methods of communicating that we all have. 
 
-12号源实体：
+12号源实体：是的，它是我们所拥有的最重要和最成功的沟通方式之一。
 
 ME:We have comedians who tell jokes on the planet of my current incarnation. 
 
-我：
+我：在我当前的化身所在的星球上，我们有讲笑话的喜剧演员。
 
 SE12:Ah yes,so I see.No,that is not the sort of humor I was thinking of when I said that it was an important communication medium.What I meant was that it is one of the most efficient ways of communicating,especially for those of the lower frequencies for it makes the information that is being conveyed more attractive and,therefore,more readily accepted and assimilated. 
 
-12号源实体：
+12号源实体：啊，是的，我明白了。不，当我说它是重要的交流媒介时，我所想的不是那种幽默。我的意思是它是最有效的交流方式之一，特别是对那些低频率的人来说，因为它使所传达的信息更具吸引力，因此更容易被接受和吸收。
 
 ME:We call that making work fun! 
 
-我：
+我：我们称之为让工作变得有趣！
 
 SE12:Is not fun humorous? 
 
-12号源实体：
+12号源实体：是不是很有趣很幽默？
 
 ME:I suppose it is.I had never thought of it in that way. 
 
-我：
+我：我想是的，我从来没有这样想过。
 
 SE12:Fun is funny,and humor is another way of saying funny,is it not? 
 
-12号源实体：
+12号源实体：Fun就是有趣，而humor是另一种表达有趣的方式，不是吗？
 
 ME:Yes,and if I take it further,having fun whilst working makes the work more interesting, more palatable.It makes it desirable. 
 
-我：
+我：是的，如果我进一步说，在工作时玩得开心会让工作更有趣，更容易接受。它使它变得令人向往。
 
 SE12:And it is the desirable aspect of humor that is translated to the information that is being conveyed,therefore,making it easy to receive and understand and a delight to work with. 
 
-12号源实体：
+12号源实体：幽默的可取之处在于它被转化为所传达的信息，因此，它易于接受和理解，并且令人愉快。
 
 ME:Wow!When did you become an expert on humor then? 
 
-我：
+我：哇！你什么时候变成幽默专家了？
 
 SE12:It is part of the information that The Origin gave me when it educated me. 
 
-12号源实体：
+12号源实体：这是起源教我时，给我的部分信息。
 
 ME:Yes,of course.I was forgetting that you now have in your energies ALL the information collected by the other Source Entities and The Origin to date. 
 
-我：
+我：是的，当然。我忘记了，你们现在在你们的能量中拥有所有其他源实体和起源收集到的信息。
 
 SE12:Yes,it does come in useful,but it is a distinct reminder to me that I need to get started with some of my own work. 
 
-12号源实体：
+12号源实体：是的，它确实有用，但它明确地提醒我，我需要开始做一些我自己的工作。
 
 ### Source Entity Twelve Starts Its Work and Invites Me Along for the Ride!
 
