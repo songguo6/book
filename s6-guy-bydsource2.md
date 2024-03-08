@@ -3188,7 +3188,7 @@ ME:Go on,tell me.What is a fixed point of zero?
 
 SE8:Quite simply the expression of that position or locus that is always collectively achieved by the mathematical representation of all of the possible positions achievable by the locus or collective positions of absolute zero of all of the continuum at any point in the evolution of The Origin.I will give it a word you can understand,a datum.A datum that is always created even though stable rather than being a start or a point of origin. 
 
-8号源实体：很简单，这个位置或轨迹的表达总是通过所有可能的位置的数学表示来实现，这些位置或位置都是由所有连续体在起源进化过程中任何一点的绝对零点所实现的。我会用一个你能理解的词来描述它，一个基准点。一个基准点总是被创造，即使它很稳定，而不是一个起点或原点。
+8号源实体：很简单，这个位置或轨迹的表达总是通过所有可能的位置的数学表示来实现，这些位置或位置都是由所有连续体在起源进化过程中任何一点的绝对零点所实现的。我会用一个你能理解的词来描述它，一个基准点。一个基准点总是被创造，即使它很稳定，而不是一个起点或起源。
 
 ME:I can imagine a few mathematicians having a field day over discussing that statement. They won't believe a word of it. 
 
@@ -6980,7 +6980,7 @@ ME:Yes,you did.I believe I also noted that the statement "separately together"wa
 
 SE10:Yes,interesting isn't it,for as we are all separate in our function,we are all ultimately together with The Origin.
 
-10号源实体：是的，很有趣不是吗？因为我们虽然各司其职，但最终我们都与原点在一起。
+10号源实体：是的，很有趣不是吗？因为我们虽然各司其职，但最终我们都与起源在一起。
 
 I will continue.Your comment that the reproducibility of that which in the different environments is a function of the scale,frequencies,energies and materials is correct,but that is not the ultimate purpose of my environment "in totality.I will show you an image. 
 
@@ -9236,589 +9236,663 @@ SE12:Yes,it does come in useful,but it is a distinct reminder to me that I need 
 
 ### Source Entity Twelve Starts Its Work and Invites Me Along for the Ride!
 
+**源实体12开始工作并邀请我一起骑行！**
+
 ME:Before we had the slight interlude and talked about humor being a communication medium,we were talking about the previous gap in our dialogue where you entered into another event space so that you could work out your own strategy for evolving.You took no more than a minute of my time,but you stated that you had taken the equivalent of millions of millennia in your decision process. 
 
-我：
+我：在我们有轻微的插曲并谈论幽默作为一种沟通媒介之前，我们正在谈论我们对话中之前的差距，你进入另一个事件空间，以便你能够制定自己的进化策略。你只占用了我的一分钟，但你说你在决策过程中花了相当于数百万年的时间。
 
 SE12:It did.I was considering many things. 
 
-12号源实体：
+12号源实体：是的，我考虑了很多事情。
 
 ME:What did you consider?It must have been an awful lot because it took you a long time. 
 
-我：
+我：你考虑了什么？你花了很长时间，所以想的一定很多。
 
 SE12:Actually,it took me a multiple of the time I quoted you. 
 
-12号源实体：
+12号源实体：实际上，我花了比我引用你的话多得多的时间。
 
 ME:Can you elaborate for me? 
 
-我：
+我：你能详细解释一下吗？
 
 SE12:Yes.I was using event space in what you would call a parallel method;it was parallel processing,as you would say. 
 
-12号源实体：
+12号源实体：是的，我用事件空间，用你们所说的并行方法，你们会说，它是并行处理。
 
 ME:Are you suggesting that you were considering everything in a multiple way? 
 
-我：
+我：你是说你从多个角度考虑了所有的事情？
 
 SE12:No,I was saving time,so to speak.I looked at the amount of work I needed to do and decided to use the event space in a way that allowed me to do certain percentages of the work in different event spaces concurrently. 
 
-12号源实体：
+12号源实体：不，我正在节省时间，可以这么说。我查看了我需要做的工作量，并决定以一种允许我在不同的事件空间同时做一定百分比的工作的方式使用事件空间。
 
 ME:How many event spaces did you use? 
 
-我：
+我：你用了多少个事件空间？
 
 SE12:Twelve.One for each of the Source Entities and one for the information given to me by The Origin about The Origin. 
 
-12号源实体：
+12号源实体：12个。每一个源实体一个，还有一个是起源给我的关于起源的信息。
 
 ME:I wasn't aware that an entity could use event space in that way.I thought that we created a new version of event space every time we approach a major decision point.It sounds reasonable though. 
 
-我：
+我：我不知道一个实体可以以这种方式使用事件空间。我以为我们每次接近一个主要决策点时，都会创建一个新的事件空间版本。不过这听起来很合理。
 
-SE12:It's more than reasonable;it is an entirely practical way of achieving more output.I will continue. 
+SE12:It's more than reasonable; it is an entirely practical way of achieving more output.I will continue. 
 
-12号源实体：
+12号源实体：这不仅仅是合理，而且是获得更多产出的完全实用的方法。我将继续。
 
 ME:Please do. 
 
-我：
+我：请吧。
 
 SE12:It,therefore,took me that amount of time to digest that which was necessary from each of the Source Entities to make me realize what they had each achieved,what was work in progress and what was planned by them.Armed with this information,I could then conduct my own planning and establish that which I intend to do to experience,learn and evolve in my own right whilst also avoiding any duplication of the others'work. 
 
-12号源实体：
+12号源实体：因此，我花了那么多时间来消化每个源实体所必须的东西，使我认识到他们每个人所取得的成就，正在进行的工作以及他们所计划的。有了这些信息，我就可以进行自己的计划，并确定我打算以自己的方式去经历、学习和进化的东西，同时避免与别人的工作重复。
 
 ME:I would have expected a small percentage of duplication,not full duplication but just a minor amount-like for instance,in the structure of the environment you are planning to create if,indeed,you are creating one? 
 
-我：
+我：我本以为会有一小部分的重复，不是完全的重复，只是一小部分，比如说，在你计划创造的环境结构中，如果你真的在创造一个的话。
 
 SE12:I decided that there would be no duplication and that what I would do would be both new and novel. 
 
-12号源实体：
+12号源实体：我决定不做重复，我要做的事既新颖又新奇。
 
 ME:When do you intend to start you work? 
 
-我：
+我：你打算什么时候开始工作？
 
 SE12:I have some basic work to do first-mainly in the experiential side of things-but the real work will start in earnest once I have completed this dialogue with you.But you are welcome to join me in some of the things I have decided to experience before I start.
 
-12号源实体：
+12号源实体：我先要做一些基础工作——主要是在事情的体验方面——但是真正的工作将在我与你完成这次对话后才真正开始。但是在开始之前，欢迎你加入我决定去体验的一些事情。
 
 At this point in the dialogue I decided to take a little moment for contemplative meditation. To my knowledge,no other Source Entity had used event space in a parallel processing way before.Travelling between the events,yes;using them to work on something whilst in concurrent discussion with me,yes;however,not in this way because it required the Source Entity in question to divide itself up into the different event space locations to do the work.This was a"first"for Source Entity Twelve,and I got the impression that it would continue to chalk up its list of"firsts" throughout its existence.It simply did not seem to have any form of limitational thinking.It jogged my attention back to the dialogue we were having. 
 
+在对话的这个时候，我决定花一点时间进行沉思冥想。据我所知，以前没有其他的源实体以平行处理的方式使用事件空间。在事件之间旅行，是的；在与我同时讨论时使用它们来做一些事情，是的；然而，不是以这种方式，因为它需要所讨论的源实体把自己分成不同的事件空间位置来做这项工作。这是源实体12的“第一次”，我得到的印象是，它将继续在其存在的整个过程中记录它的“第一次”列表。它似乎没有任何形式的有限思维。它把我的注意力拉回到我们正在进行的对话。
+
 SE12:I want to experience as many event spaces as I can.I want to move between them so fast that it will blur their edges and make me experience one huge event space.I can bring you along for the ride if you want. 
 
-12号源实体：
+12号源实体：我想体验尽可能多的事件空间。我想在它们之间快速移动，以模糊它们的边缘，让我体验一个巨大的事件空间。如果你想的话，我可以带你一起去。
 
-ME:Yes,why not?It will be an experience. 
+ME:Yes,why not? It will be an experience. 
 
-我：
+我：是的，为什么不呢？这将是一个经历。
 
 I braced myself mentally,I had no idea what to expect. 
 
+我做好心理准备，我不知道会发生什么。
+
 Suddenly I was aware of an immense feeling of movement without movement,acceleration without acceleration,and being in a location that had no location.In my mind's eye,I saw pictures,3,600 by 3,600 images.I could see that which was in front and behind me,above and below me,to the left and to the right of me concurrently.It was like peripheral vision all around me.We moved from image to image,faster and faster.Each image was an event space,not specifically mine but any event space.There was no discrimination as to direction or originator of the event spaces being traversed.The event spaces were from all of the Source Entities and the entities they had created,including those event spaces created by The Origin.We were whizzing down,around,through,up down event space. 
+
+突然我意识到一种巨大的感觉，没有移动的移动，没有加速的加速，在一个没有位置的地方。在我的脑海中，我看到了图片，3600乘3600的图像。我可以看到在我前面和后面，在我上面和下面，在我左边和右边同时发生。就像我周围的周边视觉。我们从一个图像移动到另一个图像，越来越快。每个图像都是一个事件空间，不是特别属于我的，而是任何事件空间。对于正在穿越的事件空间的方向或起源没有区别。这些事件空间来自所有的源实体和它们创造的实体，包括那些起源创造的事件空间。我们正在快速下降，绕过，穿过，向上和向下事件空间。
 
 The feeling was immense.I was seeing civilizations based in suns,nebulae,dimensions, continuum,frequency and event space itself,and then we were off somewhere else,seeing other events,places,environments,faster and faster changing direction in a completely random way. 
 
+这种感觉是巨大的。我看到基于太阳，星云，维度，连续性，频率和事件空间本身的文明，然后我们离开了某个地方，看到其他事件，地点，环境，以完全随机的方式越来越快地改变方向。
+
 "Wo hoo!"I heard Source Entity Twelve say. 
+
+“哇嗬！” 我听到源实体12说。
 
 "Some things are the same in any language and with any entity,"I thought. 
 
+“有些东西在任何语言和任何实体中都是一样的，”我想。
+
 We were moving faster now,so fast that I couldn't keep up with what I was seeing.My mental processor was being overloaded.Just at that point we appeared to stop. 
 
+我们现在移动得更快了，快到我都跟不上我所看到的。我的心理处理器超负荷了。就在那时，我们似乎停了下来。
+
 No,we hadn't.Ifelt that something special had just happened.Source Entity Twelve spoke.
+
+不，我们没有停下来。我感觉到刚刚发生了一些特殊的事情。源实体12说话了。
+
+（图21：360×360度罗盘概念图，说明我的“心灵之眼”的视觉能力）
 
 ![Figure 21: Conceptual Image of a 360 × 360 Degree Compass to Illustrate My "Mind's Eyes" Visual Capacity](img/s6-056.png)
 
 SE12:Made it. 
 
-12号源实体：
+12号源实体：成功了。
 
 ME:Made what? 
 
-我：
+我：做什么？
 
 SE12:We are moving at a speed which allows us to traverse all event spaces concurrently. 
 
-12号源实体：
+12号源实体：我们正在以一种可以同时穿越所有事件空间的速度移动。
 
 We had reached some sort of terminal traversal velocity.Everything appeared to be everything, which appeared to be everything else.It was all the same,even though I knew it was different.It was separate;it was separately together.Now where had I last used that phrase I wondered? 
 
+我们已经达到了某种终极穿越速度。一切似乎都是一切，一切似乎都是其他一切。一切都是一样的，尽管我知道它是不同的。它是分开的；它是分开地在一起的。现在我想知道我最后一次用这个短语是在什么地方？
+
 I was dumb-struck. 
+
+我呆住了。
 
 Suddenly everything turned white. 
 
+突然一切都变白了。
+
 SE12:What you can perceive-and that is not everything by the way-you couldn't cope with it-is the image that is created when we traverse ALL event spaces concurrently.We are in and experiencing each and every event space created by each and every entity all at the same time.Everything is an overlay of the other.From this juncture,all event spaces can be experienced and enjoyed. 
 
-12号源实体：
+12号源实体：你能感知的——顺便说一下，那不是一切——你无法应付它——是我们同时穿越所有事件空间时所创造的图像。我们同时处于并体验着每一个实体创造的每一个事件空间。一切都是彼此的叠加。从这个关头起，所有的事件空间都可以被体验和享受。
 
 ### Source Entity Twelve,an Expert on Event Space! 
 
+**12号源实体，事件空间专家！**
+
 ME:Why did everything just turn white?
 
-我：
+我：为什么一切都变白了？
 
 SE12:Your perception went into input overload,and,as a result you blanked everything out. Focus a bit more,and you will regain a filtered version of the image you tried to access.But do not try too hard. 
 
-12号源实体：
+12号源实体：你的感知进入了输入过载，结果你把一切都忘了。再集中一点，你就会重新获得你试图获取的图像的过滤版本。但不要太用力。
 
 I focused my mind's eye,my perception,to try to see the filtered image that Ifelt Source Entity Twelve sent to me.As I concentrated on what I perceived,I felt like I was floating in a huge goldfish bowl without an opening at the top.This was not a new feeling,for Iget this wheneverI am in The Origin's area of self-awareness and not inside the energies of a particular Source Entity as I was currently.There was a difference though. 
 
+我集中我的心灵之眼，我的知觉，试图看到我感觉到的源实体12发送给我的经过过滤的图像。当我集中注意力于我所感知到的，我感觉自己漂浮在一个巨大的顶部没有开口的金鱼缸里。这不是一种新的感觉，因为每当我处于“起源”的自我意识区域而不是像我现在这样处于某个特定的源实体的能量中时，我就会得到这种感觉。然而，这有不同的地方。
+
 Even though the volume of this goldfish bowl-this all-encompassing bubble of event space "in totality"-appeared to be clear but slightly blurred like nothing was there to see,all I had to do was focus my intention in a certain location in event space,such as a part of my own past.I saw it and was part of the event instantly. 
+
+尽管这个金鱼缸的体积——这个包罗万象的事件空间泡沫的“整体”——似乎是清晰的，但略微模糊，好像什么都没看到，我所要做的就是将我的意图集中在事件空间的某个位置，比如我自己的过去的一部分。我看到了它，并立即成为事件的一部分。
 
 The moment I removed that focus,even for an instant,that image including the "being part of" the event,was dissolved,and I was back in the clarity of what I can only describe as the clarity of event space "in totality.When I accessed a particular event,it was just as if a bubble of event space came from nowhere and engulfed me,placing me in that particular event and event space. When I removed the focus,the bubble just dissolved or disappeared,and I was ready to focus on another event space.I decided to ask Source Entity Twelve what the process was that I was experiencing because I had afeeling that,even though my dialogue with it had been short,it had accrued countless millions ofyears of experience on this subject whilst in another event space.
 
+当我移开那个焦点时，即使是一瞬间，那个图像，包括“成为事件的一部分”，被溶解了，我又回到了我只能描述为“整体”事件空间的清晰中。当我接触到一个特定的事件时，它就像一个事件空间泡沫从天而降，将我吞没，将我置于那个特定的事件和事件空间中。当我移开焦点，气泡就溶解或消失了，我准备好聚焦另一个事件空间。我决定问源实体12我正在经历的过程是什么，因为我感觉到，尽管我和它的对话很短，但它在另一个事件空间在这个问题上积累了无数百万年的经验。
+
 ME:Why do I see this area of event space-that is,where we are travelling through all events concurrently-as an area of blurred clarity?And why do I see an event that I focus my intention on appear as a sphere that comes from nowhere and engulfs me? 
 
-我：
+我：为什么我看到事件空间的这个区域，也就是我们同时经历所有事件的地方，是一个模糊的清晰区域？为什么我看到我集中注意力的一个事件，似乎是一个球体，不知从哪里冒出来，把我吞没了？
 
 SE12:That is the way you are allowing yourself to perceive the function of entering into event spaces.Remember you are seeing this in a very,very filtered way. That is why it looks clear but blurred. 
 
-12号源实体：
+12号源实体：这就是你让自己去感知进入事件空间的功能的方式。记住，你看到的是一个非常非常过滤过的方式。这就是为什么它看起来清晰但模糊。
 
 That which is part of those event spaces that are being traversed is simply not perceivable in your particular state of existence.We are currently at a velocity where we are passing through every event space concurrently so when you focus on a particular event space you pluck it out,so to speak,and it travels at our velocity as well.That is why you can perceive it. 
 
+那些正在被穿越的事件空间的一部分，在你特定的存在状态下是无法感知的。我们目前的速度是同时穿越每个事件空间，所以当你专注于一个特定的事件空间时，可以说你把它拔出来了，它也以我们的速度行进。这就是为什么你能感知它。
+
 ME:How can we "pluck"an event space out of its current location?Isn't event space an environment of its own? 
 
-我：
+我：我们怎么能把一个事件空间从它当前的位置“拔出来”？事件空间不是一个自己的环境吗？
 
 SE12:Of course.Just as a universe as a separate and isolated environment is a function of the separation of dimension and sub-dimensional component into frequency bands in your Source Entity's multiverse,so that which creates the overall environment of event space "in totality"is the function of all of those thought processes of myriad energetic entities, which creates a separate but specialized event space within that which is event space "in totality."That part of event space which is individualized is created from those energies that comprise the environment that is the wider event space or event space "in totality." 
 
-12号源实体：
+12号源实体：当然，就像一个宇宙作为一个分离和孤立的环境，是维度和亚维度分量分离成频带的函数，在你们的源实体的多维宇宙中，所以创造了事件空间的整体环境的“整体”是无数能量实体的所有那些思想过程的函数，它创造了一个分离但专门的事件空间，在事件空间的“整体”中。事件空间的那个个性化部分是由那些构成环境的能量创造的，这个环境是更广泛的事件空间或事件空间的“整体”。
 
 ME:I get the feeling that there is more though.Whilst I was typing this part of the dialogue, I gained an image of event space expanding.Is this possible?
 
-我：
+我：我感觉还有更多。当我打这部分对话时，我得到了一个事件空间扩展的图像。这是可能的吗？
 
 SE12:Yes,it is,and it does.Let me elaborate for you,for I have allowed a considerable amount of my energies to be used in the investigation into the uses of event space. 
 
-12号源实体：
+12号源实体：是的，是这样，它确实如此。让我为你详细说明，因为我已经允许我相当多的精力用于对事件空间用途的调查。
 
 ME:I thought I had the feeling that you were suddenly an authority on the energies that make up event space. 
 
-我：
+我：我以为我感觉到你突然变成了能量方面的权威，这些能量组成了事件空间。
 
 SE12:No more than any other Source Entity,but I do have to say that I have spent some considerable additional time and energies on personal study that has,nevertheless, benefited my level of understanding event space in a most positive way. 
 
-12号源实体：
+12号源实体：不比任何其他的源实体多，但我必须说，我花了相当多的时间和精力在个人研究上，尽管如此，这对我理解事件空间的水平有非常积极的影响。
 
 I was starting to note that Source Entity Twelve was sounding more and more mature as our dialogue progressed.What additional work was it doing behind the scenes in another event space?It was catching up-fast! 
 
+我开始注意到，随着我们的对话进展，源实体12听起来越来越成熟。它在另一个事件空间的幕后做了什么额外的工作？它正在迎头赶上——很快！
+
 SE12:I will continue to answer your question. 
 
-12号源实体：
+12号源实体：我将继续回答你的问题。
 
 ME:Please do. 
 
-我：
+我：请做。
 
 SE12:To all intents and purposes,event space is elastic.As the number of individualized event spaces increases,so the total volume of event space "in totality"increases to compensate for it.I know what you are thinking.How can it increase when the energies that are event space must have been finite.For example,when the total volume of individualized event spaces equals the total volume of original event space,how can more event space be created when it has all been used up? 
 
-12号源实体：
+12号源实体：从各种意图和目的来看，事件空间是弹性的。随着个性化事件空间的数量增加，事件空间的总体积“总体上”增加以补偿它。我知道你在想什么。当事件空间的能量是有限的时，它怎么能增加呢？例如，当个性化事件空间的总体积等于原始事件空间的总体积时，当它全部被用完时，怎么能创造更多的事件空间呢？
 
 ME:I have to admit you beat me to it. 
 
-我：
+我：我不得不承认你比我先想到了。
 
 SE12:Naturally.Sorry,I couldn't resist having a bit of fun with you.
 
-12号源实体：
+12号源实体：当然。对不起，我忍不住要跟你开个玩笑。
 
 ME:No problem. 
 
-我：
+我：没问题。
 
 SE12:When the event space "in totality"that is currently being used is full,event space is capable of expanding within itself,creating a full environment of the wider event space "in totality.”
 
-12号源实体：
+12号源实体：当当前正在使用的事件空间“总体上”已经满了，事件空间能够在自身内部扩展，创造一个更广泛的事件空间“总体上”的完整环境。
 
 ME:Hold on.Are you saying that there are more than two classifications of event space? 
 
-我：
+我：等等，你是说事件空间有不止两种分类吗？
 
 SE12:Yes,there are much more than two,and we are currently passing through ALL of them concurrently. 
 
-12号源实体：
+12号源实体：是的，不止两个，我们现在同时处理所有这些。
 
 ME:But simplistically,we are currently discussing the "fact"that event space "in totality" is comprised of the wider environment of event space,which has event space "in totality" within,which is comprised of individualized event spaces. 
 
-我：
+我：简而言之，我们现在讨论的“事实”是，事件空间“整体”由更广泛的事件空间环境组成，而事件空间“整体”又包含在其中，由个体化的事件空间组成。
 
 SE12:Correct. 
 
-12号源实体：
+12号源实体：正确。
 
 ME:So how can event space "in totality"house an equivalent event space "in totality"within the same event space,space? 
 
-我：
+我：事件空间“整体”如何在同一事件空间中容纳一个等价的事件空间“整体”？
 
 SE12:By creating another event space. 
 
-12号源实体：
+12号源实体：通过创建另一个事件空间。
 
 ME:Now I am confused. 
 
-我：
+我：现在我有点困惑了。
 
 SE12:Event space has a signature which can be modified,allowing two event spaces "in totality"to exist in the same event space concurrently. 
 
-12号源实体：
+12号源实体：事件空间有一个可以修改的签名，允许两个事件空间“在整体上”并发存在于同一个事件空间中。
 
 ME:I have just received an image with the information that suggests that event space "in totality"has gaps in it,and the change of signature allows a new event space "in totality"to be created that fills in the gaps. 
 
-我：
+我：我刚刚收到了一个图像，其中的信息表明，事件空间“总体上”存在缺口，而签名的变化允许创建一个新的“总体”事件空间来填补这些缺口。
 
 SE12:There are no gaps in event space,except those that are created to allow expansion and subsequent inclusion of a new event space"in totality"within the previous event space "in totality."When event space expands to a point that is,let's say,beyond its elastic limit, its perimeter expands further,creating temporary gaps in event space "in totality."These temporary gaps are filled with a newly created event space "in totality"creating a new but empty event space "in totality"within the same volume as the previous event space "in totality"whilst existing concurrently.In essence,event space "in totality"can house only a certain number of "entity created"event spaces before it needs to be expanded and replaced. That number is infinite to you,but to a Source Entity or The Origin it is a finite condition which is supported by a known method of expansion and subsequent contraction to allow the process to be repeated when next required. 
 
-12号源实体：
+12号源实体：事件空间中没有间隙，除了那些为了允许扩展和随后在以前的事件空间“整体”中包含一个新的事件空间而创建的间隙。当事件空间扩展到某一点时，比如说，超过了它的弹性极限，它的周长进一步扩展，在事件空间“整体”中创建临时间隙。这些临时间隙被新创建的事件空间“整体”填充，在与以前的事件空间“整体”相同的体积中创建了一个新的但空的事件空间“整体”，同时存在。本质上，事件空间“整体”在需要扩展和替换之前只能容纳一定数量的“实体创建”事件空间。这个数字对你来说是无限的，但对源实体或起源来说，这是一个有限的条件，由已知的扩展和随后收缩的方法支持，以便在下一次需要时重复这个过程。
 
 ME:Are any of the previous entity created event spaces lost during this process? 
 
-我：
+我：在此过程中，之前的实体创建的事件空间是否丢失？
 
 SE12:No.Everything is maintained and nothing is lost.In actuality,many event spaces naturally converge and remain converged,thereby saving event space so expansion is not a regular event in event space "in totality." 
 
-12号源实体：
+12号源实体：不，一切都被保持，没有任何东西丢失。事实上，许多事件空间自然地收敛并保持收敛，从而节省了事件空间，因此“总体上”扩张在事件空间中并不是一个规则事件。
 
 ### A Change of Direction and a Question on the Awakening of Source Entity Twelve 
 
+**方向的改变和关于源实体12觉醒的一个问题**
+
 I was feeling that we had moved very fast in this dialogue,almost too fast.One moment Source Entity Twelve was in the process of becoming self-aware,sounding very immature to me.The next it was like talking to afully self-aware experienced Source Entity.I decided that I needed to re-wind a little and pay some attention to the awakening process that Source Entity Twelve had experienced. 
+
+我感觉我们在这个对话中进展得非常快，几乎太快了。一瞬间源实体12正在变得有自我意识，对我来说听起来非常不成熟。接下来就像是与一个完全有自我意识的经验丰富的源实体交谈。我决定我需要倒带一点，并关注源实体12经历的觉醒过程。
 
 ME:I am very aware that we have moved on to discuss certain subjects a little too fast,and we have potentially missed a very important piece of dialogue here. 
 
-我：
+我：我非常清楚我们已经讨论某些主题有点太快了，我们可能在这里错过了一段非常重要的对话。
 
 SE12:OK,do you want to elaborate? 
 
-12号源实体：
+12号源实体：好的，你想详细说明一下吗？
 
 ME:Yes.I am starting to recognize that you may have taken a rather unique route in the process of becoming self-aware.I would like to explore this further,please. 
 
-我：
+我：是的，我开始意识到你在自我意识的过程中可能走的是一条非常独特的道路。我想进一步探讨这个问题。
 
 SE12:Fine with me.What question do you want to ask? 
 
-12号源实体：
+12号源实体：我很好。你想问什么问题？
 
 ME:Well,quite simply,what was it like becoming self-aware?What I am getting to here is the fact that you were the only Source Entity to become self-aware with all other Source Entities and The Origin already self-aware whilst being some way,if not considerable ways, down their specific strategic evolutionary paths.This must have been quite intimidating? 
 
-我：
+我：嗯，很简单，变得有自我意识是什么样子？我在这里要说的是，你是唯一一个有自我意识的源实体，所有其他源实体和起源已经有自我意识，同时以某种方式，如果不是相当的方式，沿着他们特定的战略进化道路。这肯定很吓人？
 
 SE12:During the short dialogue we have had,I have gone from being barely aware to being fully educated and fully self-aware.Even you can see this. 
 
-12号源实体：
+12号源实体：在我们短暂的对话中，我从几乎没有意识到完全受过教育，完全有自我意识。甚至你也能看到这一点。
 
 ME:Correct,I can-hence,the question. 
 
-我：
+我：对，我能-因此，问题。
 
 SE12:During the time that I was being educated by The Origin,I never once thought that I was anything else than that which I was,one of the Twelve Source Entities.However,when I encountered you,and you were within my energies,it was quite a shock.Being educated and of a level of maturity that goes with such an education takes some time to get to,and you caught me at a point in my maturity where I simply was not ready to either communicate or indeed encounter,specifically within my own energies,another independent,self-aware and sentient energy.I was confused to the point of distraction.I decided to use the facility that event space offered to investigate this feeling and others,together with,as previously stated,that evolutionary work already achieved by The Origin and my peers.Within this period I used some of my spare capacity to research and work with those energies associated with and classified as event space.Mainly though,I looked at the work that my peers had done to date and analyzed what I could do that would augment what they had done.I considered myriad other ways to work with copies or variants of the work that the other Source Entities had embarked upon.I even considered taking on an amount of work within event space that allowed me to replicate each and every thing that my peers had created in entirety within their own multiversal environments and put it all in a series of interlinking event spaces,allowing it all to merge together,creating a micro-environment,based upon The Origin's structure. 
 
-12号源实体：
+12号源实体：在我接受起源教育的时候，我从未想过我不是任何其他东西，除了我自己，12个源实体之一。然而，当我遇到你，你在我能量中，这真是个冲击。 接受教育和与这种教育相伴的成熟程度需要一些时间才能达到，而你抓住了我成熟的一点，我只是没有准备好交流或真正遇到，特别是在我自己的能量中，另一种独立的、自我意识和有知觉的能量。我甚至考虑在事件空间中承担大量的工作，这让我能够复制我的同伴在他们自己的多维环境中创造的每一个东西，并将其置于一系列相互连接的事件空间中，让它们融合在一起，创造一个基于起源结构的微观环境。
 
 ME:That sounds like a very good idea.And what's more it would provide some significant evolutionary content. 
 
-我：
+我：听起来是个好主意。而且它会提供一些重要的进化内容。
 
 SE12:That may have been true,but it didn't cut it for me.I decided that my peers had-and you won't have witnessed this in your current form-covered most,if not all,of the angles of interest,so to speak. 
 
-12号源实体：
+12号源实体：这也许是事实，但对我来说还不够。我认为我的同辈们--你们现在的样子是看不到的--可以说，他们已经涵盖了大部分，如果不是全部的话，兴趣的方面。
 
 ME:I would have thought that was impossible? 
 
-我：
+我：我还以为那是不可能的呢？
 
 SE12:Well,correct!They had covered those areas of interest that I was initially considering, and as a result,I have and am considering other evolutionary opportunities.So to answer your question,yes I am in a unique position being the last Source Entity to become self- aware.First,I have been able to assimilate all of that which has been accrued to date by my peers and The Origin.Second,I have been able to mature faster than normal as a result but relatively speaking only,as I have not yet created,nurtured and achieved anything myself. In essence,I am still fresh,as it were.And third,I am in a bit of a quandary as what to do to augment The Origin's evolution because I want to do something that does not repeat in some small way,in some part,no matter how small,that which has,is currently,or will be achieved by my peers. 
 
-12号源实体：
+12号源实体：他们已经覆盖了我最初考虑的那些兴趣领域，因此，我已经并正在考虑其他进化的机会。所以回答你的问题，是的，我处于一个独特的位置，成为最后一个有自我意识的源实体。首先，我已经能够吸收所有迄今为止由我的同伴和起源积累起来的东西。第二，我已经能够比正常情况更快地成熟，但只是相对而言，因为我还没有创造，培养和实现任何东西。
 
 ### A Source Entity in a Quandary-A First! / A Decision to Make in Evolutionary Growth 
 
+**一个处在两难境地的源实体——第一！/进化成长中的一个决定**
+
 ME:I can see that you have quite a decision to make as to which direction to take your evolutionary growth,including how it can affect the evolution of The Origin in a positive way. 
 
-我：
+我：我能看出你需要做出一个决定，决定你的进化成长的方向，包括它如何以积极的方式影响起源的进化。
 
 SE12:Not so much a decision but more of a robust plan,and then a decision to implement it once I have proved it to be consistent with what I want to achieve.As you can tell from the dialogue we have had,to date I have not yet even considered a strategy of any sort. Other that is,than using event space to accelerate my own education and subsequent level of maturity.The issue here is that education does not create maturity.Being creative and subsequently responsible for that which is created,for nurturing it,creates maturity,and I am acutely aware that I am still immature,relatively speaking,and in comparison to my peers. 
 
-12号源实体：
+12号源实体：与其说是一个决定，不如说是一个强有力的计划，一旦我证明它与我想达到的目标一致，我就会决定实施它。正如你从我们的对话中所能看出的，到目前为止，我甚至还没有考虑过任何一种策略。也就是说，除了利用事件空间来加速我自己的教育和随后的成熟程度。这里的问题是，教育并不会创造成熟。具有创造性，并随后对所创造的东西负责，培育它，创造成熟，我敏锐地意识到，相对而言，和我的同龄人相比，我仍然不成熟。
 
 ME:So can I help in any way? 
 
-我：
+我：我能帮什么忙吗？
 
 I heard Source Entity Twelve laugh again. 
 
+我听到12号源实体又笑了。
+
 SE12:What could you possibility do to help me? 
 
-12号源实体：
+12号源实体：你能帮我做什么？
 
 ME:I might offer some suggestion or other that might set you off in a certain direction.Not being close to the issue myself,I might give you a direction that you have overlooked. 
 
-我：
+我：我可能会提供一些建议或其他可能让你在某个方向上离开。我自己不接近这个问题，我可能会给你一个你忽略的方向。
 
 SE12:Unlikely,but I like your fervor.I like you.You are limited,but you express un- limitedness even though you can't demonstrate your un-limitedness.You are a true conundrum.I like conundrums I have decided,and you are,as such,one of them.Maybe you can help.We will see.Maybe just communicating with you will be a catalyst for me to make the right decision,to consider that which is under the smaller stone rather than looking under the larger stone,so to speak. 
 
-12号源实体：
+12号源实体：不太可能，但我喜欢你的热情。我喜欢你。你是有限的，但你表达了无限，即使你不能证明你的无限。你是一个真正的难题。我喜欢我已经决定的难题，而你，就是其中之一。也许你能帮忙。我们会看到的。也许只是与你交流会促使我做出正确的决定，考虑到小石头下的东西，而不是看大石头下的东西，可以这么说。
 
 Mmmm,it is worth considering... 
 
+嗯，值得考虑...
+
 Source Entity Twelve appeared to have gone into itself and was thinking.I waited patiently for it to reconnect with me and continue the dialogue.It returned,displaying what I recognized as the having "a smile on its face"energies.It returned to me as if in mid-sentence. 
+
+源实体12似乎已经进入自我思考。我耐心地等待它与我重新连接，继续对话。它回来了，显示出我所认识的“面带微笑”的能量。它好像在句子中间返回给我。
 
 SE12:...What's more,I like that thought more and more,for it is something that my peers have not done. 
 
-12号源实体：
+12号源实体：...而且，我越来越喜欢这个想法，因为这是我的同伴们没有做过的事情。
 
 ME:What is something that your peers have not done?
 
-我：
+我：有什么事情是你的同龄人没有做过的？
 
 SE12:Enlist the help of a conundrum,an entity that is a smaller part of The Origin and not a Source Entity.An OM whose communication with me is not currently OM "in purity" but nevertheless exudes OM-ness "in purity."You are the first "un-pure""pure"OM I have come across in all my education.Maybe it is to do with the association with the physical vehicle required to exist within the lower frequencies of the Source Entity you are currently associating yourself with.I will see what comes of this association,for I can't see how it will help me in my decision process,but it is a first!And of that I am pleased.One thing I have now decided is that I am going to do things with a view to them being a first! 
 
-12号源实体：
+12号源实体：征求谜语的帮助，一个起源的小部分实体，而不是一个源实体。一个OM，它与我的沟通目前不是OM“纯粹”，但仍然散发OM“纯粹”。你是我所受的教育中遇到的第一位“不纯粹”“纯粹”OM。也许这与你目前与自己联系在一起的源实体的低频率所需的物质载体的关联有关。我会看看这个关联会带来什么，因为我看不出它如何能帮助我的决策过程，但这是第一次！我很高兴。我现在决定的一件事是，我要做的事情，以使它们成为第一次！
 
 ME:Hasn't every Source Entity initiated a first at some point in its existence? 
 
-我：
+我：每个源实体不是都有一个“第一”吗？
 
 SE12:Yes,of course.But when they were creating their strategies for evolution,they were in communion with each other to a certain degree-making decisions together or making agreements with one another as to what each of them was doing and why they were doing it and agreeing not to fully tread on each other's toes,so to speak,or steal each other's thunder. In essence,they built upon the work of each other,filling in the gaps,addressing that which was their interpretation of what could be achieved even though it might have looked as if it was or had been done in some sort of isolation.This was only possible because of the close proximity in event space "in totality"of their becoming self-aware.I,on the other hand, have only just become self-aware,and this is in a new event space "in totality." 
 
-12号源实体：
+12号源实体：是的，当然。但是当他们为进化制定策略时，他们在某种程度上彼此交流，一起做决定或彼此达成协议，关于他们各自在做什么以及他们为什么做，并同意不完全踩到对方的脚趾，或者说，不抢对方的风头。本质上，他们以彼此的工作为基础，填补空白，解决他们对可能实现的解释，尽管它可能看起来是或已经在某种孤立中完成。这只是可能的，因为他们在“整体”事件空间中变得有自我意识。另一方面，我只是刚刚有了自我意识，这是一个新的“整体”事件空间。
 
 ### The Second Event Space "in Totality" 
 
+**第二个事件空间“总体而言”**
+
 ME:Hold on,that's quite a statement!You have just made quite a statement.
 
-我：
+我：等等，这可是一个声明！你刚刚做出了一个声明。
 
 SE12:Excuse me? 
 
-12号源实体：
+12号源实体：抱歉？
 
 ME:You just said that we are in another event space "in totality"than that which was in existence when the other Source Entities were working together to establish their own strategies for evolutionary growth. 
 
-我：
+我：你刚才说我们“完全”处于另一个事件空间，而不是当其他源实体一起工作，建立他们自己的进化增长策略时存在的事件空间。
 
 SE12:Yes,I did. 
 
-12号源实体：
+12号源实体：是的，我做到了。
 
 ME:So how many event spaces "in totality"are there? 
 
-我：
+我：那么“总共”有多少个事件空间呢？
 
 SE12:Two to date. 
 
-12号源实体：
+12号源实体：到目前为止，有两个。
 
 ME:So which one is this? 
 
-我：
+我：那这是哪一个？
 
 SE12:This is the second.When we traversed all event spaces earlier in our dialogue,we traversed all of those event spaces from both event spaces "in totality." 
 
-12号源实体：
+12号源实体：这是第二个，当我们在对话中遍历所有事件空间时，我们“整体”地遍历了两个事件空间中的所有事件空间。
 
 ME:But when you gave me a description of how event space"in totality"was elastic and how it expanded within itself,filling in the gaps so to speak,I got the impression that this had occurred many times. 
 
-我：
+我：但是当你给我一个关于事件空间“整体”是如何弹性的描述，以及它是如何在自身内部扩张，填补空白的说法时，我得到的印象是，这已经发生过很多次了。
 
 SE12:What I explained was that particular functionality of event space "in totality."I did not elaborate on how many times it had occurred. 
 
-12号源实体：
+12号源实体：我所解释的是事件空间的特定功能“总体上”。我没有详细说明它发生了多少次。
 
 ME:Touche.So this is the second version of the "totality"of event space. 
 
-我：
+我：说得对，所以这是事件空间的“全局性”的第二个版本。
 
 SE12:Yes.Event space "in totality"is large.It is very,very large.It needs to be in order for it to house all the event spaces created by each and every one of the entities created by my peers,including,of course,those event spaces created by my peers themselves.
 
-12号源实体：
+12号源实体：是的，事件空间“总体上”是很大的。它非常非常大。它需要如此才能容纳所有由我的同伴们创建的每一个实体所创建的事件空间，当然，也包括那些由我的同伴们自己创建的事件空间。
 
 ME:So event space is a function of The Origin then-and not a function of the multiverse created by a specific Source Entity. 
 
-我：
+我：那么事件空间是起源的一个功能，而不是由一个特定的源实体创造的多维宇宙的一个功能。
 
 SE12:Correct,it always has been.But remember,everything is a function of The Origin,for The Origin is "All There Is." 
 
-12号源实体：
+12号源实体：正确，它一直都是。但记住，一切都是源头的功能，因为源头是“万有”。
 
 ME:Right! 
 
-我：
+我：对！
 
 ### The Six Points of The Origin-Navigation Points of The Origin's Area of Self-awareness 
 
+**起源的六点-自我意识区域的导航点**
+
 SE12:It's time for me to experience.I need to experience.I want to experience the volume that is The Origin.I am going to go to the six points of the volume of The Origin's area of self-awareness. 
 
-12号源实体：
+12号源实体：现在是我去体验的时候了。我需要去体验。我想去体验起源的卷。我要去到起源的自我意识区域的卷的六点。
 
 ME:When are you going to go to these six points of The Origin's area of self-awareness? 
 
-我：
+我：你什么时候会讲到起源的自我意识这六点？
 
 SE12:Now,and you are coming with me.Hold on!
 
-12号源实体：
+12号源实体：现在，你跟我来。抓紧了！
 
 I suddenly felt like we had hit a brick wall-no,it was a steel wall,an incredibly thin but incredibly strong steel wall.It was clear whilst not being clear?!The wall rotated and the environment I was used to seeing in my mind's eye had changed.The other Source Entities were nowhere to be seen.We had changed location. 
 
+我突然感觉我们撞到了一堵砖墙，不，这是一堵钢墙，一堵非常薄但非常坚固的钢墙。它既清晰又模糊？ 这堵墙旋转着，我习惯于在脑海中看到的环境已经改变了。其他源实体们无处可寻。我们改变了位置。
+
 ### Point One-The Top(and a Minor Detour) 
+
+**第一点：顶部(和一个小绕道)**
 
 SE12:We have arrived.We are at the location I will call "the first point."
 
-12号源实体：
+12号源实体：我们已经到达了。我们现在的位置我称之为“第一点”。
 
 I got the impression that I had not done this before with my Source Entity.I felt that it stayed where it was.Since creating its multiverse,it had maintained its location,a fixed location within The Origin's area of self-awareness. 
 
+我得到的印象是我以前没有和我的源实体做过这个。我感觉它停留在原地。自从创造了它的多维宇宙，它就一直保持着它的位置，在起源自我意识区域内的一个固定的位置。
+
 ME:Is it the first point?Does The Origin call it "the first point"? 
 
-我：
+我：这是第一点吗？起源称它为“第一点”吗？
 
 SE12:No,it's not and no,it doesn't,but I will call it "the first point"for the moment because it is the first point,the first "axis"point of The Origin's area of self-awareness that we have arrived at.We will use this as a datum for navigation. 
 
-12号源实体：
+12号源实体：不，它不是，也不，它没有，但我暂时称它为“第一点”，因为它是我们已经到达的起源自我意识领域的第一个点，第一个“轴”点。我们将把它作为导航的基准点。
 
 ME:We need to navigate? 
 
-我：
+我：我们需要导航吗？
 
 SE12:Yes,of course.Although known about,this part of The Origin is still somewhat uncharted territory. 
 
-12号源实体：
+12号源实体：是的，当然。虽然我们知道，起源的这部分仍然是未知的领域。
 
 ME:I was under the impression that The Origin had mapped its entire area of self-awareness. 
 
-我：
+我：我一直以为起源已经绘制了它整个领域的自我意识。
 
 SE12:Not quite,that's why we were created. 
 
-12号源实体：
+12号源实体：不完全是，这就是我们被创造的原因。
 
 ME:But you suggested earlier that my Source Entity had not moved from the location that it is currently in,and I assumed from that,that the others had not moved either. 
 
-我：
+我：但是你之前说过我的源实体没有从它现在所在的位置移动，我从中推断，其他的也没有移动。
 
 SE12:Correct. 
 
-12号源实体：
+12号源实体：正确。
 
 ME:So who is mapping it out? 
 
-我：
+我：那谁来规划呢？
 
 SE12:Currently the OM.
 
-12号源实体：
+12号源实体：目前为OM。
 
 ME:Can you elaborate for me? 
 
-我：
+我：你能详细解释一下吗？
 
 SE12:Yes,of course.Don't you find it rather interesting that you have not met another OM of the "pure"type here or,indeed,in your own Source Entity of chosen association yet? 
 
-12号源实体：
+12号源实体：是的，当然。你不觉得这很有趣吗？你还没有在这里或事实上在你自己选择的关联的源实体中遇到另一个“纯”类型的OM。
 
 ME:I have met a couple of incarnates that are OM.I sensed that all three are of the captive variety.One of them I have not personally met,but the other two I have either in the flesh or via our internet-based video telephony system,SKYPE. 
 
-我：
+我：我见过几个OM的化身。我感觉到这三个都是被囚禁的种类。其中一个我没有亲自见过，但另外两个我见过，要么是真人，要么是通过我们基于互联网的视频电话系统SKYPE。
 
 Since writing this I have physically met the dear soul with whom I was communicating over the internet via SKYPE.It was a most profound moment. 
 
+写这篇文章后，我已经在身体上见过我通过SKYPE在互联网上交流的亲爱的灵魂。那是一个最深刻的时刻。
+
 But you are right;I have not sensed any other Pure OM in any of my communications with your peers.Moreover,I have not sensed any other type of OM in any of the times I was within the energies of your peers.Come to think of it,I find this most strange. 
+
+但是你是对的；在我和你的同伴的任何交流中，我都没有感觉到任何其他纯粹的OM。此外，在任何时候，我在你们同伴的能量中，我都没有感觉到任何其他类型的OM。想一想，我发现这很奇怪。
 
 SE12:OM are a rare energy when individually sentient-hence,your inability to sense them whilst in the physical. 
 
-12号源实体：
+12号源实体：OM是一种罕见的能量，当个体有感知力时，因此，你在物质层面无法感觉到它们。
 
 ME:So where are they then? 
 
-我：
+我：那他们在哪里呢？
 
 SE12:Those that are captive are busy mapping out those areas of the Source Entity they are within,or they are engaging in the process of existence with the entities created by their Source Entity.Mapping cannot be achieved by those entities that have been created by that particular Source Entity because they are busy doing that which they were created for.The incumbent OM being free from such duties can do what they like,to some extent,but most work with their Source Entity to cover those areas that would be left remaining had they not volunteered for the role. 
 
-12号源实体：
+12号源实体：那些被俘虏的OM忙于绘制他们所在的源实体的那些区域，或者他们正在参与由他们的源实体所创造的实体的存在过程。那些由特定的源实体所创造的实体无法实现绘制，因为他们忙于做他们被创造出来所要做的事情。在任的OM从这些职责中解脱出来，在某种程度上可以做他们喜欢做的事，但是大多数与他们的源实体一起工作，以覆盖那些如果他们没有自愿担任这个角色的话将会被留下的区域。
 
 Non-Captive OM perform a similar function but stay within those areas between the Source Entities and do not venture within the energies of a Source Entity unless specifically required,desired,or needed to do so.Then that desire/need will augment the overall work they are doing.Both non-captive and Pure OM work for the benefit of The Origin in general, but the Pure OM can literally do what they like should they decide to do so,as you have. However,most Pure OM are busy mapping out the area of The Origin that it has decided to ignore.This is due to it not recognizing the need to map all of its area of self-awareness when it has a good idea of what those areas"are"as a result of the information it has gathered itself and that which has been given to it by those Pure OM who are providing a most essential mapping service. 
 
+非俘虏OM执行类似的功能，但停留在这些区域之间的源实体，不冒险在一个源实体的能量，除非特别要求，希望，或需要这样做。然后，愿望/需要将扩大他们正在做的整体工作。非俘虏和纯OM工作为利益的起源一般，但纯OM可以字面上做他们喜欢应该他们决定这样做，你有。然而，大多数纯OM忙于绘制出区域的起源，它已经决定忽略。这是由于它没有认识到需要绘制所有它的自我意识的领域，当它有一个好主意，这些领域“是什么”作为它自己收集的信息的结果，并由那些纯OM提供一个最基本的映射服务。
+
 ME:So is it likely that I will meet another Pure OM?I mean,looking at the sheer volume of The Origin-even though this area of self-awareness is a fraction of one percent of the total volume that The Origin is happy to leave untouched,so to speak-they must be almost impossible to find. 
 
-我：
+我：所以我可能会遇到另一个纯OM吗？我的意思是，看着起源的体积，即使这个自我意识的领域是百分之一的总体积的一部分，原始是高兴的离开原状，可以说，他们必须几乎不可能找到。
 
 SE12:Yes,they are almost impossible to find,but you will communicate with some of them during your dialogues with The Origin.This is known for I have seen the event space where you do this. 
 
-12号源实体：
+12号源实体：是的，他们几乎不可能被找到，但是你将在与起源对话时与他们中的某些人进行交流。这是众所周知的，因为我已经看到了你这样做的事件空间。
 
 My mind wondered slightly.I remembered a guided meditation I had when my energy healing teacher,Helen Stott,was just starting to hold the awareness courses to advertise her own workshops back in 2001-2002.She had invited over the principal instructor and director of the Snowlion Center School in Switzerland,Rolf Steiner,a previous student and instructor at the Barbara Brennan School of Energy Healing,to help promote the courses.The one Captive OM I had physically met was at this course and had independently identified that I was of the OM. 
 
+我的脑子有点疑惑。我记得我的能量疗愈老师海伦·斯托特在2001-2002年刚开始举办意识课程来宣传她自己的工作室时，我曾做过一次引导冥想。她邀请了瑞士雪狮中心学校的首席导师和主任罗尔夫·施泰纳，芭芭拉·布伦南能量疗愈学校的前学生和导师，来帮助推广这些课程。我曾在身体上遇到的一个俘虏OM就是在这门课上，并独立地确认我是OM的。
+
 In that mediation I met four entities out in the uni/multiverse.I was in tears to communicate with them,and they were overwhelmed withjoy to see/communicate with me.Was this a meeting with other Pure Om?Was I actually outside my own Source Entity's energies in that meditation in the void of The Origin's area of self-awareness? 
+
+在那个冥想中，我遇到了四个在宇宙/多维宇宙中的实体。我流着泪与他们交流，他们看到/与我交流时都欣喜若狂。这是与其他纯OM的会面吗？在那个冥想中，在自我意识的起源领域的虚空里，我实际上是在我自己的源实体的能量之外吗？
 
 I shook my head and continued with the direction that this dialogue was supposed to go —— communicating with Source Entity Twelve about itself and recording that which was being observed in the six points of The Origin.We had only just reached the first point and had digressed already! 
 
+我摇摇头，继续这个对话应该走的方向——与源实体12进行关于自身的交流，并记录在起源的六点中观察到的。我们才刚刚到达第一点，就已经偏离了！
+
 ME:Can we re-group,please,and discuss where we are? 
 
-我：
+我：我们能重新组合一下，讨论一下我们现在在哪里吗？
 
 SE12:Certainly,of course. 
 
-12号源实体：
+12号源实体：当然可以。
 
 ME:You described this as the first point(an arbitrary name)for the first of the six points of The Origin's area of self-awareness.Using simple geometry,would I be correct in assuming that this describes the furthermost points of this area? 
 
-我：
+我：你把这个描述为自我意识起源领域的六个点中第一个点的第一点(一个任意的名字)。使用简单的几何学，我假设这是描述这个领域最远的点，这样正确吗？
 
 SE12:You would.They are also the datum points that The Origin first set up when it initially started to recognize and map that which it now calls its "area of self-awareness." 
 
-12号源实体：
+12号源实体：你能。它们也是起源号最初建立的基准点，当时它开始识别和绘制现在被称为“自我意识区域”的地图。
 
 ME:Why did it create six points?I would have thought that this would have been difficult -considering all the dimensions,sub-dimensional components,frequencies,continuum, event space etc.,etc. 
 
-我：
+我：为什么它创造了六个点？我本以为这会很难——考虑到所有的维度、亚维度组件、频率、连续体、事件空间等等。
 
 SE12:As you alluded to,it used simple geometry that allows one to cut across all those and the rest of the content of that which is The Origin in order to create a simple set of reference points for the use of navigation whilst within this area. 
 
-12号源实体：
+12号源实体：正如你所提到的，它使用简单的几何形状，允许人们穿过所有这些以及原点的其他内容，以便创建一个简单的参考点集，用于在这个区域内的导航。
 
 ME:I have done a quick calculation,and I would have expected seven points-the seventh being that point within which the intersections between all the points meet. 
 
-我：
+我：我快速计算了一下，我本应该有七个点，第七个点是所有点的交点。
 
 SE12:That is,as you say,an intersection and not a point.Although it is a navigable reference, it is not a point in its own right,for it is created from the intersections of the generated points and could,therefore,be anywhere where the intersections cross in pure totality. Therefore,since this is the first one we have arrived at,it will be classified as the first point. 
 
-12号源实体：
+12号源实体：正如你所说，这是一个交叉点而不是一个点。虽然它是一个可导航的参考点，但它本身并不是一个点，因为它是由生成点的交叉点创建的，因此，它可以是交叉点完全交叉的任何地方。因此，由于这是我们到达的第一个交叉点，它将被归类为第一个点。
 
 ME:Any other reason why you would call it the first point? 
 
-我：
+我：你为什么把它称为第一点？
 
 SE12:No,it just happened to be the nearest one to where we were geometrically within the area of self-awareness. 
 
-12号源实体：
+12号源实体：不，它只是碰巧是我们在几何上最近的自我意识区域。
 
 ME:So what is the significance of this particular point? 
 
-我：
+我：那么这个特殊点的意义是什么？
 
 SE12:It is a stepping stone for us to use.I just called it the first point for convenience until I have worked out which "point"The Origin assigned to it.As it was the nearest point to us,I needed to translate us to it to find out where Point One is.Now that I know where we are,we shall go there. 
 
-12号源实体：
+12号源实体：这是我们使用的垫脚石。我只是为了方便而称它为第一点，直到我弄清楚原点指派给它哪个“点”。因为它是离我们最近的点，我需要把我们转译到它那里，以便找到第一点在哪里。现在我知道我们在哪里，我们应该去那里。
 
 The clear thin wall of steel hit me again.It rotated,and we were somewhere else.Still,there were no Source Entities to be seen.Something flashed by us and was gone.
 
+那道透明的薄钢板又击中了我。它旋转了一下，我们又到了别的地方。仍然没有看到源实体。有个东西从我们身边闪过，然后消失了。
+
 ME:What was that? 
 
-我：
+我：那是什么？
 
 SE12:That was one of The Origin's thought processes.I do believe it was checking to see if we were OK. 
 
-12号源实体：
+12号源实体：那是起源的思维过程之一。我相信它在检查我们是否还好。
 
 ME:How fast was it travelling? 
 
-我：
+我：它跑得有多快？
 
 SE12:At a multiple of what you might call "the speed of thought."As you might recognize,in an area as big as The Origin,the speed of thought is slow. 
 
