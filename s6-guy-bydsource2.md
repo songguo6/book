@@ -9896,303 +9896,323 @@ ME:How fast was it travelling?
 
 SE12:At a multiple of what you might call "the speed of thought."As you might recognize,in an area as big as The Origin,the speed of thought is slow. 
 
-12号源实体：
+12号源实体：是你们所谓的“思想速度”的数倍。 你们可能已经意识到，在原点这么大的地方，思想的速度是很慢的。
 
 ME:So what speed is efficient then? 
 
-我：
+我：那么什么速度才是有效的呢？
 
 SE12:The only way I can describe it to you is as a multiple of the momentary point of intention to think.Think of it as that point of intention that is a necessary requirement for creating an intention-based thought-as opposed to a circumstantially-based thought. 
 
-12号源实体：
+12号源实体：我能向你描述它的唯一方式是，它是思考的瞬间意图点的倍数。把它想成是创造基于意图的思想的必要条件，而不是基于情境的思想。
 
 ME:Loosely then,intention is faster than thought. 
 
-我：
+我：那么，大致来说，意图比思想更快。
 
 SE12:Of course,and reactive intention-a higher function of intention-is faster than intention and is,therefore,classifiable as a multiple of the momentary point of intention to think. 
 
-12号源实体：
+12号源实体：当然，反应性意图--意图的高级功能--比意图更快，因此，可归类为思考意图瞬间点的倍数。
 
 ME:OoKaay!I think I have it.Meanwhile,back at Point One,where exactly are we? 
 
-我：
+我：好的！我想我明白了。同时，回到起点，我们到底在哪儿？
 
 SE12:Simplistically put,[we are]at the intersection of the highest point-the highest value, if you like-of all dimensions,sub-dimensional components,frequency,continuum and event space energies.Plus,a few other major and minor energies that are recognized as those that construct the overall energy base of The Origin.
 
-12号源实体：
+12号源实体：简单地说，我们处在最高点的交叉点上，如果你愿意的话，最高值，所有维度，亚维度组件，频率，连续体和事件空间能量。另外，一些其他主要和次要的能量被认为是构建起源整体能量基础的能量。
 
 ME:I will call this "the top"then;for that is what it seems to be from the description you have just given me. 
 
-我：
+我：那么我将称之为“顶部”；因为从你刚才给我的描述来看，它似乎就是顶部。
 
 SE12:Let's call it "the top"then. 
 
-12号源实体：
+12号源实体：那么我们就叫它“顶部”吧。
 
 ME:Apart from "the top"of all of the energies,dimensions,etc.,what else is here? 
 
-我：
+我：除了所有能量、维度等的“顶端”，这里还有什么？
 
 SE12:Everything that is here is at the very pinnacle of that which is representable by a specific energy or constructional element of The Origin.Should you be able to perceive it,everything here would be as close to perfection as can be achieved within The Origin's area of self-awareness.Everything is pure,everything is new,everything is unchanged,for nothing created by The Origin has,to date,made it this far,except for the odd Pure OM and us. 
 
-12号源实体：
+12号源实体：这里的一切都处于顶峰，代表着源头的一个特定能量或结构元素。如果你能感知到它，这里的一切都将接近完美，在源头自我意识的范围内可以实现。一切都是纯粹的，一切都是新的，一切都是不变的，因为到目前为止，除了奇怪的纯粹OM和我们，源头创造的任何东西都没有做到这一点。
 
 ME:So why are we here? 
 
-我：
+我：那我们为什么在这里？
 
 SE12:Because I wanted to go here. 
 
-12号源实体：
+12号源实体：因为我想来这里。
 
 ME:But aren't we contaminating this area of perfection? 
 
-我：
+我：但是我们不是在污染这个完美的领域吗？
 
 SE12:No,for to enter into perfection,one has to be perfect. 
 
-12号源实体：
+12号源实体：不，要进入完美，一个人必须是完美的。
 
 ME:Now I am confused because clearly I am not perfect,except maybe in the eyes of The Origin,for all its creations are perfect,no matter what they end up being.Being in existence for some time has led to certain experiences that make me imperfect although more experienced and,therefore,knowledgeable.But that is the trade-off. 
 
-我：
+我：现在我很困惑，因为很明显我不完美，除了在起源的眼中，因为它的所有创造物都是完美的，无论他们最终是什么。存在一段时间后，会带来一些经历，使我不完美，尽管更有经验，因此，更有见识。但这是代价。
 
 SE12:No,I agree you are not perfect in that sense,but I am.I have decided that I am perfect.
 
-12号源实体：
+12号源实体：不，我承认你在某种意义上并不完美，但我是。我已经决定我是完美的。
 
 ME:I need you to elaborate on that one,please. 
 
-我：
+我：我需要你详细说明一下。
 
 I thought I knew the answer to this question though.Source Entity Twelve has not yet matured;it has not yet created anything,and as such was untainted with the debris of failure or limited and varying levels of success,resulting from the process of creation of any sort.Its thought process was unconstrained in this manner.I let Source Entity Twelve answer. 
 
+我认为我知道这个问题的答案，尽管。源实体12尚未成熟；它还没有创造任何东西，因此没有被失败的碎片或有限的和不同程度的成功所污染，这些都是由任何形式的创造过程所产生的。它的思想过程以这种方式不受约束。我让源实体12回答。
+
 SE12:I decided that I was pure and as a result,all that is me entered this space with me.You are within me and,therefore,are me. 
 
-12号源实体：
+12号源实体：我决定我是纯粹的，因此，所有是我的都与我进入这个空间。你在我里面，因此，你就是我。
 
 Not quite what I had thought,but SE12's thoughts about it doing what it wanted to do were consistent with the unconstrained thought process idea.I continued the dialogue. 
 
+不是我所想的那样，但是SE12关于它做它想做的事的想法与无约束思维过程的思想是一致的。我继续对话。
+
 ME:You created a shield around me then,one that makes me hidden from the energies of this area. 
 
-我：
+我：那么你在我周围创造了一个屏障，一个让我隐藏在这个区域的能量。
 
 SE12:No,to enter into communication with me,you needed to enter into the outer layer of my energies and because of this,you were not exposed,so to speak.You were "unexposed" and,therefore,allowed to enter. 
 
-12号源实体：
+12号源实体：不，要进入与我的交流，你需要进入我的能量外层，因此，可以说，你没有暴露。你“未暴露”，因此，允许进入。
 
 ME:Thank you for that explanation.If I would not have been able to enter into this part of The Origin,can the Pure OM enter? 
 
-我：
+我：谢谢你的解释，如果我不能进入起源的这个部分，纯净的OM能进入吗？
 
 SE12:Yes,but only if they have not been part of the creativity process.Most OM do not take part in that part of the creativity process because it results in their becoming experienced in some way.As a result of becoming experienced,their thoughts are guided in an invisible way by that which they have achieved through the creativity process.Most observe,guide and record. 
 
-12号源实体：
+12号源实体：是的，但只有当他们没有参与创造过程时才可以。大多数OM不参与创造过程的那个部分，因为它会导致他们以某种方式变得有经验。由于变得有经验，他们的思想被他们通过创造过程所获得的东西以一种无形的方式引导。大多数OM只是观察、引导和记录。
 
 ME:I get the impression that there is a higher form of karma involved here-one where association with anything that is a function of creativity results in some level of inhibition or restraint of thought because exposure of the creating entity to the varying levels of success are limited by the result of the creative function initiated. 
 
-我：
+我：我得到的印象是这里涉及到一种更高形式的业力——与任何具有创造性功能的联系都会导致某种程度的抑制或思想的约束，因为创造实体在不同程度的成功中所获得的曝光受到了创造性功能启动结果的限制。
 
 SE12:Yes,and I have not yet experienced such a level of exposure.You have,but as you say, there is a trade-off.You become impure,but you gain evolutionary content-that trade-off is more than acceptable to The Origin. 
 
-12号源实体：
+12号源实体：是的，我还没有经历过这样的暴露。你有，但正如你所说，有一个权衡。你变得不纯洁，但你获得进化的内容-这个权衡对于起源来说是可以接受的。
 
 ME:Is there anything else we can discuss about this part of The Origin? 
 
-我：
+我：关于起源的这一部分，我们还有什么可以讨论的吗？
 
 SE12:Only to reiterate that where we are now is unpopulated.It has had a level of minor mapping by The Origin and one or two Pure OM,just enough to place a position on this datum we call "Point One"but not enough to call it "mapped"in any way,shape,or form in reality. 
 
-12号源实体：
+12号源实体：只想重申一下，我们现在所处的地方是无人居住的。它有来自起源和一两个纯粹OM的轻微映射，仅仅足以在这个基准点上放置一个位置，我们称之为“点一”，但不足以以任何方式、形状或形式称之为“映射”。
 
 ME:So if this is the top of the elements that make up the area of self-awareness of The Origin,can I assume that the diametrically opposite end to point one is the lower end of the elements?That would be the logical thought process to use. 
 
-我：
+我：所以如果这是组成自我意识的起源领域的顶部元素，我能假设与点1截然相反的末端是元素的下端吗？那将是使用的逻辑思维过程。
 
 SE12:No.Things just don't happen that way in The Origin.Let's go there right now so that you can experience the difference. 
 
-12号源实体：
+12号源实体：不，在起源事情不是那样发生的。我们现在就去那里，这样你就能体验到不同之处。
 
 ME:What is it like?
 
-我：
+我：它是什么样子的？
 
 ### Point Two-The Current Ultimate Loci 
 
+**第二点：当前的终极轨迹**
+ 
 I didn't get chance to hear the response.The thin clear sheet of metal hit me again and rotated. Just as I thought we were at Point Two,the sheet of metal hit me again and rotated in a different direction.That took me by surprise.And as I was just about to gather my thoughts,Source Entity Twelve announced our arrival. 
+
+我没有机会听到回应。那薄薄的透明金属片再次击中我并旋转。正当我认为我们到了第二点时，那金属片再次击中我并朝着不同的方向旋转。这让我吃惊。当我正要整理我的思绪时，源实体12宣布我们已经到达。
 
 SE12:We have arrived.This is Point Two of The Origin's area of self-awareness.What do you perceive? 
 
-12号源实体：
+12号源实体：我们已经到达了。这是起源自我意识区域的第二点。你感觉到了什么？
 
 ME:Before I answer that question,I want to ask another about our journey. 
 
-我：
+我：在我回答这个问题之前，我想问另一个关于我们旅行的问题。
 
 SE12:Go ahead. 
 
-12号源实体：
+12号源实体：请讲。
 
 ME:What was the reason for the second hit with the "steel wall"?It felt like we had to stop and change direction. 
 
-我：
+我：第二次撞上“钢墙”的原因是什么？感觉我们必须停下来改变方向。
 
 SE12:We did.We needed to change direction at the correct juncture to allow us to move on to the correct point.In essence,we moved through the intersection of three points. 
 
-12号源实体：
+12号源实体：我们做到了。我们需要在正确的时刻改变方向，以便我们能够移动到正确的点。本质上，我们移动通过三个点的交叉点。
 
-ME:Would that not have been six points?Sorry,but I have a model in my mind that places the points diametrically opposite. 
+ME:Would that not have been six points? Sorry,but I have a model in my mind that places the points diametrically opposite. 
 
-我：
+我：那不是6个点吗？抱歉，但我脑海中有一个模型，把这些点完全对立起来。
 
 SE12:No,it's three points.Although there are points that intersect each other,the lines of intersection are not what you would call straight,even though simplistically they appear to be straight. 
 
-12号源实体：
+12号源实体：不，是3个点。虽然有3个点相交，但这些交线并不是直线，尽管从简单的角度看，它们是直线。
 
 ME:Can you expand on this a little?I can imagine the eyes of a few of my readers rolling back in their sockets on this one. 
 
-我：
+我：你能再详细说说吗？我能想象到我的一些读者看到这个会瞪大眼睛。
 
 SE12:Simplistically speaking,remember that we are moving up and down various energetic levels and through spatial levels of a different location.Because of this,the intersections between the points are not in the same position in totality,but there are a few that as a result of their positional location,dimensionally,sub-dimensionally,frequentially,and continuumly,eventually intersect each other.In the instance of our recent traverse,we passed through the intersection of Points One,Four and Two.We were en route to Point Two but needed to navigate via the juncture of point Four and One.Using your idea of everything being diametrically opposite,the straight through run would have placed you at Point Four -hence,the change of direction you felt at the juncture of intersection between Points,One, Two and Four. 
 
-12号源实体：
+12号源实体：简而言之，记住我们是在不同的能量层上上下下移动，并穿过不同位置的空间层。因此，点之间的交叉点在整体上并不在同一位置，但由于它们的位置位置，在维度上，次维度上，频率上，连续地，最终会相互交叉。在我们最近的穿越中，我们穿过了1号点、4号点和2号点的交叉点。我们正在前往2号点的路上，但需要通过4号点和1号点的交叉点。使用你对一切事物截然相反的想法，直线穿过会把你带到4号点，因此，在1号点、2号点和4号点的交叉点处，你感觉到方向的改变。
 
 Getting back to my question to you about what you perceive-what do you perceive? 
 
+回到我问你的问题，关于你所感知的-你感知到了什么？
+
 ME:Well,it's sort of like nothing and everything.Perhaps it is my reduced ability to perceive whilst in the physical.I don't know,but what I am seeing is a great swirl of colors,all moving around,becoming and un-becoming.Am I in an area of lower dimension/frequency? 
 
-我：
+我：嗯，有点像什么都没有，但又什么都有。也许这是我在物质层上感知能力的降低。我不知道，但我看到的是色彩的巨大漩涡，四处移动，变幻。我在一个低维度/低频率的区域吗？
 
 SE12:No.Point Two is not diametrically opposite from the perspective of dimension and frequency.That "position"occurred at the last interchange.No,we are at the extreme end of the continuum barrier-what you might call the "current ultimate loci of continuum within The Origin's area of self-awareness."Here,we are able to experience all of The Origin's area of self-awareness from the perspective of the range of energies associated with the formation of continuum.
 
-12号源实体：
+12号源实体：不，第二点在维度和频率上并不是完全相反的，那个“位置”发生在最后的交换中，不，我们处在连续体屏障的极端端点，你们可以称之为“在起源自我意识区域内的连续体的当前终极轨迹”，在这里，我们能够从与连续体形成相关的能量范围的角度来体验所有起源自我意识区域。
 
 ME:In that case I would have expected to be in the visual range of Source Entity Eight.Source Entity Eight is a continuum of continuum. 
 
-我：
+我：在那种情况下，我希望在源实体8的视野范围内。源实体8是一个连续体的连续体。
 
 SE12:But as you know,the loci of a continuum within The Origin is not a necessary function of distance,for most continuum are affected by their evolutionary content,specifically within Source Entity Eight. 
 
-12号源实体：
+12号源实体：但正如你所知，在起源中连续体的轨迹并不是距离的必要函数，因为大多数连续体都受到它们进化内容的影响，特别是在源实体8中。
 
 ME:Are you suggesting that the points-although diametrically opposite in simplistic application-are not diametrically opposite in metric terms?For instance,they are not the top and bottom of a specific frequency? 
 
-我：
+我：你的意思是，虽然在简单的应用中，这两个点是截然相反的，但在度规中，它们并不是截然相反的？例如，它们并不是特定频率的顶部和底部？
 
 SE12:That is exactly what I am saying.Although I allowed you to use the word "top" when we were at Point One,I did not mean the top of the dimensions,sub-dimensional components and frequencies etc.,etc.I meant it was the start point,and from there we can move down to the next point of reference,which is Point Two,the current ultimate "loci of continuum." 
 
-12号源实体：
+12号源实体：这正是我所说的。虽然我允许你在我们处于第一点时使用“顶点”这个词，但我的意思并不是维度、亚维度成分和频率等等的顶点。我的意思是它是起点，从那里我们可以向下移动到下一个参考点，即第二点，当前终极的“连续轨迹”。
 
 ME:Why is it the "current"ultimate loci of the continuum within The Origin's area of self- awareness? 
 
-我：
+我：为什么它是起源自我意识领域中连续体的“当前”终极轨迹？
 
 SE12:Because it is.I will explain,and you will understand.When The Origin's area of self- awareness expands,all of these points will change location,and as such so will the ultimate loci of continuum.That's why it is called the "current ultimate loci"of continuum and not just "the ultimate loci." 
 
-12号源实体：
+12号源实体：因为它就是。我会解释，你会明白的。当起源的自我意识范围扩大时，所有这些点的位置都会改变，连续体的终极轨迹也会如此。这就是为什么它被称为连续体的“当前终极轨迹”而不仅仅是“终极轨迹”。
 
 ME:Got it.So that means that the images I perceived,the swirling colors,were relative to the current ultimate loci only. 
 
-我：
+我：明白了，所以这意味着我所感知的图像，旋转的颜色，只是相对于当前的最终轨迹。
 
 SE12:Yes. 
 
-12号源实体：
+12号源实体：是的。
 
 ME:Then why didn't I perceive the energies surrounding the loci as cones,as I did with Source Entity Eight? 
 
-我：
+我：那为什么我没有把轨迹周围的能量看成圆锥体，就像我对待源实体8那样？
 
 SE12:Because the ultimate loci are non-descript from that perspective,it can only be considered as a start point and,as such,has no "form-based"continuum associated with it at that point in the loci.Simply because it IS the "ultimate"loci of all loci,it is Point Two. 
 
-12号源实体：
+12号源实体：因为从这个角度来看，终极轨迹是不可描述的，所以它只能被看作是一个起点，因此，在轨迹的那个点上，没有与之相关的“基于形式的”连续体。仅仅因为它是所有轨迹的“终极”轨迹，所以它是点二。
 
 ME:If that is the case,then what do all the swirling colors that I see around me represent? I guess that they are not what is happening.In actuality,they are just representations of that which I perceive but cannot translate into something I can recognize from my Earthly reservoir of experience. 
 
-我：
+我：如果是这样的话，那么我周围那些旋转的颜色代表什么？我猜它们不是正在发生的事情。事实上，它们只是我所感知的，但不能转化成我能从地球经验中识别的东西的代表。
 
 SE12:Correct but incorrect,for what you perceive is in more detail than you recognize intellectually.Let me explain.The swirling colors are the representations of the loci of all the continuum within The Origin meeting at the same point,the ultimate loci,the loci of all loci,Point Two.Their myriad signatures grouping together create a formless,structureless foundation that allows them to exist within The Origin concurrently,remotely and locally without being cast adrift,so to speak.In this instance,"locally"can be considered the cluster of loci and the loci of the local loci you know as Source Entity Eight. 
 
-12号源实体：
+12号源实体：正确但不正确，因为你所感知的比你理智认识到的更详细。让我解释一下。旋转的颜色是所有连续体在起源中轨迹的代表，它们在同一点相遇，终极轨迹，所有轨迹的轨迹，点二。它们无数的特征组合在一起创造了一个无形的，无结构的基础，允许它们同时存在于起源中，远程和局部，而不会被抛弃。在这种情况下，“局部”可以被认为是轨迹的集群和局部轨迹的轨迹，你知道的源实体8。
 
 ME:So it represents the signature of myriad loci converging together as one. 
 
-我：
+我：所以它代表了无数基因座的特征，汇聚成一个。
 
 SE12:Now you have it.Now we can move on to Point Three.
 
-12号源实体：
+12号源实体：现在你明白了。现在我们可以继续第三点了。
 
 ### Point Three-The Epicenter of The Origin 
 
+**第三点-起源的中心**
+
 SE12:Hold on! 
 
-12号源实体：
+12号源实体：坚持住！
 
 I was caught out again.Source Entity Twelve translated us to Point Three before I knew what was happening.It clearly thought I was OK with this;however,as the effect of translation to another part of The Origin came into effect,the feeling of being hit by a thin,clear sheet of steel that rotated,hit me from a different angle,and I was left a bit confused as to what had happened and to "where"we/I were/was now located.I had not experienced a second translation event,so I assumed we did not need to go through the juncture of two or more lines of intersection.I was just considering this when Source Entity Twelve energetically nudged me by awakening me from this thought process. 
 
+我又被抓了现形。在我知道发生了什么之前，源实体12把我们转换到了点3。它显然认为我对此没有意见；然而，当转换到起源的另一个部分开始生效时，被一层薄而透明的旋转钢板击中的感觉从另一个角度击中了我，我对发生了什么以及我们/我现在所处的位置有点困惑。我没有经历过第二次转换事件，所以我认为我们不需要通过两条或更多线交叉的交界处。我正在考虑这个问题时，源实体12用力地把我从这个思考过程中唤醒。
+
 SE12:Ahhh,there you are.Are you paying attention?You need to pay attention.You slipped internally across my energies during the last movement of our travel to Point Three.I had to look deeper within myself to find you. 
 
-12号源实体：
+12号源实体：啊，你在这里。你在注意吗？你需要注意。在我们旅行到点3的最后一次移动中，你从我的能量中溜走了。我必须深入自己的内心来找到你。
 
 There was the petulant schoolboy tone to SE12's "voice"again.It was clearly in a hurry.I actually felt like I had moved location as well.I was like a small pebble that was initially suspended at the top of the water in a goldfish bowl that was suddenly let go and allowed to drop to the bottom. 
 
+SE12的“声音”又带上了任性的小学生腔调。很明显，他很匆忙。我感觉自己好像也换了地方。我就像一个小鹅卵石，刚开始悬浮在金鱼缸的水面上，突然被放开，掉到了水底。
+
 SE12:Good,we can continue now. 
 
-12号源实体：
+12号源实体：好的，我们现在可以继续了。
 
 ME:Yes,please do. 
 
-我：
+我：好的，请讲。
 
 SE12:We are now at Point Three,which is the diametric center of The Origin's area of self-awareness. 
 
-12号源实体：
+12号源实体：我们现在在第三点，这是起源自我意识区域的直径中心。
 
 ME:At last something I can hang my hat on.Point Three then is the center from a volumetric perspective,or is it from a geometric perspective-that is,if I consider that The Origin's area of self-awareness is or can be considered as spherical. 
 
-我：
+我：终于有我可以信赖的东西了。那么从体积的角度来看，第三点就是中心，或者从几何的角度来看，如果我认为起源的自我意识区域是或可以被视为球形的话。
 
 SE12:No,The Origin's area of self-awareness is not and cannot be considered as spherical in actuality,for it is not.It is amorphic in shape if you must put a shape to it.If it helps,you can consider it as spherical from the perspective of working with its structure only. 
 
-12号源实体：
+12号源实体：不，起源的自我意识领域实际上不是，也不能被认为是球形的，因为它不是。如果你一定要给它一个形状，它在形状上是无定形的。如果有帮助，你可以从其结构的角度考虑它是否是球形的。
 
 ME:OK,let me get this straight.Point Three is at the center of The Origin's area of self- awareness,but the center is not the diametric center of The Origin.Neither is it the point of intersection of the six points of The Origin. 
 
-我：
+我：好吧，让我说清楚。第三点在起源自我意识区域的中心，但这个中心不是起源的直径中心。也不是起源六个点的交点。
 
 SE12:Correct. 
 
-12号源实体：
+12号源实体：正确。
 
 ME:Then what is it?It seems to me that all of these points are a conundrum so far. 
 
-我：
+我：那是什么？对我来说，到目前为止，所有这些点都是一个谜。
 
 SE12:From your point of view it would [seem that way],but the center of The Origin's area of self-awareness is not the point of intersection.It is only the center,based upon the volumetric value of its zoneal,dimensional,frequential,energetic,and spatial condition at this juncture in its awareness and evolutionary content. 
 
-12号源实体：
+12号源实体：从你的观点来看，它似乎是那样的，但是起源自我意识区域的中心并不是交叉点。它只是中心，基于它在这个意识和进化内容的交汇点的区域性、维度、频率、能量和空间条件的体积值。
 
 ME:I can call this the "middle"then,taking into account of the description of the function of Point One.
 
-我：
+我：考虑到对点一的功能的描述，我可以称之为“中间”。
 
 SE12:I would prefer it if you called it the "center,"for that is what it is in reality.One thing you need to know though is that Point Three is not a static condition.Its positional function is similar to that described in Point Two. 
 
-12号源实体：
+12号源实体：我更喜欢你称它为“中心”，因为它在现实中就是中心。但你需要知道的是，第三点不是一个静态条件。它的位置功能与第二点中描述的相似。
 
 ME:You mean it moves as a result of The Origin's understanding of "self" increasing. 
 
-我：
+我：你的意思是它移动是因为起源理解了“自我”的增长。
 
 SE12:Yes.You see,The Origin's area of self-awareness has two functions:that volume/area where the area of self-awareness is totally mapped out and understood and that volume/ area that is known but not mapped out or is only minimally mapped out. 
 
-12号源实体：
+12号源实体：是的，你看，原点的自我意识区域有两个功能：自我意识区域完全映射和理解的体积/区域，以及已知但未映射或仅最小程度映射的体积/区域。
 
 Consider it like your own understanding of how much you know about the planet you exist upon currently. 
 
+把它想象成你自己对你目前所生存的星球的了解程度。
+
 You have mapped out your own backyard;you know where everything exists and where everything lives.Apart from that is the minute detail of the insects and microbe-based life that also exists in the same space,such as in the grass,in the earth,in the cracks between the bricks,etc.You also know the locale within which your backyard exists,the roads,villages, shops,public transportation,etc.,etc.But the further you go away from the epicenter of your backyard,the less and less detail you know.Apart from that are the pockets of areas where you have spent more time than others.Now expand this process outside the city of your backyard.You find that your personal knowledge is reduced even more,especially as you move even further away,taking into account other countries. 
+
+你已经绘制出了你自己的后院；你知道每样东西都存在于哪里，每样东西都生活在哪里。除此之外，还有同样存在于同一空间的以昆虫和微生物为基础的生命的细微细节，比如在草地里，在土地里，在砖块之间的缝隙里，等等。 你也知道你后院所在的地点，道路，村庄，商店，公共交通，等等。 但是你离你后院中心越远，你知道的细节就越少。 除此之外，还有一些你在其中花费的时间比其他地方多。现在把这个过程扩展到你后院所在的城市之外。你会发现你的个人知识减少得更多，特别是当你走得更远时，考虑到其他国家。
 
 Finally,consider Earth.You know through the knowledge you have accrued that other parts of Earth exist,even though you have not personally experienced them.You know this by referring to the work of others who have been there personally and by the mapping data they have provided.Based upon this,you are aware of the existence of these countries and, to some extent,what exists there.Earth is,therefore,your area of "self"or not-so-"self- awareness."The galaxy and the physical universe are also areas of awareness but are not areas of self-awareness that can be classified as personally known,for you need tools or instruments specifically made to allow you to see them and know that they exist,even when you cannot detect them with your naked eye.So this wider area is the area of non-awareness even though it is recognized as an area of existence.You know it is there,but you have little or no physical evidence to back it up. 
 
