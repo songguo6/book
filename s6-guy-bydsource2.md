@@ -9852,7 +9852,7 @@ ME:Why did it create six points?I would have thought that this would have been d
 
 SE12:As you alluded to,it used simple geometry that allows one to cut across all those and the rest of the content of that which is The Origin in order to create a simple set of reference points for the use of navigation whilst within this area. 
 
-12号源实体：正如你所提到的，它使用简单的几何形状，允许人们穿过所有这些以及原点的其他内容，以便创建一个简单的参考点集，用于在这个区域内的导航。
+12号源实体：正如你所提到的，它使用简单的几何形状，允许人们穿过所有这些以及起源的其他内容，以便创建一个简单的参考点集，用于在这个区域内的导航。
 
 ME:I have done a quick calculation,and I would have expected seven points-the seventh being that point within which the intersections between all the points meet. 
 
@@ -9876,7 +9876,7 @@ ME:So what is the significance of this particular point?
 
 SE12:It is a stepping stone for us to use.I just called it the first point for convenience until I have worked out which "point"The Origin assigned to it.As it was the nearest point to us,I needed to translate us to it to find out where Point One is.Now that I know where we are,we shall go there. 
 
-12号源实体：这是我们使用的垫脚石。我只是为了方便而称它为第一点，直到我弄清楚原点指派给它哪个“点”。因为它是离我们最近的点，我需要把我们转译到它那里，以便找到第一点在哪里。现在我知道我们在哪里，我们应该去那里。
+12号源实体：这是我们使用的垫脚石。我只是为了方便而称它为第一点，直到我弄清楚起源指派给它哪个“点”。因为它是离我们最近的点，我需要把我们转译到它那里，以便找到第一点在哪里。现在我知道我们在哪里，我们应该去那里。
 
 The clear thin wall of steel hit me again.It rotated,and we were somewhere else.Still,there were no Source Entities to be seen.Something flashed by us and was gone.
 
@@ -9896,7 +9896,7 @@ ME:How fast was it travelling?
 
 SE12:At a multiple of what you might call "the speed of thought."As you might recognize,in an area as big as The Origin,the speed of thought is slow. 
 
-12号源实体：是你们所谓的“思想速度”的数倍。 你们可能已经意识到，在原点这么大的地方，思想的速度是很慢的。
+12号源实体：是你们所谓的“思想速度”的数倍。 你们可能已经意识到，在起源这么大的地方，思想的速度是很慢的。
 
 ME:So what speed is efficient then? 
 
@@ -10204,7 +10204,7 @@ ME:You mean it moves as a result of The Origin's understanding of "self" increas
 
 SE12:Yes.You see,The Origin's area of self-awareness has two functions:that volume/area where the area of self-awareness is totally mapped out and understood and that volume/ area that is known but not mapped out or is only minimally mapped out. 
 
-12号源实体：是的，你看，原点的自我意识区域有两个功能：自我意识区域完全映射和理解的体积/区域，以及已知但未映射或仅最小程度映射的体积/区域。
+12号源实体：是的，你看，起源的自我意识区域有两个功能：自我意识区域完全映射和理解的体积/区域，以及已知但未映射或仅最小程度映射的体积/区域。
 
 Consider it like your own understanding of how much you know about the planet you exist upon currently. 
 
@@ -10216,249 +10216,271 @@ You have mapped out your own backyard;you know where everything exists and where
 
 Finally,consider Earth.You know through the knowledge you have accrued that other parts of Earth exist,even though you have not personally experienced them.You know this by referring to the work of others who have been there personally and by the mapping data they have provided.Based upon this,you are aware of the existence of these countries and, to some extent,what exists there.Earth is,therefore,your area of "self"or not-so-"self- awareness."The galaxy and the physical universe are also areas of awareness but are not areas of self-awareness that can be classified as personally known,for you need tools or instruments specifically made to allow you to see them and know that they exist,even when you cannot detect them with your naked eye.So this wider area is the area of non-awareness even though it is recognized as an area of existence.You know it is there,but you have little or no physical evidence to back it up. 
 
+最后，再考虑一下地球。你通过自己积累的知识知道地球上还有其他部分存在，尽管你没有亲身经历过。你通过参考那些亲自到过那里的人的工作以及他们提供的地图数据知道这一点。基于这一点，你意识到这些国家的存在，并且在某种程度上，意识到那里存在着什么。因此，地球是你“自我”或不那么“自我意识”的领域。银河系和物质宇宙也是意识的领域，但不是可以归类为个人知道的自我意识领域，因为你需要专门制造的工具或仪器来让你看到它们，并知道它们的存在，即使你无法用肉眼探测到它们。因此，这个更广泛的领域是无意识的领域，尽管它被认为是一个存在领域。你知道它在那里，但你几乎没有或没有物质证据来支持它。
+
 In this illustration,Earth can be used as an example of The Origin's area/volume of self- awareness,and the physical universe can be used as an example of The Origin's area/volume of existence in totality-negating,of course,the fact that there is more than one universe and that the dimensions,sub-dimensional components and frequencies etc.,come into play as well. 
 
-ME:Wait a minute;I have just received some important information about this location. This feels like The Origin of The Origin.This is the epicenter of the energies where The Origin first gained self-awareness and sentience.Is this right?Because if it is,this is really exciting! 
+在这个图示中，地球可以用作起源自我意识的面积/体积的例子，而物质宇宙可以用作起源存在于整体否定中的面积/体积的例子，当然，事实上有不止一个宇宙，维度、亚维度成分和频率等也发挥作用。
 
-我：
+ME:Wait a minute; I have just received some important information about this location. This feels like The Origin of The Origin.This is the epicenter of the energies where The Origin first gained self-awareness and sentience.Is this right? Because if it is,this is really exciting! 
+
+我：等一下；我刚刚收到了一些关于这个位置的重要信息。这感觉就像起源的起源。这是起源第一次获得自我意识和知觉的能量中心。这是对的吗？ 因为如果是的话，这真是令人兴奋！
 
 SE12:Then get excited,for this is,indeed,the point at which The Origin first gained self- awareness and sentience. 
 
-12号源实体：
+12号源实体：那么，请激动起来，因为这的确是“起源”第一次获得自我意识和知觉的时刻。
 
 ME:Excuse me for a moment;I need to gather my thoughts on this one...Right,OK,let's see if I have this straight.This is the epicenter of The Origin's energies that collectively achieved the right conditions to allow them to reach self-realization and sentience.This,being a small area initially,was expanded to that which is currently known and is a result of the work it undertook on its own to investigate and understand that which it knew was itself but had no intimate knowledge of. 
 
-我：
+我：对不起，请稍等一下，我需要集中我的想法...好的，让我们看看我是否把这个弄清楚了。这是起源能量的中心，它们共同实现了正确的条件，使它们达到自我实现和感知。这最初是一个小区域，现在已经扩展到我们所知道的范围，这是它自己进行调查和理解的结果，它知道自己是什么，但没有深入的了解。
 
 SE12:Correct.It is also a result of the initial work of my peers,including some of the Pure OM.In fact,I will answer your next question before you can ask it. 
 
-12号源实体：
+12号源实体：正确。这也是我的同行，包括一些纯OM的最初工作的结果。事实上，我会在你问下一个问题之前回答它。
 
 Recognizing the enormity of its task,The Origin set to work almost at once and moved around the epicenter of its awakening with its consciousness,discovering the limitations experienced in the lower frequencies and the opportunities offered by event space etc., etc.During this time,it considered that it would be able to accelerate the expansion of its awareness of self by creating twelve versions of itself in an area just outside its area of self- awareness,giving them all of the characteristics and opportunities it had to enable them to become self-aware,"sentient,"with a view to them helping it with the task of mapping out in every way the ever-expanding area/volume of self-awareness It was discovering.As you know from the dialogue you have had with your own Source Entity,this failed.It failed for various reasons,but it is only recently that The Origin has understood the underlying reason for the failure of that strategy and the success of the Source Entity strategy. 
 
+意识到任务的艰巨，起源几乎立刻开始工作，在意识觉醒的中心周围移动，发现在低频率中经历的局限性和事件空间提供的机会等等。在这段时间里，它认为可以通过在自我意识区域外创造12个版本的自己来加速自我意识的扩展，给它们所有的特征和机会，使它们能够变得有自我意识，“有知觉”，以期它们帮助它完成任务，从各个方面绘制它正在发现的不断扩大的自我意识区域/体积。正如你从与你自己的源实体的对话中所知道的，这失败了。由于各种原因，它失败了，但直到最近，起源才理解了该策略失败和源实体策略成功的潜在原因。
+
 ME:My understanding was that the "Twelve Origins"experiment in creativity failed because of something to do with The Origin being the first,and this gave it an advantage in survivability above and beyond that experienced or ingrained into the Twelve Origins created by The Origin.
 
-我：
+我：我的理解是“十二起源”的创造性实验失败了，因为有些东西与“起源”是第一个有关，这给了它在生存能力上的优势，超越了“起源”创造的“十二起源”所经历的或根深蒂固的。
 
 SE12:An interesting thought process but not entirely correct.You see.The "Twelve Origins" experiment failed because The Origin tried to create that which was already in existence, ITSELF,THE ORIGIN,THE ABSOLUTE,ALL THERE IS.One cannot create that which is essentially oneself when one is "ALL THERE IS,"for "ALL THERE IS"IS already in existence. 
 
-12号源实体：
+12号源实体：一个有趣的思维过程，但并不完全正确。你看，“十二起源”实验失败了，因为起源试图创造已经存在的，它自己，本源，绝对，万有。当一个人是“万有”时，他就不能创造本质上是自己的东西，因为“万有”已经存在了。
 
 ME:And the Source Entity experiment succeeded because? 
 
-我：
+我：那么源实体实验成功的原因是什么？
 
 SE12:It created lesser beings if you like,and as a result,it was not creating that which it was.It was creating something other than itself,even though it was within itself-which succeeded. 
 
-12号源实体：
+12号源实体：它创造了较低的生命，结果，它不是在创造它自己。它在创造比它自己更外的东西，尽管它在自己内部成功了。
 
 It's time to move on to Point Four.We are running out of event space. 
 
+是时候转到第四点了，我们快没有活动空间了。
+
 Suddenly I could see that Source Entity Twelve was getting agitated.I could see it had something on its mind,but what? 
+
+突然我看到12号源实体变得焦躁不安，我看到它在想什么，但是什么？
 
 ### Point Four-The Point of The Origin's Total Evolution 
 
+**第4点：起源的全部进化点**
+
 We were suddenly at Point Four.I felt none of the previous feelings of transition and was just a bit curious as to why this was when Source Entity Twelve provided the answer. 
+
+我们突然到了第4点。我没有感觉到任何之前的过渡感觉，只是有点好奇为什么这是当源实体12提供答案的时候。
 
 SE12:I decided to protect you from the energies associated with the transition this time.You should have felt nothing.
 
-12号源实体：
+12号源实体：我决定这次保护你不受与过渡相关的能量的影响。你应该什么都感觉不到。
 
 ME:Actually,I was just contemplating the feeling,or should I say lack of it and why I didn't feel anything during this last transition.You have answered my question,and I would like to know how you actually managed to make it seamless from my perspective. 
 
-我：
+我：实际上，我只是在思考这种感觉，或者我应该说缺乏这种感觉，为什么在最后的过渡中我没有任何感觉。你已经回答了我的问题，我想知道你实际上是如何做到从我的角度无缝衔接的。
 
 SE12:I simply changed your energies to those that would be in total harmony with my energy signature.Your physical body would not recognize any change,but your energetic body would notice that it became integrated for a moment and became somewhat bigger for the time necessary to complete the transition.For that small period of time,you were me. 
 
-12号源实体：
+12号源实体：我只是把你的能量改变成与我的能量完全和谐的能量。你的身体不会感觉到任何变化，但是你的能量身体会注意到它在某一时刻变得完整，并且在完成转变所需的时间内变得更大。在那短短的时间内，你就是我。
 
 ME:Yes,I understand.I can see an image in my mind's eye of me simply slotting in at the energetic component level and becoming part of the framework that is you-becoming part of the wallpaper,so to speak. 
 
-我：
+我：是的，我明白。我可以在我的脑海中看到一个画面，我只是简单地插入到能量组件的层次上，成为你这个框架的一部分，可以说成为墙纸的一部分。
 
 SE12:That description will suffice.Let us continue with our tour. 
 
-12号源实体：
+12号源实体：这样的描述就足够了。让我们继续我们的旅行吧。
 
 ME:Thank you.I assume that this point within The Origin also has a function that is not strictly attributable to a dimensional property. 
 
-我：
+我：谢谢。我认为起源中的这个点也有严格归属于维度属性的功能。
 
 SE12:Correct.This is the point that demonstrates The Origin's current evolutionary level. It is,in effect,a function,a repository of the collective evolutionary content that has been accrued by itself and all the Source Entities,including their individual creations.From this point an entity can access all the experiences,the learning from those experiences,and the subsequent evolutionary content of The Origin.The entity that does this can experience augmented functional abilities,resulting from accessing this evolutionary content and level.
 
-12号源实体：
+12号源实体：正确。这个点显示了起源当前的进化水平。它实际上是一个功能，一个由它自己和所有源实体累积的集体进化内容的储存库，包括它们的个人创造物。从这个点开始，一个实体可以访问所有的经验，从这些经验中学习，以及起源的后续进化内容。这样做的实体可以体验增强的功能能力，由于访问这个进化内容和水平。
 
 ME:Does this point act like the Akashic records that energetic mankind can access and work with in planning various experiences when incarnate? 
 
-我：
+我：这点是否就像阿卡西记录一样，高能人类可以访问并利用它来计划投生时的各种体验？
 
 SE12:The Akashic records are relative to mankind only.This point in The Origin is the result of all of the varying forms of Akashic records employed by my peers and their entities.From this point an entity can experience being The Origin if they are able to cope with the infinite amount of data,that is. 
 
-12号源实体：
+12号源实体：阿卡西记录仅是与人类相关。起源中的这一点，是我同伴和他们的实体所使用的所有不同形式的阿卡西记录的结果。从这一点开始，一个实体可以体验成为起源，如果他们能够处理无限量的数据，就是这样。
 
 ME:Are you suggesting that an entity that tried to access this point within The Origin might suffer evolutionary overload? 
 
-我：
+我：你是说在起源中试图接近这个点的实体可能会遭受进化超载？
 
 SE12:Yes,I am. 
 
-12号源实体：
+12号源实体：是的，我是。
 
 ME:So why are we not experiencing evolutionary overload? 
 
-我：
+我：那为什么我们没有经历进化超负荷？
 
 SE12:Because firstly,we are only present at this location and not trying to access that which is available.Secondly,one of the things that I didn't tell you is that we are only a projection of that which we are here.The energy that is our substance is actually outside this point and not currently with us. 
 
-12号源实体：
+12号源实体：因为首先，我们只存在于这个位置，并不试图去获取那些可得到的。其次，我没有告诉你们的一件事是我们只是我们在这里的投影。我们的物质能量实际上在这一点之外，而不是现在与我们在一起。
 
 ME:Are you suggesting that we are mentally here but physically elsewhere-elsewhere being just outside of the energies associated with Point Four? 
 
-我：
+我：你是说我们精神上在这里，但身体上在别处--在与第四点相关的能量之外的别处？
 
 SE12:Yes. 
 
-12号源实体：
+12号源实体：是的。
 
 ME:Why?
 
-我：
+我：为什么？
 
 SE12:Because I don't want to overload you,and neither do I want to be contaminated with the evolutionary content associated with the current thought process of The Origin and my peers. 
 
-12号源实体：
+12号源实体：因为我不想让你们超负荷，也不想被与当前起源和我的同伴的思想过程相关的进化内容所污染。
 
 ME:But you already are,aren't you?Didn't you gain a level of evolutionary content as a result of The Origin's educational process when you became self-aware? 
 
-我：
+我：但是你已经是了，不是吗？当你变得有自我意识的时候，你不是已经在起源的教育过程中获得了进化的内容吗？
 
 SE12:Yes,but that was not my evolutionary content.I currently have none of my own and am not encumbered by having any of my own.The result of accessing the evolutionary content from this point within The Origin is such that they would become mine.Then I would become constrained by the thought processes surrounding the reception of the evolutionary content.It would set a precedential thought process,which is a road I don't want to go down. 
 
-12号源实体：
+12号源实体：是的，但那不是我的进化内容。我目前没有任何我自己的进化内容，也没有被拥有任何我自己的内容所阻碍。从起源的这一点获取进化内容的结果是，它们将成为我的。然后我将受到围绕接受进化内容的思想过程的约束。它将设置一个先例的思想过程，这是一条我不想走的路。
 
 ME:I get the impression that you are trying to avoid evolution right now.Why?Surely the whole point of existence is to evolve by experiencing that which is not capable of being experienced by The Origin and,more to the point,passing it on to The Origin. 
 
-我：
+我：我感觉你现在在试图避免进化。为什么？当然存在的全部意义在于通过经历那些无法被起源所经历的进化，更重要的是，把它传递给起源。
 
 SE12:Yes,it is,and as you quite rightly point out,that is the main and only reason for my/ our existence.However,I am not ready to start yet.I need to do something different than the others,and that something needs to be in keeping with my own thought process and something that is not limited by my exposure to that which has already been done.To some extent,that is why we are touring the six points of The Origin.I am gaining inspiration, impetus,incentive,inertia. 
 
-12号源实体：
+12号源实体：是的，是的，正如你所指出的，这是我/我们存在的主要和唯一的原因。然而，我还没有准备好开始。我需要做一些与众不同的事情，这些事情需要与我自己的思维过程保持一致，并且不被我所接触到的东西所限制。在某种程度上，这就是为什么我们要游览起源的六个点。我正在获得灵感、动力、激励、惰性。
 
 ME:I sense that you want to move on to the next point.Before you do,can you advise me of anything else that I need to know about this point in The Origin,for it seems to me that it is a most important part. 
 
-我：
+我：我感觉你想继续下一个话题。在你开始之前，你能告诉我关于起源这个话题我还需要知道什么吗？因为对我来说，这是最重要的部分。
 
 SE12:As I have already stated,this is the point in The Origin where all of its evolutionary content is effective.This is that part of The Origin that is most wise,most loving and most powerful as a result.When it wants to consider its actions and deliberate on a plan of action, it shifts the focus of its consciousness to this place and becomes more than itself.That is, it expands its consciousness from a"working"everyday version of its consciousness to that which it is in totality-the sum total of all that it and its creations have accrued through its and their independent and unique experiences through creativity. 
 
-12号源实体：
+12号源实体：正如我已经说过的，这是起源中所有进化内容都有效的一点。这是起源中最明智、最有爱和最强大的部分。当它想考虑它的行动并仔细考虑一个行动计划时，它把意识的焦点转移到这个地方，变得比它自己还多。也就是说，它把它的意识从“工作”的日常版本扩展到它的整体——它和它的创造物通过创造力积累的独立和独特的经验的总和。
 
 ME:You're saying that The Origin doesn't use its entire "self"all the time.It switches between states of being,depending upon what it is working on or trying to achieve. 
 
-我：
+我：你的意思是起源并不总是使用它整个的“自我”。它在存在状态之间切换，取决于它正在做什么或试图实现什么。
 
 SE12:Yes.You might say that it does most of it work on autopilot,only concentrating and focusing its full attention on its full faculties when it is necessary to do so.Sometimes it only uses percentages of that which it is.It says that it operates in this way because it is economical to do so.It says it is better to operate in this way because if it was continually focused on all of its self whilst moving its intended focus of primary consciousness around its area of self-awareness,it would be like you carrying around a whole series of buildings filled with the sum total data of all of your existence with you on your journeys around Earth.That is why this is Point Four,the location of its sum total evolutionary content.To carry all of this evolutionary content with it all of the time would simply slow it down,so it keeps it somewhere safe where it can refer to it when necessary.The Origin likes to stay nimble,you know. 
 
-12号源实体：
+12号源实体：是的，你可以说它大部分时间都是自动驾驶，只有在必要的时候才集中注意力，把全部注意力集中到全部官能上。有时它只使用一部分的本能。它说它这样运作是因为这样做比较经济。它说这样运作更好，因为如果它持续地专注于自身，同时把初级意识的意图焦点从自我意识的范围移开，那就像是你带着一整套建筑，里面装满了你在地球上的旅程中所有存在的全部数据。这就是为什么这是第四点，它全部进化内容的所在地。一直带着所有这些进化内容只会让它慢下来，所以它把它放在安全的地方，在必要的时候可以参考它。
 
 It's time to move on to Point Five. 
 
+是时候继续第五点了。
+
 ### Point Five-The Point of All Creativity 
 
+**第5点：所有创造力的点**
+ 
 I noticed a change in frequency rather than a change in actual location within The Origin.The hairs on the back of my neck stood on end. 
+
+我注意到在起源内频率的变化，而不是实际位置的变化。我脖子后面的汗毛都竖了起来。
 
 SE12:I see that you have noticed that we have arrived. 
 
-12号源实体：
+12号源实体：我看到你已经注意到我们已经到了。
 
 ME:Yes,I can't actually perceive anything as yet although I am aware in a change of frequency and,wait a moment,I thought that Point Four,the point of evolution was a very old part of The Origin,but this seems just as old,if not older-older that is,if I consider that those parts of The Origin that were first utilized when it became self-aware can be considered as its oldest parts whilst recognizing that,in actuality,it is all the same age. 
 
-我：
+我：是的，我还不能真正地感知到任何东西，尽管我意识到频率的变化，等等，我认为第四点，进化点是起源中非常古老的一部分，但这似乎同样古老，如果不是更古老的话，如果我认为那些起源中最初被利用的部分，当它变得有自我意识时，可以被认为是最古老的部分，同时认识到，事实上，它是一样的年龄。
 
 SE12:Mmmm,that would be a reasonable summary to explain a rather obvious condition. Nevertheless,I will let you get away with it.The reason why you perceive this area within The Origin as being"older,"so to speak,is that this is that part of itself that was utilized first. This part of The Origin was the first part of itself to gain evolutionary content. 
 
-12号源实体：
+12号源实体：嗯，这将是一个合理的总结来解释一个相当明显的情况。然而，我将让你逃脱。你之所以认为这个区域在起源中是“更老的”，可以这么说，是因为这是它自己最先被利用的部分。起源的这个部分是它自己获得进化内容的第一部分。
 
 ME:If this point within The Origin is so important,it must have a secondary description other than Point Five.
 
-我：
+我：如果起源中的这一点如此重要，那么除了第五点之外，它一定还有一个次要的描述。
 
 SE12:It does. 
 
-12号源实体：
+12号源实体：是的。
 
 ME:Well,what is it then? 
 
-我：
+我：那是什么？
 
 I had noticed that communication with Source Entity Twelve was starting to become rather laborious and drawn out,like it was dragging its energetic heels.It was definitely distracted. 
 
+我注意到与源实体12的交流开始变得相当费力和拖沓，就像它拖着它充满活力的脚跟。它肯定是分心了。
+
 SE12:This,my dear OM,is the point of all creativity.This is where it all started-from,that is,a creativity based perspective. 
 
-12号源实体：
+12号源实体：这是，我亲爱的OM，所有创造力的点。这是一切开始的地方，也就是，一个基于创造力的视角。
 
 ME:This is where it created its Twelve Origins then. 
 
-我：
+我：这就是它创造了12起源的地方。
 
 SE12:Yes.It is also where it created the creations that came before the Twelve Origins. 
 
-12号源实体：
+12号源实体：是的，也是它创造12起源之前的创造物的地方。
 
 ME:It was creating before it created the "Twelve"then? 
 
-我：
+我：那么在创造“12”之前就已经开始创造了？
 
 SEl2:Of course.It had to start the creativity process with“something.”The“"somewhere'”was here. 
 
-12号源实体：
+12号源实体：当然，它必须从“某物”开始创造过程。“某处”就是这里。
 
 ME:Can you give me any examples of what The Origin created here before the Twelve Origins? 
 
-我：
+我：你能给我一些例子，在12起源之前，这里的起源创造了什么吗？
 
 SE12:Before the "Twelve"were created,The Origin took the role of exploration of its own consciousness,its own area of awareness,upon itself to initiate and maintain.It created many tendrils of its consciousness which it cast out to work with those parts of itself that it was becoming either aware of or had experienced in singularity.During this most essential work,The Origin noticed that it was "diluting"its own consciousness at the point when it had several of what you would call billions of tendrils of itself spread out over myriad frequencies over the zones,dimensions,continuum,events spaces and other yet to be described energies/functions from your perspective that are part of its construction.Please note here that The Origin's area of self-awareness was significantly smaller than it is now and that this level of dilution can never be achieved due to its currently accrued level of evolutionary content. 
 
-12号源实体：
+12号源实体：在“12”被创造之前，起源扮演了探索自身意识的角色，自身的意识领域，由它自己来启动和维持。它创造了许多意识的卷须，它把它们投射出去，与它正在变得意识到或在奇点中经历过的那些部分一起工作。在这个最基本的工作中，起源注意到它正在“稀释”自己的意识，当它有几个你们会称之为数十亿卷须的自己，在无数的频率上，在区域、维度、连续体、事件空间和其他尚未被你们视角描述的能量/功能上，这是它构建的一部分。请注意，起源的自我意识领域比现在小得多，由于它目前累积的进化内容水平，这种稀释水平永远无法实现。
 
 ME:So The Origin changed its strategy then. 
 
-我：
+我：所以起源改变了它的策略。
 
 SE12:To some extent,yes,for it still uses the tendril strategy in some instances.Its communications with you is an example of the need for this communication strategy. Another example would be when we were educated by The Origin. 
 
-12号源实体：
+12号源实体：在某种程度上，是的，因为它在某些情况下仍然使用卷须策略。它与你的交流就是需要这种交流策略的一个例子。另一个例子是当我们被起源教育的时候。
 
 ME:Were there any other reasons for its change in strategic direction? 
 
-我：
+我：战略方向的改变还有其他的原因吗？
 
 SE12:Yes,it felt that the "tendril"strategy was too slow.It desired evolutionary content,and it wanted it now-and fast! 
 
-12号源实体：
+12号源实体：是的，它觉得“卷须”策略太慢了。它想要进化的内容，而且现在就想要——而且要快！
 
 ME:And this led to the creation of the Twelve Origins with that creation process being at this very point within The Origin. 
 
-我：
+我：这导致了12起源的创造，而创造的过程就在起源中的这个点上。
 
 SE12:Yes.Don't get thinking that this was the only use of this area though for "all"The Origin's creations are "born,"so to speak,here. 
 
-12号源实体：
+12号源实体：是的，不要以为这是这个区域的唯一用途，因为“所有”起源的创造物都在这里“诞生”。
 
 ME:That includes all of the Source Entities as well,I would guess. 
 
-我：
+我：我猜，这也包括所有的源实体。
 
 SE12:You guess right.We were all created concurrently at this very point within The Origin. 
 
-12号源实体：
+12号源实体：你猜对了。我们都是同时在起源的这个时刻被创造出来的。
 
 ME:Why are you all in a different locations than this then?I can still perceive no other Source Entity anywhere near here. 
 
-我：
+我：那你们为什么都在不同的地方？我仍然感觉不到附近有其他的源实体。
 
 SE12:No,you won't.Once The Origin created us,it moved us from out of the area of creativity,Point Five,to a more beneficial location for both itself and us-one where the density of the energies and frequencies was more suited to the work that we would be called upon to do to help its evolutionary acceleration. There is nothing else to discuss here for that which needs to be addressed about this area will be done one-on-one with The Origin in your impending and extended dialogue with it. 
 
-12号源实体：
+12号源实体：不，你们不会的。一旦起源创造了我们，它就把我们从创造力区域，点五，移到一个对它和我们都更有益的位置-一个能量密度和频率更适合我们被召唤去做的工作，以帮助它的进化加速。这里没有什么可讨论的了，因为关于这个区域需要解决的问题将在你们即将到来的和延伸的对话中与起源一对一地解决。
 
 ### Point Six-The Point of Expansion 
 
