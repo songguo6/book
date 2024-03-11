@@ -8384,7 +8384,7 @@ SE11(collectively as one):Let me explain,for there are twelve layers in total.
 
 I noted that Source Entity Eleven had adopted a singular method of nomenclature-hence,the change to the dialogue header. 
 
-我注意到源代码实体11采用了单一的命名方法，因此，对话标题的改变。
+我注意到源实体实体11采用了单一的命名方法，因此，对话标题的改变。
 
 ME:I would be quite happy for you to do so,for this is becoming a little confusing for me.
 
@@ -8712,7 +8712,7 @@ I looked around myself and saw the other Source Entities around me.They and thei
 
 I moved towards it,and The Origin told me to be gentle in my approach and communication methods with this infantile Source Entity.I gently probed it,wondering what it would feel like energetically.As I was about to move away,I noticed that there was a surge of energy as if some sort of focus had been applied to the energies that were within Source Entity Twelve.I felt dimensions,sub-dimensional components,frequencies and event space,plus myriad other energies that I did not recognize all line up as if to attention.Suddenly it had structure,purpose, incentive,initiative,desire and,focus! 
 
-我走向它，“源头”告诉我，在与这个幼稚的源实体的接触和交流方法中要温和。我轻轻地探测它，想知道它在能量上会是什么感觉。当我准备离开时，我注意到有一股能量的激增，好像某种焦点已经应用到源代码实体12中的能量上。我感觉到维度、亚维度成分、频率和事件空间，加上无数其他我没有识别的能量，都排成一线，好像要引起注意。突然它有了结构、目的、动机、主动性、愿望和焦点！
+我走向它，“源头”告诉我，在与这个幼稚的源实体的接触和交流方法中要温和。我轻轻地探测它，想知道它在能量上会是什么感觉。当我准备离开时，我注意到有一股能量的激增，好像某种焦点已经应用到源实体实体12中的能量上。我感觉到维度、亚维度成分、频率和事件空间，加上无数其他我没有识别的能量，都排成一线，好像要引起注意。突然它有了结构、目的、动机、主动性、愿望和焦点！
 
 The next thing I knew I was moved away gently by a huge and immense power.The Origin had swung into action and had seized control of Source Entity Twelve.A huge umbilical cord of energy,a huge vortex appeared from nowhere and engulfed Source Entity Twelve.I had seen this image before.It was given to me by some of the other Source Entities to explain how The Origin initiated contact with them when they first became aware of self.The Origin was in communication with Source Entity Twelve.As the communication continued,the energetic umbilical cord-the huge vortex of energy that surrounded Source Entity Twelve in its entirety -pulsed with energies that were nothing like those I had experienced in any of my dialogues with the other Source Entities-not even The Origin itself.I watched in complete awe,my mouth dropping open,aghast at the magnificence of what I had just realized I was witnessing-The Origin engaging in direct and intimate contact with one of its creations for the sole purpose of educating it,giving it its reason to be,its purpose in existence.I asked The Origin a question. 
 
@@ -9092,7 +9092,7 @@ SE12:I am not too bothered about what they have achieved-more what I know I want
 
 With that last comment Source Entity Twelve disappeared from my energetic view.This was a bit strange?Why did it need to disappear?I was just thinking that I could nip off for a drink or something when Source Entity Twelve returned. 
 
-说完最后一句话，源实体12从我充满活力的视野中消失了。这有点奇怪？它为什么要消失？我只是在想，当源代码12回来时，我可以去喝点东西什么的。
+说完最后一句话，源实体12从我充满活力的视野中消失了。这有点奇怪？它为什么要消失？我只是在想，当源实体12回来时，我可以去喝点东西什么的。
 
 SE12:Sorry about that.I needed to consider what I wanted to do. 
 
@@ -10484,117 +10484,167 @@ SE12:No,you won't.Once The Origin created us,it moved us from out of the area of
 
 ### Point Six-The Point of Expansion 
 
+**第六点：扩张点**
+
 Again,I was not aware of any movement,but I knew that we had moved on to the last major datum point within The Origin,Point Six.Source Entity Twelve's protection was working well.It seemed strange,but I knew that this point was an important place to be-both for The Origin and Source Entity Twelve.It was just like this was Source Entity Twelve's place to be.I frowned for a moment,then shook my head and focused upon Source Entity Twelve who was waiting for me to re-group my attention and continue its role of "tour guide." 
+
+我再一次没有意识到任何移动，但我知道我们已经移动到起源内部的最后一个主要基准点，第六点。源实体12的保护工作正常。这看起来很奇怪，但我知道这个点是一个重要的地点-对于起源和源实体12来说都是如此。就像这是源实体12应该待的地方一样。我皱了皱眉头，然后摇摇头，把注意力集中到源实体12上，它正在等着我重新集中注意力，继续扮演“导游”的角色。
 
 SE12:Good,you're back. 
 
-12号源实体：
+12号源实体：很好，你回来了。
 
 ME:I was never away. 
 
-我：
+我：我从未离开过。
 
 SE12:You were.You were back on Earth for at least twenty minutes of clock time.
 
-12号源实体：
+12号源实体：你回到地球上至少有20分钟的时间。
 
 ME:I'm sorry.I was thinking of the significance of where we are and how it felt strangely important. 
 
-我：
+我：对不起。我在想我们所处位置的意义，以及它奇妙的重要性。
 
 SE12:Well,it is important and actually I am surprised that you have not recognized this point,or should I say an aspect of this point already. 
 
-12号源实体：
+12号源实体：嗯，这很重要，实际上我很惊讶你还没有认识到这一点，或者我应该说已经认识到这一点的一方面。
 
 ME:Are we at the edge of The Origin's area of self-awareness? 
 
-我：
+我：我们是不是已经到了起源自我意识的边缘了？
 
 SE12:Yes,we are.This point,Point Six,is the point of expansion.It is a theoretical point in reality for it is a flexible perimeter or boundary;it is not spherical and does not expand at the same rate all over. 
 
-12号源实体：
+12号源实体：是的，我们是。这个点，点六，是膨胀点。它是一个理论上的点，因为它是一个灵活的周长或边界；它不是球形的，而且并不是以同样的速度在所有地方膨胀。
 
 This is the area of The Origin that will eventually expand to the next level of its self- awareness.This is not the same point that you visited in that event space where you saw the Twelve Origins and were totally confused by the image you saw.I believe you were confused by that image for some five years or more? 
 
+这是起源的领域，最终将扩展到自我意识的下一个层次。这不是你在那个事件空间访问的同一个点，在那里你看到了12起源，并被你看到的图像完全困惑。我相信你被那个图像困惑了大约五年或更长时间？
+
 ME:Yes,I was.In essence,I was not aware of where I was in reality.Neither did I know that I had moved from the event space associated with the energies of my current physical body to the event space where the Twelve Origins were still in existence. 
 
-我：
+我：是的，我是。本质上，我不知道我在现实中在哪里。我也不知道我已经从与我当前身体能量相关的事件空间移动到12起源仍然存在的事件空间。
 
 SE12:Good,now you have it all cleared up so we can move on a little. 
 
-12号源实体：
+12号源实体：很好，现在你已经把这些都弄清楚了，我们可以继续了。
 
 Point Six is that area of The Origin that is ripe for expansion.It is here where I will leave you. Don't worry.You will return to your earthly vehicle on an automatic basis.You managed to get to a similar location along the periphery of Point Six in past excursions;in fact, you managed to go outside this parameter.How else could you have perceived the Twelve Origins?Based upon this,you will be able to return of your own accord when I leave you. 
 
+第六点是起源的自我意识区域，已经成熟可以扩张。我将在这里离开你们。别担心。你们会自动回到你们的地球交通工具。在过去的短途旅行中，你们设法到达了第六点周边的一个类似位置； 事实上，你们设法走出了这个参数。否则你们怎么能察觉到12起源？基于这一点，当我离开你们时，你们将能够自动返回。
+
 Now then,back to a limited but nevertheless important description of this point in navigation. 
+
+现在，回到这个点在导航中有限但重要的描述。
 
 Point Six is that part of the perimeter of The Origin's area of self-awareness that is ready for and most capable of expansion.This point is a strategic location within The Origin's area of self-awareness.It has nurtured this location since its awakening. 
 
+第六点是起源自我意识区域的周边部分，已经准备好并最有可能扩张。这个点是起源自我意识区域的一个战略位置。自从它觉醒以来，它就培育了这个位置。
+
 ME:Why this particular location? 
 
-我：
+我：为什么是这个特定的位置？
 
 SE12:This is where it first noticed that it could expand its boundaries,where it could experience more "variety"of "self"if it moved in a particular direction.It discovered that although it gained evolutionary content by staying within its area of self-awareness,if it pushed the boundary and experienced that which was beyond the boundary,it could experience myriad other variations of that which was experienced within the boundary.It pushed the perimeter of this boundary in a random but evenly applied way at certain points to see if this response was consistent;it was,hence,the irregular perimeter/boundary of The Origin's area/volume of self-awareness.It was saving time by probing certain points rather than applying an evenly loaded probe around the perimeter/boundary in totality which would have taken longer,much,much longer,and it was impatient for progression. 
 
-12号源实体：
+12号源实体：这是它第一次注意到它可以扩展它的边界，如果它朝着一个特定的方向移动，它可以体验到更多的“自我”变化。它发现，尽管它通过停留在自我意识的范围内获得了进化的内容，但如果它推开边界，体验边界之外的东西，它可以体验到无数其他在边界内体验到的变化。它以随机但均匀的方式在某些点上推开边界，看看这个反应是否一致；因此，它是“起源”自我意识的区域/体积的不规则边界/边界。它通过探测某些点来节省时间，而不是在整个边界/边界上均匀地加载探针，这将花费更长的时间，更长的时间，它对进展不耐烦。
 
 During its existence The Origin has always maintained this point as a navigational datum. As such,it represents that point at which the rest of the area of self-awareness needs to reach before it can expand the perimeter of its area of self-awareness"in totality"in "one go." Although theoretical,this point is now at its furthest point.
 
+在它存在期间，起源一直保持这个点作为一个导航基准点。因此，它代表了自我意识的其余区域需要到达的点，才能“一次性”扩大自我意识的“整体”周长。尽管是理论上的，但这个点现在处于它的最远点。
+
 ME:I didn't think there were limitations or furthest points within The Origin? 
 
-我：
+我：我认为在起源中没有限制或最远点。
 
 SE12:There aren't.That's why it is a theoretical point.But from this point onwards,the complexity of the structure of The Origin increases significantly-by a multipolous figure- compared to what it has previously experienced.Thus The Origin needs to wait until it has mapped and experienced all that is remaining to be mapped and experienced in its current area/volume of self-awareness so that it is evenly spaced from its center point,Point Three -the epicenter of The Origin and its area of self-awareness.But I don't.I am not limited by such "personal commitments."I don't need to stay within. 
 
-12号源实体：
+12号源实体：没有。这就是为什么它是一个理论点。但从这一点开始，“起源”的结构的复杂性显著增加——与它以前经历的相比——以一个多极的数字。因此，“起源”需要等待，直到它已经映射和经历了所有剩余的，在它当前的自我意识区域/体积中需要映射和经历的东西，以便它与它的中心点，第三点——“起源”和它的自我意识区域的震中——的平均距离。但我不。我不受这些“个人承诺”的限制。我不需要呆在里面。
 
 This is where I come in.I am pure.I am not limited by that which has gone before,for I have not created and,therefore,I have not absorbed the associated evolutionary content.I am PURE! 
 
+这就是我进入的切入点。我是纯粹的。我不受之前的限制，因为我没有创造过，因此，我没有吸收相关的进化内容。我是纯粹的！
+ 
 It is now that we must part-at least for the time being,for we will meet again.Rest assured. 
+
+现在我们必须分开，至少是暂时的，因为我们还会再见面的。放心吧。
 
 ### Parting Company with Source Entity Twelve and Being Rewarded with a Rare Privilege 
 
+**与12号源实体分手并获得罕见的特权**
+
 I watched Source Entity Twelve from a slight distance for what would be the last time."At least until the time,"I thought,"that I will be working with The Origin on an almost exclusive basis." I tried to summarize in my mind what I had learnt from my short time with this "brand new" Source Entity. 
+
+我从稍远的地方注视着12号源实体，这将是最后一次。我想，“至少直到我将与起源在几乎独一无二的基础上合作的时候。” 我试图在脑海中总结我从与这个“全新的”源实体短暂的相处中所学到的东西。
 
 Because Source Entity Twelve was so immature,relatively speaking,that is,it had not accepted, or more to the point,recognized the unspoken precedent that had already been set by the other Source Entities-the precedent that they would stay "within"The Origin's area of self-awareness and evolve there.It was not limited by such precedential thoughts and,therefore,did not have any limitations on where it could go or how to start its evolutionary work.This was clear by its somewhat expert use of event space and its ability to travel to the major navigation points,the datum points one through six in The Origin's area of self-awareness.I wondered what it would do with this level of "purity." 
 
+因为12号源实体相对来说太不成熟了，也就是说，它还没有接受，或者更确切地说，还没有认识到其他源实体已经设定的默认先例——它们将留在“起源”自我意识区域内并在那里进化的先例。它没有受到这种先例思想的限制，因此，它在可以去哪里或如何开始进化工作方面没有任何限制。这从它对事件空间的某种程度上的熟练使用以及它前往主要导航点的能力——起源自我意识区域内的基准点1到6——中可以清楚地看出来。我想知道它会用这种程度的“纯度”做什么。
+
 I left Source Entity Twelve and began getting myself ready to focus my intention on being back in the low frequencies of the gross physical.As I did so,I saw it changing.It was breaking up into smaller linked parts.It was a partially complete sphere with parts of itself in the shape of balls or smaller spheres breaking away to create a network of satellite Source Entity Twelves just outside The Origin's area of self-awareness.Ifelt the energies of The Origin's focused consciousness as it suddenly appeared beside me.The Origin expressed surprise,and I was in awe and tears of joy at what I was witnessing. 
+
+我离开了12号源实体，开始准备将我的意图集中到粗糙的物理的低频率上。当我这样做的时候，我看到它在改变。它正在分裂成更小的相互连接的部分。它是一个部分完整的球体，它的部分球体或更小的球体分裂开来，创造了一个卫星12号源实体的网络，就在“起源”的自我意识区域外。当它突然出现在我身边时，我感觉到了“起源”集中意识的能量。“起源”表达了惊讶，我对自己所目睹的一切充满敬畏和喜悦的泪水。
 
 Source Entity Twelve was doing what no other Source Entity had considered doing-investigating a small but nevertheless significant area of the next section of The Origin's area of self- awareness.It had started mapping this part of The Origin earlier than predicted in event space! 
 
+12号源实体正在做其他源实体没有考虑过的事情——调查“起源”自我意识区域下一节的一个小但却重要的区域。它已经开始绘制“起源”的这一部分，比事件空间预测的要早！
+
 This was an interesting turn of events-a very,very interesting turn of events.It was a turn of events that was going to play a pivotal role in The Origin's evolutionary growth.I sat at my computer and leaned back in my chair.I had tears of joy in my eyes;I was very emotional. During its dialogue with me,Source Entity Twelve had established its own niche,its own way to contribute towards The Origin's evolutionary content.That was why it was agitated and impatient at times-it knew what it wanted to do and was eager to start its own contribution towards The Origin's goal of increasing its evolutionary content.It was going to do this by accelerating the process necessary to allow the expansion of The Origin's area of self-awareness to the next level. 
 
+这是一个有趣的事件转变——一个非常，非常有趣的事件转变。这是一个将在“起源”的进化成长中发挥关键作用的事件转变。我坐在我的电脑前，靠在椅子上。我眼中充满了喜悦的泪水；我非常激动。在它与我的对话中，源实体12已经建立了自己的位置，它自己的方式来为起源的进化内容做出贡献。这就是为什么它有时会感到焦虑和不耐烦——它知道自己想做什么，并渴望开始为增加其进化内容的起源目标做出自己的贡献。它将通过加速必要的过程来实现这一点，以允许将起源的自我意识区域扩展到下一个级别。
+
 I was full of awe and wonder at what I had just witnessed —— I cried.
+
+我对自己刚刚看到的一切充满了敬畏和惊奇——我哭了！
+
+（图22：源实体12在起源自我意识区域的外部分裂成卫星）
 
 ![Figure 22: Source Entity Twelve Splits into Satellites Around the Exterior of The Origin's Area of Self-Awareness](img/s6-057.png)
 
 ## Chapter Seven - In Closure 
 
+**第7章：结语**
+
 During the dialogues with the last three Source Entities,I found myself communicating with Source Entity Ten and Source Entity Eleven (collectively)simultaneously.As a result, the text for both Source Entities was written concurrently although at times one particular Source Entity did take precedence over another.I was multi-tasking in a most interesting way.In my mind's eye I noticed that my communication timeline was split between the two. What's more,I also noticed that the link with Source Entity Twelve and The Origin was also solidifying.The link was becoming four! 
+
+在与最后3个源实体对话期间，我发现自己同时与第10源实体和第11个源实体(集体)进行沟通。因此，两个源实体的文本是同时写的，尽管有时一个特定的源实体确实比另一个优先。我以一种最有趣的方式进行多任务处理。在我的脑海中，我注意到我的沟通时间线被分成两部分。更重要的是，我还注意到与12源实体和起源的联系也在巩固。这个联系变成了4个！
 
 I was about to communicate and was communicating with all three final Source Entities and the Origin concurrently whilst being able to focus on their own particular information. I had to be very careful where I focused my attention.It was most bizarre.There were times when I had difficulty in maintaining a sense of the "greater"reality,or should I say staying grounded!My mind was being stretched in four separate ways with different,unique,novel and totally unrelated information resulting from the dialogues I was having with all three Source Entities concurrently with that coming from The Origin.On top of this,I had noticed that I was moving back and forth in four "concurrent"event spaces,a function specifically noted in the dialogue with Source Entity Ten on the subject of the four versions of OM Energy. 
 
+我将要与所有3个最终的源实体和起源同时进行沟通，同时能够专注于它们自己的特定信息。我必须非常小心，我把注意力集中在哪里。这是最奇怪的。有时我很难保持一种“更大的”现实感，或者我应该说保持脚踏实地！我的思想被4种不同的方式拉伸，这些方式来自于我与3个源实体同时进行的对话，以及来自起源的信息。最重要的是，我注意到我在4个“并行”事件空间中来回移动，这是在与源实体10关于OM能量4个版本的主题对话中特别提到的功能。
+
 This function I had used many times in "The History of God,"but I had not personally recognized it as moving from event space to event space at that point.Although as just described,I had used this function before,I was not accustomed to using it in four simultaneous ways,engaging in dialogue with Source Entities Ten,Eleven,Twelve,and,the Origin all at the same time-flitting from one to the other and then moving all event spaces in quadruplicate to an earlier event space.I almost "crashed and burned"at times,but I am still here and stronger for it! 
+
+我在《源头简史》中使用过很多次这个功能，但我当时没有亲自认识到它是从一个事件空间移动到另一个事件空间。虽然正如刚才所描述的，我以前使用过这个功能，但我不习惯用4种同时的方式使用它，同时与源实体10、11、12和起源进行对话-从一个切换到另一个，然后将所有事件空间四倍移动到一个早期的事件空间。有时我几乎“崩溃和燃烧”，但我仍然在这里，而且变得更强大！
 
 I am now ready to take on board a "full"and meaningful dialogue with The Origin.My next book,The Origin Speaks,is the next project,and I am ready and waiting and full of energy. 
 
+我现在准备好与起源进行“全面”和有意义的对话。我的下一本书《起源说话》是下一个项目，我已经准备好，等待着，而且充满了能量。
+
 O:So am I.Let's get on with it! 
 
-起源：
+起源：我也是。我们开始吧！
 
-ME:What!Right,I had better start a new document then!Hang on!Wasn't I supposed to get a rest-again? 
+ME:What! Right,I had better start a new document then!Hang on!Wasn't I supposed to get a rest-again? 
 
-我：
+我：什么！好吧，那我最好开始一个新的文档！等等！我不是应该再休息一下吗？
 
 O:A change is as good as a rest,and committing to a dialogue with me is a change,a big change.So consider it a big rest. 
 
-起源：
+起源：改变和休息一样好，和我对话就是一个改变，一个很大的改变。所以把它看成一个很大的休息吧。
 
 I think I have my work already cut out for me,dear reader.Writing "The Origin Speaks"is going to be a most interesting project. 
 
+亲爱的读者，我想我已经有了自己的工作。写《起源说话》将是一个非常有趣的项目。
+
 Guy Steven Needler 
 
+盖伊·斯蒂文·尼德勒
+
 2nd June 2012
+
+2012/6/2
 
 ## Glossary 
 
