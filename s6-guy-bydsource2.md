@@ -10648,115 +10648,153 @@ Guy Steven Needler
 
 ## Glossary 
 
-Part of this Glossary has been carried over from Beyond the Source Book 1. 
-
-**Accurate "to boot"**: An English way of saying an affirmative "as well." 
-
-**Afterburner**: A method of injecting fuel into the exhaust area of a jet engine to create additional thrust and significant additional acceleration.This is a very fuel "hungry" method of gaining additional acceleration. 
+**术语表**
 
 **Akashic Records**: An eternal past,present,and future record of each humankind's actions and subsequent evolution. 
 
-**Big Bang**: The current popular scientific explanation of how the universe started.The Source Entity stated in earlier dialogues with me that it was far from the truth because this Source Entity said it simply created our multiverse,and as such,it "winked"directly into existence.Whether this created a big bang is unclear from my dialogues. 
-
-**Black Hole**: A spiritual explanation is that a black hole is a small galaxy whose role is to collect lower frequency material into one place-within itself. 
+**阿卡西记录**：每个人类行为和随后的进化永恒的过去、现在和未来的记录。
 
 **Bulls Eye**: The center of a dart board or archery target.A way of saying I that I "got"it (an understanding of the subject being discussed)completely right. 
 
-**Carrier Wave**: Telecommunications terminology.Is a sinusoidal waveform modulated with an input signal for the purpose of transmitting information.It is usually a higher frequency than the input signal (the data being transmitted).The purpose of the carrier wave is usually either to transmit the information through space as an electromagnetic wave (as in radio communication)or to allow several carriers at different frequencies to share a common physical transmission medium by frequency division multiplexing (as is used in, for example,a cable television system). (Source:Wikipedia,http://en.wikipedia.org/wiki/Carrier_wave) See The History of God for an explanation of how the dimensions,dimensional components and frequencies are structured concurrently in Source Entity One's multi-verse. 
+ **牛眼**：飞镖板或箭靶的中心。表示我完全“得到”它(对正在讨论的主题的理解)的方式。
 
-**Cast-outs**: Entities from Source Entity Two's environment that are ejected from a group association due to underperformance or the entity outgrowing the group. 
+**Carrier Wave**: Telecommunications terminology.Is a sinusoidal waveform modulated with an input signal for the purpose of transmitting information.It is usually a higher frequency than the input signal (the data being transmitted).The purpose of the carrier wave is usually either to transmit the information through space as an electromagnetic wave (as in radio communication)or to allow several carriers at different frequencies to share a common physical transmission medium by frequency division multiplexing (as is used in, for example,a cable television system). 
 
-**Chela**: The disciple of a religious teacher. 
-
-**Cimension**: A single dimension that has all the faculties of the first three lower dimensions we call "up,down,left,right,forwards and backwards"(3D),including other dimensions without them needing to be singularly represented. 
-
-**Coadunate**: A collective state where a group of collectives are congregated together as a larger collective. 
+**载波**：电信术语。是一种正弦波形，通过输入信号调制以传输信息。它的频率通常比输入信号(正在传输的数据)高。载波的目的通常是通过空间作为电磁波传输信息(如无线电通信)，或通过频分复用允许不同频率的多个载波共享一个公共物理传输介质(如有线电视系统)。
 
 **Coal Face**: A coal mining term used to identify that one is at his/her place of work where the work is being performed,where the attention is.Also used in this fashion:"Working Face." 
 
-**Continuum**: A continuum is a body that can be continually sub-divided into infinitesimal elements with properties being those of the bulk(body)material.Matter (the elements)in the body is continuously distributed and fills the entire region of space it occupies. (ref:http://en.wikipedia.org/wiki/Continuum_mechanics). 
+**煤脸**：一个煤矿术语，用于识别一个人在他/她的工作地点，在那里工作，在那里注意力。也可以这样使用：“工作面”。
 
-**Exponential growth and exponential decay**: This occurs when the growth rate of a mathematical function is proportional to the function's current value.In the case of a discrete domain of definition with equal intervals,it is also called geometric growth or geometric decay(the function values form a geometric progression). Source:http://en.wikipedia.org/wiki/Exponential growth 
+**Continuum**: A continuum is a body that can be continually sub-divided into infinitesimal elements with properties being those of the bulk(body)material.Matter (the elements)in the body is continuously distributed and fills the entire region of space it occupies. 
 
-**Fluidic Space**: Space that is constantly changing in every way from dimension to frequency. 
+**连续体**：连续体是一个可以被连续地细分为无限小的元素的实体，其属性是体块(实体)材料的属性。物体中的物质(元素)是连续分布的，并填充它所占据的整个区域。
 
-**Frequentially**: Sequentially-based frequencies in frequentic(multi-frequency)space. 
+**Exponential growth and exponential decay**: This occurs when the growth rate of a mathematical function is proportional to the function's current value.In the case of a discrete domain of definition with equal intervals,it is also called geometric growth or geometric decay(the function values form a geometric progression).
 
-**Geometric progression/growth**: In mathematics,a geometric progression,also known as a geometric sequence,is a sequence of numbers where each term after the first is found by multiplying the previous one by a fixed non-zero number called the common ratio. Source:http://en.wikipedia.org/wiki/Geometric_progression 
+**指数增长和指数衰减**：当数学函数的增长率与函数的当前值成正比时，就会发生这种情况。在定义具有等间隔的离散域的情况下，它也被称为几何增长或几何衰减(函数值形成几何级数)。
+
+**Geometric progression/growth**: In mathematics,a geometric progression,also known as a geometric sequence,is a sequence of numbers where each term after the first is found by multiplying the previous one by a fixed non-zero number called the common ratio. 
+
+**几何级数/增长**：在数学中，几何级数，也称为几何序列，是一个数字序列，第一个项后的每个项都是通过将前一项乘以一个固定的非零数来得到的，称为公比。
 
 **The Grahoopnik**: A race of entities that exist within the hearts of stars.Their existence depletes the stars'energies.Their leaving sometimes causes the star to go nova or supernova. 
 
-**Guru**: A religious teacher or spiritual guide. 
+**格拉霍普尼克**：存在于恒星中心的实体种族。他们的存在消耗了恒星的能量。它们的离开有时会导致恒星变成新星或超新星。
 
 **Hit the ground running**: To start something new without the need to learn first. 
 
-**Hundredth Monkey Effect**: This is a supposed phenomenon in which a learned behavior spreads instantaneously from one group of monkeys to all related monkeys once a critical number is reached.By generalization,it means the instantaneous,paranormal spreading of an idea or ability to the remainder of a population once a certain portion of that population has heard of the new idea or learned the new ability. Source:http://en.wikipedia.org/wiki/Hundredth_monkey_effect 
+**落地运行**：在没有学习之前就开始做新的事情。
 
-**Inrush Current**: The inrush current,input surge current or switch-on surge refers to the maximum instantaneous input current drawn by an electrical device when first turned on. For example,incandescent light bulbs have high inrush currents until their filaments warm up and their resistance increases. Source:http://en.wikipedia.org/wiki/Inrush_current 
+**Hundredth Monkey Effect**: This is a supposed phenomenon in which a learned behavior spreads instantaneously from one group of monkeys to all related monkeys once a critical number is reached.By generalization,it means the instantaneous,paranormal spreading of an idea or ability to the remainder of a population once a certain portion of that population has heard of the new idea or learned the new ability. 
 
-**Light Particle**: A particle of light is known as a photon.A photon travels at the speed of 186,000 miles per second.The theoretical particle,the tachyon,is supposed to travel faster than the speed of light. 
+**第100只猴子效应**：这是一个假设的现象，当达到临界数量时，一种习得的行为会从一群猴子立即传播到所有相关猴子。概括来说，它意味着一旦某个群体的一部分人听说了新的想法或掌握了新的能力，这个群体的其他人就会立即超自然地传播这种想法或能力。
+
+**Inrush Current**: The inrush current,input surge current or switch-on surge refers to the maximum instantaneous input current drawn by an electrical device when first turned on. For example,incandescent light bulbs have high inrush currents until their filaments warm up and their resistance increases. 
+
+**涌流**：涌流，输入浪涌电流或开关浪涌电流是指电子设备第一次打开时所吸收的最大瞬时输入电流。例如，白炽灯泡在灯丝变热和电阻增加之前，会有很高的涌流。
 
 **Loci/Locus**: The center or source of an object/entity.Mathematically speaking,it is the set of all points or lines that satisfy a given requirement.In Source Entity Three's environment,it represents the location of the majority of the entities concerned. 
 
+**轨迹/轨迹**：一个对象/实体的中心或源头。从数学上讲，它是满足给定要求的所有点或线的集合。在 Source Entity Three 的环境中，它代表了大多数相关实体的位置。
+
 **Logarithmic growth**: In mathematics,logarithmic growth describes a phenomenon whose size or cost can be described as a logarithmic function of some input.For example,y=Clog (x).Note that any logarithm base can be used since one can be converted to another by a fixed constant.Logarithmic growth is the inverse of exponential growth and is very slow. 
+
+**对数增长**：在数学中，对数增长描述了一种现象，其大小或成本可以用某个输入的对数函数来描述。例如，y=Clog(x)。注意，由于可以用固定常数将一个对数基转换为另一个对数基，因此可以使用任何对数基。对数增长是指数增长的反面，并且非常缓慢。
 
 **Look-up Table**: A part of a computer program that is used to substitute a known value for another known and correlating value.Consider a graph of axis X &Y and a line from the zero point represented by the crossing of the X,Y axis being extended at 45 degrees from that point to the right hand side of the graph.In this illustration,if the values of X=inches and Y mm then X 1 would correlate to Y 25.4 and X 10 would correlate to Y=254, provided the scaling was correct.The Look Up function being the correlation between X &Y in converting inches to mm. 
 
+**查找表**：计算机程序的一部分，用于将一个已知值替换为另一个已知相关值。考虑一个 X&Y 轴的图形，以及一条从 X 轴与 Y 轴交叉点代表的零点延伸到图形右侧的 45 度线。在这个示例中，如果 X = 英寸，Y = 毫米，那么 X1 将与 Y25.4 相关，X10 将与 Y=254 相关，前提是缩放是正确的。查找函数将 X 和 Y 之间的相关性转换为英寸到毫米。
+
 **Lossy**: A computer term used to describe a conversion function that results in a reduction of some sort due to an either incorrect conversion factor or a specific function of the process used.Certain "losses"are sometimes considered acceptable,but this is only the case where the output is not critical,i.e.,converting an image to JPEG is a lossy conversion function. 
+
+**有损**：一个计算机术语，用于描述一个转换函数，由于不正确的转换因子或所用过程的特定函数而导致某种类型的减少。某些“损失”有时被认为是可接受的，但这只是在输出不是临界的情况下，例如，将图像转换为 JPEG 是一个有损转换函数。
 
 **Magnetosphere**: The outer region of a planet where the magnetic field of the planet controls the motion of certain charged particles. 
 
-**Mahavatar**: A divine incarnation.An entity that is incarnate with all memory of its energetic self,together with fully functioning energetic abilities. 
-
-**Master**: One who has mastered his/her subject matter. 
+**磁层**：行星的外部区域，行星的磁场控制着某些带电粒子的运动。
 
 **Metaconcert**: The linking together of minds,either energetic-or thought-based,to create a collective that has a synergetic effect in the ability to process information,a task,or some creative function.Synergy is that effect experienced where the sum of the whole is more than the sum of the individual units creating the whole when treated in isolation.
 
+**元会话**：将思想连接在一起，无论是基于能量还是基于思想，以创建一个在处理信息、任务或某些创造性功能方面具有协同效应的集体。协同是当单独处理时，整体的总和大于创造整体的单个单元的总和时所体验到的效果。
+
 **Möbius Loop**: The surface of a mobius loop has only one side and only one boundary component.The Mobius strip has the mathematical property of being non-orientable. It can be realized as a ruled surface.It was discovered independently by the German mathematicians August Ferdinand Mobius and Johann Benedict Listing in 1858.
+
+**莫比乌斯环**：莫比乌斯环的表面只有一个边和一个边界组件。莫比乌斯带具有不可定向的数学属性。它可以被实现为一个直线表面。它是由德国数学家 August Ferdinand Mobius 和 Johann Benedict Listing 在 1858 年独立发现的。
+
+（图23）
 
 ![Figure 23](img/s6-058.png)
 
-A model can easily be created by taking a paper strip,giving it a half-twist,and then joining the ends of the strip together to form a loop.In Euclidean space,there are,in fact,two types of Mobius strips,depending on the direction of the half-twist:clockwise and counter- clockwise.That is to say,it is an object with "handedness"(right-handed or left-handed). Source:http://en.wikipedia.org/wiki/M%C3%B6bius_strip Source:http://en.wikipedia.org/wiki/Logarithmic_curve 
+A model can easily be created by taking a paper strip,giving it a half-twist,and then joining the ends of the strip together to form a loop.In Euclidean space,there are,in fact,two types of Mobius strips,depending on the direction of the half-twist:clockwise and counter- clockwise.That is to say,it is an object with "handedness"(right-handed or left-handed). 
 
-**Multipolous**: A multiple of a multiple of a multiple.For instance X cubed,cubed,cubed (X33,3). 
-
-**Nova**: A star that increases in brightness by many thousands of times its usual brightness, gradually fading to its original brightness.The last stages of the life of that star.
+通过取一张纸带，将其扭曲一半，然后将纸带的两端连接在一起形成一个环，可以很容易地创建一个模型。在欧几里得空间中，实际上有两种莫比乌斯带，这取决于半扭曲的方向：顺时针和逆时针。也就是说，它是一个具有“手性”(右手或左手)的物体。
 
 **OM**: Energy-based beings not indigenous to Earth. 
 
+**OM**：非地球原生生物。
+
 **Par**: A golfterm for the number of recognized "shots"from start to finish required to sink the ball into a particular hole. 
+
+**标准杆**：高尔夫术语，指从开始到结束将球击入特定洞中所需要的击球次数。
 
 **Pit Prop**: A pole to re-enforce the structure of a roof within a mine. 
 
+**矿井支撑杆**：矿井内用来加强顶部结构的杆子。
+
 **Pure of Heart**: A lack of error in a creative condition. 
+
+**纯粹的心**：在创造性条件下缺乏错误。
 
 **Score a Bogey"**: Golf terminology for a score one above par for a particular hole. 
 
-**SCUBA**: An acronym for Self Contained Underwater Breathing Apparatus. 
+**打出一个柏忌**：高尔夫术语，指在某个特定洞中比标准杆高出一杆的得分。
 
 **Self-Realization**: The function of being in full command of all our faculties as an energetic being whilst in the physical. 
 
+**自我实现**：作为一个充满活力的存在，在物质世界里能够完全控制我们所有官能的功能。
+
 **Skewed Distribution**: An effect in standard distribution where the classic "bell curve"is pulled to one side of the graph of distribution in lieu of being "normally"distributed.
+
+**倾斜分布**：标准分布中的一种效应，经典的“钟形曲线”被拉到分布图的一边，而不是“正态”分布。
 
 **Speed of light**: The speed of light is currently understood as being 186,000 miles per second. 
 
+**光速**：目前认为光速为每秒186,000英里。
+
 **Spliced Undulation of Dimension**: One or more dimensions linked together as a result of them being close together or overlapping in some part of their area. 
+
+**维度的拼接起伏**：一个或多个维度连接在一起，因为它们靠得很近，或者在它们的区域的某些部分重叠。
 
 **Stickle Brick**: A child's building block similar to a Lego block but with spikes to join them together. 
 
+**粘性积木**：类似于乐高积木的儿童积木，但有尖刺将它们连接在一起。
+
 **Supernova**: An exploding star caused by gravitational collapse. 
 
+**超新星**：由引力坍缩引起的爆炸恒星。
+
 **Triangulation**: A method used in surveying to measure position and distances between positions by the use of a triangle and the angles relating to the position of other positions or locations being surveyed.Mathematically it is a method of proving a mathematic assumption by the use of three different mathematical methods to gain the same answer.
+
+**三角测量法**：在测量中使用三角形和与其他位置或被测量位置相关的角度来测量位置和位置之间的距离的方法。在数学上，它是一种通过使用三种不同的数学方法来获得相同答案来证明数学假设的方法。
 
 ## About the author 
 
 Guy Needler MBA,MSc,CEng,MIET,MCMA initially trained as a mechanical engineer and quickly progressed on to be a chartered electrical and electronics engineer.However, throughout this earthly training he was always aware of the greater reality being around him,catching glimpses of the worlds of spirit.This resulted in a period from his teenage to early twenties where he revelled in the spiritual texts of the day and meditated intensively. Being subsequently told by his guides to focus on his earthly contribution for a period he scaled this back the intensity of spiritual work until his late thirties where he was re- awakened to his spiritual roles.The next six years saw him gaining his Reiki Master and a four year commitment to learn energy and vibrational therapy techniques from Helen Stott, a direct student of the Barbara Brennan School of HealingTM,which also included a personal development undertaking (including psychotherapy)as a course prerequisite using the PathworkTM methodology described by Susan Thesenga with further methodologies by Donovan Thesenga,John and Eva Pierrakos.His training and experience in energy based therapies have resulted in him being a member of the Complementary Medical Association (MCMA). 
 
+盖伊·尼德勒，工商管理硕士，理学硕士，特许工程师，工程技术学会会员，替代医疗协会会员。早期受训成为机械工程师，随即晋升为特许电力电子工程师。不过，在尘世的培训当中，他一直意识到世上有更高的实相，并得以瞥见灵性的世界。这使他从青少年时期到二十多岁的岁月里，沉浸在灵性书籍且勤奋地投入到静心冥想中。随后，指导灵以一种特殊的方式与他沟通，需将重心暂时放在对尘世的贡献上。于是他减少了灵性上的探索，直到将近四十岁时，他又再度被唤醒，重归灵性角色。接下来的六年里，他获得了灵气疗法的导师资格，并用四年的时间向芭芭拉·布南能（Barbara Brennan）的直系学生海伦·斯托特（Helen Stott）学习能量与频率治疗技术。在校期间，他也学习了个人发展与实践，包括心理疗法这一预修课程。该课程使用的道途法由苏珊·赛森格（Susan Thesenga）提出，并由多诺万·赛森格（Donovan Thesenga），约翰（John）与伊娃·皮拉克斯（Eva Pierrakos）等人进一步发展。之后，能量治疗方面的培训和经验，使他成为了替代医疗协会（MCMA）会员。
+
 Along with his healing abilities his spiritual associations include being able to channel information from spirit including constant contact with other entities within our multiverse and his higher self and guides.It is the channelling that has resulted in The History of God,Beyond the Source and is producing further work. 
+
+除了能量疗愈方面的能力，他的灵性能力还包括能够传递灵界信息，以及持续与我们多维宇宙中各种实体及存有、他的高我及指导灵保持接触。《源头简史》正是源于他的深度冥想传导，且他正在带来更多的颠覆传统认知的著作。
 
 As a method of grounding Guy practises and teaches Aikido.He is a 5th Dan National Coach with 30 years experience and is currently working on the use of spiritual energy within the physical side of the art. 
 
+盖伊还练习并传授合气道，作为一种接地的方法。在此领域他拥有三十年经验，是五段国家级教练，目前正将灵性能量融入这门艺术当中。
+
 Guy welcomes questions on the subject of spiritual physics and who and what God is. 
+
+盖伊热忱欢迎大家提问有关灵性物理学以及源头是谁、源头是什么的问题。
 
 Website: www.guystevenneedler.com 
 
