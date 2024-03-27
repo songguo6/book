@@ -4,7 +4,11 @@
 
 The Origin Speaks : A Channelled Work 
 
+起源之声：通灵作品
+
 Guy Steven Needler
+
+盖伊·斯蒂文·尼德勒
 
 ---
 
@@ -54,201 +58,399 @@ For my dear wife, Anne Elizabeth Milner Now "Ascended"
 
 ## Introduction - The Origin Speaks 
 
+**引言：起源之声**
+
 I FINISHED CHANNELLING/TYPING the last words to Beyond the Source,Book 2 mid- June 2012 ahead of schedule,giving me enough time to finish editing the lectures I was due to present at the Ozark Mountain Publishing 2012 Transformation Conference in Rogers, Arkansas,and prepare for my first US tour.I felt like I was winning the battle with the amount of work that the Source Entities and The Origin were placing on my shoulders,or that I was getting used to the commitment! 
+
+我完成了超越源头2的最后的文字，2012年6月中旬提前完成通灵/打字，给了我足够的时间来完成我应该在阿肯色州罗杰斯的奥扎克山出版2012年转型会议上的演讲编辑，并准备我的第一次美国之旅。我感觉我正在赢得战斗，与源实体和起源正放在我肩膀上的工作量，或者我正在适应承诺！
 
 I knew that I was destined to teach people (and I met and worked with some truly remarkable people,dedicated to knowing the truth and committed to working with the techniques given them)the basics in how to contact the Source Entity for themselves, creating a permanent,robust and substantive link,as well as channeling the information for the books that were/are destined to expand mankind's knowledge of the structure of the multiverse and those other multiversal environments created by the other eleven Source Entities.I was also very aware that this book,The Origin Speaks,would take these boundaries much further out,by explaining through a unique dialogue with The Origin —— The Absolute —— All There IS,more about its plan for evolution,its knowledge of self,its structure and what it is personally doing to increase its own evolutionary content.I was also becoming aware of the nature of future books and subject matters.My head was already starting to hurt with the anticipation of the subject matters we would discuss over the next eighteen to twenty-four months. 
 
+我知道我命中注定要教导人们(我遇到和与一些真正了不起的人一起工作，致力于了解真相，并致力于与他们所给的技术一起工作)如何为自己联系源实体的基本知识，创建一个永久的，强健的和实质性的链接，以及为那些注定要扩展人类对多维宇宙结构的知识和那些由其他11个源实体创造的其他多维宇宙环境的书籍通灵信息。我也非常清楚这本书，起源说话，将进一步扩大这些界限，通过与起源——绝对——一切存在的独特对话，解释更多关于它的进化计划，它对自我的认识，它的结构和它正在做什么来增加自己的进化内容。我也开始意识到未来书籍和主题的性质。我的头已经开始疼了，因为我预料到我们将在未来18到24个月讨论的主题。
+
 With all of this whizzing around in my consciousness,including the plans,counter plans, schedules and commitments I have made to service the peripheral roles I undertook as part of this mission (writing channeled information being just one of them)I sit here at my computer wondering what is going to happen next.Right now I am a blank page,a husk, a cup waiting to be filled with the water of divine knowledge,full of anticipation of that feeling that comes over me when I am about to be in full contact with The Origin or one of the Source Entities.The energies around me are alight as the contact comes.The hair on the back of my neck stands on end and my skin crawls all over,a sure sign that I am about to be contacted. 
+
+随着所有这些在我意识中嗡嗡作响，包括计划、反计划、时间表和承诺，我已经做出了作为这个任务的一部分，我承担的外围角色的服务(写通灵信息只是其中之一)我坐在我的电脑前，想知道接下来会发生什么。现在我是一张空白页，一个外壳，一个杯子，等待被充满神圣知识的水，充满了对那种感觉的期待，当我即将与起源或一个源实体充分接触时。随着接触的到来，我周围的能量开始燃烧。我脖子后面的头发竖起来，我的皮肤全身起鸡皮疙瘩，一个确定的信号，我即将被联系。
 
 It wasn't a total surprise when our Source Entity started the next dialogue.Well,I did put the call out to both The Origin and our Source Entity.It would have been rude to have not included them both to comment in the introduction.What I wasn't prepared for(although I should have anticipated it)was the sudden picture that came into my mind's eye.I was in a special area of space,that space that is outside of our Source Entity while still being within The Origin's area of self-awareness,I was surrounded by ALL of the Source Entities and not just my own Source Entity;or was it my own Source Entity?I was due to find out more about my own heritage later.
 
+当我们的源实体开始下一个对话时，这并不完全是一个惊喜。嗯，我确实把电话打给了“起源”和我们的源实体。如果在介绍中不包括他们两个的评论，那将是粗鲁的。我没有准备的(尽管我应该预料到它)是突然出现在我脑海中的画面。我在一个特殊的空间区域，那个空间在我们的源实体之外，但仍然在“起源”的自我意识区域内，我被所有的源实体包围着，而不仅仅是我自己的源实体；或者是我自己的源实体吗？我后来发现了更多关于我自己的遗传。
+
 I had tears of joy in my eyes at the mental sight of them all together,which included an aspect of Source Entity Twelve,that Source Entity that was not only barely aware when I initially contacted it,but was the first Source Entity to venture outside of The Origin's area of self-awareness.It was a delightful sight,sheer joy to behold.Within all of these blissful experiences that had suddenly hit me,I was also aware of something else,of being more substantial,of being bigger,much bigger than I was in my minuscule human form.I was starting to notice that aspect of me that was my true energetic self,and it was huge!Again my eyes filled with tears of joy.I was as close to being home in this incarnation as I had ever been.Oh the joy,the love!How could I have ever left this to be incarnate?I shook my head to clear my thoughts and Source Entity One,our/mankind's Source Entity,spoke an introduction. 
+
+当我看到他们在一起时，我的眼睛里充满了喜悦的泪水，其中包括源实体12的一个面向，那个源实体不仅在我最初联系它时几乎没有意识，而且是第一个冒险走出“起源”自我意识区域的源实体。这是一个令人愉快的景象，看到它纯粹是喜悦。在所有这些突然袭击我的幸福体验中，我还意识到其他一些东西，更实质的，更大的，比我微小的人类形态大得多。我开始注意到我真正的充满活力的自我的那个方面，它是巨大的！ 的眼睛再次充满了喜悦的泪水。我在这个化身中离家很近，就像我曾经做过的那样。哦，喜悦，爱！我怎么能离开这个来投胎？我摇摇头清空我的思绪，源实体1，我们/人类的源实体，做了介绍。
 
 SE1:You have come far my friend.It is a delight to see you becoming that which you are destined to be in the face of incarnate adversity. 
 
+1号源实体：你已经走了很远，我的朋友。看到你成为你注定要在面对化身的逆境时成为的人，这是一件令人高兴的事。
+
 ME:It's wonderful to speak to you again,so soon after the last book was finished. 
+
+我：在上一本书完成后不久，又能和你说话真是太棒了。
 
 SE1:And it is wonderful to speak with you as well,even though you are now entering into your exalted position. 
 
+1号源实体：和你说话也很棒，即使你现在进入了你的崇高地位。
+
 ME:What exalted position?All I see is a sea of work,and jolly hard work at that! 
+
+我：什么崇高地位？我看到的只是工作的海洋，而且是快乐的艰苦工作！
 
 SE1:You will realize this position in good time.But right now you are due to take on board the next stage of your work,a unique and direct dialogue with The Origin.
 
+1号源实体：你会及时意识到这个位置。但现在你应该开始你的工作的下一阶段，与起源的独特而直接的对话。
+
 ME:Oh come on,it's not that unique.I/we have spoken to The Origin before.It can't be that difficult,can it? 
+
+我：哦，别这样，这不是那么独特。我/我们以前和起源说过话。这不会那么难，对吧？
 
 SE1:Previous communications with The Origin have been limited to a very small aspect of The Origin.This was a necessary process to allow you to get energetically and mentally used to the possibility of a committed and long-term dialogue with The Origin. 
 
+1号源实体：以前和起源的交流一直局限于起源的一个很小的方面。这是一个必要的过程，让你在精力和精神上适应与起源进行长期对话的可能性。
+
 ME:So I have only been communicating with a part of The Origin to date? 
+
+我：所以到目前为止我只和起源的一部分交流过？
 
 SE1:Yes.Just as you only communicated with a small aspect of me in our early days of contact,so have you only been in contact with a very small aspect of The Origin to date. 
 
+1号源实体：是的，就像你在我们最初接触时只和我一小部分交流过一样，到目前为止你也只接触到起源的一小部分。
+
 That would explain the energies that were flowing over me.I was starting to realize that they were much more pronounced than before.They were intoxicating! 
+
+这可以解释为什么能量在我身上流动。我开始意识到它们比以前更明显了。它们令人陶醉！
 
 ME:I wondered why it wasjust as easy to communicate with The Origin as it was with you.It was very easy,almost like chatting with a friend. 
 
+我：我想知道为什么和起源交流就像和你交流一样容易。它非常容易，几乎就像和一个朋友聊天一样。
+
 SE1:Well now you know.I will give you a hint if you like.It will be like flying model airplanes and then being asked to take control of a space shuttle or fighter jet.
+
+1号源实体：现在你知道了。如果你愿意的话，我可以给你一个提示。这就像在飞模型飞机，然后被要求控制一架航天飞机或战斗机。
 
 ME:Irrespective of how it will feel I had better get started.I feel the energies washing over me on a regular basis.And,you are right;this feels very much different from those I have felt before when communicating with The Origin. 
 
+我：不管感觉如何，我最好开始。我感觉到能量定期地冲刷着我。而且，你是对的，这感觉与我以前与起源沟通时所感觉到的非常不同。
+
 SE1:Of course I am right.Just take it slowly. 
+
+1号源实体：当然我是对的，慢慢来。
 
 ME:I will. 
 
+我：我会的。
+
 I disconnected with Source Entity One and waited a moment.I didn't need to wait long. 
+
+我断开与1号源实体的联系，等了一会儿。我不需要等太久。
 
 O:Are you ready?You have made me wait six weeks!We were due to start straight away! 
 
+起源：你准备好了吗？你已经让我等了六个星期！我们应该马上开始的！
+
 The wash of energies subsided.I got the impression that The Origin was regulating its contact for the moment until I was fully used to its new level of dialogue with me. 
+
+能量的冲击平息了下来。我得到的印象是起源正在调节它的接触，直到我完全适应它与我对话的新层次。
 
 ME:Sorry,life on Earth got in the way. 
 
-O:So I can see.You are forgiven,for I see that it was the "good"work that you were doing. 
+我：对不起，地球上的生命挡了路。
+
+O:So I can see.You are forgiven,for I see that it was the "good" work that you were doing. 
+
+起源：我明白了。我原谅你了，因为我知道你做的事是“好”事。
 
 ME:It's only the start and is small as a result.
 
+我：这只是个开始，结果很小。
+
 O:All good things start small.I started small and look at me now. 
+
+起源：一切美好的事物都从小事开始。我从小事开始，看看现在的我。
 
 ME:I can't.You're too big. 
 
+我：我不能。你太大了。
+
 O:Exactly.But you can reach the periphery of my area of self-awareness and that in itself is a wonder,especially in your incarnate state.I am pleased and delighted. 
+
+起源：确实如此。但是你能达到我自我意识的边缘，这本身就是一个奇迹，特别是在你的化身状态下。我很高兴。
 
 ME:Thank you. 
 
+我：谢谢。
+
 O:It's a pleasure.And now that we have gotten the preliminaries out of the way we should start,for we have a lot of work to do together. 
+
+起源：很高兴。既然我们已经完成了初步的准备工作，我们应该开始了，因为我们有很多工作要一起做。
 
 ME:It's good to see you still have a sense of humor. 
 
+我：很高兴看到你还有幽默感。
+
 O:Of course.I invented it.Shall we start? 
+
+起源：当然可以。是我发明的。我们开始吧？
 
 I have tears in my eyes again!I have the feeling that this is going to be a wondrous and unique journey for us all. 
 
+我又热泪盈眶了！我有一种预感，这对我们所有人来说将是一次奇妙而独特的旅程。
+ 
 Welcome back,dear reader.
+
+欢迎回来，亲爱的读者。
 
 ## Chapter 1 - The Origin Awakens 
 
+**第一章：起源觉醒**
+
 AT THIS POINT I DECIDED to mentally reconnect with that information that The Origin had bestowed upon me during the compilation of the texts that resulted in The History of God and Beyond the Source,Books 1 and 2,to see what subjects I needed to work with The Origin on.I realized very early on in this thought process that the information I did have was actually quite patchy and limited,very limited I might add,to quite short dialogues within the texts of the books I had already written;the main focus actually being on the other Source Entities and their environments/entities and achievements,albeit in a digestible way,rather than on The Origin itself.Based upon this I thought it prudent to not dwell on the past and start with a clean sheet of paper.Or should I say a blank computer screen.With this firmly in mind I decided to start from the very beginning,making no assumptions on readers picking up this text as a "follow on"from my previous books and placed this book as a self-sustaining "stand alone"option for the discerning truth seeker to read.As I finished typing this text I felt The Origin,its energies cool like a cold shower came over me,and we commenced dialogue. 
+
+此时我决定在精神上重新连接《源头简史》和《超越源头 1&2》的文本编辑过程中，起源赐予我的信息，看看我需要与起源一起工作在什么主题上。在这个思考过程中，我早早地意识到，我所拥有的信息实际上相当零散和有限，我可能会补充说，对我已经写过的书的文本中的相当短的对话来说，非常有限；主要的焦点实际上是其他源实体及其环境/实体和成就，尽管是以一种可消化的方式，而不是起源本身。基于这一点，我认为谨慎的做法是不沉湎于过去，从一张干净的白纸开始。或者我应该说一个空白的电脑屏幕。牢记这一点，我决定从最开始开始，不假设读者把这本书作为我以前的书的“后续”，并将这本书作为一个自给自足的“独立”选择，供有识之士阅读。当我打完这篇文章的时候，我感觉到起源，它的能量就像一盆冷水一样降临到我身上，我们开始对话。
 
 O:Cool shower,eh!I had never considered that my energies would be considered as a cool shower.Perhaps you need one? 
 
+起源：凉水浴，嗯！我从来没有想过我的能量会被认为是凉水浴。也许你需要一个？
+
 ME:I didn't think we would start this dialogue off with humor.I anticipated diving straight into the nitty-gritty of the detail. 
+
+我：我认为我们不会以幽默开始对话。我期待着直接进入细节的真相。
 
 O:It's best to bring the level of what we are going to discuss down to that where everyone who reads this text will feel that they are going to be able to understand the information.If during the first few sentences they feel that the information is going to be over their heads then they will put the book down and it will become a door-stop at best.On the other hand if they feel that they are going to have some light relief at certain points in the dialogue,and that the information being discussed is going to be presented in a way that is understandable,then they will continue.In this way you will retain the attention of your readers and expand the reader base as a result.But more importantly more incarnate individuals will be "in the knowledge"so to speak,and as a result will be accessing and working with the energies of the information in a passive and stress-free way.It is difficult enough for many of you to understand that there is a creator,a Source Entity,a God that is a real and definable reality,let alone a creator of one's God,and that you,my dear one,are communicating with it and presenting the fruits of such a communication to the rest of the incarnate human race.No,we need to keep this dialogue as simple as possible,and that in itself is going to be hard,for some of the subjects we are going to discuss are going to be above and beyond that which you have already discussed with me and the Source Entities.Now then,where do you want to start?
 
+最好把我们要讨论的水平降低到每个阅读这篇文章的人都会觉得他们能够理解的信息。如果在前几句话中他们觉得这些信息超出了他们的头脑，那么他们就会把书放下，它最多会成为一个门挡。另一方面，如果他们觉得他们在对话的某些点上会有一些轻松的放松，正在讨论的信息将以一种可以理解的方式呈现，那么他们会继续。这样你将保持读者的注意力，并扩大读者群。但更重要的是更多的化身个体将“在知识中”，因此将以一种被动和无压力的方式访问和使用信息的能量。对你们中的许多人来说，理解有一个创造者，一个源实体，一个真实和可定义的现实的上帝是足够困难的，更不用说一个人的上帝的创造者，而你，我亲爱的，正在与它交流，并把这种交流的成果展示给其他化身的人类。不，我们需要让这个对话尽可能简单，而这本身将是困难的，因为我们将要讨论的一些主题将高于和超越你已经与我和源实体讨论过的内容。现在，你想从哪里开始？
+
 ME:Let's try the very beginning,your awakening,your becoming aware,and the process of your becoming aware now that you have the benefit of hindsight. 
+
+我：让我们从最开始，你的觉醒，你的意识，以及你现在有了后见之明的意识的过程。
 
 ### The Beginning of the End of Nothingness (Possibility Creates Event Space) 
 
+**虚无终结的开始(可能性创造事件空间)**
+
 ME:Let's go back to the very beginning of your existence.What actually happened to make you become awake,aware,and sentient all that time ago,and,what did it feel like?I mean, I have asked a few of the Source Entities what it felt like to become aware and awake,butI would like to understand from yourself in more detail how it was with you. 
+
+我：让我们回到你存在的最开始。那么多年前到底发生了什么让你变得清醒，有意识，有知觉，那是什么感觉？我的意思是，我已经问过一些源实体，变得有意识和清醒是什么感觉，但我更想从你自己那里了解更多细节。
 
 O:I will go so far as to say that it was a gradual affair,rather like you coming out of a rather long and deep sleep.At first I just "WAS."There was no individualized thought or thought processes to speak of,just beingness.Yes,I can say that it was like just being,a level of beingness that slowly came into focus. 
 
+起源：我只能说这是一件渐进的事，就像你从一个长长的沉睡中醒来。起初我只是“存在”，没有任何个性化的思想或思想过程可言，只是存在。是的，我可以说它就像只是存在，一种慢慢地集中起来的存在。
+
 I was just a "Being,"in that which was a vast tract of nothingness.I was a cool breeze, a warm thermocline,a will-o'-the-wisp.There was just observation and no questioning, no analysis,no reasoning,no discussion,no thought,and no recognition of self.Just a momentary area of nothingness that was a little bit more than nothingness.
+
+我只是一个“存在”，在一片巨大的虚无中。我只是一缕凉风，一缕温暖的温跃层，一缕微风。只有观察，没有质疑，没有分析，没有推理，没有讨论，没有思考，也没有自我认知。只是一个瞬间的虚无区域，比虚无多一点点。
 
 ME:How long did that last for? 
 
+我：那持续了多久？
+
 O:Who knows?I certainly don't,for I had no capacity for memory at that point.I was just an infinitesimally small part of the nothingness that was infinitesimally different than the nothingness.I was more than nothingness,I was somethingness but without personalized recognition of such somethingness.In effect I was comfortably numb. 
+
+起源：谁知道？我当然不知道，因为我那时没有记忆能力。我只是虚无中极小的一部分，与虚无有极小的区别。我比虚无要好，我有点东西，但是没有个人对这种东西的认识。实际上，我当时是舒适地麻木着。
 
 ME:So when did you start to gain awareness to the point of recognition of self? 
 
+我：那么你是什么时候开始获得意识，以至于认识到自我的？
+
 O:Again it's difficult to say because I was not in the capacity of creativity then and certainly was not able to have memory.Memory is a function of passive creativity, but passive creativity needs one to be able to receive individualized thought processes, which at that time I did not have. 
+
+起源：同样，这很难说，因为我当时没有创造力，当然也不能拥有记忆力。记忆力是被动创造力的功能，但被动创造力需要一个人能够接受个性化的思维过程，而我当时没有。
 
 What I will say is this.That when I look at the processes of the individualization of energies and other components that are my make-up,and I see how the energies of my Source Entities developed individualization/singularity of awareness,I recognize that the process is nearly always the same.I therefore note that the transformation of nothingness to somethingness and further into self-recognition must have been the same,for they are individualized units of me. 
 
+我要说的是，当我看到能量的个性化过程和其他组成部分是我的构成，我看到我的源实体的能量是如何发展个性化/意识的独特性，我认识到这个过程几乎总是相同的。因此，我注意到从虚无到有物，进一步到自我认知的转变一定是相同的，因为它们是我的个性化单元。
+
 ME:So what you are suggesting is that the awakening process is the same for any group of energies that are "of the right quality and density?"
+
+我：所以你的意思是，觉醒的过程对于任何“质量和密度合适”的能量组都是相同的？
 
 O:No,I am not saying that.What I am saying is that it must be similar.The process is, in general,the same but the percentage mix and density of the required energies will be a variable.Listen,I am not in a position to be able to describe in a definitive way the process I went through in the initial process of my awakening because I was not in a state of sentient awareness.What I can do is tell you in detail how a Source Entity, or even your self-your own energies-became aware of self and developed sentient thought throughout the process,"soup to nuts"so to speak.I can even tell you the process of my becoming aware from my smallest level of awareness onward to now.But before that I cannot. 
 
+起源：不，我不是这个意思。我的意思是它们一定是相似的。大体上说，过程是一样的，但是所需能量的比例和密度是不同的。听着，我现在还不能确切地描述我最初觉醒时所经历的过程，因为我当时还没有觉醒。我能做的只是详细地告诉你一个源实体，或者甚至是你自己——你自己的能量——是如何在整个过程中觉醒并发展出有情思维的，可以说是“从汤到坚果”。我甚至能告诉你我从最小的觉醒到现在的觉醒过程。但是在这之前，我不能。
+
 ME:Can you not use Event Space to go back to that point where you were energies coalescing, becoming the right density,gaining the right quality,becoming individualized,and gaining thought?Or,was Event Space one of your own creations? 
+
+我：你不能用事件空间回到那个点，在那里你能量聚合，变成正确的密度，获得正确的质量，变得个性化，获得思想？或者，事件空间是你自己的创造之一？
 
 O:No,Event Space is a product of that which is me.It was not created by me.It is me. 
 
+起源：不，事件空间是我的产物。它不是由我创造的。它就是我。
+
 ME:In that case,we could visit that Event Space that recorded your early awakening process, that part of you that was not able to intellectualize that which was happening to you,giving both you and me a complete picture of your awakening process. 
+
+我：那样的话，我们可以访问那个记录了你早期觉醒过程的事件空间，那个你无法理智化发生在你身上的事情的部分，让你和我对你的觉醒过程有一个完整的了解。
 
 O:Well done! 
 
+起源：干得好！
+
 ME:What? 
+
+我：什么？
 
 O:Well done!I think that you will be OK with the concepts that we will be discussing during this dialogue. 
 
-ME:What do you mean?Why do I suddenly feel like I have passed a test? 
+起源：做得好！我认为你将对我们将在这次对话中讨论的概念感到满意。
+
+ME:What do you mean? Why do I suddenly feel like I have passed a test? 
+
+我：什么意思？为什么我突然觉得我通过了考试？
 
 O:That's because you have.You need to have realized that there are no boundaries when dealing with me,at least none that would affect our dialogue.We can use that which is in existence,in this instance Event Space,at any time to see or experience that which wasn't in existence.We can even go back before existence itself,should we wish to do so but that would not be productive right now. 
 
+起源：那是因为你已经，你需要意识到，当你和我在一起的时候，没有任何的界限，至少没有任何会影响我们对话的界限，我们可以使用已经存在的，在这个例子中是事件空间，在任何时候去看到或体验那些不存在的，我们甚至可以回到存在之前，如果我们想这样做的话，但现在这样做不会有任何的收获。
+
 ME:That meaning the only boundary is being able to recreate yourself. 
+
+我：这意味着唯一的界限是能够重新创造自己。
 
 O:Yes,that's about the size of it,but we will discuss that subject in a later dialogue because it's a very important subject and it needs to be understood in some detail.So,are you ready for a ride? 
 
+起源：是的，大概就是这个大小，但是我们会在后面的对话中讨论这个问题，因为这是一个非常重要的话题，需要详细了解。那么，你准备好坐车了吗？
+
 ME:Where to? 
+
+我：去哪儿？
 
 O:That Event Space where it was all happening for me to become aware. 
 
+起源：那个事件空间，我意识到所有事情都发生在那里。
+
 ME:You mean we are going to go there to witness your awakening? 
+
+我：你的意思是我们要去那里见证你的觉醒？
 
 O:Yes,of course.This will be essential observational work for you to pass on to mankind incarnate.What's more it will settle a few arguments there are between you all about how The Origin,The Absolute became that which it is.
 
+起源：是的，当然。这将是你传递给人类化身的必要的观察工作。更重要的是，它将解决你们之间关于“起源”和“绝对”如何成为现在的样子的一些争论。
+
 ME:OK,but before we move off and witness the process of this monumental event,I want to ask one question. 
+
+我：好的，但在我们出发去见证这个历史性事件之前，我想问一个问题。
 
 O:Ask away. 
 
+起源：随便问吧。
+
 ME:How can Event Space record that which it wasn't told to record?I mean,Event Space, from my knowledge,is usually invoked when there is a decision to be made,and that needs a sentient entity to create the decision point,the reason for the Event Space to be in existence. Or have I got this totally wrong? 
+
+我：事件空间怎么能记录它没有被告知要记录的东西？我的意思是，事件空间，据我所知，通常是在需要做出决定时被调用，而这需要一个有意识的实体来创建决策点，事件空间存在的原因。或者我完全弄错了？
 
 O:No you aren't wrong,just barely educated in such matters.You see,Event Space does not need an entity's decision point,or should I say,it's an entity's decision to choose one route when two are offered,for as you rightly say,it needs a sentient entity to create the opportunity for the introduction of two or more realities.Event Space is created when there is a change or potential change in anything that was previously considered the norm,the main stream condition of anything,and that includes the change in the environment or the potential change in the environment,due to changes,no matter how small,that creates a before and after condition. 
 
+起源：你没错，只是在这些问题上几乎没有受过教育。你看，事件空间不需要一个实体的决定点，或者我应该说，当有两个选择时，它是一个实体选择一条路线的决定，因为正如你正确地说的，它需要一个有意识的实体来创造机会，以引入两个或更多现实。事件空间是在任何事物发生变化或潜在变化时产生的，而这些事物之前被认为是规范，是任何事物的主流条件，这包括环境的变化或环境的潜在变化，由于变化，无论多么小，都创造了之前和之后的条件。
+
 ME:So how does it know when it needs to come into play,to create an alternative,a parallel universe? 
+
+我：那么它怎么知道什么时候需要发挥作用，创造一个替代品，一个平行宇宙？
 
 O:In my area of self-awareness there is no such thing as a universe or indeed a parallel universe,for they are a product of the Source Entities.You may,in this instance,call it a parallel environment,an environment based upon "all that there is"rather than a universe,for in reality that is what is being created,an environment based upon the area of my awareness. 
 
+起源：在我自我意识的领域里，没有宇宙或平行宇宙这样的东西，因为它们是源实体的产物。在这种情况下，你可以称它为平行环境，一个基于“所有存在”的环境，而不是一个宇宙，因为在现实中，它就是正在被创造的东西，一个基于我意识领域的环境。
+
 ME:Hold on though,isn't that recreating that which you are,The Origin-The Absolute-All There Is.I thought you couldn't recreate that which you are! 
+
+我：等等，那不是在重塑你自己吗，那个本源-绝对-万有。我以为你不能重塑你自己！
 
 O:I can't recreate me,but a parallel version of me can be created. 
 
+起源：我不能重造我自己，但可以创造一个与我平行的版本。
+
 ME:But,but isn't that recreating you!Isn't a parallel version of you a recreation of you? 
+
+我：但是，但是那不是在重塑你吗？你的平行版本不是在重塑你吗？
 
 O:No. 
 
+起源：没有。
+
 ME:Why? 
+
+我：为什么？
 
 O:Because the parallel version of me is a local version of me and not me per se. 
 
+起源：因为平行版本的我只是一个局部版本的我，而不是我本身。
+
 ME:Go on. 
+
+我：继续。
 
 O:When Event Space creates a parallel version of that which is subject to "change"- based division,it does it on a local basis and not on a total basis.When I tried to recreate myself,and we will discuss this subject in much more detail later,I tried to create the whole of me,of which included the totality of self that I wasn't aware of at that point in my existence,within myself.Not knowing exactly how expansive I was meant that I created an error in that which was created and that location it was created in.In essence I tried to squeeze those "Origins"that I created into a fraction of that which I was aware of myself,hence them not surviving.
 
+起源：当事件空间创造了一个平行版本的，受制于基于“变化”的分裂，它在一个局部的基础上，而不是在一个整体的基础上。当我试图重建我自己，我们稍后将更详细地讨论这个主题，我试图创造整个我，其中包括我在我的存在中，在我自己内部，没有意识到的自我的整体。不知道我到底有多大，意味着我在被创造的事物和被创造的位置上创造了一个错误。
+
 ME:OK it's a bit clearer now but you still haven't told me how Event Space "knows"when to create a new and parallel environment/universe or area of local space,aligned or un-aligned to an individual entity or event.Just how does it do it? 
+
+我：好的，现在有点清楚了，但你还没有告诉我事件空间是如何“知道”什么时候创建一个新的和平行的环境/宇宙或局部空间的区域，与单个实体或事件对齐或不对齐。它是如何做到这一点的？
 
 O:It simply becomes available and localized to that which is recognized as a potential change point. 
 
+起源：它只是变得可用和本地化，被认为是一个潜在的改变点。
+
 ME:Yes,but HOW? 
+
+我：是的，但是怎么去？
 
 O:You remember talking to Source Entity Ten (see Beyond the Source,Book 2)about triangulation and how "free energy"is attracted to the opportunity for evolution.To multiply or grow by providing the opportunity for increased evolutionary content of those entities within the "triangulation zone"of both directional and inflational triangulation,effectively creating that which it is attracted to-evolution. 
 
+起源：你记得你和源实体10谈过三角化(见《超越源头2》)以及“自由能量”是如何被进化机会吸引的。通过提供机会增加那些在“三角化区域”内定向和膨胀三角化的实体的进化内容，有效地创造它所吸引的进化。
+
 ME:Yes,I do. 
+
+我：是的，我知道。
 
 O:Well,it's a similar process.I will explain.As a result of the possibility of a different possibility being created,Event Space effectively ends up providing itself as a platform for that which it is attracted to.Event Space is itself a product.It is a product of "looped" creation,the creation of the opportunity for variation from that which currently is, to that which could be,both being in existence concurrently.Indeed,it doesn't even need the inherent opportunity,for if there is an instability in that which "is"then there is the opportunity for at least a dualistic condition to arise in another future but simultaneously occurring event,therefore giving rise to the opportunity for the energies surrounding these two or/and more conditions to be in concurrent existence. 
 
+起源：嗯，这是一个类似的过程。我来解释一下。由于创造出一种不同的可能性，事件空间最终有效地为它所吸引的东西提供了一个平台。事件空间本身就是一个产物。它是一个“循环”创造的产物，创造了从当前的状态到可能的状态的变化机会，两者同时存在。事实上，它甚至不需要固有的机会，因为如果“存在”中存在不稳定性，那么至少有一个二元条件的机会出现在另一个未来但同时发生的事件中，因此产生了围绕这两个或更多条件的能量同时存在的机会。
+
 ME:Why did you use the word "looped"then?I saw no opportunity to use the word "looped" in the text above.However,I do have to admit that I have been hearing the words "chicken and egg"for the last fifteen minutes and I can see how the chicken and egg concept can be called looped,for it is the unsolvable conundrum.It's a catch-22 scenario,the one creating the other but the other needs to be created by the one before it can itself create the one. 
+
+我：那你为什么要用“循环”这个词呢？我看不出在上面的文本中有什么机会使用“循环”这个词。然而，我不得不承认，在过去的15分钟里，我一直在听“鸡和蛋”这个词，我可以看到鸡和蛋的概念如何被称为循环，因为这是一个无法解决的难题。这是一个第22条军规的情景，一个创造另一个，但在它自己创造一个之前，另一个需要被另一个创造。
 
 O:I see your problem in understanding.I will simplify for you-again. 
 
+起源：我明白你理解上的问题了。我再为你简化一下。
+
 In your current thinking process you are considering that things happen in a linear way. Well,they don't in reality,but you know this.In the greater reality the chicken and the egg can and do exist concurrently,before and after each other.In this way the one can create the other without the need for the others prior and linear existence. 
+
+在你目前的思考过程中，你认为事情以线性方式发生。好吧，它们在现实中不是这样，但你知道这一点。在更大的现实中，鸡和蛋可以并存，彼此之前和之后。这样，一个可以创造另一个，而不需要另一个先前的线性存在。
 
 I can see that you are frowning so I will change the method of explanation.That which Event Space "is,""is"attracted to the possibility of duality and its myriad expansion points of additional duality.You can call it geometrically fractal progression if you like.With the possibility of duality being available,the possibility itself creates the possibility of the creation of duality,which in turn creates the agitation in the energies surrounding the possibility of duality and its multiple possibilities,to the point of potential and therefore possible disharmony.This disharmony cannot exist in the same space so a new space is created as a solution to the disharmony,a new Event Space.
 
+我能看到你皱眉，所以我会改变解释的方法。事件空间“是”，“是”吸引到二元性的可能性和它无数的额外二元性的扩展点。如果你愿意，你可以称之为几何分形进展。随着二元性的可能性变得可用，这种可能性本身创造了创造二元性的可能性，这反过来又在围绕二元性的可能性及其多重可能性的能量中创造了骚动，达到潜在的点，因此可能不和谐。这种不和谐不能在同一空间中存在，所以一个新的空间被创造出来作为不和谐的解决方案，一个新的事件空间。
+
 ME:So Event Space is a disharmony of energies based upon the possibility of another possible reality,the possibility of another "space?" 
+
+我：所以事件空间是基于另一个可能现实的可能性，另一个“空间”的可能性的不和谐能量？
 
 O:No,it is created by that disharmony,the agitation of that which "is,"based upon the need for a dualistic state of being.In essence it is the energies,and other components, that are created by the possibility of possible possibilities. 
 
+起源：不，它是由不和谐所创造的，是基于对二元存在状态的需求而产生的“存在”的激动。本质上，它是由可能的可能性所创造的能量和其他成分。
+
 ME:Right,now I think I have got it.Shall we go to that point of your awakening? 
+
+我：好的，现在我想我明白了。我们可以去你觉醒的地方吗？
 
 O:Yes,let's go.I am looking forward to this,in some bizarre way. 
 
+起源：是的，我们走吧。我有点儿奇怪地期待着这次旅行。
+
 ME:Why? 
+
+我：为什么？
 
 O:Because I have progressed,and find the need to review that which is prior to progression somewhat regressive.I therefore have not bothered to observe that which has "been"me.I have only observed that which I have done and improved it.That's why it is bizarre.It's different for me,it's good and I thank you for giving me the opportunity for utilizing an aspect of me in observing myself in this way. 
 
+起源：因为我进步了，发现回顾进步之前的需要有点倒退。因此我没有费心去观察“曾经”是我的那个我。我只观察我做过并改进过的事情。这就是为什么它很奇怪。对我来说这是不同的，这是好的，我感谢你给我这个机会，让我利用自己的一个方面以这种方式观察我自己。
+
 ME:Believe me,the honor is ALL mine. 
 
+我：相信我，这份荣誉全是我的。
+
 Then we were somewhere else. 
+
+然后我们去了别的地方。
 
 ### Before The Origin —— Event Space —— An Automatic Record of That Which "Was" 
 
