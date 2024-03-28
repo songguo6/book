@@ -454,101 +454,199 @@ Then we were somewhere else.
 
 ### Before The Origin —— Event Space —— An Automatic Record of That Which "Was" 
 
+**在起源之前——事件空间——“曾经”的自动记录**
+
 I experienced nothing,that is nothing like the feeling of translation that I experienced with Source Entity Twelve(see Beyond the Source,Book 2)when it took me to the point of convergence of all Event Space.Then I experienced nothing again,then it was something, but it was nondescript.It was just like being barely awake after a long sleep.I saw colors, blobs of color.I had no idea what was happening.The colors were red and orange and swirling.Blobs of white flashed in front of me.What was I seeing?I was just about to talk to The Origin when it talked to me. 
+
+我什么都没经历，这和我用源实体12(见《超越源头2》)带我到所有事件空间的汇聚点时所经历的转换感觉完全不同。然后我又什么都没经历，然后是一些东西，但它难以形容。它就像在长睡后勉强醒来。我看到了颜色，颜色的斑点。我不知道发生了什么。颜色是红色和橙色，旋转着。白色斑点在我面前闪烁。我看到了什么？我正要和起源说话，它却对我说话了。
 
 O:Ahh,there you are.I was worried that you would get lost in the vast unassigned tract of energies that were me in the "before"state. 
 
+起源：啊，你在这里。我担心你会在辽阔的未分配的能量中迷失，那是我在“之前”的状态。
+
 ME:Well,I do have to say that I was wondering what was going on for a moment.I should have prepared myself for it. 
 
-O:How could you?It was not anything that you could prepare yourself for. 
+我：嗯，我不得不说，我有一会儿在想发生了什么。我应该为它做好准备的。
+
+O:How could you? It was not anything that you could prepare yourself for. 
+
+起源：你怎么能这样？你根本无法为这种事做准备。
 
 ME:Thank you for bolstering my confidence.So,what is happening here? 
 
+我：谢谢你让我有信心。那么，这里发生了什么事？
+
 O:We are in a temporary tract of that which is me.A temporary function of that Event Space that is about to come into existence but is based upon the energies that will become dense enough to create the opportunity for my awareness to become enough for the progression into self-awareness. 
+
+起源：我们处于一个临时的区域，那就是我。一个即将存在的事件空间的临时功能，但它是基于将变得足够密集的能量，为我的意识创造机会，使其成为自我意识的进步。
 
 ME:OK.What are we,what am I,seeing/experiencing then?
 
+我：好的，那我们，我，看到了/经历了什么？
+
 O:We are seeing the energies as a representation of that which you are capable of experiencing at the forefront of your current level of experience and form. 
+
+起源：我们看到的能量是你们能够在当前经验和形态水平的前沿体验的代表。
 
 ME:Wow!What will happen to the energies? 
 
+我：哇！那能量会发生什么变化呢？
+
 O:It will be difficult for you to be "present"in your current form long enough to even start the observation of my awakening,so,I will accelerate the imagery so that we can both make the most of the time we have available to us. 
+
+起源：对你来说，以你目前的形态长时间地“在场”甚至开始观察我的觉醒都将是困难的，因此，我将加速意象，以便我们都能充分利用我们所拥有的时间。
 
 With that,things went dark,no,black.I appeared to zoom out of the area that we were in.I started to see,in my mind's eye,the area of "denser"energies and other components of awareness that The Origin had not yet explained to me.That is,if it intended to do so. I received the information to suggest that the area that we were in was in actual fact The Origin "In Totality."At this point in its recognizable existence it was not aware of itself in any way,shape,form,energy,dimension,sub-dimensional component(tritave),frequency, continuum,plane,zone,or any of the myriad other structural components that I was becoming aware of,but had no way of explaining to either myself,or you,my readers. The Origin was itself seeing part of itself that it hadn't yet seen-that part of itself that was beyond its known perimeter,its area(volume)of self-awareness,including that small area that it had used in the Twelve Origins experiment and that smaller perimeter being investigated by Source Entity Twelve (see the last page of the last chapter in Beyond the Source,Book 2).I suddenly recognized the enormity of that last statement.The Origin,of course,had ventured beyond that area before,when it created the Twelve Origins in an effort to expand and accelerate its evolutionary content,but what we were seeing now was WELL beyond that. 
 
+随着这句话，一切都变黑了，不，是黑暗。我似乎缩小了我们所在的区域。我开始在我的脑海中看到“更密集”的能量区域和其他意识的组成部分，这些“起源”还没有向我解释。也就是说，如果它打算这样做的话。我收到的信息表明，我们所在的区域实际上是“整体”的起源。在它可识别存在的这个时刻，它没有以任何方式意识到自己，形状、形式、能量、维度、亚维度成分(三维)、频率、连续体、平面、区域，或任何我正在意识到的无数其他结构组成部分，但没有办法向我自己或你，我的读者解释。起源本身看到了它还没有看到的自身的一部分——它已知的周长、自我意识的面积(体积)之外的自身的一部分，包括它在“12起源”实验中使用的那一小块区域和被“源实体12号”调查的更小的周长(见《超越源头》第二册最后一章的最后一页)。当然，起源之前已经冒险超越了那个领域，当它创造了12个起源，以扩大和加速其进化的内容，但我们现在看到的远远超过了这一点。
+
 From this vantage point The Origin and I were witnessing its birth and were being exposed to the vastness of that which it was,what it could be,what it will be,what we will all participate in,mapping out that which will be The Origin's new area of self-awareness in the long and distant Event Space that will be in place then.I cannot reiterate enough the honor and importance of what I am witnessing here.The Origin itself is enthralled in its observation of self at this point in its existence.I considered the possibility of calculating the size of The Origin. 
+
+从这个有利的位置，起源和我见证了它的诞生，并被暴露在它的广阔中，它是什么，它会是什么，我们将参与什么，绘制出那将是起源在漫长而遥远的事件空间中自我意识的新领域，届时将就位。我无法重申我在这里见证的荣誉和重要性。起源本身被它在存在的这一点上对自己的观察所迷惑。我考虑了计算起源大小的可能性。
 
 As The Origin grows in awareness so its access to itself increases,so its volume of "self" increases,so its awareness increases.The Origin experiences an exponential growth of a value inconceivable by any computation that mankind's machines could,or will,derive. 
 
+随着起源的意识增长，它对自己的访问增加，所以它的“自我”体积增加，所以它的意识增加。起源经历了一种指数增长的价值，这是人类机器能够或将要推导出来的任何计算都无法想象的。
+
 It was impossible to consider and my head hurt thinking about it.I turned my attention back to that aspect of The Origin that had devoted itself to communicating with me and asked it what it was thinking.
+
+这是不可能考虑的，我的头痛想它。我把注意力转回起源中致力于与我交流的那部分，问它在想什么。
 
 ME:What are you thinking about? 
 
+我：你在想什么？
+
 O:Interestingly enough I wasn't thinking.I was observing.I can see that you are having difficulty with that statement,specifically with the gravity of that which one is present in,and is therefore part of,in this aspect of Event Space. 
+
+起源：有趣的是，我没有在想。我在观察。我能看出你对那个说法有困难，特别是对你所在的重力，因此是事件空间的一部分。
 
 ME:You bet I am. 
 
+我：当然了。
+
 O:Well,I was just observing the vastness of,and therefore savoring,the anticipation of venturing out into that next quadrant of myself and that which is beyond it.You need to understand that even I do not know exactly how big,exactly how expansive,I am. 
+
+起源：嗯，我只是在观察我的广阔，因此在品味，在期待着进入我自己的下一个象限以及超越它的事物。你需要明白，即使我自己也不知道我到底有多大，有多广阔。
 
 ME:So what were you observing? 
 
+我：那你观察到了什么？
+
 O:I was observing a few tendrils of energy that I had sent forth into the expansiveness, of my vastness as a means of understanding that which I am.I lost contact with the detail after I had sent out enough energy to equal ten times the distance of my furthest points apart in my current area of self-awareness. 
+
+起源：
 
 ME:What happened to the energy tendrils then? 
 
+我：
+
 O:I lost them! 
+
+起源：
 
 ME:What!You mean you couldn't communicate with them? 
 
+我：
+
 O:No,I mean I lost them.They are separated from me as a part of me that is sentient within that which is recognized as me currently.
+
+起源：
 
 ME:What does that mean then?What are you suggesting? 
 
+我：
+
 O:I am not suggesting anything.What I will say though is that there are now some small parts of me that are in what I will call temporary potentially sentient separation, and that they are somewhere within that part of me that is beyond my current level of understanding,so far beyond my current area/volume of self-awareness that I have lost contact with them. 
+
+起源：
 
 ME:Don't you now run the risk of having these tendrils developing their own sentience in time,becoming other self-sufficient sentient versions of that which is sentient "you"within that which is you in totality? 
 
+我：
+
 O:Up to a certain level,yes. 
+
+起源：
 
 ME:But couldn't they potentially become bigger than you? Engulfing you,absorbing and therefore removing the individualization of all that which is you? 
 
+我：
+
 O:Ha haha ha ha,a delicious thought isn't it.No,that is not what will happen. 
+
+起源：
 
 ME:OK,clever clogs,what will happen?
 
+我：
+
 O:Yes,I agree,they will eventually become individualized,but they will not consume me. 
+
+起源：
 
 ME:Why not?No,don't tell me,you have a "head start"on them size-wise.
 
+我：
+
 O:No,it's not that.It's because they are created by me.And because they are created by me they can never be more than me. 
+
+起源：
 
 ME:So what will they become then? 
 
+我：
+
 O:They will have the potential to become Om or a Source Entity of the size that all of you will become when all entities are equal with their Source's and we all move out into my next level of self-awareness.It depends upon how,when,and if they become self-aware. 
+
+起源：
 
 ME:But we can know this,can't we?Just by moving into that Event Space that will now be in existence relative to that possibility? 
 
+我：
+
 O:Yes,very well done.You are getting better at this. 
+
+起源：
 
 ME:I am doing my best. 
 
+我：
+
 O:Good then,you will recognize while we have been talking that an aspect of me was working in the background and has already tracked them down in their possible projection of Event Space and observed them in their individualized sentience. 
+
+起源：
 
 ME:I should have seen that coming!What did they turn into?Sources,Om,or just entities? 
 
+我：
+
 O:I now have two new Om and one new Source Entity.Due to the vastness of where they were it was too much for them to stay singular in their individualized energetic density, so to speak.Some of the tendrils grouped/coalesced together to create enough density to create an entity of Source Entity proportions,whereas the others,two of them,were of enough density to become entities large enough to be called Om. 
+
+起源：
 
 ME:Will we be able to see them? 
 
+我：
+
 O:Yes,but not now.We will meet them in another Event Space,where you will be compiling the information from a series of dialogues that will be separate from this one, and the others that will form the book you are calling The Origin Speaks. 
+
+起源：
 
 ME:OK,and what will that be called-"Beyond The Origin,"I suppose!(I had already had a subliminal prompt on this but was not sure how a book could be called Beyond The Origin, when The Origin is "All There Is."I decided to leave that one alone and move back to that which we were supposed to be doing,observing The Origin becoming self-aware,sentient.) 
 
+我：
+
 O:You are getting better at this,aren't you!OK,let's concentrate on my becoming sentient for the first time. 
+
+起源：
 
 ME:Hold on.What do you mean becoming sentient the first time?Have you got something up your energetic sleeve? 
 
+我：
+
 O:I told you that you were getting better at this.I will explain the detail behind that statement later.Right now let's continue with observing what this particular Event Space has to offer.
+
+起源：
 
 (Now there's a clue if I saw one.I made a mental note to follow this up with The Origin, only I got the impression that the answers would come out without my prompting.Event Space was going to be a big player in this dialogue,I could just see it!) 
 
@@ -556,41 +654,77 @@ I focused on the task at hand,looking at the detail of the energies in front of 
 
 O:It's a function of Event Space to work with the entities that are within a specific aspect of it in a way that is consistent with its level of sentience. 
 
+起源：
+
 ME:Hold on.You're saying that Event Space is an omniversal translator of some sort? 
+
+我：
 
 O:No.What I am saying is that it works with that which is within it. 
 
+起源：
+
 ME:What do you mean?It knows how to communicate? 
+
+我：
 
 O:In a way,yes.Do you remember the dialogue we had recently where we were talking about Event Space being able to,or being invoked by,the possibility of duality.The possibility of the possibility or a difference in direction from that which "is"to that which is and could be,and that it can be invoked,or is usually invoked by a possible decision to be made by a sentient entity. 
 
+起源：
+
 ME:Yes,I do. 
+
+我：
 
 O:Well,this reaction is based upon the level of sentience the entity has currently achieved.In your incarnate case,your level of sentience includes your current level of accrued knowledge,love,wisdom,and power.Within this is the "level" of communicative ability you are able to employ while incarnate.Based upon this, incarnate "You"has a certain vocabulary to work with outside of the action and reaction of Event Space.What you experience is outside of your vocabulary.It is meaningless, both for you and Event Space,so it gives you information in a way that you can work with,based upon your vocabulary.It does this in order for you to both understand, while allowing you to work in a way that perpetuates the existence of that particular permutation of Event Space.In essence,in allowing you to experience that which you are experiencing,in a way that you can understand it,maintains its longevity and usefulness while expanding your experiential knowledge. 
 
+起源：
+
 ME:So what is the reality of what I am seeing?Is this tailored to my own level of experience and understanding? 
 
+我：
+
 O:It would be too complicated to explain in the depth necessary to do it real justice. But know this;that which you understand will need to be understandable by incarnate mankind,and as such if it is presented to you in a way it can be understood,it will serve its purpose,even if it is not entirely correct.
+
+起源：
 
 Know this also;you are privileged beyond exception in experiencing that which you are while incarnate.Even though you are Om,you are limited,to some extent,to that which all are capable of while incarnate in the particular physical vehicle used in the low frequencies that that aspect of you has chosen to work with in this way.To simplify that last statement,that part of you that is incarnate with the vehicle that is in communication with me has to obey the rules of incarnation in that particular vehicle. Hence your limitation and your ability to contact me are a bit of a dichotomy. 
 
 ME:In other words you are saying live with it,because it's the best you and incarnate mankind are going to get for the moment. 
 
+我：
+
 O:Correct!!! 
+
+起源：
 
 ME:OK,I accept my incarnate limitations.However,does that mean that the information I am compiling as a result of my dialogues with you will be incorrect? 
 
+我：
+
 O:No,I have just told you.It will be correct for the level of focus you can currently achieve.I will quote your own teachings in this. 
+
+起源：
 
 ME:I have teachings in this? 
 
+我：
+
 O:Of course.You quote it all the time in your "Traversing the Frequencies"workshops. 
+
+起源：
 
 ME:You listen in to them? 
 
+我：
+
 O:No,but I do have an interest,and as such have assimilated all that you have done to date while looking for an example I could use to explain to you the clarity level of that which you are seeing,by using an example of that you know and use yourself.In this instance it's the availability of vocabulary that results in the giraffe being described as a dog. 
 
+起源：
+
 ME:OK,I've got you now. 
+
+我：
 
 For those of you who will know this from my workshops you will,I have no doubt, be chuckling in your shirtsleeves to know that your teacher has snookered himself here. For those of you who don't,please don't quote this when you do attend.However,it is an excellent example so I will explain it for clarity's sake if nothing else. 
 
@@ -598,7 +732,11 @@ When we as incarnate beings communicate with disincarnate entities we do not hav
 
 O:Good.Now that we have that sorted you can continue with your narration of that which you are perceiving. 
 
+起源：
+
 ME:Right. 
+
+我：
 
 I refocused my attention back to that which was presented before me.It was astonishingly simple.The energies (I will describe them as that)were,as far I could see,all about me.Everything was in separation while being together.Being separately together was a concept that I had witnessed throughout my dialogues with the twelve Source Entities.It was clearly a structural theme taken from the very beginning of that which was destined to be The Origin. 
 
@@ -612,29 +750,55 @@ As each energy set was established,and winked out of existence in its original l
 
 O:Remarkable how it all happened,isn't it? 
 
+起源：
+
 ME:Yes,it is.Tell me,what are the different spaces? 
+
+我：
 
 O:Can't you guess? 
 
+起源：
+
 ME:I can make a good guess,but it won't be accurate by any means. 
+
+我：
 
 O:I wouldn't expect it to be,but give it your best shot. 
 
+起源：
+
 ME:OK,the different spaces are dimension and their components,zones and their divisions, continuum and their abstractions,planes and their spheres,spheres independent of planes and their references,Event Spaces and their events,totalities and their realities,realities independent of totalities and their creative functions...there was more and more.Much more than I could possibly name or even try to name.It's infinitesimal.In fact,infinities were one of the spaces.Where does it stop!(This information just poured into my mind.I vowed to ask for more detail on both the existing and new structural details later in the dialogue.) 
+
+我：
 
 O:Actually,I currently don't know either,but those that you have mentioned are those that were necessary for me to become self-aware and later sentient as an intelligence borne from that which "is."
 
+起源：
+
 ME:You gave them to me then.I wasn't guessing? 
+
+我：
 
 O:Yes,I did,and no,you weren't.The most important thing here is that you have absorbed that which is the basis of my original structure.Which is to all intents and purposes,the basis for what I am today.Each of the "spaces"holds the content and structure of the previous space plus their own. 
 
+起源：
+
 ME:Everything is repeated then the further out one goes from the center,with the addition of the next space being that which identifies the difference. 
+
+我：
 
 O:Yes,with Event Space being the commonality between them all. 
 
+起源：
+
 ME:So that was what I could see linking the spaces together. 
 
+我：
+
 O:Yes,and other commonalities that can be considered linking energies. 
+
+起源：
 
 In essence what I had observed was the creation of a huge jigsaw puzzle with all the parts starting to link together creating a localized whole.The whole,when whole enough,having enough energies in a certain configuration to spark off a cascade of events necessary to link those component parts of the whole,that displayed the characteristics of becoming self-aware,together. 
 
@@ -642,67 +806,127 @@ I refocused my attention and immediately saw a new landscape before me.It was be
 
 O:What you have negated to relay to the reader is the information currently in your head about the spread of this Omnipotence throughout the rest of the collective energies.
 
+起源：
+
 ME:Well,I was just getting to that but why don't you advise us yourself?I am starting to get somewhat groggy with all this and the bottleneck of energy that is associated with the information that is coming through you about the next stage in your growth from this, supposedly small beginning. 
+
+我：
 
 O:I can see that I will have to reduce what you would call the data flow.OK,with that done I will take it from here for the time necessary to finish this part of the subject. What happened next was a wonder in its own right.Those energies that were drawn together initially through the attractive forces relative to energies of the same "type," so to speak,also started to attract energies of similar,but not same,energetic signature or function-specifically those energies that were sympathetic to the association with another energy due to aspects of neutrality of energetic function,which allowed the energies to join together in sympathy with each others function without interfering with each other.Indeed,this allowed a level of connectivity that was not available before. 
 
+起源：
+
 ME:Why was that?What was the difference? 
+
+我：
 
 O:The energies that had neutrality were the ones where the periphery of the energies were "thin,"that is,they were not as dense along the outer edges as they were in the center of the collection of the energy.I use the word collection here because the energies at this point in my awakening process were collecting together so that all energies of like type,within the location now known as the epicenter of my sentience,were separating out and collecting together in groups specific to their type and function.In your terms, the oil was separating out from the water,so to speak.Not only that,it was moving well away from each other,so only those that had the element of neutrality resulting from the "thinness"of energies along the periphery could join together.What was also an important aspect of this process was the way the energies presented themselves.Rather than becoming an alloy,where the molecules (in the example of the alloy)interact with each other linking together to create something different with each other at the moment of interaction,in essence becoming a new "third"material containing and being constructed from the two separate and independent materials,that can,and are, affected by the ratio of the materials within the alloy,they became separate while also being linked.They were separately together (this just keeps coming up,I must question The Origin on the significance of this statement,rather than thinking I understand it)like islands of different energies that were linked around their peripheries.The biggest part of this was not the linking together of "islands"of energies that were close together,but that they actively sought each other out,bypassing those energies that were close by, but traveling greater distances to be part of the same energies or be linked to energies that had peripheries of compatible neutrality.This illustrated that the energies at this point had,or were,developing some sort of rudimentary intelligence,demonstrated by their ability to be discerning about what other energies they actively sought out and what energies they actively avoided contact with. 
 
+起源：
+
 ME:This was the start of your gaining intelligence,the route to gaining self-awareness then. 
 
+我：
+
 O:Clearly.
+
+起源：
 
 ME:How long and how far was this joining together of separate energies? 
 
 O:It was a rapidly increasing area and the area was increasing in a multipolous way. 
 
+起源：
+
 ME:It went viral? 
+
+我：
 
 O:Yes,and it still is.It is a viral effect that never reaches its end goal of infestation,to date that is. 
 
+起源：
+
 ME:So,how do you cope with it then? 
+
+我：
 
 O:I don't. 
 
+起源：
+
 ME:Why not?I would have thought that you would be able to work with that which is "you" as you expand. 
+
+我：
 
 O:No.It doesn't work that way.You see,not all of"me,"that which has "intelligence," has the capability to become self-aware and later sentient,hence the need for help to map myself and know myself better. 
 
+起源：
+
 ME:Why not?I would also have thought that you would be sentience personified,with sentience in existence throughout everything. 
 
+我：
+
 O:Again,it doesn't work that way.I will explain. 
+
+起源：
 
 We talked about Event Space being in existence before my self-awareness became prominent enough,that I was aware of some level of the totality of what I was.
 
 ME:We did. 
 
+我：
+
 O:Well,Event Space is a form of,and is some part of,my structure.As Event Space is separate from my sentience and has a function that is individual to my sentience,so other components that make up my totality have separate and individual existence and functionality.They are my structure,the links between that which is my sentience and that which is my totality. 
+
+起源：
 
 ME:They are then a bit like the bones,muscles,sinews,veins,arteries,and organs that make up my physical body.They are not sentient,but they are part of the physicality of that part of me that is incarnate. 
 
+我：
+
 O:Correct and well done.So you can now see why I needed to create those entities that are called Source Entities,and previously tried to recreate myself as a multiple,in order to investigate myself in a more in-depth and accelerated way. 
+
+起源：
 
 ME:So your area of self-awareness is exactly what it is,that part of you of which you are in total knowledge of that which you are? 
 
+我：
+
 O:No,not in totality.It's mapped out and recognized as being me,and parts of this area are known in minute detail.Other areas though are mapped out and recognized as "self,"but I am not intimately aware of the detail behind those areas.It's a bit like you having a map of the Earth.You are aware of the existence of certain countries,and you might even visit some of these countries,experiencing a certain but small area within a city of one of these countries,but you do not know the detail behind that area which you have visited and you certainly do not know the rest of that country,because you did not actually "go there"and experience it for yourself.You learn about the detail,or should I say some of the detail,through the eyes of others who have visited these areas, and recorded that which they have experienced,for the benefit of others,to expand the overall knowledge base of that which is the Earth,expanding it in a multipolous way,relative to the number of individuals experiencing and recording that which is experienced.If it was left to one person,the speed at which that which is part of the Earth would be understood and recognized by all would be so slow that it would result in a level of evolutionary progression that would border on the negative,which is inefficient from an evolutionary perspective and therefore unacceptable to any self- aware or sentient entity,which obviously includes myself,hence the need to employ help,which in itself can also employ further help. 
+
+起源：
 
 ME:Understood.Mmmm,based upon this then your area of intelligence is different to your area of self-awareness,which is "in turn"different to your area of sentience? 
 
+我：
+
 O:Correct,hence my need and desire to know more about myself in an accelerated way. I need to keep up with the expansion of my potential intelligence. 
+
+起源：
 
 ME:This area of intelligence and sentience,why are they different? 
 
+我：
+
 O:Because,as I have stated before,there is a natural progression from,say,the energetic to the intelligent energetic,to the energetic that is intelligent and self-aware to that which is sentience borne from the intelligent-self-aware energetic.
+
+起源：
 
 ME:Oh,I think I understand now!Can I use an example? 
 
+我：
+
 O:You can. 
+
+起源：
 
 ME:If I consider that which is your intelligent energy is represented as "memory"in a computer,having the potential for rudimentary intelligence should the right program be used to employ it,then it is useful as an opportunity,for the expansion of useable intelligent memory,but is dormant until accessed or given purpose,and used by an aspect of the right program that is "self-aware"enough of the availability of this memory and is "sentient" enough to use it in a creative way.Now,clearly a computer program is not sentient,but as a thought process it is a useful illustration. 
 
+我：
+
 O:Actually it is a perfect illustration,for that is almost how I am progressing,but of course,it is from a simplistic perspective.The difference between that which you illustrated and that which is how I work in actuality is slightly different.When my sentience expands into an area of me that is dormant but capable of becoming sentient, self-aware,intelligent energy then I become more expansive and my area of sentience expands within my area of self-awareness allowing my in-depth knowledge of my area of self-awareness to increase,reducing the area of my ignorant awareness of "self." 
+
+起源：
 
 Those energies that you observed linking together while remaining separate from those parts that they were linking to are used for creative purposes.They had no individual opportunity to develop intelligence,but they did and do form that part of me that forms the structure of my area of self-awareness.
 
@@ -710,11 +934,17 @@ Those energies that you observed linking together while remaining separate from 
 
 ME:Let's move on a bit.I/We have observed the very beginning of how those energies that were attracted to each other became one and how those that were not quite the same were able to join together while still being separate or maintaining their individuality.This created the framework,so to speak,the network of energies necessary for the creation and expansion of sentient,"self-aware"intelligence.However,we haven't discussed how the energies and other components of your structure developed intelligence and self-awareness to the point of gaining sentience. 
 
+我：
+
 O:OK,let's go to that point where the energies are developing these "traits." 
+
+起源：
 
 And with that there was a white light and a white background and I found myself positioned above what I recognized as an area of already constructed "Origin energy"that had,and was still,actively"seeking out"energies of the same type. 
 
 O:The act of "actively"seeking out energies of the same type is the start of rudimentary intelligent decision making.When there is enough "mass,"call it a critical mass if you like,of this type of decision-making energy,ie.,that type of energy that is capable of making a choice about staying singular or seeking out energy of the same type,then the ability to make more complicated decisions can also be made by the inclusion of all of those energies that actively sought out energies of the same type,in the next decision process.This effectively increases the,shall I say,computational capacity,the ability to process much more information,to make bigger decisions,decisions that need information from a multitude of different areas before a robust decision can be made. You could call it parallel processing if you like,but the important thing about parallel processing is that it is a prelude to true intelligent decision making.What's more,the opportunity for a decision to be made also invokes a new and separate Event Space.This is another sign of the development,the evolution of,intelligence.Let's look at what's happening here. 
+
+起源：
 
 Errmm,I will accelerate that which we are seeing so that you can gain a more instantaneous recognition of that which is happening. 
 
@@ -732,79 +962,149 @@ I zoomed out a bit.This was happening everywhere and on a massive scale,a scale 
 
 ME:Have you accelerated the imagery,or is this a real-time acceleration? 
 
+我：
+
 O:Well,the imagery is accelerated anyway. 
+
+起源：
 
 ME:Understood,but is it a faster transmission than before? 
 
+我：
+
 O:No,it is what it is.Based upon that,you can make a few conclusions about what was happening if you like. 
+
+起源：
 
 ME:I would say that there is a certain level of acceleration due to the other groups catching up with those that are linking up,i.e.,they are just creating the same opportunity for increased functionality that the others were,but that they were a bit slower off the mark. 
 
+我：
+
 O:Yes,but what else was happening?Use your perception. 
+
+起源：
 
 I did and was surprised to see that "triangulation"was having an effect.I shouldn't have been surprised as it was an inevitable function.
 
 O:OoKaay,why would it have been inevitable? 
 
+起源：
+
 ME:I wasn't expecting this to turn into an examination. 
+
+我：
 
 O:It isn't,but the readers need to know. 
 
+起源：
+
 ME:Mmmm,I get the feeling that you are testing my understanding of that which I am seeing. 
+
+我：
 
 O:Go on,it's good for you.You will be working with much more complex information later.It will be a quantum leap from that which you were exposed to with the Source Entities.You should find this easy as it is very much based upon that which you have experienced and worked with in previous dialogues. 
 
+起源：
+
 ME:OK,OK,I will get on with it.I would expect that the function of triangulation was working at a higher level in this instance,with the energies associated with triangulation effectively sensing the evolutionary opportunity associated with the linking up of the groups of energies for synergetic purposes. 
+
+我：
 
 O:Carry on. 
 
+起源：
+
 ME:Irrespective of the level of work being done,the changes being initiated by the rudimentary intelligence of the energies and groups of energies,whether they were just linking up or increasing their level of intelligence through the links that they had created together was,to all intents and purposes,an evolutionary step,no matter how small.The energies that create triangulation could sense this in some way.Also,because the groups of energies that were making the next step in their "personal"evolution were spaced far apart and interspaced,both direct line and area-based triangulation was being invoked simultaneously.With the interspersion being that which it was,the triangulation effect was able to work at a level of efficiency that,apart from being a wonder to see,was exactly the right level of interspersion to allow a profound and accelerated triangulation effect that was sweeping though the energies in a way that would leave a virus-based acceleration far,far behind.In fact,it would leave it standing. 
+
+我：
 
 O:Yes,it would.What you are witnessing is the spark of intelligence ripping though the energies that were responding to the call for unity and synergy.The synergetic effect in this instance was also affecting the way in which triangulation was progressing. In essence this caused an acceleration in change that was multipolous to the point of instantaneous change. 
 
+起源：
+
 ME:I have just received an image and information that suggests that triangulation coupled together in a synergetic effect,effectively resulted in the instantaneous alignment of energies of sympathetic and augmented function.Not only that,they were all polarized in a way that made them,to all intents and purposes,instantaneously operational. 
+
+我：
 
 O:Well observed.You see,once there was a certain level of synergetically affected triangulation-based critical mass,everything was pulled in to alignment without the need for intelligent choice being pulled into play.In fact,intelligent decision making in this instance would have been a hindrance,for when an instantaneous change is invoked everything is organized according to the structure of the intelligent choices being made in the first place.The choices creating the framework for the plan also create the links necessary for the instantaneous change when it is ready to happen. 
 
+起源：
+
 ME:So,and here is the billion-dollar question,were you,therefore,instantaneously self-aware as a result of this instantaneous change? 
+
+我：
 
 O:No,that was the result of another process altogether. 
 
+起源：
+
 ME:What was created then,that is,what was created as a result of the instantaneous change? 
+
+我：
 
 O:Intelligence given mass.Enough mass at the epicenter of the change to allow the start of a higher form of intelligence,intelligence that is aware of itself and its intelligence. But it was more than that,for the intelligence also knew of the structure of that which is was at the epicenter,including all of the energies,frequencies,planes,zones, dimensions,continuum,etc.,etc. 
 
+起源：
+
 ME:And where was this epicenter? 
+
+我：
 
 O:You're in it now! 
 
+起源：
+
 ME:Errr,you've lost me. 
+
+我：
 
 O:Then I shall elaborate.That part of me that is in communication with you,and that which is known to myself,the Source Entities and the Om,is,to all intents and purposes, the epicenter.The rest,that which is beyond my area of self-awareness,is that which is me under development,that part of me that I am aware of but that is not"self-aware" yet needs "me"to move my consciousness into that,shall I say,"unused"part of me to achieve the next instantaneous change. 
 
+起源：
+
 ME:So why haven't you moved into it yet? 
+
+我：
 
 O:Simply because I am not ready yet.I have barely started to get into the detail of this part of me,let alone go further.It would be confusing and detrimental to say the least. Having said that though,I am receiving information from Source Entity Twelve that is very interesting.We should go out to see what it's up to someday. 
 
+起源：
+
 ME:I very much agree.In fact,I can see another book on the horizon. 
+
+我：
 
 O:I thought you might,but not now for this dialogue is an entirely different set of information. 
 
+起源：
+
 ME:Tell me then,how intelligence given mass leads to self-awareness. 
+
+我：
 
 O:Why not observe it? 
 
+起源：
+
 ME:I would very much like to. 
+
+我：
 
 With that the images blurred a moment and the landscape of energies subsequently changed to what I can only recognize as a different Event Space where the instantaneous change had happened.Everything was in order.Not that it is in any order that mankind would recognize,but one that was intuitively recognized as being in an optimal condition for that which it was destined to be next,intelligent and self-aware.I zoomed into the energies that were in front of me.They presented all sorts of structures.Structures that were static,structures that were dynamic,structures that changed or morphed into that required to deal with the task that it was currently working with,whether it was singular or multiple.Everything,I noticed,was both multifunctional and multi-environmental. By environmental I mean that it was linked to the different environmental conditions associated with the different aspects of The Origin's newly formed structure,in every way.As with the formation of the energies that reestablished themselves on different frequencies,dimensions,or zones,etc.,during the initial embryonic intelligent decisions,so part of The Origin's epicenter of the "structure"of its area of self-awareness showed parts of it disappearing from my view,as far as I was concerned,that is.Then it all came into view as one large,all-encompassing structure,pulsating,moving and functioning.I received a message from The Origin telling me that it had given me multidimensional,multi-zonal, multi-everything,spiritual sight,etc.,for a short period of time,so that I could observe the totality of the structure and observe it in its magnificence.And it was so very magnificent. 
 
 O:This is a microcosmic image for you to consider.When you are in the macrocosmic you would not see such detail for it would be too fine for you to judge where and what it is.You should continue with observing that which is about to happen.
 
+起源：
+
 The image returned back to a level that was a mixture of the detail that I was seeing at first while also being fine enough to see the overall picture.In fact,as I focused on what was being presented to me,I noticed that The Origin had given me two images on top of each other,the detail,the microcosmic and enough of the macrocosmic,the finitude,to make sense to me. 
 
 ME:Why did you do that? 
 
+我：
+
 O:So that you can see both the changes at the detail end of the spectrum and the wider end of the spectrum concurrently.In this way you will be able to appreciate more of that which is happening.It would be detrimental to the information being shown to see it from one perspective as you would not be able to see,shall I say,the picture as it should be seen. 
+
+起源：
 
 The energies that previously had separate but co-joined intelligence through association now had collective intelligence.All of the separated intelligences had now become one "larger"intelligence,albeit on varying levels of use,function,and complexity.This was it!This was the start of the cooperation of all of the separated,localized intelligences joining together to become"one"mega-large intelligence.Each of the localized intelligences had,to all intents and purposes,their own individuality and functional specialisms based upon what energies created their intelligence and what they were working with.Although the individualized functions and specialisms were maintained,they had effectively given up their overall individuality in order to create something much bigger.Each of the individualized intelligences had sacrificed its individuality for the glory of being part of that which was destined to be The Origin,The Absolute,All There Is,in all of its complexity,its finery,its multiplicity.It was cooperation on a scale never before seen and not seen since. 
 
@@ -812,23 +1112,37 @@ Then I saw a flash,and everything stopped for a moment,a second,or was it a seco
 
 O:This is it,spontaneous,multipolous,unification of intelligence."Collective" intelligence made into "One"intelligence,the creation of that which is me.The "I"-in pre-awareness slumber that is!! 
 
+起源：
+
 I got the impression that The Origin had a smile of satisfaction on its face,placing its hands on the back of its head while leaning back in a comfy chair,should it have had any of those things to hand. 
 
 Everything appeared to be,I will say "golden,"for a moment.It is a very interesting place to be right now.The energies feel VERY different from a moment ago.Before this moment they very much felt like a collection of sympathetic intelligent energies,separate but together,in "oneness"but not "one,""intelligent"but not "intelligence,"functional but not aware.Now they had purpose to them.They were now singular.I couldn't refer to them as "they"anymore for that was very definitely not how the energies felt;they were now singular,"one."The word "I was repeatedly being broadcast in my mind.Suddenly, in fact just as suddenly as everything had become static,everything started to work again. The energies were flashing here,there,and everywhere.They were not flashing around in separation though,in isolation of purpose.They all had one singular purpose,they were of one thought.-“IAM.”
 
 O:Ahh!Here we go——Awareness of Self. 
 
+起源：
+
 The Origin was definitely enjoying this and I again got the impression that we had fast-forwarded a bit. 
 
 O:Not so much fast-forwarded.More a case of merged Event Spaces. 
 
+起源：
+
 ME:What do you mean? 
+
+我：
 
 O:Event Space,or should I say the various Event Spaces associated with my awakening process,merged together at this point,for this is the mainstream event,and it has very much come into fruition.I see you frowning again;you must stop that and ask an intelligent question instead. 
 
+起源：
+
 ME:Errr,have Ijust witnessed Event Space Convergence?(I was crying slightly-a signpost of the truth I had come to know and trust over the years.) 
 
+我：
+
 O:Woo Hooo!Yes,you have,the very first,at least the very first that I was aware of.In this instance the convergence is a monumental one.One where all possible possibilities associated with my awakening have converged into one "inevitability,"and not a possibility.Now we are accelerating.My thought processes are starting to move beyond the limitations of that experienced in separated intelligence and even collective synergetic-based intelligence.Now it's time for the formation of thought and the establishment of "I"into the awareness of"I am"and therefore the awareness of self. 
+
+起源：
 
 The flashing had increased in frequency to that of"no"frequency;it was above frequency and had become "presence."I was now able to observe the epicenter of The Origin from a vast distance away.I was somehow positioned in a superb vantage point. 
 
@@ -836,39 +1150,71 @@ There appeared to be...it seemed very familiar.Yes,of course!I was observing wha
 
 O:Very well done. 
 
+起源：
+
 ME:But I thought that the advent of self-awareness would be monumental,a sudden and all-embracing realization of self. 
+
+我：
 
 O:Wasn't the change of frequency of thought to that beyond thought and the creation of "presence"monumental enough for you?
 
+起源：
+
 ME:Oh!Sorry,I must have missed its significance. 
+
+我：
 
 O:You bet you did.Subtle,wasn't it,though,seamless,harmonious,fluid.I did a good job there.No bolts of lightning or shaking of continuum,just transition from one state to another. 
 
+起源：
+
 ME:And now you are testing yourself out,seeing what you can do,what you are,what you could be? 
 
+我：
+
 O:In sorts,yes.I am not yet fully self-aware and won't be until I have checked out all that I am. 
+
+起源：
 
 I was receiving pictures again.The self-aware intelligence of that which was the newly aware Origin was darting all over the place,that is,within a locale.I was getting the impression that this area of self-awareness was much smaller than that which it was currently aware of and was working within.It was probing the frequencies and understanding itself.This was exciting,for these images were similar to those I received in the early days of my communications with the Source and The Origin.This was the start of sentience. 
 
 O:Correct.My area or volume of self-awareness only expanded when I decided to accelerate my understanding of "self,"mentally,if you want to call it that,and that which I am/was.
 
+起源：
+
 ME:So what caused your area of self-awareness to expand? 
+
+我：
 
 O:In short,my need to accelerate my accrued knowledge of self and the evolutionary content that I was subsequently starting to recognize and desire.To do this I needed to overcome another hurdle,an evolutionary hurdle,so to speak. 
 
+起源：
+
 ME:And that was? 
+
+我：
 
 O:Creativity. 
 
+起源：
+
 ME:Creativity? 
 
+我：
+
 O:Creativity.You see,creativity,and the recognition of that which is created as being a function of the creative process,and,that it is a means to fulfill a specific or certain desire,is a precursor for the generation of sentience. 
+
+起源：
 
 My desire for accelerated evolutionary content resulting from my "testing"or "probing" of "self"led me to think in a certain way.If "I am"and my "I amness"creates evolution then if I duplicate my "I amness"then I will duplicate my evolutionary content in the process.This thought process,together with the recognition of the cause and effect of certain actions before they are deployed,leads to judgment-based creativity,and judgment-based creativity achieved in a rational,well thought-out way is a mark of Sentience.So at this point in my development,moving along this path,this Event Space if you like,I had embarked upon that which was to ensure my change in status from self-aware intelligent energy to sentient,self-aware intelligence in full awareness of that which it is and that which it could be-for that particular point in Event Space. 
 
 ME:Are you suggesting that you knew how expansive you were even at that point in sentient existence? 
 
+我：
+
 O:No,I am not.As I have stated before,even now I don't accurately know the answer to that particular question.Exciting,isn't it?REALLY EXCITING.At that point in my sentient awareness,I was just like you are now.We have used this analogy before,and it is a good one so I will use it again.It is like you knowing that the universe exists and is infinitesimally large,so large that you don't know just how large it is,but you know it exists. 
+
+起源：
 
 That which you have been able to observe and capture with the various telescopic technologies at your disposal have only given you a minute but nevertheless expansive idea of the size of the physical universe.You observe that which continues to disappear into the depths of "space,"the limit of your observations being the limitation of the detectability of your instruments.You therefore know that there is more to the universe because of the history surrounding the progressive depths that you can probe to when you have better and more accurate telescopic instruments at your fingertips. 
 
@@ -878,97 +1224,185 @@ One thing I am "aware"of though is thatthat which I am "self-aware"of,and have c
 
 ME:You are suggesting that "self-awareness of being"and "awareness of being"are mutually exclusive while being fully supportive?
 
+我：
+
 O:Yes. 
+
+起源：
 
 ME:One being full awareness with the other being partial or even extrapolated awareness based upon the calculation of that which is "understood"into that which "should be" based upon that which has been "known"over certain junctures in existence and progressed accordingly through the extrapolation. 
 
+我：
+
 O:Very well put.You see I know how small my area of self-awareness is in comparison to how expansive I am in totality.It's just that at this juncture in my self-awareness this knowledge is based upon that which I have experienced to date.That is,from the perspective of expanded self-awareness.
+
+起源：
 
 ME:So your idea of how big your area or volume of self-awareness is,versus your total size, is a guess,and the extrapolated size is bound to be in error? 
 
+我：
+
 O:As I become more expansive,so my ability and accuracy in my extrapolation of true size of self-increases.So yes,it is in error,or should I say,it is bound to be in error.But, it's the best I have at the moment.Hence the creation of the Source Entities,to accelerate this knowledge of self and the expansion of the boundaries of self-awareness of self.It is also where you come in,all of you that are created by the Source Entities.You are all destined to expand my area of self-awareness beyond that which it currently is. 
+
+起源：
 
 ME:It's a glass ceiling then? 
 
+我：
+
 O:I would put it more as a glass boundary. 
+
+起源：
 
 ME:Sounds like this is a good time to discuss the creation of the Twelve Origins. 
 
+我：
+
 O:It's as good a time as any.
+
+起源：
 
 ## Chapter 3 - The Creation of the Twelve Origins: Sentient Creativity and Expansion of Self-Awareness 
 
 ME:Specifically before we embark upon the decision to create the Twelve Origins and then the twelve Source Entities,we need to explain to the reader who has not read the previous books,a little bit of the history.I know we have alluded to it in the recent dialogue but I want to flesh it out a bit. 
 
+我：
+
 O:OK.What do you want me to share? 
+
+起源：
 
 ME:Just some of the information surrounding your investigation of self,your "probing"of the depths of that which you were/are. 
 
+我：
+
 O:Actually this will be a good "lead-in"to the decision to create the Twelve Origins and why it failed. 
 
+起源：
+
 ME:Then it is perfect.Fire away. 
+
+我：
 
 ### The Origin's Investigation into Self Results in the Need for Help
 
 O:Once I had made the quantum leap,for want of a better word,into self-awareness, sentience followed rather quickly.Although,this only happened after I had started to experience more of myself and started to experiment with those energies and structural components,the frequencies,the dimensions and their sub-dimensional components, the zones,the planes,and countless other structural components that are part of my make-up.We will deal with some of these later in this dialogue,including some that you have not yet been advised of as part of your last book(Beyond the Source,Book 2). 
 
+起源：
+
 ME:I remember that the Source Entity,my Source Entity,went through a period of self- investigation in its own road to sentience,and that it spent a lot of time experimenting with the effects of frequency in relation to the awareness of "self"of that which was projected into the lower frequencies,even though they were part of its own make-up.The way my own Source Entity based its experiences was mostly on that which it experienced in the structural frequencies of the energies that you used to create it.That was the impetus for the creation of the multiverse in what I now understand,when I look back that is,is a very simple environment. 
 
+我：
+
 O:Yes,it is simple and,as you have already conveyed in previous dialogue and text,it is designed specifically for smaller units of itself to accrue evolutionary content.It is "ascension in action,"as you so eloquently put it during your workshops. 
+
+起源：
 
 In my investigation of self I had a bit of a head start.Not the sort of head start that I gave the Source Entities when they became self-aware,by "downloading"my total knowledge base into those energies that had been developed for retention of experience,my memory if you like.I had to start from scratch.I was an amalgamation of all of those smaller parts that had joined up in sympathetic union,denying and sacrificing singularity for oneness,in favor of oneness in totality.Once I was "I,"I had an accumulation of experiences,those accrued by myself in these smaller component parts,to draw upon as a total experience and memory base.It was fundamental in its detail,its approach,and its functionality.It was a complete picture of that which I was aware of,in every way.As a result I gained an instantaneous understanding of my local self during the amalgamation process and the generation of total self-awareness. Sentience came as a result of learning or realizing that the "I"in me could create something new. 
 
 ME:What led you to the desire to create? 
 
+我：
+
 O:Experimentation.I noticed that my essence,that which was me,was located in different places simultaneously,that I could zoom into any of these places at will while also being aware of the other places.My presence was not what one would call omnipresent.It was more like pockets of "locale,"linked together presence that encompassed a surrounding area or volume of space.These I noticed were the previous areas of "singular"intelligence,which were now linked together.So,the first thing I did was to encompass all those areas of linked but localized pockets of intelligence and their surrounding areas,to create a single but all-encompassing intelligence that flooded all the areas of localized intelligence so that I could zoom into,or project my presence into,the smallest part of any locality while also being cognizant of the rest of my area of self-awareness.This was my first act of creativity and as a result the resolution of my understanding of self,my self-improved exponentially.From your perspective it was like observing the difference in resolution,for example,of an image captured on a digital camera of 1.0 megapixel to a digital camera of 1.0 billion megapixels.My internal resolution was no longer pixelated,so to speak. 
+
+起源：
 
 ME:And that made a big difference? 
 
+我：
+
 O:You bet.It was like going from controlling things by remote control,and having very limited control as a result,including no feedback,to having full and total control and, more importantly,full feedback from those areas that were now in control.You really can't understand the full extent of the functionality I went from-to. 
+
+起源：
 
 ME:Thank you.I expect I will understand the true meaning of this when I am disincarnate. 
 
+我：
+
 O:To a certain level,yes,but that level will be significantly greater than that which you understand and can possibly experience now. 
+
+起源：
 
 ME:This level of creativity,i.e.,"modification of self,"resulting from your recognition of structure and limited functionality was a defining moment then? 
 
+我：
+
 O:Yes,it was.It created the change in me that was required for complete omnipresence. 
+
+起源：
 
 ME:What followed next?I mean,how long did it take to get to the point where you decided to create the Twelve Origin's experiment?
 
+我：
+
 O:Once bestowed with omnipresence I played (experimented)with this level of being. I wanted to see how I reacted to experiencing all things in all parts of my area of self-awareness concurrently,as well as when focused upon a small area of microscopic proportions.I also experimented by splitting up parts of myself into separate units to see if that made a difference to how I experienced myself,and that which I was experimenting with.I was able to manipulate everything about myself that I discovered.In this respect my creativity recognized no boundaries,no limitations-or so I thought.It was during these experiments that I"noticed"that "there was"actually a "boundary"around me. 
+
+起源：
 
 ME:And this boundary was the perimeter of your self-awareness? 
 
+我：
+
 O:Yes,it was a strange,but now understandable,sensation.It was like I was surrounded in darkness,but it wasn't darkness.The darkness was a limitation in my omnipresence. 
+
+起源：
 
 ME:You mean you were omnipresent up to a certain point and then it disappeared? 
 
+我：
+
 O:Not so much disappeared,more like faded away the further away from this boundary I projected my consciousness,my sentience. 
+
+起源：
 
 ME:So you recognized that you had a limitation at this point,a limitation in self-awareness. 
 
+我：
+
 O:Yes,but again I will state that this limitation was nothing like you would recognize as a limitation,for just "being"that which I was then,at that juncture in Event Space, is beyond the comprehension of any sentient entity created by any of my creations,my Source Entities. 
+
+起源：
 
 ME:You have progressed since then though.You understand much more and have achieved much more. 
 
+我：
+
 O:Yes,clearly.I will explain more about this boundary,this area,or volume if you want to call it that,of my self-awareness. 
+
+起源：
 
 ME:Please do. 
 
+我：
+
 O:I could,and did,project my consciousness,my sentience,into that area beyond the boundary to try to understand about my structure there,in comparison to,that in which my sentience resided.I established that there was much more to me,and more structure,including new energies beyond this barrier.I decided that I needed to explore this area,this volume as well,but recognized that I needed to understand the area in which my sentience currently resided first. 
+
+起源：
 
 ME:You needed to understand your own back yard first,before you could check out the street and the other back yards within the street? 
 
+我：
+
 O:Correct.To explain all of the experiments I was performing to understand this "locality"of self that my sentience resided within would take a whole volume of books.And even that wouldn't do it justice,so I won't go into the level of detail required to do so.Suffice to say I decided that I needed help.I needed help because as I was experimenting,investigating,experiencing,and learning,I noticed that I was growing in stature.I was gaining what you would call wisdom,power and,most importantly,love for that which was me and my creations during this period.Then I noticed something else;that these things together created a new function,something that is recognized and is sought after by every sentient being that exists within me- EVOLUTION,and this EVOLUTION I desired-VERY MUCH. 
+
+起源：
 
 ME:And you decided to recreate yourself as a result? 
 
+我：
+
 O:Not then,no.I first of all utilized a strategy of assigning parts of myself to perform certain tasks in parallel with tasks being played out by other parts of me.It was a sort of parallel processing function.The problem here was that it was too slow.No matter how I split myself up,no matter how I used what you now know as the law of synergetic function(see the chapter on Source Entity Eleven in Beyond the Source,Book 2)while in collective meta-concert,I just wasn't able to gain the diversity of experience required to evolve at the rate I desired.It was always too slow for me.So I hit upon a plan.I would recreate myself a number of times,twelve times,and give the energies assigned to these "copies"of me the same opportunities,the same processes I went through to become sentient.I instilled two rules.Firstly,they would be on their own and have to develop on their own;secondly,they would need to exist outside of that boundary,the area of my self-awareness in order to fully experience the aloneness. 
+
+起源：
 
 ME:Where did you get the idea of creating twelve versions of yourself from? 
 
+我：
+
 O:Simplistically,as a result of counting the structural levels that were my make-up. From your perspective everything seemed to be in twelves.Whether separate or nested, it was always in twelves.It still is. 
+
+起源：
 
 ### The Creation of the Twelve Origins 
 
@@ -976,139 +1410,271 @@ ME:You're saying then that the reason for choosing twelve copies ofyourself,Twel
 
 O:Correct. 
 
+起源：
+
 ME:And that's it? 
 
+我：
+
 O:Yes. 
+
+起源：
 
 ME:It's that simple? 
 
+我：
+
 O:Yes. 
+
+起源：
 
 ME:Awesome!Its beauty is in its simplicity.Tell me,just how far "up"does your structure go, and is it ALL based upon the number twelve? 
 
+我：
+
 O:I can only tell you this.My structure is based upon twelve units,and each layer or level that I am aware of,or discovered as a result of the expansion of my area of self- awareness,was also based upon its segmentation into twelve units.
+
+起源：
 
 ME:Why is that? 
 
+我：
+
 O:I truly don't know,but I will tell you this.It appears to be robustly consistent to the point of my expectation of its repeatability beyond that which I am aware of now. 
+
+起源：
 
 ME:I would like to know about the levels that you are currently aware of.Can we discuss them later in this dialogue,illustrating each one's functionality? 
 
+我：
+
 O:Yes,it's part of the plan.It is also a necessity,for there is enough incarnate mankind ready for this information to make a triangulation-based event inevitable. 
+
+起源：
 
 ME:And this inevitability will result in the ascension of incarnate mankind? 
 
+我：
+
 O:Not in itself,but it will be a very good accelerant. 
+
+起源：
 
 ME:OK,let's return our focus on the need to create the twelve copies/versions of yourself.I want to ask this question again.Why did you decide to recreate yourself,and what made you chose to recycle the energies and create what I recognize as the twelve Source Entities,what some of us incarnates call the co-creators,the Elohim? 
 
+我：
+
 O:Let's deal with these three "nested questions"in a linear fashion.I will start with the question that is aligned to the creation of the Twelve Origins first. 
 
-Me:That's great,thanks. 
+起源：
+
+ME:That's great,thanks. 
+
+我：
 
 O:Once I had recognized the fact that I gained evolutionary content as a result of creating certain things within the environment that was my area of self-awareness, and this included investigation of self and the structure of self,I found that I could accelerate the attraction of evolutionary content by working in what you would call a parallel processing mode.To achieve this parallel processing I segmented myself off into areas that were specialized into working on known evolutionary projects.Some of these segments were dedicated to probing deep within myself to understand the fundamentals of that which I was,whereas others were based upon other projects such as establishing my expansiveness.Others still were programmed to work on accelerating my sentience while fathoming out what my limitations might be,if any.To date I haven't found a weakness or a limitation. 
 
+起源：
+
 ME:Come on now,you must have discovered some limitations? 
+
+我：
 
 O:No,none.This is because I have nothing to base my abilities on,and therefore I have nothing to compare my functionality with.As a result I consistently and robustly push the boundaries of that which I am further and further out. 
 
+起源：
+
 ME:Fair enough.Tell me then,recognizing that which you were then,what was the ultimate experience that led you to the decision process that resulted in mutual respect and recognition within that which was The Origin? 
+
+我：
 
 O:I noticed that the parallel processing was not delivering the desired level of evolutionary content.I quite simply wanted that evolutionary content which was "happening"to happen faster and that speed of "happening"was constantly being recalibrated to a higher figure,if you like,as a direct result of my expectations. My expectations were augmented the more I experienced,and the more evolutionary content I accrued. 
 
+起源：
+
 ME:And so! 
+
+我：
 
 O:And so I hit upon the idea that I could augment that which I was experiencing,and subsequently accruing evolutionary content on,by reproducing or copying myself upon a multiple of my structural divisions.The structural divisions were based upon twelve units of structure for each level of structure,so I decided that I would use this structure to reproduce myself.Each reproduction was to be positioned within an individual division of my "higher structural self,"giving it a unique and individual environment from which to work within.Each copy was,in essence,given ALL of the conditions and energies necessary to become individualized,"sentient,""self-aware"Origins in their own right.Each one was to believe,once they had achieved self-awareness,that they were "all that there is"and that if they wanted companionship of any sort,then they would have to create it,once they had understood what creativity was and how they could use it to its maximum efficiency,that is. 
 
+起源：
+
 ME:With this in mind then,you created these twelve versions of yourself in isolation to each other as faithful copies of that which you were and stood back to see what was going to happen next,reaping in the evolutionary content in the process. 
+
+我：
 
 O:In essence,yes. 
 
+起源：
+
 ME:So,what happened,I mean,did they all become sentient at the same time,or did they follow the same process as the twelve Source Entities,for example? 
+
+我：
 
 O:As I have just stated,they were given the same energies,environmental conditions, and opportunities,including Event Space,that I had when I became self-aware.As a result they became self-aware on an individual basis,the juncture of which were separated by Event Space itself. 
 
+起源：
+
 ME:So they all became aware then? 
 
+我：
+
 O:Yes. 
+
+起源：
 
 ME:So why did the process fail?Why are there not thirteen Origins in existence now? 
 
 O:The process didn't fail.In fact,it worked extremely well.The issue was that each and every one of my new Origins expected to be that which they could not be,The Origin. 
 
+起源：
+
 ME:What do you mean? 
+
+我：
 
 O:In their individuality and solitary condition they expected to be "The Absolute,""All There Is,"but this was not possible,for they were created by that which they expected to be and this created a conundrum,a conundrum which they could not resolve. 
 
+起源：
+
 ME:None of them? 
 
+我：
+
 O:None of them.
+
+起源：
 
 ### Why the Twelve Origins Experiment Failed When It Didn't 
 
 ME:OK,now you have lost me.How can a failed experiment be a success?Why did it fail but succeed?You're right-this is a conundrum. 
 
+我：
+
 O:Well,I can see that I will need to go back to the basics of what happened with this experiment in some detail. 
+
+起源：
 
 ME:Yes,please.That would be most beneficial because throughout my previous dialogues with you and the Source Entities we have only ever skirted around the periphery of this subject and not achieved a "deep dive,"so to speak.I feel that we will also need to perform a "deep dive"on the creation of the Source Entities as well.Then and only then can we progress into subjects that we have not yet committed to discuss. 
 
 O:This sounds like you have a plan.I like a plan that is thought through first,and this looks like it would be a very good plan-specifically when it will allow this dialogue to stand on its own two feet,independent of your previous dialogues(books),and it will provide greater detail for that which has been discussed before.I like it.Let's start now. 
 
+起源：
+
 ME:I thought we had. 
+
+我：
 
 O:Sorry,I am having some fun with you. 
 
+起源：
+
 ME:Clearly.So tell me.How did you go about recreating yourself,that which is you,the "all there is?"What was the process you went through,and how did you decide on what process to use? 
+
+我：
 
 O:Firstly,I had to come to the conclusion that I needed to evolve faster than I was at that point,that juncture in my existence.As stated recently,I noticed that experiencing different things and learning from those experiences subsequently created something that I later labeled as "evolutionary." 
 
+起源：
+
 ME:I thought mankind invented the word "evolution!" 
+
+我：
 
 O:Mankind,that is incarnate mankind as a vehicle for experiencing the lower frequencies of your Source Entity's environment,hasn't invented anything that hasn't been done by me.Nothing is new;it's just different entities experiencing the old in a different way,which is exactly what I desire,differentiated experience and understanding. 
 
+起源：
+
 ME:Now that makes sense. 
 
+我：
+
 O:It does,especially when you recognize that as you experience,learn and evolve,so do I. 
+
+起源：
 
 Let's work with the need for me to create copies of myself,for in essence that's exactly the process I used,albeit at the primary stage of my development. 
 
 ME:I just gained an image of the visualizations I received when we were using Event Space to see your gaining intelligence and then sentience.I even saw the "islands"of different energies with their own intelligence quotient.Is this a significant visualization?
 
+我：
+
 O:It is to a point.You see,I had to recreate a set of energies that were similar in area,or in volume,to that which I was experiencing when I became a co-joined group of simultaneously intelligent energies.I also had to use the exact same energies in the exact same quantities in the exact same configurations with the exact same levels of emergent intelligence.I had to recreate everything down to the very last component part,and that included levels of physicality,for your reference,that were countless levels lower,and smaller dimensionally,than those components of the physical atom that your level of frequency uses as a building block.I wanted to recreate that which was me then in its infinite detail,but without the need for the long period of Event Space that was used in my initial developmental stages. 
+
+起源：
 
 ME:You took a snapshot in time,or should I say "Event Space"and recreated that which you were at that point in Event Space? 
 
+我：
+
 O:Correct. 
+
+起源：
 
 ME:How much time (Event Space)did you save by starting with that which you were at a certain juncture in your existence?I mean,it must have been a lot to make you want to go down that route rather than starting from scratch. 
 
+我：
+
 O:It saved something like several quadrillion trillion years in your language.Not a significant period in my existence,but I was eager to get started,to accumulate the additional evolutionary content promised from such an experiment.So from this perspective it was a necessary saving-especially if you consider that it would be multiplied by twelve.It was a very compelling argument to have with one's self,and of course one that was won by me.Hee,hee,hee,I chuckle when I think of the communications with myself that I held. 
+
+起源：
 
 ME:How do you mean?I suddenly gained the impression and vision that you created separate personalities to argue the "for and against"positions for such an experiment. 
 
+我：
+
 O:How very intuitive of you.Yes,I did.I created five separate but temporary personalities,each with the full knowledge base of what I was and what I wanted to achieve-the objective being the ability to gain a consensus vote on the best way forward. 
+
+起源：
 
 ME:And these five component personalities,created by you,were able to give you a better decision process? 
 
+我：
+
 O:Yes,you see I gave them a direction.Each of them had the desire to move in a certain way.Each desired way was based upon the directions that I thought I could have gone down had I not had the other directions to go in.It was a sort of stand-off.I knew that any one of these directions would accelerate my evolutionary content.It was just that each of them was compelling to the point of distraction,the distraction being the ability to make a rational and well-balanced decision based upon the presentation of all of the information relating to each direction,rather than just the information relating to just one direction.In essence I needed to ensure that the route I went down was the best, most efficient,and most productive route.
+
+起源：
 
 ME:I would have thought that you could have chosen all five routes and benefited from the collaborative information that would have been available,rather than just one. 
 
+我：
+
 O:You would,and I can see that you are thinking that this was a rather "linear"thought process,not worthy of "The Origin." 
+
+起源：
 
 ME:The thought had crossed my mind. 
 
+我：
+
 O:Understandably so.What I wanted though was a route that allowed me to use all of that part of me,that area of self-awareness which I had currently available to me,to work on this desire to accelerate my evolution.I simply didn't want to waste personal "processing power"on what would be four dead ends and one mainline to evolution. 
+
+起源：
 
 ME:So you decided to check out the percentages first then,so to speak? 
 
+我：
+
 O:Yes,I did.And it was a most beneficial piece of work. 
 
-ME:So what were these five directions,and what were their benefits? O:They were very simple,frighteningly simple,in fact,so don't get too disappointed when you hear what they were. 
+起源：
+
+ME:So what were these five directions,and what were their benefits? 
+
+我：
+
+O:They were very simple,frighteningly simple,in fact,so don't get too disappointed when you hear what they were. 
+
+起源：
 
 ME:I will try to accept that which is presented to me. 
 
+我：
+
 O:I am sure you will.They were as follows:
+
+起源：
 
 - **Duplication of self to the point of desired acceleration of evolution**. You are aware of this part of the story.However,in this instance the decision to recreate myself was based upon a number equal to the divisions within my structure,twelve plus one,me,the creator,making thirteen. 
 - **Division of self to the point of desired acceleration of evolution**. Again the decision to divide myself was based upon a number equal to the divisions within my structure,twelve.In this instance though,the area of self-awareness would have been divided into twelve equal parts,each in total equality with the other,each feeding into a centralized but shared evolutionary "pool."I would have become a small collective in this instance. 
@@ -1118,81 +1684,157 @@ O:I am sure you will.They were as follows:
 
 ME:Those were the five suggestions that the five component personalities offered to you then? 
 
+我：
+
 O:Yes,they were.
 
-Me:You are right.They were simple. 
+起源：
+
+ME:You are right.They were simple. 
+
+我：
 
 O:I did warn you. 
 
+起源：
+
 ME:Wow.I had no idea that you could be so simple in your application and thought process. 
+
+我：
 
 O:Simple is good.Remember that. 
 
+起源：
+
 ME:OK,OK,I get it now.Tell me then,what made you decide to go with the "duplication of self to the point of desired acceleration of evolution"route then? 
+
+我：
 
 O:Quite simply,there is that simple word again (I felt that The Origin was playing with me a bit here!GSN),because I liked the idea of a multiple of me.Multiple me's means company,companionship,friendship,colleagues,helpers.It was a really compelling and intoxicating thought process to have.I suddenly found myself being quite distracted in this way.I would no longer be "alone and singular."I needed to experience that lack of aloneness of being part of a group of beings in equality.As I just stated,it was so intoxicating it was a major distraction.In actuality,every time I considered the other suggestions I found myself thinking of the "duplication of self"route. 
 
+起源：
+
 ME:You appear to have been significantly distracted in this decision process. 
+
+我：
 
 O:You bet I was.I couldn't see the wood for the trees,so to speak. 
 
+起源：
+
 ME:Please elaborate.
+
+我：
 
 O:I was so intoxicated with the idea of having company,equal company,that I wasn't able to see the flaw in this particular route.
 
+起源：
+
 ME:The flaw being the inability to recreate that which is "the absolute"within,or just without,the area of your self-awareness? 
+
+我：
 
 O:Correct. 
 
+起源：
+
 ME:Because? 
+
+我：
 
 O:Because I was not mature enough to take into account that part of me that was unfathomable.I couldn't and didn't even try to take into account that part of me that I wasn't totally aware of.In fact,I wasn't even sure thatthat which was beyond my area of self-awareness was actually "ME."As a result it was not catered for in the calculation required for the duplication to take place.All I knew was that that which I was,was,that which I was in contact with,I seemed to concentrate on that. 
 
+起源：
+
 ME:So,what happened then?Can you describe the creation process of the Twelve Origins and what happened to each of them? 
 
+我：
+
 O:It will take some time but,yes,I can. 
+
+起源：
 
 Do you remember the dialogue we had recently where we "used"Event Space to observe that "part"of Event Space that recorded the process of my evolution from mere energetic attraction to full sentience?
 
 ME:Yes,I do.It wasn't that long ago. 
 
+我：
+
 O:It wasn't.But the process was an important one,for it was successful.Prior to the decision to create five aspects (personalities)of self to help in the decision process required to accelerate my evolution I had already worked with my creativity processes, hence my sentience. 
+
+起源：
 
 ME:And what did you create? 
 
+我：
+
 O:Replicas of those islands of energies that eventually gained intelligence and then joined together,foregoing individual singular functionality for the greater good.The greater good being a bigger,multifunctional intelligence. 
+
+起源：
 
 ME:And I would guess that the creation of five aspects of self,the individual and separate personalities to help you in this decision process,was part of your creativity learning curve? 
 
+我：
+
 O:Yes,in some ways,but at this point I was quite adept in the art of creativity.Hence the ability to create multiple and separately focused aspects or personalities of self.Each one of them was an aspect of me,and a circumstance that created them,that I had both noticed and isolated within myself as being a useful trait during my era of self-discovery and self-investigation,albeit within the limited area that I considered to be all that I was. 
+
+起源：
 
 ME:So you started off by creating the islands of intelligent energies first and then progressed to create the full Origin entity?
 
+我：
+
 O:No.I recreated The Origins up until the islands of intelligent energies and then moved those energies to a position outside of my area of self-awareness.Each of them was positioned at a point outside of the area of self-awareness where they would not be able to perceive any of the others when they became self-aware and fully sentient.They were to be completely alone. 
+
+起源：
 
 ME:I have just received an image that suggests you created spheres.Within these spheres were all of the islands of energies.The sphere would act like a placenta until full coadunation of the islands of intelligent energies occurred.When the islands became one,the sphere would end up being the area of self-awareness,the periphery of which was a transient condition only required for the process of coadunation to take place in the location specified. This ensured that no separation of energies occurred and no amalgamation of your energies outside of your area of self-awareness with the energies of the new Origins could take place, creating contamination of awareness. 
 
+我：
+
 O:Well done.And in those words of yours was a clue to the reason for their demise. 
+
+起源：
 
 ME:What do you mean?I'm sorry.I don't see it. 
 
+我：
+
 O:Firstly,I tried to recreate that which was me,but it was limited to that which was my area of self-awareness and failed to take account of those energies which form my area of "self"beyond my area of "self-awareness."The big issue here was that each of The Origins had within its energies knowledge of that which it could be,which it actually couldn't be because of the limiting factor of the sphere,and this was a conundrum,an unsustainable conundrum,as it so happened. 
+
+起源：
 
 ME:Are you suggesting that the energies inherently knew that there was an aspect of them that was greater than that which they were? 
 
+我：
+
 O:Yes.You see,they expected to be something that they were not.Even though I intended them to be the same as my"self,"they were not,and this was the Achilles'heel, the flaw in my design of these copies of self. 
+
+起源：
 
 ME:They became self-aware then? 
 
+我：
+
 O:Not all of them,and most of them followed a different route before their demise,or should I say decision to revert back to non-awareness.I think the best way for me to describe what happened is to provide a short summary for each of the twelve. 
+
+起源：
 
 ME:I think that would be a perfect response,and one that would give more detail. 
 
+我：
+
 O:I will number them one through twelve and call them New Origin One,Two,etc. 
+
+起源：
 
 ME:That's very much like how I described the Source Entities when I worked on the Beyond the Source books. 
 
+我：
+
 O:Logical,isn't it,but one thing is for sure,I won't be writing a book about them because we have bigger fish to fry in this dialogue,so these summaries will be quite short.OK, here we go.
+
+起源：
 
 ### The Demise of the Twelve Origins 
 
