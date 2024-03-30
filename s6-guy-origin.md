@@ -534,123 +534,127 @@ ME:So what were you observing?
 
 O:I was observing a few tendrils of energy that I had sent forth into the expansiveness, of my vastness as a means of understanding that which I am.I lost contact with the detail after I had sent out enough energy to equal ten times the distance of my furthest points apart in my current area of self-awareness. 
 
-起源：
+起源：我观察我向广阔无垠的宇宙中发射的几束能量，以此来理解我是谁。当我发射出相当于我目前自我意识领域中最远点距离十倍的能量后，我与细节失去了联系。
 
 ME:What happened to the energy tendrils then? 
 
-我：
+我：那么能量卷须发生了什么? 
 
 O:I lost them! 
 
-起源：
+起源：我弄丢了! 
 
 ME:What!You mean you couldn't communicate with them? 
 
-我：
+我：什么!你是说你不能和他们交流? 
 
 O:No,I mean I lost them.They are separated from me as a part of me that is sentient within that which is recognized as me currently.
 
-起源：
+起源：不，我是说我把它们弄丢了。他们从我身上分离出来，作为我的一部分，在目前被认为是我的一部分，是有知觉的。
 
 ME:What does that mean then?What are you suggesting? 
 
-我：
+我：那是什么意思?你的意思是什么? 
 
 O:I am not suggesting anything.What I will say though is that there are now some small parts of me that are in what I will call temporary potentially sentient separation, and that they are somewhere within that part of me that is beyond my current level of understanding,so far beyond my current area/volume of self-awareness that I have lost contact with them. 
 
-起源：
+起源：我没有什么建议。我要说的是，我现在有一些小的部分，我称之为暂时的潜在的情感分离，它们在我的那一部分的某个地方，超出了我目前的理解水平，远远超出了我目前的自我意识领域/体积，我已经失去了与它们的联系。 
 
 ME:Don't you now run the risk of having these tendrils developing their own sentience in time,becoming other self-sufficient sentient versions of that which is sentient "you"within that which is you in totality? 
 
-我：
+我：你现在不冒着让这些卷须及时发展自己的感知，成为其他自给自足的感知版本的“你”的风险吗? 
 
 O:Up to a certain level,yes. 
 
-起源：
+起源：在一定程度上，是的。 
 
 ME:But couldn't they potentially become bigger than you? Engulfing you,absorbing and therefore removing the individualization of all that which is you? 
 
-我：
+我：但他们会不会比你更有潜力呢?吞噬你，吸收并因此消除你的个体化? 
 
 O:Ha haha ha ha,a delicious thought isn't it.No,that is not what will happen. 
 
-起源：
+起源：哈哈哈哈哈，一个很美味的想法不是吗?不，那不会发生的。 
 
 ME:OK,clever clogs,what will happen?
 
-我：
+我：好吧，聪明的木屐，会发生什么?
 
 O:Yes,I agree,they will eventually become individualized,but they will not consume me. 
 
-起源：
+起源：是的，我同意，它们最终会变得个性化，但它们不会消耗我。 
 
 ME:Why not?No,don't tell me,you have a "head start"on them size-wise.
 
-我：
+我：为什么不?不，别告诉我，你在尺寸上比他们“领先一步”。
 
 O:No,it's not that.It's because they are created by me.And because they are created by me they can never be more than me. 
 
-起源：
+起源：不，不是那样的。因为它们是我创造的。因为他们是由我创造的，所以他们永远不会超过我。 
 
 ME:So what will they become then? 
 
-我：
+我：那他们会变成什么样子? 
 
 O:They will have the potential to become Om or a Source Entity of the size that all of you will become when all entities are equal with their Source's and we all move out into my next level of self-awareness.It depends upon how,when,and if they become self-aware. 
 
-起源：
+起源：他们将有潜力成为OM或你们所有人都将成为的规模的源实体，当所有实体都与他们的源头平等时，我们都将进入我的下一个自我意识水平。这取决于他们如何、何时以及是否会变得自我意识。 
 
 ME:But we can know this,can't we?Just by moving into that Event Space that will now be in existence relative to that possibility? 
 
-我：
+我：但是我们可以知道这个，不是吗?仅仅通过移动到事件空间中相对于这种可能性存在吗? 
 
 O:Yes,very well done.You are getting better at this. 
 
-起源：
+起源：是的，做得很好。你做得越来越好了。 
 
 ME:I am doing my best. 
 
-我：
+我：我尽力了。 
 
 O:Good then,you will recognize while we have been talking that an aspect of me was working in the background and has already tracked them down in their possible projection of Event Space and observed them in their individualized sentience. 
 
-起源：
+起源：那么很好，当我们一直在谈论的时候，你会意识到我的一个方面在后台工作，并且已经在他们可能的事件空间投射中追踪他们，并观察他们的个性化感知。 
 
 ME:I should have seen that coming!What did they turn into?Sources,Om,or just entities? 
 
-我：
+我：我早该料到的!他们变成了什么?源头，OM，还是只是实体? 
 
 O:I now have two new Om and one new Source Entity.Due to the vastness of where they were it was too much for them to stay singular in their individualized energetic density, so to speak.Some of the tendrils grouped/coalesced together to create enough density to create an entity of Source Entity proportions,whereas the others,two of them,were of enough density to become entities large enough to be called Om. 
 
-起源：
+起源：我现在有两个新的OM和一个新的源实体。由于他们所处的地方的浩瀚，可以说，对他们来说，在他们个性化的能量密度中保持单一是太过分了。一些卷须组合在一起，形成足够的密度，形成一个源实体比例的实体，而其他的，其中两个，密度足够大，成为一个足够大的实体，被称为OM。 
 
 ME:Will we be able to see them? 
 
-我：
+我：我们能看到他们吗? 
 
 O:Yes,but not now.We will meet them in another Event Space,where you will be compiling the information from a series of dialogues that will be separate from this one, and the others that will form the book you are calling The Origin Speaks. 
 
-起源：
+起源：是的，但不是现在。我们将在另一个事件空间与他们会面，在那里你将从一系列的对话中编译信息，这些对话将与这个对话分开，而其他的对话将形成你称之为《起源说话》的书。 
 
 ME:OK,and what will that be called-"Beyond The Origin,"I suppose!(I had already had a subliminal prompt on this but was not sure how a book could be called Beyond The Origin, when The Origin is "All There Is."I decided to leave that one alone and move back to that which we were supposed to be doing,observing The Origin becoming self-aware,sentient.) 
 
-我：
+我：OK，那叫什么呢?我想是“超越起源”吧!(我已经下意识地想到了这一点，但不确定一本书怎么能被称为“超越起源”，而“起源”是“一切皆有”。我决定不去管它，回到我们应该做的事情上，观察起源变得有自我意识，有知觉。) 
 
 O:You are getting better at this,aren't you!OK,let's concentrate on my becoming sentient for the first time. 
 
-起源：
+起源：你越来越擅长这个了，不是吗?OK，让我们专注于我第一次变得有知觉。 
 
 ME:Hold on.What do you mean becoming sentient the first time?Have you got something up your energetic sleeve? 
 
-我：
+我：等一下。你说第一次变得有知觉是什么意思?你有什么精力充沛的妙招吗? 
 
 O:I told you that you were getting better at this.I will explain the detail behind that statement later.Right now let's continue with observing what this particular Event Space has to offer.
 
-起源：
+起源：我告诉过你，你在这方面做得越来越好。我稍后会解释那句话背后的细节。现在让我们继续观察这个特殊的事件空间提供了什么。
 
 (Now there's a clue if I saw one.I made a mental note to follow this up with The Origin, only I got the impression that the answers would come out without my prompting.Event Space was going to be a big player in this dialogue,I could just see it!) 
 
+(现在有线索了，如果我看到了。我在心里记着要继续写《起源》，但我的印象是，没有我的提示，答案就会出来。事件空间将在这个对话中扮演重要角色，我可以预见!) 
+
 I focused on the task at hand,looking at the detail of the energies in front of my mind's eye.The imagery I was receiving was a mixture of seeing gasses,energies and biological cells,in all sorts of layers.I received the information that the layers were the first formation of dimensions within the energies that were being represented by the imagery.It was all being presented to me in a way that I would understand.I was just wondering how this was happening when The Origin answered for me. 
+
+我专注于手头的任务，注视着眼前能量的细节。我所接收到的图像是看到气体、能量和生物细胞的混合物，在各种层次上。我收到的信息是，这些层是图像所代表的能量中第一个维度的形成。这一切都是以我能理解的方式呈现给我的。我正纳闷这是怎么回事，起源帮我回答了。 
 
 O:It's a function of Event Space to work with the entities that are within a specific aspect of it in a way that is consistent with its level of sentience. 
 
