@@ -48,4 +48,5 @@
   * [The World Satsanga: The First Ten Years Book 1](s6-guy-ws1.md)
   * [The World Satsanga: The First Ten Years Book 2](s6-guy-ws2.md)  
   * [The World Satsanga: The First Ten Years Book 3](s6-guy-ws3.md)
+  * [The World Satsanga: Book 4 of The World Satsanga Trilogy](s6-guy-ws4.md)  
   * [Beyond the Origin](s6-guy-bydorigin.md)
