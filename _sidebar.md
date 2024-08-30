@@ -2,13 +2,13 @@
 
   * [本书引述的主要信息源](from.md)
 
-* 真相（起源）
+* 概述
 
-  * [起源](s1-origin.md)
+  * [本书主要内容](zzz-text.md)  
+  * [单词表](zzz-words.md)
 
 * 幻相（起源的造物&造物的造物）
 
-  * [源实体](s2-source-entity.md)
   * [多维宇宙](s2-universe.md)
   * [存有](s2-beings.md)
   * [转世轮回](s2-samsara.md)
@@ -18,7 +18,6 @@
 * 领悟
 
   * [人生意义](s3-why.md)
-  * [一些概念](s3-conception.md) 
 
 * 实修
 

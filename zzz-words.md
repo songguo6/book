@@ -20,7 +20,7 @@
 | aware                         | adj.       | 觉知到的                    |
 | beings                        | n.         | 存有（复数）                |
 | belief                        | n.         | 信念                        |
-| believers in the truth        | n.         | 信仰真理者                  |
+| believers in the truth        | n.         | 真理的信仰者                |
 | body, mind, spirit            | n.         | 身体、心智、灵魂            |
 | celestial light               | n.         | 天光                        |
 | channeled                     | adj.       | 通灵的                      |
@@ -44,7 +44,10 @@
 | dedicated                     | adj.       | 专注的                      |
 | dematerialization             | n.         | 反物质化                    |
 | density                       | n.         | 密度                        |
+| desire                        | n.         | 渴望，欲望                  |
+| dimensional groups            | n.         | 维度组（复数）              |
 | dimensions                    | n.         | 维度（复数）                |
+| disassociate                  | vt.        | 使分离                      |
 | ego                           | n.         | 小我，（心理学）自我        |
 | emotion                       | n.         | 情感，情绪                  |
 | energetic                     | adj.       | 有能量的                    |
@@ -58,6 +61,7 @@
 | environment                   | n.         | 环境                        |
 | esoterics                     | adj. / n.  | 深奥的 / 神秘学             |
 | essential                     | adj.       | 本质的，至关重要的          |
+| essential evolution           | n.         | 关键进化                    |
 | ether                         | n.         | 以太                        |
 | event stream                  | n.         | 事件流                      |
 | events                        | n.         | 事件（复数）                |
@@ -66,11 +70,12 @@
 | experiencing                  | v.         | 经历（现在分词）            |
 | experiment                    | n.         | 实验                        |
 | flying saucer                 | n.         | 飞碟                        |
-| focus                         | v.         | 聚焦                        |
+| focus                         | v. / n.    | 聚焦 / 焦点                 |
 | forgiveness                   | n.         | 宽恕                        |
 | form                          | n. / v.    | 外形 / 构成                 |
 | free will                     | n.         | 自由意志                    |
 | frequency                     | n.         | 频率                        |
+| full dimensions               | n.         | 全维度（复数）              |
 | galaxies                      | n.         | 星系（复数）                |
 | God                           | n.         | 神，源头，源实体            |
 | grounded                      | adj. / v.  | 接地气的 / 接地（过去分词） |
@@ -86,8 +91,12 @@
 | imaganation                   | n.         | 想象力                      |
 | incarnate                     | adj. / vt. | 化身的 / 使化身，转世       |
 | incarnations                  | n.         | 化身（复数）                |
+| individualised                | adj.       | 个体化的                    |
 | infinite                      | adj.       | 无限的                      |
 | instantaneous travel          | n.         | 瞬间移动                    |
+| integrated                    | adj.       | 集成的                      |
+| intelligence                  | n.         | 智能                        |
+| intelligence quotient         | n.         | 智商                        |
 | intention                     | n.         | 意愿                        |
 | inter-demensional portal      | n.         | 跨纬度门户                  |
 | karma                         | n.         | 业力                        |
@@ -117,6 +126,8 @@
 | oneness                       | n.         | 一体                        |
 | open-minded                   | adj.       | 思想开明的                  |
 | orb of light                  | n.         | 光球                        |
+| outcome                       | n.         | 成果                        |
+| overlaid                      | v.         | 覆盖，叠加                  |
 | overlapping                   | v.         | 部分重叠（现在分词）        |
 | parallel                      | adj.       | 平行的，并行的              |
 | parallel processing           | n.         | 平行处理                    |
@@ -124,9 +135,12 @@
 | perceive                      | vt.        | 感知到                      |
 | perception                    | n.         | 感知                        |
 | perpetual                     | adj.       | 永恒的                      |
+| phase angle                   | n.         | 相位角                      |
 | physical self                 | n.         | 载具我                      |
+| physical universe             | n.         | 物理宇宙                    |
 | pipe                          | n.         | 管道                        |
 | planets                       | n.         | 行星（复数）                |
+| preferential                  | adj.       | 优先的                      |
 | presence                      | n.         | 临在                        |
 | projected                     | adj. / v.  | 投射的 / 投射（过去分词）   |
 | psychic                       | adj.       | 通灵的，超自然的            |
@@ -134,6 +148,7 @@
 | pure                          | adj.       | 纯净的                      |
 | real self                     | n.         | 真我                        |
 | reality                       | n.         | 实相                        |
+| recognition                   | n.         | 认知                        |
 | reiki                         | n.         | 灵气                        |
 | reincarnate                   | v. / adj.  | 再次化身，轮回 / 轮回的     |
 | religion                      | n.         | 宗教，宗教信仰              |
@@ -141,8 +156,11 @@
 | role                          | n.         | 角色                        |
 | root races                    | n.         | 根源种族（复数）            |
 | sacred                        | adj.       | 神圣的                      |
+| sacrifice                     | n. / v.    | 牺牲 / 牺牲                 |
+| self-awareness                | n.         | 自我觉知                    |
 | sense                         | n. / vt.   | 含义 / 感觉到               |
 | sensitive                     | adj.       | 敏感的                      |
+| sentience                     | n.         | 觉知                        |
 | silver cord                   | n.         | 灵带                        |
 | simultaneous                  | adj.       | 同时的，同步的              |
 | singularly                    | adv.       | 个体地                      |
@@ -153,12 +171,15 @@
 | spherical                     | adj.       | 球形的                      |
 | spiritual awareness           | n.         | 灵性觉醒                    |
 | spirituality                  | n.         | 灵性                        |
+| sub dimensional components    | n.         | 亚维度                      |
 | subconscious                  | adj.       | 潜意识的                    |
 | subconsciousness              | n.         | 潜意识                      |
+| sympathetic                   | adj.       | 共鸣的，同情的              |
 | tan tien                      | n.         | 丹田                        |
 | telekinesis                   | n.         | 心灵感应                    |
 | teleportation                 | n.         | 瞬间移动                    |
 | temporal or dimensional slice | n.         | 时空切片                    |
+| TES, True Energetic Self      | n.         | 真实能量自我                |
 | the All                       | n.         | 全体                        |
 | the Base/Root Chakra          | n.         | 海底轮                      |
 | the Core Star meditation      | n.         | 星核冥想                    |
@@ -175,7 +196,6 @@
 | the Violet Flame meditation   | n.         | 紫火冥想                    |
 | third eye                     | n.         | 第三眼                      |
 | time line                     | n.         | 时间线                      |
-| true self                     | n.         | 本我                        |
 | unconditional love            | n.         | 无条件的爱                  |
 | universes                     | n.         | 宇宙（复数）                |
 | veil                          | n.         | 帷幕                        |
@@ -186,7 +206,7 @@
 | whole picture                 | n.         | 蓝图                        |
 | wormholes                     | n.         | 虫洞（复数）                |
 
-#### 句子
+### 句子
 
 | English                          | 中文             |
 | -------------------------------- | ---------------- |
@@ -194,7 +214,7 @@
 | disincarnate in between lives    | 两世之间未转世时 |
 | go with the flow                 | 顺其自然         |
 | in essence                       | 本质上           |
-| incarnate into bodies            | （转世）投胎     |
+| incarnate into bodies            | 转世投胎         |
 | is one with                      | 和...一体        |
 | just being                       | 如之所是         |
 | knowledge and truth              | 知识和真理       |
