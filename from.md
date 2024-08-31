@@ -2,28 +2,47 @@
 
 ---
 
-## [双生紫焰](https://www.violet-flames.com)
+## [Guy Steven Needler（盖伊·斯蒂文·尼德勒）](http://www.guystevenneedler.com/)
 
-#### 双生紫焰是谁？
+#### Guy Steven Needler是谁？
 
-**乔乔**：是一个灵性、活泼、融入世界却又宁静觉察的特别存在，深深觉得地球是一个非常有趣与好玩的线上游戏，但是看到许多人活在痛苦与迷失当中，很想用爱与光来改变地球，让每个人都能喜悦与圆满！  
-**莫子**：自从被绝对的寂静吞没后，以观察者的角度遥远的看着潮来潮去、朝阳夜空，直到遇到乔乔，既在游戏外也在游戏中体验着圆满，更被乔乔拉到尘世中，看到许多走在路上的老朋友！
+GuyNeedler，理学双学位硕士，工商管理硕士，特许工程师，工程技术学会会员(MIET)，替代医疗协会会员(MCMA)，早期受训成为机械工程师，随即晋升为特许电力电子工程师。
 
-#### 双生紫焰分享的核心及两大主轴
+不过在尘世的培训当中，他一直意识到世上有更高的实相，并得以瞥见灵性的世界。这使他从青少年时期到二十多岁的岁月里，沉浸在灵性书籍，且勤奋地投入到静心冥想中。
 
-**意识即是一切**，是我们传递讯息的核心，所有传递的讯息都运作之上，我们的核心内容分为两个部分：  
-- **登出游戏、开悟**：透过觉察一切的现象然后不解释所觉察的现象，而直接穿透现象、体会生命的本体（登出）、登出游戏（开悟）后消化所有信念、消化完毕后电脑关机（回家）。  
-- **成为超级玩家**：在生命故事游戏中，体会一切眼前所见所闻，都是自己信念所显化，进而能掌握信念，在故事里成为玩家来使用角色，玩得尽兴，让框架越来越开阔，生命游戏越来越好玩、有趣、自在无碍。  
+随后指导灵以一种特殊的方式与他沟通，需将重心暂时放在对尘世的贡献上，于是他减少了灵性上的探索，直到将近四十岁时，他又再度被唤醒，重归灵性角色。
 
-#### 双生紫焰出版的书籍
+接下来的六年里，他获得了灵气疗法的导师资格，并用四年的时间向海伦‧斯托特学习能量与频率治疗技术。在校期间他也学习了个人发展与实践（包括心理疗法）这一预修课程，该课程使用的“道途”法由苏珊‧赛森格提出，并由多诺万‧赛森格、约翰与伊娃‧皮拉克斯等人进一步发展。之后，能量治疗方面的培训和经验使他成为了替代医疗协会会员(MCMA)。
 
-- [《登出鍵》](https://www.books.com.tw/products/0010908956)（2021）
+除了能量疗愈方面的能力，他的灵性能力还包括能够从传递灵界信息，以及持续与我们多维宇宙中各种实体及存有、他的高我及指导灵保持接触。他所撰写的《源头简史》正是源于深度的冥想传导，且他正在带来更多的颠覆传统认知的著作。
 
-#### 双生紫焰信息源
+盖伊还练习并传授合气道，作为一种接地的方法。在此领域他拥有二十八年经验，是五段国家级教练，目前正将灵性能量融入这门艺术当中。
 
-- 官方网站：[violet-flames.com](https://www.violet-flames.com)
-- Youtube：[雙生紫焰Violet Flames](https://www.youtube.com/@VioletTwinFlames)
-- Facebook：[雙生紫焰](https://www.facebook.com/VioletTwinFlames)
+#### Guy Steven Needler出版的书籍
+
+- [《The History of God》](https://www.amazon.com/History-God-Story-Beginning-Everything/dp/1886940169)（2011）中文版：**《源头简史》**
+- [《Beyond the Source - Book 1》](https://www.amazon.com/Beyond-Source-Messages-Co-Creaters-Universe/dp/1886940339)（2012）
+- [《Beyond the Source - Book 2》](https://www.amazon.com/Beyond-Source-Guy-Steven-Needler/dp/1886940444)（2013）
+- [《Avoiding Karma》](https://www.amazon.com/Avoiding-Karma-Mind-Challenging-Recognize-Truly/dp/1886940460)（2014）中文版：**《回避业力》**
+- [《Origin Speaks》](https://www.amazon.com/Origin-Speaks-Dialogue-Ultimate-Creator/dp/194026510X)（2015）
+- [《Anne Dialogues》](https://www.amazon.com/Anne-Dialogues-Communications-Ascended/dp/1940265398)（2016）
+- [《The Curators》](https://www.amazon.com/Curators-Roles-Responsibilities-Maintenance-Entities/dp/B07WDTJS7K)（2019）
+- [《Psycho - Spiritual Healing》](https://www.amazon.com/Psycho-Spiritual-Healing-And-Other-Techniques-for-Dysfunctions-Created-by-Who-We-Are-and-How-We-Incarnate/dp/1940265932)（2021）
+- [《The World Satsanga: The First Ten Years - Book 1》](https://www.amazon.com/World-Satsanga-Questions-Channelled-Answers/dp/B0C63VWFDP)（2023）
+- [《The World Satsanga: The First Ten Years - Book 2》](https://www.amazon.com/World-Satsanga-Questions-Channelled-Answers/dp/B0C5PGB9T9)（2023）
+- [《The World Satsanga: The First Ten Years - Book 3》](https://www.amazon.com/World-Satsanga-Questions-Channelled-Answers/dp/B0C63VWFDP)（2023）
+- [《The OM – The Uncreated Creations》](https://www.amazon.com/OM-Guy-Steven-Needler-ebook/dp/B0C4V9PCCZ?ref_=ast_author_dp)（2023）
+- [《The World Satsanga: Book 4 of The World Satsanga Trilogy》](https://www.amazon.com/World-Satsanga-Lectures-Questions-Channelled-ebook/dp/B0D158YLW4)（2024）
+- 《Beyond the Origin – An Event Space Odyssey》（2024）
+
+#### Guy Steven Needler信息源
+
+- 官方网站：[guystevenneedler.com](http://www.guystevenneedler.com/)
+- 官方网站：[beyondthesource.org](http://www.beyondthesource.org/)
+- Youtube：[GuyStevenNeedler](https://www.youtube.com/@GuyStevenNeedler)
+- Twitter：[Guy Steven Needler](https://twitter.com/guystevenneedle)
+- 微信公众号：**盖伊尼德勒的新世界**（guyneedler）
+- 微信公众号：**两课身心深频研究院**（my2lesson）
 
 ---
 
@@ -74,68 +93,28 @@
 
 ---
 
-## [Guy Steven Needler（盖伊·斯蒂文·尼德勒）](http://www.guystevenneedler.com/)
+## [双生紫焰](https://www.violet-flames.com)
 
-#### Guy Steven Needler是谁？
+#### 双生紫焰是谁？
 
-GuyNeedler，理学双学位硕士，工商管理硕士，特许工程师，工程技术学会会员(MIET)，替代医疗协会会员(MCMA)，早期受训成为机械工程师，随即晋升为特许电力电子工程师。
+**乔乔**：是一个灵性、活泼、融入世界却又宁静觉察的特别存在，深深觉得地球是一个非常有趣与好玩的线上游戏，但是看到许多人活在痛苦与迷失当中，很想用爱与光来改变地球，让每个人都能喜悦与圆满！  
+**莫子**：自从被绝对的寂静吞没后，以观察者的角度遥远的看着潮来潮去、朝阳夜空，直到遇到乔乔，既在游戏外也在游戏中体验着圆满，更被乔乔拉到尘世中，看到许多走在路上的老朋友！
 
-不过在尘世的培训当中，他一直意识到世上有更高的实相，并得以瞥见灵性的世界。这使他从青少年时期到二十多岁的岁月里，沉浸在灵性书籍，且勤奋地投入到静心冥想中。
+#### 双生紫焰分享的核心及两大主轴
 
-随后指导灵以一种特殊的方式与他沟通，需将重心暂时放在对尘世的贡献上，于是他减少了灵性上的探索，直到将近四十岁时，他又再度被唤醒，重归灵性角色。
+**意识即是一切**，是我们传递讯息的核心，所有传递的讯息都运作之上，我们的核心内容分为两个部分：  
+- **登出游戏、开悟**：透过觉察一切的现象然后不解释所觉察的现象，而直接穿透现象、体会生命的本体（登出）、登出游戏（开悟）后消化所有信念、消化完毕后电脑关机（回家）。  
+- **成为超级玩家**：在生命故事游戏中，体会一切眼前所见所闻，都是自己信念所显化，进而能掌握信念，在故事里成为玩家来使用角色，玩得尽兴，让框架越来越开阔，生命游戏越来越好玩、有趣、自在无碍。  
 
-接下来的六年里，他获得了灵气疗法的导师资格，并用四年的时间向海伦‧斯托特学习能量与频率治疗技术。在校期间他也学习了个人发展与实践（包括心理疗法）这一预修课程，该课程使用的“道途”法由苏珊‧赛森格提出，并由多诺万‧赛森格、约翰与伊娃‧皮拉克斯等人进一步发展。之后，能量治疗方面的培训和经验使他成为了替代医疗协会会员(MCMA)。
+#### 双生紫焰出版的书籍
 
-除了能量疗愈方面的能力，他的灵性能力还包括能够从传递灵界信息，以及持续与我们多维宇宙中各种实体及存有、他的高我及指导灵保持接触。他所撰写的《源头简史》正是源于深度的冥想传导，且他正在带来更多的颠覆传统认知的著作。
+- [《登出鍵》](https://www.books.com.tw/products/0010908956)（2021）
+- [《空白键》](https://www.books.com.tw/products/0010991845)（2024）
 
-盖伊还练习并传授合气道，作为一种接地的方法。在此领域他拥有二十八年经验，是五段国家级教练，目前正将灵性能量融入这门艺术当中。
+#### 双生紫焰信息源
 
-#### Guy Steven Needler出版的书籍
-
-- [《The History of God》](https://www.amazon.com/History-God-Story-Beginning-Everything/dp/1886940169)（2011）中文版：**《源头简史》**
-- [《Beyond the Source - Book 1》](https://www.amazon.com/Beyond-Source-Messages-Co-Creaters-Universe/dp/1886940339)（2012）
-- [《Beyond the Source - Book 2》](https://www.amazon.com/Beyond-Source-Guy-Steven-Needler/dp/1886940444)（2013）
-- [《Avoiding Karma》](https://www.amazon.com/Avoiding-Karma-Mind-Challenging-Recognize-Truly/dp/1886940460)（2014）中文版：**《回避业力》**
-- [《Origin Speaks》](https://www.amazon.com/Origin-Speaks-Dialogue-Ultimate-Creator/dp/194026510X)（2015）
-- [《Anne Dialogues》](https://www.amazon.com/Anne-Dialogues-Communications-Ascended/dp/1940265398)（2016）
-- [《The Curators》](https://www.amazon.com/Curators-Roles-Responsibilities-Maintenance-Entities/dp/B07WDTJS7K)（2019）
-- [《Psycho - Spiritual Healing》](https://www.amazon.com/Psycho-Spiritual-Healing-And-Other-Techniques-for-Dysfunctions-Created-by-Who-We-Are-and-How-We-Incarnate/dp/1940265932)（2021）
-- [《The World Satsanga: The First Ten Years - Book 1》](https://www.amazon.com/World-Satsanga-Questions-Channelled-Answers/dp/B0C63VWFDP)（2023）
-- [《The World Satsanga: The First Ten Years - Book 2》](https://www.amazon.com/World-Satsanga-Questions-Channelled-Answers/dp/B0C5PGB9T9)（2023）
-- [《The World Satsanga: The First Ten Years - Book 3》](https://www.amazon.com/World-Satsanga-Questions-Channelled-Answers/dp/B0C63VWFDP)（2023）
-- [《The OM – The Uncreated Creations》](https://www.amazon.com/OM-Guy-Steven-Needler-ebook/dp/B0C4V9PCCZ?ref_=ast_author_dp)（2023）
-- 《Beyond the Origin – An Event Space Odyssey》（预计2024）
-
-#### Guy Steven Needler信息源
-
-- 官方网站：[guystevenneedler.com](http://www.guystevenneedler.com/)
-- 官方网站：[beyondthesource.org](http://www.beyondthesource.org/)
-- Youtube：[GuyStevenNeedler](https://www.youtube.com/@GuyStevenNeedler)
-- Twitter：[Guy Steven Needler](https://twitter.com/guystevenneedle)
-- 微信公众号：**盖伊尼德勒的新世界**（guyneedler）
-- 微信公众号：**两课身心深频研究院**（my2lesson）
+- 官方网站：[violet-flames.com](https://www.violet-flames.com)
+- Youtube：[雙生紫焰Violet Flames](https://www.youtube.com/@VioletTwinFlames)
+- Facebook：[雙生紫焰](https://www.facebook.com/VioletTwinFlames)
 
 ---
-
-## [人的解读](http://www.rendejiedu.com/)
-
-#### 人的解读是谁？
-
-人的解读最开始是一个微信公众号，作者**千帆过**从解读埃德加•凯西、魏斯博士的著作开始，深耕身心灵领域，创作原创文章。
-
-目前已创作出认识灵魂、认识经络、认识脉轮、认识气场四大基础的多篇文章，并集结成书。在写作的同时，作者还开设课程、直播，致力于线下疗愈汇和城市行。
-
-正如作者所说，“我希望花几年的时间，把这个公号发展成一门课。这是一门当今教育体系中没有，但必须补上的人生通识课。”
-
-#### 人的解读创作的书籍
-
-- [《认识灵魂》](https://mp.weixin.qq.com/s/anlTfOgEnfFH7KuSY45JMA)
-- [《认识经络》](https://mp.weixin.qq.com/s/anlTfOgEnfFH7KuSY45JMA)
-- [《认识脉轮》](https://mp.weixin.qq.com/s/anlTfOgEnfFH7KuSY45JMA)
-- [《认识气场》](https://mp.weixin.qq.com/s/anlTfOgEnfFH7KuSY45JMA)
-
-#### 人的解读信息源
-
-- 官方网站：[人的解读](rendejiedu.com)
-- 新浪微博：[千帆学苑](https://appbkvsrtru9369.h5.xiaoeknow.com/?channel_id=758628&resource_id=2802993&resource_type=17&app_id=appbkvsrtru9369)
-- 微信公众号：**人的解读**（rendejiedu）

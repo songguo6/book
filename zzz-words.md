@@ -23,6 +23,7 @@
 | believers in the truth        | n.         | 真理的信仰者                |
 | body, mind, spirit            | n.         | 身体、心智、灵魂            |
 | celestial light               | n.         | 天光                        |
+| chakra                        | n.         | 脉轮                        |
 | channeled                     | adj.       | 通灵的                      |
 | christ consciousness          | n.         | 基督意识                    |
 | civilizations                 | n.         | 文明（复数）                |
@@ -205,6 +206,7 @@
 | whole                         | n.         | 整体                        |
 | whole picture                 | n.         | 蓝图                        |
 | wormholes                     | n.         | 虫洞（复数）                |
+|event space|n.|事件空间|
 
 ### 句子
 
@@ -224,4 +226,3 @@
 | opening and spinning the chakras | 打开并旋转脉轮   |
 | raise the vibration levels       | 提升振动层级     |
 | waking up                        | 觉醒             |
-
