@@ -7,6 +7,7 @@
 | akashic record                | n.         | 阿卡西记录                  |
 | aliens                        | n.         | 外星人（复数）              |
 | angels                        | n.         | 天使                        |
+| ascension                     | n.         | 扬升                        |
 | astral body                   | n.         | 星光体                      |
 | Atlantis                      | n.         | 亚特兰蒂斯                  |
 | attention                     | n.         | 注意力                      |
@@ -64,6 +65,7 @@
 | essential                     | adj.       | 本质的，至关重要的          |
 | essential evolution           | n.         | 关键进化                    |
 | ether                         | n.         | 以太                        |
+| event space                   | n.         | 事件空间                    |
 | event stream                  | n.         | 事件流                      |
 | events                        | n.         | 事件（复数）                |
 | evolve                        | v.         | 进化                        |
@@ -136,6 +138,7 @@
 | perceive                      | vt.        | 感知到                      |
 | perception                    | n.         | 感知                        |
 | perpetual                     | adj.       | 永恒的                      |
+| phase                         | n.         | 相位                        |
 | phase angle                   | n.         | 相位角                      |
 | physical self                 | n.         | 载具我                      |
 | physical universe             | n.         | 物理宇宙                    |
@@ -206,7 +209,6 @@
 | whole                         | n.         | 整体                        |
 | whole picture                 | n.         | 蓝图                        |
 | wormholes                     | n.         | 虫洞（复数）                |
-|event space|n.|事件空间|
 
 ### 句子
 
