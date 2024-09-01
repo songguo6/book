@@ -14,14 +14,16 @@
 
   * [2.1 多维宇宙](s2-1.md)
   * [2.2 物理宇宙](s2-2.md)
-  * [存有](s2-beings.md)
-  * [转世轮回](s2-samsara.md)
-  * [载具](s2-carrier.md)
-  * [地球Online](s2-earth-game.md)
 
 * 3 地球是一场实验
 
+  * [地球Online](s2-earth-game.md)
+  * [存有](s2-beings.md)
+  * [转世轮回](s2-samsara.md)
+
 * 4 人体载具
+
+  * [载具](s2-carrier.md)
 
 * 5 实修方法和工具
 
