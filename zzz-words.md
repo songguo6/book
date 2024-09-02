@@ -19,6 +19,7 @@
 | auric field                   | n.         | 辉光场，气场，能量场        |
 | awakening                     | n. / v.    | 觉醒 / 使觉醒（现在分词）   |
 | aware                         | adj.       | 觉知到的                    |
+| backfill people               | n.         | 回填人                      |
 | beings                        | n.         | 存有（复数）                |
 | belief                        | n.         | 信念                        |
 | believers in the truth        | n.         | 真理的信仰者                |
@@ -26,6 +27,7 @@
 | celestial light               | n.         | 天光                        |
 | chakra                        | n.         | 脉轮                        |
 | channeled                     | adj.       | 通灵的                      |
+| channelling                   | n.         | 通灵                        |
 | christ consciousness          | n.         | 基督意识                    |
 | civilizations                 | n.         | 文明（复数）                |
 | collective beings             | n.         | 集体存有                    |
@@ -65,6 +67,7 @@
 | essential                     | adj.       | 本质的，至关重要的          |
 | essential evolution           | n.         | 关键进化                    |
 | ether                         | n.         | 以太                        |
+| etheric                       | adj.       | 以太的                      |
 | event space                   | n.         | 事件空间                    |
 | event stream                  | n.         | 事件流                      |
 | events                        | n.         | 事件（复数）                |
@@ -72,6 +75,7 @@
 | experience                    | n. / vt.   | 经验 / 经历                 |
 | experiencing                  | v.         | 经历（现在分词）            |
 | experiment                    | n.         | 实验                        |
+| extensively                   | adv.       | 广泛地                      |
 | flying saucer                 | n.         | 飞碟                        |
 | focus                         | v. / n.    | 聚焦 / 焦点                 |
 | forgiveness                   | n.         | 宽恕                        |
@@ -84,12 +88,14 @@
 | grounded                      | adj. / v.  | 接地气的 / 接地（过去分词） |
 | guides                        | n.         | 指导灵（复数）              |
 | hara line                     | n.         | 哈拉线                      |
+| healing                       | n.         | 疗愈                        |
 | helpers                       | n.         | 守护者（复数）              |
 | higher self                   | n.         | 高我                        |
 | hlghly evolved                | adj.       | 高度进化的                  |
 | holographic                   | adj.       | 全息的                      |
 | human beings                  | n.         | 人类                        |
 | hyperspace                    | n.         | 超空间                      |
+| ID point，individuation point | n.         | 个体化点                    |
 | illusion                      | n.         | 幻相                        |
 | imaganation                   | n.         | 想象力                      |
 | incarnate                     | adj. / vt. | 化身的 / 使化身，转世       |
@@ -102,6 +108,7 @@
 | intelligence quotient         | n.         | 智商                        |
 | intention                     | n.         | 意愿                        |
 | inter-demensional portal      | n.         | 跨纬度门户                  |
+| investigation                 | n.         | 调查，研究                  |
 | karma                         | n.         | 业力                        |
 | learning                      | n.         | 学习                        |
 | ley line                      | n.         | 地脉                        |
@@ -116,6 +123,7 @@
 | medium                        | n.         | 灵媒                        |
 | mental                        | adj.       | 心智的                      |
 | mental barrier                | n.         | 心智屏障                    |
+| metaphysical                  | adj.       | 形而上学的，玄学的          |
 | Milky Way Galaxy              | n.         | 银河系                      |
 | mind's eye                    | n.         | 意识眼，心眼                |
 | molecules                     | n.         | 分子（复数）                |
@@ -134,6 +142,7 @@
 | overlapping                   | v.         | 部分重叠（现在分词）        |
 | parallel                      | adj.       | 平行的，并行的              |
 | parallel processing           | n.         | 平行处理                    |
+| parapsychology                | n.         | 超心理学                    |
 | past lives                    | n.         | 前世（复数）                |
 | perceive                      | vt.        | 感知到                      |
 | perception                    | n.         | 感知                        |
@@ -142,6 +151,7 @@
 | phase angle                   | n.         | 相位角                      |
 | physical self                 | n.         | 载具我                      |
 | physical universe             | n.         | 物理宇宙                    |
+| physiology                    | n.         | 生理学                      |
 | pipe                          | n.         | 管道                        |
 | planets                       | n.         | 行星（复数）                |
 | preferential                  | adj.       | 优先的                      |
@@ -149,6 +159,7 @@
 | projected                     | adj. / v.  | 投射的 / 投射（过去分词）   |
 | psychic                       | adj.       | 通灵的，超自然的            |
 | psychic powers                | n.         | 超能力，心灵能力            |
+| psychology                    | n.         | 心理学                      |
 | pure                          | adj.       | 纯净的                      |
 | real self                     | n.         | 真我                        |
 | reality                       | n.         | 实相                        |
@@ -170,6 +181,7 @@
 | singularly                    | adv.       | 个体地                      |
 | solar system                  | n.         | 太阳系                      |
 | soul                          | n.         | 灵魂                        |
+| soul seat                     | n.         | 灵座                        |
 | space bases                   | n.         | 太空基地（复数）            |
 | sphere                        | n.         | 球体                        |
 | spherical                     | adj.       | 球形的                      |
