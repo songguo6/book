@@ -123,6 +123,7 @@
 | medium                        | n.         | 灵媒                        |
 | mental                        | adj.       | 心智的                      |
 | mental barrier                | n.         | 心智屏障                    |
+| meridian                      | n.         | 经络                        |
 | metaphysical                  | adj.       | 形而上学的，玄学的          |
 | Milky Way Galaxy              | n.         | 银河系                      |
 | mind's eye                    | n.         | 意识眼，心眼                |
