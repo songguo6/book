@@ -26,6 +26,7 @@
 | body, mind, spirit            | n.         | 身体、心智、灵魂            |
 | celestial light               | n.         | 天光                        |
 | chakra                        | n.         | 脉轮                        |
+| chakra cords                  | n.         | 脉轮光带                    |
 | channeled                     | adj.       | 通灵的                      |
 | channelling                   | n.         | 通灵                        |
 | christ consciousness          | n.         | 基督意识                    |
@@ -52,6 +53,11 @@
 | dimensional groups            | n.         | 维度组（复数）              |
 | dimensions                    | n.         | 维度（复数）                |
 | disassociate                  | vt.        | 使分离                      |
+| divine                        | adj.       | 神圣的                      |
+| divine love                   | n.         | 神圣大爱                    |
+| divine mind                   | n.         | 神圣心智                    |
+| divine will                   | n.         | 神圣意志                    |
+| ecstasy                       | n.         | 狂喜                        |
 | ego                           | n.         | 小我，（心理学）自我        |
 | emotion                       | n.         | 情感，情绪                  |
 | energetic                     | adj.       | 有能量的                    |
@@ -144,6 +150,7 @@
 | parallel                      | adj.       | 平行的，并行的              |
 | parallel processing           | n.         | 平行处理                    |
 | parapsychology                | n.         | 超心理学                    |
+| past life bands               | n.         | 前世束带                    |
 | past lives                    | n.         | 前世（复数）                |
 | perceive                      | vt.        | 感知到                      |
 | perception                    | n.         | 感知                        |
