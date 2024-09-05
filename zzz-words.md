@@ -23,6 +23,7 @@
 | beings                        | n.         | 存有（复数）                |
 | belief                        | n.         | 信念                        |
 | believers in the truth        | n.         | 真理的信仰者                |
+| bioenergetics                 | n.         | 生物能量学                  |
 | body, mind, spirit            | n.         | 身体、心智、灵魂            |
 | celestial light               | n.         | 天光                        |
 | chakra                        | n.         | 脉轮                        |
