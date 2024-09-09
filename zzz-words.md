@@ -180,6 +180,7 @@
 | role                          | n.         | 角色                        |
 | root races                    | n.         | 根源种族（复数）            |
 | sacred                        | adj.       | 神圣的                      |
+| sacred geometric              | n.         | 神圣几何                    |
 | sacrifice                     | n. / v.    | 牺牲 / 牺牲                 |
 | self-awareness                | n.         | 自我觉知                    |
 | sense                         | n. / vt.   | 含义 / 感觉到               |
