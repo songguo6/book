@@ -20,6 +20,7 @@
 | awakening                     | n. / v.    | 觉醒 / 使觉醒（现在分词）   |
 | aware                         | adj.       | 觉知到的                    |
 | backfill people               | n.         | 回填人                      |
+| beingness                     | n.         | 存在本质                    |
 | beings                        | n.         | 存有（复数）                |
 | belief                        | n.         | 信念                        |
 | believers in the truth        | n.         | 真理的信仰者                |
@@ -32,9 +33,14 @@
 | channelling                   | n.         | 通灵                        |
 | christ consciousness          | n.         | 基督意识                    |
 | civilizations                 | n.         | 文明（复数）                |
+| clairaudience                 | n.         | 天耳通                      |
+| claircognizance               | n.         | 超认知力                    |
+| clairsentience                | n.         | 超觉知力                    |
+| clairvoyance                  | n.         | 天眼通                      |
 | collective beings             | n.         | 集体存有                    |
 | collectively                  | adv.       | 集体地                      |
 | commitment                    | n.         | 承诺                        |
+| compassion                    | n.         | 同情心                      |
 | concentration                 | n.         | 专注                        |
 | concepts                      | n.         | 概念（复数）                |
 | conscious                     | adj.       | 有意识的                    |
@@ -57,10 +63,12 @@
 | divine                        | adj.       | 神圣的                      |
 | divine love                   | n.         | 神圣大爱                    |
 | divine mind                   | n.         | 神圣心智                    |
+| divine purpose                | n.         | 天赋使命                    |
 | divine will                   | n.         | 神圣意志                    |
 | ecstasy                       | n.         | 狂喜                        |
 | ego                           | n.         | 小我，（心理学）自我        |
 | emotion                       | n.         | 情感，情绪                  |
+| empathy                       | n.         | 同理心                      |
 | energetic                     | adj.       | 有能量的                    |
 | energetic creatures           | n.         | 能量造物                    |
 | energetic levels              | n.         | 能量层级                    |
@@ -115,6 +123,7 @@
 | intelligence quotient         | n.         | 智商                        |
 | intention                     | n.         | 意愿                        |
 | inter-demensional portal      | n.         | 跨纬度门户                  |
+| intuition                     | n.         | 直觉力                      |
 | investigation                 | n.         | 调查，研究                  |
 | karma                         | n.         | 业力                        |
 | learning                      | n.         | 学习                        |
@@ -141,6 +150,8 @@
 | nature spirits                | n.         | 自然精灵                    |
 | nebula                        | n.         | 星云                        |
 | null space                    | n.         | 零领域                      |
+| omnipresent                   | adj.       | 无所不在的，全在的          |
+| omniscience                   | n.         | 无所不知，全知              |
 | on                            | prep.      | 谈及                        |
 | oneness                       | n.         | 一体                        |
 | open-minded                   | adj.       | 思想开明的                  |
@@ -170,6 +181,7 @@
 | psychic powers                | n.         | 超能力，心灵能力            |
 | psychology                    | n.         | 心理学                      |
 | pure                          | adj.       | 纯净的                      |
+| pure sentience                | n.         | 纯粹觉知                    |
 | real self                     | n.         | 真我                        |
 | reality                       | n.         | 实相                        |
 | recognition                   | n.         | 认知                        |
@@ -231,6 +243,7 @@
 | whole                         | n.         | 整体                        |
 | whole picture                 | n.         | 蓝图                        |
 | wormholes                     | n.         | 虫洞（复数）                |
+
 
 ### 句子
 

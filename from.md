@@ -78,6 +78,7 @@ GuyNeedler，理学双学位硕士，工商管理硕士，特许工程师，工�
 #### 梦空细雨信息源
 
 - 官方网站：[mkxy.online](https://mkxy.online)
+- 官方网站：[xiyushe.org](https://www.xiyushe.org)
 - Youtube：[梦空细雨](https://www.youtube.com/@mkxy)
 - Bilibili：[海轮海轮](https://space.bilibili.com/632831023)
 - Bilibili：[cathyshen0103](https://space.bilibili.com/673265701)
