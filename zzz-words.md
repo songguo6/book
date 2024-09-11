@@ -243,6 +243,9 @@
 | whole                         | n.         | 整体                        |
 | whole picture                 | n.         | 蓝图                        |
 | wormholes                     | n.         | 虫洞（复数）                |
+|manifest|vt.|显化|
+|manifestation|n.|显化|
+|vehicle|n.|载具|
 
 
 ### 句子
