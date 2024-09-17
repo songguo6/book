@@ -129,6 +129,8 @@
 | learning                      | n.         | 学习                        |
 | ley line                      | n.         | 地脉                        |
 | light beings                  | n.         | 光之存有                    |
+| manifest                      | vt.        | 显化                        |
+| manifestation                 | n.         | 显化                        |
 | master                        | n. / vt.   | 大师 / 掌握，控制           |
 | material world                | n.         | 物质世界                    |
 | materialization               | n.         | 物质化                      |
@@ -234,8 +236,10 @@
 | the Violet Flame meditation   | n.         | 紫火冥想                    |
 | third eye                     | n.         | 第三眼                      |
 | time line                     | n.         | 时间线                      |
+| transparency                  | n.         | 透明度                      |
 | unconditional love            | n.         | 无条件的爱                  |
 | universes                     | n.         | 宇宙（复数）                |
+| vehicle                       | n.         | 载具                        |
 | veil                          | n.         | 帷幕                        |
 | vibration                     | n.         | 振动                        |
 | vibration level               | n.         | 振动层级                    |
@@ -243,9 +247,6 @@
 | whole                         | n.         | 整体                        |
 | whole picture                 | n.         | 蓝图                        |
 | wormholes                     | n.         | 虫洞（复数）                |
-|manifest|vt.|显化|
-|manifestation|n.|显化|
-|vehicle|n.|载具|
 
 
 ### 句子
