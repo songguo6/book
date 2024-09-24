@@ -7,6 +7,7 @@
 | akashic record                | n.         | 阿卡西记录                  |
 | aliens                        | n.         | 外星人（复数）              |
 | angels                        | n.         | 天使                        |
+| ascended master               | n.         | 扬升大师                    |
 | ascension                     | n.         | 扬升                        |
 | astral body                   | n.         | 星光体                      |
 | Atlantis                      | n.         | 亚特兰蒂斯                  |
@@ -40,6 +41,7 @@
 | collective beings             | n.         | 集体存有                    |
 | collectively                  | adv.       | 集体地                      |
 | commitment                    | n.         | 承诺                        |
+| common sense                  | n.         | 常识                        |
 | compassion                    | n.         | 同情心                      |
 | concentration                 | n.         | 专注                        |
 | concepts                      | n.         | 概念（复数）                |
@@ -123,7 +125,7 @@
 | intelligence quotient         | n.         | 智商                        |
 | intention                     | n.         | 意愿                        |
 | inter-demensional portal      | n.         | 跨纬度门户                  |
-| intuition                     | n.         | 直觉力                      |
+| intuition                     | n.         | 直觉                        |
 | investigation                 | n.         | 调查，研究                  |
 | karma                         | n.         | 业力                        |
 | learning                      | n.         | 学习                        |
@@ -131,6 +133,7 @@
 | light beings                  | n.         | 光之存有                    |
 | manifest                      | vt.        | 显化                        |
 | manifestation                 | n.         | 显化                        |
+| manipulate                    | vt.        | 操纵                        |
 | master                        | n. / vt.   | 大师 / 掌握，控制           |
 | material world                | n.         | 物质世界                    |
 | materialization               | n.         | 物质化                      |
@@ -247,7 +250,6 @@
 | whole                         | n.         | 整体                        |
 | whole picture                 | n.         | 蓝图                        |
 | wormholes                     | n.         | 虫洞（复数）                |
-
 
 ### 句子
 

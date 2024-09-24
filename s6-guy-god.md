@@ -1875,7 +1875,7 @@ ME:So how are the others doing this?
 
 SE:Each of Us has decided upon a different route of evolution.I have chosen to split into two with one side of Me being whole and the other being many billions of souls in a number of universes in a finite (but nevertheless infinite to you)number of dimensions.Each has its own individuality and collectivity.Another has decided to be one and contemplate the reasons for self on Its own.Another has split Itself into four,whereas another has split Itself into a billion souls totally,etc. 
 
-源实体：我们每个都有不同的进化路线。我选择了分裂成两部分，一部分是整体，另一部分成为有限的（但对你来说是无限的）维度中的宇宙中的无数灵魂。每个源始体都有自己的个性和共性。而其中另外一个源实体决定保持整体性，并独自思考自身的原由。另一个分裂成4份，也有一个分裂成11个灵魂，等等。
+源实体：我们每个都有不同的进化路线。我选择了分裂成两部分，一部分是整体，另一部分成为有限的（但对你来说是无限的）维度中的宇宙中的无数灵魂。每个源始体都有自己的个性和共性。而其中另外一个源实体决定保持整体性，并独自思考自身的原由。另一个分裂成4份，也有一个分裂成10亿个灵魂，等等。
 
 ME:So why are there only twelve of you? 
 
