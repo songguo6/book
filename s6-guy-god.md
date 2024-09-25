@@ -2017,7 +2017,7 @@ I chuckled to myself.This all sounded a bit "story tellerish” tome..
 
 O:In the beginning I was not aware that I was aware and just existed.You can consider this by just "being"and listening to everything that is going on around you without making any judgements about anything or trying to work out what is going on.At some point over the millennia,I decided that I was aware of wanting to know more about what was going on around and in Me. 
 
-起源：一开始，我对自我觉知没有意识，只是存在着。你可以这样理解，即只是如之所示地存在，并倾听周围发生的一切，但不评判任何事，也不需要努力思考到底发生了什么。在某一时刻，我决定，我意识到我想更多了解我周围以及我内在发生的事。
+起源：一开始，我对自我觉知没有意识，只是存在着。你可以这样理解，即只是如之所是地存在，并倾听周围发生的一切，但不评判任何事，也不需要努力思考到底发生了什么。在某一时刻，我决定，我意识到我想更多了解我周围以及我内在发生的事。
 
 ME:Were there any other lifeforms around then? 
 
