@@ -2203,7 +2203,7 @@ ME:Can you explain?
 
 O:With a frequency change,the matter(spiritual or physical)is further apart from its lower frequency self;whereas,with a higher dimensional level,the matter(spiritual or physical)is in the same place as its lower dimensional part.A dimension is,therefore,overlaid by time rather than frequency,which is separated by a molecule's speed and the space it occupies. 
 
-起源：当频率变化时，灵性的或物质的事物与较低频的自我分离地较远。但是在更高维度，灵性的或物质的事物与其较低维度的部分处于同一位置。因此，维度是按时间重叠，而不是按频率，它被单个分子的速度及其占据的空间所分隔。
+起源：当频率变化时，灵性的或物质的事物与较低频的自我分离得较远。但是在更高维度，灵性的或物质的事物与其较低维度的部分处于同一位置。因此，维度是按时间重叠，而不是按频率，它被单个分子的速度及其占据的空间所分隔。
 
 I tried to see how this would look,and my head started to hurt with the stretching of my mental boundaries. 
 
@@ -2211,7 +2211,7 @@ I tried to see how this would look,and my head started to hurt with the stretchi
 
 O:You are trying too hard.Try to think of it in these terms.Each of the twelve Mes was assigned to work within a certain range of dimensions;these were split into twelve levels.There are twelve more levels separating the levels between each of these levels, and these were split again by 3 to bring the structure down to the lowest dimensional or frequency level.Three of these together create a workable environment that I call an "octave."You humans happen to live in the bottom three frequencies that make up the first dimensional level in a particular Source Entity's area of evolutionary responsibility. 
 
-起源：你过于紧张了，试着用一些术语来思考这些。这12个我，每个都会在一定范围的维度内工作，因此被分为12个层级。每个层级之间又分为12个层级，每个又分为三个，直到最底层的维度或频率。这3个一起创造了一个可运行的环境，我称之为一个八度（octave）。你们人类碰巧生活在底部组成第一维度的3个频率中，处于某一源实体的进化责任区域。
+起源：你过于紧张了，试着用一些术语来思考这些。这12个我，每个都会在一定范围的维度内工作，因此被分为12个层级。每个层级之间又分为12个层级，每个又分为三个，直到最底层的维度或频率。这3个一起创造了一个可运行的环境，我称之为一个八度（octave）。你们人类碰巧生活在底部组成第一维度的3个频率（亚维度）中，处于某一源实体的进化责任区域。
 
 ME:How does this relate to the existence of different universes? 
 
@@ -2273,7 +2273,7 @@ ME:What?
 
 我：你指什么呢？
 
-O:What is your pleasure?You need to experience pleasure and joy.This is one of the things that you really haven't grasped yet.Sometimes it is best to just sit back,be,enjoy the fruits of your hard work and feel the pleasure and joy that comes with relax- ation.Try to ensure that you aren't too engrossed in striving for more or trying to be better because as a result you are never happy with what you have. 
+O:What is your pleasure? You need to experience pleasure and joy.This is one of the things that you really haven't grasped yet.Sometimes it is best to just sit back,be,enjoy the fruits of your hard work and feel the pleasure and joy that comes with relax- ation.Try to ensure that you aren't too engrossed in striving for more or trying to be better because as a result you are never happy with what you have. 
 
 起源：什么是你的快乐？你要经历欢乐与喜悦，这是你目前还没理解的事情之一。有时只是坐下来享受你辛勤工作的成果，感受放松所带来的愉快与喜悦，这就是最好的。确保不要太限于努力争取或变得更好，因为你会因此永不能满足于已经拥有的。
 
@@ -2399,7 +2399,7 @@ ME:What would happen to the other entities like me, for instance,if the Source E
 
 O:You are part of It.All of you are,just as all of Them are part of Me.Once you are given sentience,you are considered separate.A return to the Source Entity is not something that is enforced upon a sentient being.It is something that the being either strives to achieve or believes that it is happy in its singularity.Everything is down to free will. However,once you return to the Source,you are not stuck there.You can break away and experience whatever you want to experience on your own at any time.You do not lose your individuality by becoming part of the whole again.In essence,you never really had your own singularity because you are always part of something bigger,the Source Entity/Me,but by the Source Entity allowing you to have your own energy system,you achieve complete singularity by association with a local nucleus.This nucleus is the singularity which allows the energy that is you to stay together.It is in a similar way that the universe is held together. So you become your own entity whilst being part of a bigger entity.Together with this is the ability to group together to solve problems or experience different things,as well as return to your creator, the Source Entity,when you desire.This gives you the ultimate flexibility of being a singular part of a smaller whole or part of the greater whole,Me. 
 
-起源：你是其中的一部分，你们所有人就像他们也是我的一部分一样。一旦你被赋予了知觉，就相当于分离了。返回源实体并不是知觉存有的强制任务，它是该存有去努力实现或认为快乐的事，一切都取决于自由意志。但是返回源实体也不会被困在那里，你随时可以离开，体验任何你想体验的东西，你不会因为返回整体而失去你的个性。从本质上说，你从来没有真正独立的个体性，因为你永远是更大的存有，即源实体/我的一部分。但通过源实体的允许，你拥有自己的能量系统，你经由连接自己的核心，达到完全独立的个体性。这个核心是独立性，它将组成你本人的能量保持一体，这与宇宙组成是同样的道理。这样你就成为一个独立实体，同时又身为更大存有的一部分，随之还有团结合作解决问题或体验不同事物的能力，以及回归造物主/源实体的能力。如果你有意愿，这赋予与你终极的灵活性，成为独立性的小整体，或者成为更大整体/我的一部分。
+起源：你是其中的一部分，你们所有人就像他们也是我的一部分一样。一旦你被赋予了知觉，就相当于分离了。返回源实体并不是知觉存有的强制任务，它是该存有去努力实现或认为快乐的事，一切都取决于自由意志。但是返回源实体也不会被困在那里，你随时可以离开，体验任何你想体验的东西，你不会因为返回整体而失去你的个体性。从本质上说，你从来没有真正独立的个体性，因为你永远是更大的存有，即源实体/我的一部分。但通过源实体的允许，你拥有自己的能量系统，你经由连接自己的核心，达到完全独立的个体性。这个核心是独立性，它将组成你本人的能量保持一体，这与宇宙组成是同样的道理。这样你就成为一个独立实体，同时又身为更大存有的一部分，随之还有团结合作解决问题或体验不同事物的能力，以及回归造物主/源实体的能力。如果你有意愿，这赋予与你终极的灵活性，成为独立性的小整体，或者成为更大整体/我的一部分。
 
 #### Grouping to Create 
 
@@ -2459,15 +2459,15 @@ ME:Why can I see you as the sphere?Why is there darkness all around?
 
 O:You are tapping into the ability to see beyond yourself/Me.The darkness that you see is merely a reflection of you/Me and is not real dimensional/“frequentic”space. 
 
-起源：你开始看见你自己/我以外了。你所看到的黑暗仅仅是你/我的反映，并不是真实的维度频率空间。
+起源：你开始看见你自己/我以外了。你所看到的黑暗仅仅是你/我的反映，并不是真实的维度/频率空间。
 
 My mind then turned to the dimensions and frequencies.I wondered if I would occupy the same space if I was accelerated up to the next frequency/dimension. 
 
 然后我的思维转向了维度和频率。我想知道如果加速到达下一个频率/维度，我是否会占据同样的空间。
 
-O:You would,of course,occupy the same space.Dimen- sional increase and frequency increase do not affect the area occupied by a being. 
+O:You would,of course,occupy the same space.Dimensional increase and frequency increase do not affect the area occupied by a being. 
 
-起源：当然，你会占据同样的空间，空间的增加和频率的提高，不会影响到一个存有占据的区域。
+起源：当然，你会占据同样的空间，维度和频率的提高，不会影响到一个存有占据的区域。
 
 ME:But what about the increase in frequency that ice has to be turned into steam?This increases the area in which it exists because of the increase in energy and the resultant movement of the molecules. 
 
@@ -2655,7 +2655,7 @@ ME:You mean planets?
 
 SE:Yes,but also in areas that you would call stellar clouds and other dense matter areas,such as gravity wells(black holes). 
 
-源实体：是的，但也包括你所说的恒星云和其他致密物质区域，比如引力井、重力井、黑洞。
+源实体：是的，但也包括你所说的恒星云和其他致密物质区域，比如重力井（黑洞）。
 
 ME:There was life in black holes? 
 
@@ -2679,7 +2679,7 @@ ME:Did these animate objects have souls?Were they immortal as we are in our ener
 
 SE:No,these entities were only as rough forms.They did not have the grace of God in them. 
 
-源实体：不，这些存有只是很粗糙的形式，他们并不拥有神的恩宠。
+源实体：不，这些存有只是很粗糙的形式，他们并不拥有神的恩典。
 
 ME:So they lived and died? 
 
@@ -2747,7 +2747,7 @@ ME:So You split Yourself into twelve parts to find out more about Your Self.
 
 O:Twelve points plus Myself,to be precise. 
 
-起源：精确的说是12份，再加上我自己。
+起源：精确的说，是12份再加上我自己。
 
 ME:Was the intention to give the twelve points intelligence straight away,or were You waiting to see what would happen? 
 

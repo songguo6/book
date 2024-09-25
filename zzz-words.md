@@ -203,6 +203,7 @@
 | sense                         | n. / vt.   | 含义 / 感觉到               |
 | sensitive                     | adj.       | 敏感的                      |
 | sentience                     | n.         | 觉知                        |
+| shadows                       | n.         | 投影                        |
 | silver cord                   | n.         | 灵带                        |
 | simultaneous                  | adj.       | 同时的，同步的              |
 | singularly                    | adv.       | 个体地                      |
