@@ -2917,7 +2917,7 @@ ME:It makes it more frustrating in my mind!
 
 O:Maybe,but it is the achievement of doing something that you want to do without knowing what is around the next corner and succeeding against the odds that make the achievement all the more worthwhile.This is one of the things that your immortal spirit was created for,and,this is one of the most important things you are experiencing and feeding back to your Source Entity and Me.Moving forward without knowing the future with all but the very rudimentary senses available to you from a physical form is one of the hardest things that any entity can do.It is a very noble act that you are all doing to limit yourselves so much in order to enable you and the rest of your peers to progress,evolve,experience and teach Us more about Ourselves. 
 
-起源：也许吧。但面对未知前进以及冲破困难的成就使这一切更值得，这是你们的不朽灵体被创造的目的之一，也是你正在经历的最重要的要反馈给源实体和我的事情之一。仅仅靠着心中模糊的意向，朝着不确切的未来勇猛前进，这是任何存有所能做的最困难的事情。这是极崇高的行为，因为你们为了自身和同伴的进步、进化、体验以及教导我们更多关于我们自己的事，而将自己置身于如此限制当中。
+起源：也许吧。但面对未知前进以及冲破困难的成就使这一切更值得，这是你们的不朽灵魂被创造的目的之一，也是你正在经历的最重要的要反馈给源实体和我的事情之一。仅仅靠着心中模糊的意向，朝着不确切的未来勇猛前进，这是任何存有所能做的最困难的事情。这是极崇高的行为，因为你们为了自身和同伴的进步、进化、体验以及教导我们更多关于我们自己的事，而将自己置身于如此限制当中。
 
 ME:Oh,thank you! 
 
