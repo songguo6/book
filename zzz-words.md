@@ -238,6 +238,7 @@
 | the Third Eye Chakra          | n.         | 三眼轮，眉心轮              |
 | the Throat Chakra             | n.         | 喉轮                        |
 | the Violet Flame meditation   | n.         | 紫火冥想                    |
+| the grace of God              | n.         | 神的恩典                    |
 | third eye                     | n.         | 第三眼                      |
 | time line                     | n.         | 时间线                      |
 | transparency                  | n.         | 透明度                      |
