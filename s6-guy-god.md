@@ -2997,7 +2997,7 @@ SE:Because when We probed into the lower dimensions,We felt that We had lost par
 
 ME:You couldn't communicate with it? 
 
-我：他不能和它交流吗？
+我：你不能和它交流吗？
 
 SE:No,I could talk to it.I could hear it,but it could not hear me.And when I left that part of Me in the lower dimensions for a long time,say a millennia,it developed its own personality as it felt that it was cut off from its self.It did not remember being part of a whole and had to fend for itself in the energies of the lower levels the best it could.I/ We found this an interesting learning experience as I have previously told you. 
 
@@ -3528,7 +3528,7 @@ In creating this universe,I have created the perfect opportunity for all of you,
 
 So was the universe created in six days with one as a rest day?No!It was created in less than a nano second once I knew what I wanted to do to contribute towards the job I was created to do.Did the universe expand?No!It has always been the "dimensions" it currently is.The only thing that has expanded is the understanding of self by all the entities that I created when I created this universe. 
 
-那么宇宙是在六天内创造出来，另外加一天休息吗？不，它是在一纳秒内创造出来的。一旦我知道要做什么才能满足我的创造目的，宇宙就诞生了。宇宙会扩张吗？不，它一直是现在的尺寸及维度，唯一在扩展的是我创造的宇宙以及实体们对自我的深入理解。
+那么宇宙是在六天内创造出来，另外加一天休息吗？不，它是在一纳秒内创造出来的。一旦我知道要做什么才能满足我的创造目的，宇宙就诞生了。宇宙会扩张吗？不，它一直是现在的尺寸及维度，唯一在扩张的是我创造这个宇宙时所创造的所有实体们对自我的理解。
 
 ME:So,was it a Big Bang as the scientists think? 
 
@@ -3742,7 +3742,7 @@ ME:Oh.I thought there was more to it than that.
 
 SE:No,why should there be?Growth is the best way to describe it.Growth is accepting that everything is what it is.It is going with the flow.It is absorbing knowledge,feeling, passion,pride,love,experience,power,compassion,emotion,understanding...
 
-源实体：不，为什么还会有其他的呢？成长是描述它的最好方式。成长就是接受一切如实如是，顺势而生，是吸收知识、感觉、感情、骄傲、爱、经验、力量、同情、情感、理解...
+源实体：不，为什么还会有其他的呢？成长是描述它的最好方式。成长就是接受一切如实如是，顺势而生，是吸收知识、感觉、激情、骄傲、爱、经验、力量、同情、情感、理解...
 
 ME:Why have you stopped? 
 
@@ -3784,9 +3784,9 @@ ME:Yes,I did.But you said that there were twelve zones!
 
 我：是的，我知道，但是你说有12个区域。
 
-SE:Well,there are twelve zones in the Origin's universe/self,but I have only created one zone:Mine.Each of My dimensions has twelve frequencies attached to it with each group of three dimensions called a "tritave."Each group of three,therefore,has 36 frequencies within which energies and beings can exist. 
+SE:Well,there are twelve zones in the Origin's universe/self,but I have only created one zone:Mine. Each of My dimensions has twelve frequencies attached to it with each group of three dimensions called a "tritave." Each group of three,therefore,has 36 frequencies within which energies and beings can exist. 
 
-源实体：在起源的宇宙中有12个区域，但我只创造了一个区域：我的区域。我的每一个维度都包含12个频率，每3个维度组成一组，称为“三度”。因此我的区域中12个维度的每一个维度都包含36个频率，而提供给能量和存有赖以存在的环境。
+源实体：在起源的宇宙中有12个区域，但我只创造了一个区域：我的区域。我的每一个（亚）维度都包含12个频率，每3个（亚）维度组成一组，称为“三度”。因此我的区域中12个维度的每一个维度都包含36个频率，而提供给能量和存有赖以存在的环境。
 
 ME:Why did you only create one zone and not copy the whole of the Origin's universe/self? 
 
@@ -3802,7 +3802,7 @@ ME:What?!
 
 SE:I cannot create the Origin.He/She/It is already there,so all that I can do is copy It the best that I can,and that means that I had to be limited to what I could do.
 
-源实体：什么我不能创造起源。因为它已然存在，所以我能做的就是尽力复制，这意味着我会受限于我所做的事情。 
+源实体：我不能创造起源。因为它已然存在，所以我能做的就是尽力复制，这意味着我会受限于我所做的事情。 
 
 ME:I just had an image in my mind of what would happen if You did.That image was of a 2 in 1 set up that would even get the Origin a bit confused.A little bit like being schizophrenic? 
 

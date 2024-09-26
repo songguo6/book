@@ -60,6 +60,7 @@
 | density                       | n.         | 密度                        |
 | desire                        | n.         | 渴望，欲望                  |
 | dimensional groups            | n.         | 维度组（复数）              |
+| dimensional resistance        | n.         | 维度阻力                    |
 | dimensions                    | n.         | 维度（复数）                |
 | disassociate                  | vt.        | 使分离                      |
 | divine                        | adj.       | 神圣的                      |
@@ -128,9 +129,11 @@
 | intuition                     | n.         | 直觉                        |
 | investigation                 | n.         | 调查，研究                  |
 | karma                         | n.         | 业力                        |
+| latitude                      | n.         | 纬度                        |
 | learning                      | n.         | 学习                        |
 | ley line                      | n.         | 地脉                        |
 | light beings                  | n.         | 光之存有                    |
+| longitude                     | n.         | 经度                        |
 | manifest                      | vt.        | 显化                        |
 | manifestation                 | n.         | 显化                        |
 | manipulate                    | vt.        | 操纵                        |
@@ -229,6 +232,7 @@
 | the Core Star meditation      | n.         | 星核冥想                    |
 | the Council of Twelve         | n.         | 十二长老议会                |
 | the Crown Chakra              | n.         | 顶轮                        |
+| the grace of God              | n.         | 神的恩典                    |
 | the Heart Chakra              | n.         | 心轮                        |
 | the OM                        | n.         | OM 种族                     |
 | the Origin                    | n.         | 起源                        |
@@ -238,7 +242,6 @@
 | the Third Eye Chakra          | n.         | 三眼轮，眉心轮              |
 | the Throat Chakra             | n.         | 喉轮                        |
 | the Violet Flame meditation   | n.         | 紫火冥想                    |
-| the grace of God              | n.         | 神的恩典                    |
 | third eye                     | n.         | 第三眼                      |
 | time line                     | n.         | 时间线                      |
 | transparency                  | n.         | 透明度                      |
