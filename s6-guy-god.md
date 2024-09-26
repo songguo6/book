@@ -4094,7 +4094,7 @@ ME:Hang on.This sounds like you are talking about evolution in the physical and 
 
 SE:It may sound like that,but it is not so.The whole point of you being "individualized" is so that you can all experience things.These experiences are fed back to the Origin and Me for the Origin's benefit,in terms of learning more about Itself and Me because I am interested in achieving the same thing,except by diversifying Myself down into billions of parts.Part of your creation requires you to fully understand yourself as well,in a similar vein to the Origin and Myself.And this only happens through experimentation leading to expanded knowledge and subsequently,evolution.Part of your evolution requires you to understand your limitless limitations,but the limitlessness takes some understanding.For instance,you only know that you can ride a bike when you have learnt how to ride a bike.This is the same for the awareness of the dimensions and your ability to work within and without them and manipulate them at will.Further,your level of evolution allows you to access parts of or all of the dimensions from any particular point.This means that you are able to access the knowledge you have of the manipulation of the energies surrounding and making up the dimensions from any point as well,including that part of you that is projected into the physical.This is the reason why you can communicate with me,and it also justifies the reports of some people's ability to do supposedly fantastic things,such as telekinesis,telepathy,clairvoyance,etc. 
 
-源实体：听起来可能是这样，但事实并非如此。你成为“个性化”的整个意义就在于你可以体验，这些体验经验会反馈回起源与我，让起源对自身有更多了解。因为除了把自己分成几十亿份，我也对同样的事感兴趣。你的部分创造也同样要求你完全了解自己，类似于起源与我自己，这也只有通过实验产生的知识拓展以及进化才能达到。你的一部分进化需要你去理解你无限的有限性，但是理解无限性需要一些理解力。例如，你只有学会骑自行车时，才知道自己会骑自行车。对维度的觉知，在维度内外运作的能力，以及随意操纵它们的能力也是如此。更进一步讲，你进化的层级决定了你可以从任何一个特定点进入部分或所有维度。这意味着你可以从任意点，包括投射到物质界的那部分你获取操控能量的知识，这就是你能和我交流的原因。而且它也证实了为何一些人有所谓的异能，比如心灵制动、心灵感应、遥视等等。
+源实体：听起来可能是这样，但事实并非如此。你成为“个体化”的整个意义就在于你可以体验，这些体验经验会反馈回起源与我，让起源对自身有更多了解。因为除了把自己分成几十亿份，我也对同样的事感兴趣。你的部分创造也同样要求你完全了解自己，类似于起源与我自己，这也只有通过实验产生的知识拓展以及进化才能达到。你的一部分进化需要你去理解你无限的有限性，但是理解无限性需要一些理解力。例如，你只有学会骑自行车时，才知道自己会骑自行车。对维度的觉知，在维度内外运作的能力，以及随意操纵它们的能力也是如此。更进一步讲，你进化的层级决定了你可以从任何一个特定点进入部分或所有维度。这意味着你可以从任意点，包括投射到物质界的那部分你获取操控能量的知识，这就是你能和我交流的原因。而且它也证实了为何一些人有所谓的异能，比如心灵制动、心灵感应、遥视等等。
 
 ME:So what you are telling me is that the scientific explanation of dimensions is incorrect? 
 
@@ -4114,7 +4114,7 @@ I was starting to get very confused over the dimensions and what they represente
 
 ME:O.K.O.K.,so what is the answer then?I can imagine that there are many scientists lining themselves up to shoot me down on this in a couple of years,so it had better be good. 
 
-我：好的好的，那么答案是什么呢？我可以想象，未来几年中会有许多科学家排着队要把我拨倒。因此，它需要好一点。
+我：好的好的，那么答案是什么呢？我可以想象，未来几年中会有许多科学家排着队要把我撂倒。因此，它需要好一点。
 
 O:They would have difficulty in doing so since they don't really understand the data that they are gaining now.They don't have the right reference point to start from,so how can they comment on something that they know nothing about in the most fundamental sense?Remember,they are searching in the dark for something they can't see or feel or even know what it looks like.As a result,when they bend down and pick up a piece of string,they think because they found it in the dark,that it is part of what they are looking for,and,therefore,give it a quantum name,quantum string,or super string. 
 
