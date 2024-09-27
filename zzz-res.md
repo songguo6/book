@@ -7,6 +7,9 @@
 [《在春天走进果园》](https://book.douban.com/subject/35501279/)|鲁米
 [《哈菲兹抒情诗全集》](https://book.douban.com/subject/27056267/)|哈菲兹
 [《博伽梵歌原意》](https://book.douban.com/subject/26575651/)|帕布帕德
+[《古往今来的秘密第一辑：失落的密码》](https://book.douban.com/subject/27063498/)|曼利·P.哈尔
+[《古往今来的秘密第二辑：失落的符号》](https://book.douban.com/subject/27104138/)|曼利·P.哈尔
+[《古往今来的秘密第三辑：失落的秘籍》](https://book.douban.com/subject/27104146/)|曼利·P.哈尔
 
 ## 灵性电影
 
