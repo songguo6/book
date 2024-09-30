@@ -4392,7 +4392,7 @@ ME:O.K.,so now I am going to ask the big question that most of the world's relig
 
 我：好的，现在我要问一个世界上大多数宗教也宣称知道答案并宣扬的大问题，为什么我们在这里？
 
-SE:That's easy.We,that is,you,Me,all the entities I have created and all the other Sources and the entities They have created are here to help the Origin understand itself.The better question should have been "Why are you here in human physical form?" 
+SE:That's easy.We,that is,you,Me,all the entities I have created and all the other Sources and the entities They have created are here to help the Origin understand itself. The better question should have been "Why are you here in human physical form?" 
 
 源实体：这很简单，我们也就是你、我、我所创造的所有实体、其他源实体以及他们所创造的所有其他实体，在这里都是为了**帮助起源了解自己**。因此，你应该这样问，为什么我们要以人类的形体存在于这里？ 
 
@@ -4424,9 +4424,9 @@ ME:Who gave the Origin sentience?
 
 我：那谁赋予起源知觉？
 
-SE:It developed it Itself over countless quadroupillions(zillions upon zillions)of years.The Origin is energy,matter,and form given sentience. 
+SE:It developed it Itself over countless quadroupillions(zillions upon zillions)of years. The Origin is energy,matter,and form given sentience. 
 
-源实体：它在无数亿万年的时间中发展自己。**起源是被赋予知觉的能量、物质及形体**。
+源实体：它在无数亿万年的时间中发展自己。**起源是被赋予了觉知的能量、物质及形体**。
 
 ME:I thought that the Origin wasn't matter? 
 
